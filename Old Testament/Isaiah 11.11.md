@@ -1,0 +1,11 @@
+# Isaiah 11:11
+
+> And it shall come to pass in that day, that the Lord shall set his hand again the <u>second</u>[^a] time to <u>recover</u>[^b] the <u>remnant</u>[^c] of his people, which shall be left, from Assyria, and from Egypt, and from Pathros, and from Cush, and from Elam, and from Shinar, and from Hamath, and from the <u>islands</u>[^d] of the sea.
+
+[Isaiah 11:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.11?lang=eng#p11)
+
+
+[^a]: [[D&C 137.6|D&C 137:6.]]
+[^b]: TG [Israel, Gathering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng); [Israel, Restoration of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng); [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
+[^c]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^d]: [[2 Nephi 10.20|2 Ne. 10:20 (19-22)]]; [[D&C 133.8|D&C 133:8.]]

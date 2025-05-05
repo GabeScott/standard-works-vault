@@ -1,0 +1,8 @@
+# Psalms 116:5
+
+> Gracious is the Lord , and righteous; yea, our God is <u>merciful</u>[^a] .
+
+[Psalms 116:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/116.5?lang=eng#p5)
+
+
+[^a]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)

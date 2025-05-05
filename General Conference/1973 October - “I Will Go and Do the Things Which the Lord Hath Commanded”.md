@@ -1,0 +1,55 @@
+# “I Will Go and Do the Things Which the Lord Hath Commanded”
+*By L. Tom Perry - Assistant to the Council of the Twelve*
+
+*Given in the October session of the 1973 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1973/10/i-will-go-and-do-the-things-which-the-lord-hath-commanded?lang=eng)
+
+There is a section in old Boston town where the gas lanterns still adorn the streets to remind us of a bygone era of “the old lamplighter”—a profession that has become obsolete with the modern age. But the service of bringing light to a troubled world must never end.
+
+Let us examine some histories of those who were not afraid to be lamplighters and give of their light for the benefit of mankind.
+
+The first few pages of the Book of Mormon record an exciting story of a family living in an environment where wickedness abounded to such an extent the Lord sent his prophets to warn the people they must repent or face destruction. Troubled with this admonition, the father inquires of the Lord concerning the course he should follow to safeguard his family from the prophesied destruction. He was instructed to take his family and leave the city. The scriptures record: “And it came to pass that he departed into the wilderness. And he left his house, and the land of his inheritance, and his gold, and his silver, and his precious things, and took nothing with him, save it were his family, and provisions, and tents. ...” (1 Ne. 2:4.)
+
+So they were instructed to leave with just the bare essentials of food, clothing, and a tent for shelter. All of the other worldly accumulations were considered nonessentials and were to be left behind; that is, save one. For they had not traveled a great distance when the Lord reminded them that they had left one essential behind and were not to proceed until they had acquired it. It is interesting to note what the Lord considered that essential to be. He instructed them to return for the record of their people and also the genealogy of their forefathers. This was not an easy assignment. They had been asked to return to an unfriendly city to ask for a favor. The father made the request of his sons to undertake this dangerous assignment. The two older sons murmured at such a difficult task but Nephi recognized it to be inspired of the Lord and makes this declaration: “... I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” (1 Ne. 3:7.)
+
+Their first approach on this dangerous mission was to reason with Laban, the keeper of the record. This brought the response from him, “... Behold thou art a robber, and I will slay thee ...” (1 Ne. 3:13), and they were forced to flee for their lives. The second approach was to go to their former home and gather up all of the riches they had left behind in an attempt to purchase the record. This approach also failed, for Laban recognized that he could have both. He took their riches from them and drove them away. After much internal strife and contention, Nephi decides to put his complete trust in the Lord and under the cover of night, seeks after the record. Laban is delivered into his hands in a drunken state and the Lord teaches Nephi a great lesson about the value of history. He declared to him that, “... It is better that one man should perish than that a nation should dwindle and perish in unbelief.” (1 Ne. 4:13.) Frightening results occur if a nation does not preserve and safeguard its sacred history. Nephi must have then realized that this sacred history would serve as a lamp to give light and direction to future generations. Certainly he was a lamplighter and willing to carry the torch to establish a new nation.
+
+There comes a time when commemorations and anniversaries of historical events give us special significance and highlight the great heritage which has been given to us. In 1976, the United States of America will celebrate its 200th birthday—a time to pause and reflect on that which has been bestowed on us.
+
+I marvel at the faith and courage of our early leaders. Among them were many lamplighters who carried the torch of freedom. Ben Franklin was one of them. He was born in Boston in 1706, the fifteenth child and the youngest son in a family of 17. His parents were hard-working and God-fearing folk. His father made soap and candles in a shop at the sign of the blue ball on Milk Street. Ben was permitted to attend school for only two years, but he made the most of that short school experience. At the age of ten, he was put to work in his father’s shop helping to make candles. After two years of making candles he became restless and wanted to try something else. His older brother gave him the opportunity of learning the printing trade. His brother was a good teacher and Ben was a good student. But he was not content to be just a printer. He started to write under an assumed name of “Silence Dogood.” He would write an article and slip it under the door of the print shop at night. His brother would find it the following morning and was so impressed with many of the articles that he published them, until he found his younger brother was the author, and that was the end of “Silence Dogood.” At 17, Ben left home and moved to Philadelphia where he soon had a job with a printing firm. At the age of 24, he owned his own newspaper which soon became one of the most noted in the colonies.
+
+Franklin had a simple formula for business success. He believed that a successful man had to work a little harder than his competitors. Ben Franklin never actually sought public office, although he had a keen interest in public affairs which led him to civic service. When he found the postal service to be poor, he made several suggestions which led to his appointment as postmaster. He established the first subscription library. When fire losses were high, he reorganized the fire department. He reformed the city police when he found that criminals were getting away without punishment. The people of Philadelphia shamefully neglected the sick and the insane in Franklin’s time. He raised money to build a city hospital, the Pennsylvania Hospital for the unfortunates. Scientists in this city were not organized, so Franklin set up the first American Philosophical Society to bring them together. The city had no school for higher education, so he helped them form an academy which later grew into the University of Pennsylvania. As a result of these and other projects, Philadelphia became the most advanced city in the 13 colonies and Pennsylvania was one of the leading colonies. What happened to the 13 colonies literally affected free people throughout the world. One man touched a city, a city touched a state, a state touched a nation, and a nation touched the world. This was the man who said he would like to come back in 200 years to see if Americans still valued their freedom. I wonder what his reaction would be if he were granted that privilege. I believe his scientific mind would be excited with our growth and progress. But I believe that his civic pride would be wounded and hurt if he witnessed how content we are to fill the role of spectator rather than player on the field, making our contribution to the betterment of mankind.
+
+I am certain, however, Ben Franklin’s hurt feelings would not last long. He would see the opportunities around him in the world today, and off would come his coat, up would go his sleeves, and he would be at the job of creating something better. Here is a lamplighter who set an example for us to follow.
+
+There is a familiar hymn I would like to have you adopt as a theme song for the next three years as we prepare for our year of celebration. I would like to have you sing it each morning as you arise to lift the hearts and spirits of your family. Whistle it as you go down the street on your way to work to remind you that the path you take will be a cleaner, happier place because you passed that way. Hum it in your shops or offices to encourage all around you to make a greater contribution. Meditate on it as you retire and kneel in prayer of thanksgiving for the opportunities you have had that day to make the world a better place.
+
+“Have I done any good in the world today?
+
+Have I helped any one in need?
+
+Have I cheered up the sad, and made someone feel glad?
+
+If not, I have failed indeed.
+
+Has any one’s burden been lighter today,
+
+Because I was willing to share?
+
+Have the sick and the weary been helped on their way?
+
+When they needed my help was I there?
+
+Then wake up, and do something more
+
+Than dream of your mansion above:
+
+Doing good is a pleasure, a joy beyond measure,
+
+A blessing of duty and love.”
+
+—LDS Hymns, no. 58.
+
+Let us sound the call today to revive the old profession of lamplighters. Let us each pick up our torch and illuminate the sacred histories, the eternal truths that divine providence has bestowed on us. Let us have the faith and courage of Nephi, roll up our sleeves like Ben Franklin, and “go and do the things which the Lord hath commanded.” May we be prepared and ready to celebrate with pride and thanksgiving our 200th anniversary with the comforting knowledge that we have made a worthy contribution to safeguard and protect those divinely inspired principles upon which this nation was established. I humbly pray, in the name of Jesus Christ. Amen.
+

@@ -1,0 +1,9 @@
+# 3 Nephi 9:18
+
+> I am the <u>light</u>[^a] and the life of the world. I am <u>Alpha and Omega</u>[^b], the beginning and the end.
+
+[3 Nephi 9:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/9?lang=eng&id=p18#p18)
+
+
+[^a]: TG [Jesus Christ, Light of the World.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-light-of-the-world?lang=eng)
+[^b]: [[Revelation 1.8|Rev. 1:8]]. TG [Jesus Christ, Firstborn](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-firstborn?lang=eng).

@@ -1,0 +1,93 @@
+# While They Are Waiting
+*By Marvin J. Ashton - Of the Quorum of the Twelve Apostles*
+
+*Given in the April session of the 1988 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1988/04/while-they-are-waiting?lang=eng)
+
+A few days ago a new friend, not now a member of the Church because of recent discipline, asked, “What can I do while I am waiting? Over the past period of time it has been made very evident what I cannot do. Tell me and others in my situation what we can do.”
+
+As I try to respond to this sincere plea from a good person, perhaps I am directing my suggestions only to a few, but they are a precious few. I would endeavor to instill hope instead of despair in those who temporarily have lost certain powers and privileges. Some of these people in this category dare not hope anymore for fear of being disappointed. May they and their families be helped with thoughts that will bring action, comfort, and a new sense of self-worth.
+
+I recall vividly and with feeling this friend’s additional request, “Please don’t tell me to be patient, loving, sweet, and understanding. I need more than that. I need solid direction. I have an urgent need to get over my frustrated feelings and get on with life. Please help me.”
+
+How can we as Church members best help these good people?
+
+I suggest a quotation from the Book of Mormon as a foundation for our actions: “Nevertheless, ye shall not cast him out from among you, but ye shall minister unto him and shall pray for him unto the Father, in my name; and if it so be that he repenteth and is baptized in my name, then shall ye receive him, and shall minister unto him of my flesh and blood” (3 Ne. 18:30).
+
+Often in the scriptures we are reminded that we should minister to all of God’s children, that we should do so with the pure love of God in our hearts. George Bernard Shaw once wrote, “The worst sin towards our fellow creatures is not to hate them, but to be indifferent to them” (The Devil’s Disciple, act 2). Indifference can be one of the most hurtful ways of behavior. Never should we in life allow ourselves to turn away, walk on the other side of the street, and pretend we didn’t see, or prohibit involvement in accepted ways. We need to learn to love everyone, even those who are difficult.
+
+A warm handshake and a friendly smile can be wonderfully healing medicine. Conversely, how unwise we are when we declare, “I’ll never speak to him again.” Never is a long time, and even those who have caused heartache or shame are not beyond ultimate repentance. Sometimes hurts to the heart are more damaging than physical blows. Yes, they may take longer to heal, but they will heal more quickly if we avoid bitterness and anger and practice forgiveness.
+
+As we support the efforts of those who are trying to work through their challenges, we should be helpful, and will be if we can extend kindness, compassion, patience, and love. It is a sad day when any one of us surrenders to sin or circumstances.
+
+Many of those “waiting” have often been hurt by thoughtless words and deeds of those around them. Blessed is he or she who avoids being offended. There are appropriate and acceptable assignments which can and should be given to those who are in this waiting period.
+
+Now as to the request of my friend, “What can I do while I’m waiting?” Also from 3 Nephi we are given this warm invitation:
+
+“Yea, verily I say unto you, if ye will come unto me ye shall have eternal life. Behold, mine arm of mercy is extended towards you, and whosoever will come, him will I receive; and blessed are those who come unto me” (3 Ne. 9:14).
+
+This scripture indicates that in life there is no waiting period before we can come unto God. In our weakness we know where we can turn for strength. What good advice and wise direction for our lives can be gleaned through study of the scriptures! Self-esteem can be renewed and strength to do His will can be revived. People must always count more than programs.
+
+As one comes unto Christ, he learns of the reality of forgiveness: “Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.
+
+“By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them” (D&C 58:42–43).
+
+When a man is convinced of the truth of that scripture, “I, the Lord, remember them no more,” he is ready to start coming back to full fellowship. Some suggestions can be made using two effective words: shun and participate. Shun means to avoid deliberately and especially consistently, to abhor. To participate, one takes part or has a share in common with others.
+
+We would recommend that one should—
+
+Shun feelings of resentment, bitterness, and contention toward individuals rendering decisions. When discipline is administered, there is a tendency on the part of some to become resentful toward the individuals and institutions who have had to make the judgment. We should permit ourselves to take a self-inventory sampling before we “cast the first stone.” Resentment and anger are not good for the soul. They are foul things.
+
+Bitterness must be replaced with humility. Truly, bitterness injures the one who carries it. It blinds, shrivels, and cankers.
+
+Some of us are inclined to look to the weaknesses and shortcomings of others in order to expand our own comfort zone. A worthy personal support system in cases like this must include, to be effective, family, friends, and acquaintances who are willing to help us cope with what we see and experience.
+
+Moroni gave us all some words of advice. “Condemn me not because of mine imperfection, neither my father, because of his imperfection, neither them who have written before him; but rather give thanks unto God that he hath made manifest unto you our imperfections, that ye may learn to be more wise than we have been” (Morm. 9:31).
+
+A repentant individual will choose his own course and proceed with confidence. He has no need to protect a wounded self. He will not allow himself the danger of self-inflicted sympathy. It is generally good medicine to sympathize with others, but not with yourself.
+
+Shun discouragement. One of Satan’s most powerful tools is discouragement. Whisperings of “you can’t do it,” “you’re no good,” “it’s too late,” “what’s the use?” or “things are hopeless” are tools of destruction. Satan would like you to believe that because you’ve made one mistake it’s all over. He wants you to quit trying. It is important that discouragement is cast out of the lives of those who are waiting. This may take a decided amount of work and energy, but it can be accomplished.
+
+Shun escape routes. There are those who would welcome you into rebellious or apostate groups. We can never build with purpose if we join the ranks of those who criticize and aim to tear down.
+
+It is easier to demean and place blame on others for our situation than it is to repent and grow. Some who set out to damage and destroy others end up losing themselves in the process. Drugs, drink, pornographic materials, and subculture associations are also escape routes. Attitudes of “it won’t matter now” or “there is nothing for you to do” are totally inappropriate. “Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world” (James 1:27). Maintaining and building require discipline and patience. Shun those who would build themselves by destroying others.
+
+Shun the desire to become anonymous. When difficulties arise, some want to fade into the crowd and become lost and unknown. Any thinking person will realize that there is a wonderful support system available to those who are listed on the records of the Church. There are those who will listen, help, and teach. There will be opportunities to study scriptures, ponder, and pray. Caring people and a caring God want to know where you are.
+
+All need to be known, recognized, and loved. Hearts and souls reach out for nurturing and meaningful association. Even those who claim they just want to be left alone are in reality seeking their own identity.
+
+Some privileges and powers are lost when we lose our membership in the Church, but let us not lose ourselves in the process of finding ourselves again. In God’s eyes, nobody is a nobody. We should never lose sight of what we may become and who we are.
+
+While waiting, there are many ways to participate:
+
+Participate with your family. Family members are priceless possessions. They offer love and strength. But even more, family members need each other. You can choose to be aware of the needs of each family member and do your part to help fill those needs. Some need a person to listen; some may need a compliment or positive reinforcement. There is strength and satisfaction in becoming involved in family projects. Encourage family love by being approachable even when you feel you have reason to turn away. The first step back in seeking family acceptance is to change oneself for the better. It is true today, true yesterday, and will be true tomorrow that effective leadership can only be administered through love.
+
+Participate in Church functions and meetings. Accept opportunities to take appropriate assignments when given the opportunity. I will always be grateful to a good man who helped our boys on a continuing basis while it was not possible for him to take part in all the Church programs. He was well loved, and he loved the boys to whom he gave time and guidance.
+
+Practice dependability and commitment. Adapt to existing conditions. There are places to serve where you are needed.
+
+When someone declares, “There’s nothing for me to do,” it just isn’t true. We sometimes make that statement because we have learned to live with present situations and resist new opportunities. Leaders must always be sensitive enough to look beyond restrictions and policies to the ultimate long-range needs of God’s children.
+
+Participate in worthy community projects, including compassionate and other volunteer services. Often our own problems seem to diminish when we become aware of the challenges faced by others. When my wife was volunteering as a pink lady at one of our local hospitals, she noticed that some of the doctors in the area would encourage their patients who were depressed, sad, or emotionally ill to join the volunteer organization. That prescription often worked better than medicine to build self-image and restore health to those who found joy in helping others.
+
+As budget cuts plague so many of our cultural and civic programs, there is a place for anyone who desires to work with Scouts, help with reputable drives to collect money, and help in schools, art galleries, welfare agencies, and many other places.
+
+There are no restrictions on participating in good works. There are no reasons to wait while God’s children are in need of your love and service. Love should be a vehicle allowed to travel without limitations. Jesus was always supremely interested in the individual over the circumstances.
+
+Participate in “reporting in.” Part of your responsibility in coming back is to find someone with whom you can share your concerns, questions, and progress. John Powell, in his book The Secret of Staying in Love, tells us that “the genius of communication is the ability to be both totally honest and totally kind at the same time” (Valencia, California: Tabor Publishing, 1974, p. 131).
+
+Look for this kind of person in your life. Problems often seem to diminish when they are vocalized. Another person’s point of view may help you gain a different perspective of a situation. It is comforting to have a listener who will share your feelings and respect your needs.
+
+Communication should be kind, gentle, open, and constructive.
+
+One of the greatest blessings available to all is personal prayer. By this means everyone can “report in” to an understanding Father who loves all His children. God knows the feelings in every human heart. He can soften sorrow and lead when there seems to be no light. Prayer can give guidance and confidence. It reminds us that no one need be alone in this world. If all else fails, remember: God and one other person can be a family.
+
+My plea and invitation to all, especially to those who have temporarily lost certain privileges, is come back. Your lives are as important to us as they should be to you. One of the main goals of the Church is to secure the development and happiness of the individual. We want to have your association and your influence. President David O. McKay once wrote:
+
+“In thus emphasizing individual effort, I am not unmindful of the necessity of cooperation. A single, struggling individual may be stalled with his heavy load even as he begins to climb the hill before him. To reach the top unaided is an impossibility. With a little help from fellow travelers he makes the grade and goes on his way in gratitude and rejoicing” (Pathways to Happiness, comp. Llewelyn R. McKay, Salt Lake City: Bookcraft, 1957, p. 131).
+
+We want to be your fellow travelers while you are en route back. Anxiously engage in actions and attitudes that will bring full fellowship and the accompanying joys and rights to which you will be entitled. We will be at your side to help as you travel upward in a support system with God at the helm. We promise you in all the days ahead, that while you are going through what is identified as a waiting period, the quotation from Psalm 142:4 [Ps. 142:4] will not be your relationship to us: “I looked on my right hand, and beheld, but there was no man that would know me: refuge failed me; no man cared for my soul.”
+
+We love you. We know you, and we care for you. We are all God’s children, and for members in The Church of Jesus Christ of Latter-day Saints and their treasured associates, there need be no waiting period. Instead we will work together for self-worth and ultimate victory in righteous achievement. To these truths I leave my witness in the name of Jesus Christ, amen.
+

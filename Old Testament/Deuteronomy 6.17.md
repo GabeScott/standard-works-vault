@@ -1,0 +1,9 @@
+# Deuteronomy 6:17
+
+> Ye shall <u>diligently</u>[^a] keep the <u>commandments</u>[^b] of the Lord your God, and his testimonies, and his statutes, which he hath commanded thee.
+
+[Deuteronomy 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.17?lang=eng#p17)
+
+
+[^a]: TG [Diligence.](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng)
+[^b]: TG [Commandments of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)

@@ -1,0 +1,11 @@
+# Ezekiel 18:31
+
+> ¶ <u>Cast</u>[^a] away from you all your transgressions, whereby ye have transgressed; and make you a new <u>heart</u>[^b] and a <u>new spirit</u>[^c] : for why will ye <u>die</u>[^d], O house of Israel?
+
+[Ezekiel 18:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.31?lang=eng#p31)
+
+
+[^a]: [[Ezekiel 20.7|Ezek. 20:7.]]
+[^b]: TG [Conversion](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng); [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^c]: TG [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
+[^d]: [[Ezekiel 33.11|Ezek. 33:11.]]

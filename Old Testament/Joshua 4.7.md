@@ -1,0 +1,9 @@
+# Joshua 4:7
+
+> Then ye shall answer them, That the waters of Jordan were cut off before the <u>ark</u>[^a] of the covenant of the Lord ; when it passed over Jordan, the waters of Jordan were cut off: and these stones shall be for a <u>memorial</u>[^b] unto the children of Israel for ever.
+
+[Joshua 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/4.7?lang=eng#p7)
+
+
+[^a]: TG [Ark of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/ark-of-the-covenant?lang=eng)
+[^b]: TG [Symbolism.](https://www.churchofjesuschrist.org/study/scriptures/tg/symbolism?lang=eng)

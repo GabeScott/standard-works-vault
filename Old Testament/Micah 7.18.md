@@ -1,0 +1,11 @@
+# Micah 7:18
+
+> Who is a God like unto thee, that <u>pardoneth</u>[^a] iniquity, and passeth by the transgression of the remnant of his heritage? he retaineth not his <u>anger</u>[^b] for ever, because he <u>delighteth</u>[^c] in <u>mercy</u>[^d] .
+
+[Micah 7:18](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.18?lang=eng#p18)
+
+
+[^a]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^b]: [[Isaiah 57.16|Isa. 57:16]]; [[Jeremiah 3.5|Jer. 3:5 (1-5).]]
+[^c]: [[Jeremiah 9.24|Jer. 9:24.]]
+[^d]: TG [God, Mercy of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng); [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)

@@ -1,0 +1,61 @@
+# Look to the Book, Look to the Lord
+*By Gary E. Stevenson - Of the Quorum of the Twelve Apostles*
+
+*Given in the October session of the 2016 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/2016/10/look-to-the-book-look-to-the-lord?lang=eng)
+
+In my mind, I imagine you of the rising generation watching or listening to this conference session somewhere in the world. I’d like to share a true story with you, a story that can be both an example and a lesson. It can show you how to get closer to the Lord and access greater power to resist temptation.
+
+This is a story of a young girl, living in New York, who before age three lost her father when his boat sank on a large lake. She, her mother, older brother, and younger sister moved to a new city in another state to live with her aunt and uncle. Sometime after the family arrived, missionaries and members of a newly organized religion came to their town with the glorious news of the Restoration of the gospel. They told a remarkable story of an angel delivering an ancient record to a young man named Joseph Smith, a record he had translated by the power of God. Two of the visitors, Oliver Cowdery and John Whitmer, had actually seen the engraved metal pages of the ancient record with their own eyes, and Whitmer witnessed he had held the golden plates in his own hands. This record had been recently published, and Brother Whitmer brought the book with him. The name of the book, of course, was the Book of Mormon.
+
+When 12-year-old Mary heard the missionaries speak about the book, she had a special feeling in her heart. Even though the Book of Mormon was thick with many pages, Mary yearned to read it. When Brother Whitmer departed, he gave one precious copy of the book to Brother Isaac Morley, who was a friend of Mary’s uncle and a local leader in the new church.
+
+Mary later recorded: “I went to [Brother Morley’s] house ... and asked to see the Book; [he] put it in my hand, [and] as I looked at it, I felt such a desire to read it, that I could not refrain from asking him to let me take it home and read it. ... He said ... he had hardly had time to read a chapter in it himself, and but few of the brethren had even seen it, but I plead so earnestly for it, he finally said, ‘child, if you will bring this book home before breakfast tomorrow morning, you may take it.’”
+
+Mary ran home and was so captured by the book that she stayed up nearly all night reading it. The next morning, when she returned the book, Brother Morley said, “I guess you did not read much in it” and “I don’t believe you can tell me one word of it.” Mary stood up straight and repeated from memory the first verse of the Book of Mormon. She then told him the story of the prophet Nephi. Mary later wrote, “He gazed at me in surprise, and said, ‘child, take this book home and finish it, I can wait.’”
+
+A short time later, Mary finished reading the book and was the first person in her town to read the entire book. She knew it was true and that it came from Heavenly Father. As she looked to the book, she looked to the Lord.
+
+One month later a special visitor came to her house. Here is what Mary wrote about her memorable encounter that day: “When [Joseph Smith] saw me he looked at me so earnestly. ... After a moment or two he ... gave me a great blessing ... and made me a present of the book, and said he would give Brother Morley another [copy]. ... We all felt that he was a man of God, for he spoke with power, and as one having authority.”
+
+This young girl, Mary Elizabeth Rollins, saw many other miracles in her life and always kept her testimony of the Book of Mormon. This story has special meaning to me because she is my fourth-great-aunt. Through Mary’s example, along with other experiences in my life, I have learned that one is never too young to seek and receive a personal testimony of the Book of Mormon.
+
+There is a personal lesson for you in Mary’s story. Each of you young men, young women, and children can have the same feelings she had. When you read the Book of Mormon and pray with a desire to know it is true, you too can receive the same impression in your heart that Mary received. You may also find that as you stand and bear witness of the Book of Mormon, you will feel the same spirit of confirmation. The Holy Ghost will speak to your heart. You can also feel this same spirit of confirmation when you hear others share their testimonies of the Book of Mormon. Each of these spiritual witnesses can lead to the Book of Mormon becoming the keystone of your testimony.
+
+Let me explain. The Prophet Joseph Smith, who translated the Book of Mormon through “the gift and power of God,” described the Book of Mormon as “the most correct of any book on earth, and the keystone of our religion.”
+
+Since the Book of Mormon’s first printing in 1830, more than 174 million copies have been published in 110 different languages, demonstrating that the Book of Mormon is still the keystone of our religion. But what does this mean for each of you?
+
+In architectural terms a keystone is a main element in an arched gateway. It is the wedge-shaped stone in the very center and at the highest point of an arch. It is the most important of the stones because it keeps the sides of the arch in place, preventing collapse. And it is the structural element that ensures the gate, or opening below, is passable.
+
+In gospel terms it is a gift and blessing from the Lord that the keystone of our religion is something as tangible and graspable as the Book of Mormon and that you can hold it and read it. Can you see the Book of Mormon as your keystone, your spiritual center of strength?
+
+President Ezra Taft Benson expanded on those teachings of Joseph Smith. He said: “There are three ways in which the Book of Mormon is the keystone of our religion. It is the keystone in our witness of Christ. It is the keystone of our doctrine. It is the keystone of testimony.”
+
+President Benson further taught: “The Book of Mormon teaches us truth [and] bears testimony of Christ. ... But there is something more. There is a power in the book which will begin to flow into your lives the moment you begin a serious study of the book. You will find greater power to resist temptation. ... You will find the power to stay on the strait and narrow path.”
+
+In my case the Book of Mormon became the keystone of my testimony over a period of years and through a number of experiences. One powerful experience in forming my testimony occurred while I was a young missionary serving in my first area: Kumamoto, Japan. My companion and I were house-to-house proselyting. I met a grandmother who kindly invited us into the entry of her home, which is called a genkan in Japanese. She offered us a cold drink on a hot day. I had not been in Japan very long, and I had recently completed reading the Book of Mormon and had been praying to know with certainty that it was true.
+
+Because of my newness to Japan, I didn’t speak Japanese very well. In fact, I don’t think this woman understood much of what I was saying. I began teaching her about the Book of Mormon, describing how Joseph Smith received from an angel an ancient record engraved on plates and how he translated them by the power of God.
+
+As I offered her my testimony that the Book of Mormon is the word of God and another testament of Jesus Christ, I received the strongest impression, accompanied by a warm feeling of comfort and serenity inside my chest, which the scriptures describe as “your bosom [burning] within you.” This feeling reaffirmed to me in a powerful way that the Book of Mormon truly is the word of God. At that time my feelings were so strong that tears came to my eyes as I talked to this Japanese grandmother. I have never forgotten the special feeling of that day.
+
+Each of you can also receive a personal witness of this book! Do you realize that the Book of Mormon was written for you—and for your day? This book is one of the blessings of living in what we call the dispensation of the fulness of times. Although the Book of Mormon was written by inspired, ancient authors—many of whom were prophets—they and the people of their day did not have the benefit of possessing the whole book. You now have easily within your reach the sacred record that prophets, priests, and kings treasured, embraced, and preserved! You have the benefit of holding in your hands the complete Book of Mormon. Interestingly, one of the Book of Mormon prophets, Moroni, saw our day—your day. He even saw you, in vision, many hundreds of years ago! Moroni wrote:
+
+“Behold, the Lord hath shown unto me great and marvelous things concerning ... that day when these things,” meaning the Book of Mormon, “shall come forth among you.
+
+“Behold, I speak unto you as if ye were present, and yet ye are not. But behold, Jesus Christ hath shown you unto me, and I know your doing.”
+
+In order to help the Book of Mormon become the keystone of your testimony, I offer you a challenge. I recently learned that many young people spend an average of seven hours a day looking at TV, computer, and smartphone screens. With this in mind, would you make a small change? Will you replace some of that daily screen time—particularly that devoted to social media, the internet, gaming, or television—with reading the Book of Mormon? If the studies I referred to are accurate, you could easily find time for daily study of the Book of Mormon even if for only 10 minutes a day. And you can study in a way that allows you to enjoy it and understand it—either on your device or in book form. President Russell M. Nelson recently cautioned, “We should never make reading the Book of Mormon seem like an onerous duty, like the gulping of nasty medicine to be swallowed quickly and then checked off with finality.”
+
+For some of you younger children, you might read it with a parent, grandparent, or loved one. If a chapter, verse, or portion becomes difficult enough to discourage your reading, move on to the next and the next. I picture you following the example of Mary. I picture you excitedly finding time and a quiet place to read the Book of Mormon. I see you discovering answers, feeling guidance, and gaining your own testimony of the Book of Mormon and a testimony of Jesus Christ. As you look to the book, you look to the Lord.
+
+You will pore through the passages of this precious book and encounter your beloved Savior, the Lord Jesus Christ, on nearly every page. It is estimated that some form of His name is used an average of once every 1.7 verses. Even Christ Himself testified of its truthfulness in these the latter days, stating, “As your Lord and your God liveth it is true.”
+
+I am grateful for the invitation and promise that the Lord has offered through the prophet Moroni to each of you—and to everyone who reads the Book of Mormon. I close by reading this invitation and promise and adding my testimony: “And when ye shall receive these things [the Book of Mormon], I would exhort you that ye would ask God, the Eternal Father, in the name of [Jesus] Christ, if these things are not true; and if ye shall ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost.”
+
+I bear testimony of the Restoration of the gospel in these latter days and of the Book of Mormon as tangible evidence of that Restoration. Just as the words of this book inspired a 12-year-old girl to embrace the restored Church of Jesus Christ nearly two centuries ago, the truths you will find there will uplift and inspire you in a similar way. They will strengthen your faith, fill your soul with light, and prepare you for a future you scarcely have the ability to comprehend.
+
+Within the book’s pages, you will discover the infinite love and incomprehensible grace of God. As you strive to follow the teachings you find there, your joy will expand, your understanding will increase, and the answers you seek to the many challenges mortality presents will be opened to you. As you look to the book, you look to the Lord. The Book of Mormon is the revealed word of God. Of this I testify, with all my heart and soul, in the name of Jesus Christ, amen.
+

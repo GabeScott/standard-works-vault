@@ -1,0 +1,7 @@
+# Ruth 1:13
+
+> Would ye tarry for them till they were grown? would ye stay for them from having husbands? nay, my daughters; for it grieveth me much for your sakes that the hand of the Lord is gone out against me.
+
+[Ruth 1:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/1.13?lang=eng#p13)
+
+

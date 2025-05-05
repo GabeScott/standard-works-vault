@@ -1,0 +1,49 @@
+# Making Faith a Reality
+*By By Janette Hales Beckham - Recently Released Young Women General President*
+
+*Given in the October session of the 1997 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1997/10/making-faith-a-reality?lang=eng)
+
+It would be difficult to imagine a more pure and perfect example of innocence than a newborn baby. We just returned from welcoming a new grandson. As I held little Benjamin, I recalled a question asked of me by the editor of a national magazine. In an interview she inquired, “How do you prepare your young people to live in the real world?” Our visit reminded me that our perception of the real world to some extent is dependent on our experience. She and I could quickly relate to the challenges in the world, but for me preparation for the real world has a dimension of faith that hers did not.
+
+Our discussion caused me to consider with renewed appreciation the experiences that help make faith a reality in a person’s life. In order to have faith, or know that we have faith, we need to have experience with faith. For little Benjamin that experience has begun already as his mother and father join in prayer with his older brother before he is tucked into bed. As an infant, he is a witness of faith in his family. He is gaining experience.
+
+After Primary a few weeks ago our four-year-old grandson, Michael, reported to his parents, “When I pray, my heart feels like a roasted marshmallow.” Already Michael is recognizing the feelings associated with faith. How fortunate that he is willing and able to identify and talk about his feelings with his parents.
+
+The prophet Alma described these feelings when he said, “For ye know that the word hath swelled your souls, ... that your understanding doth begin to be enlightened. ... O then, is not this real? I say unto you, Yea, because it is light; and whatsoever is light, is good, because it is discernible” (Alma 32:34–35).
+
+Learning to discern the teachings of the Spirit is an important part of helping faith become a reality. My daughter Karen shared her experience. She said, “When I was just a little girl, I started reading the Book of Mormon for the first time. After many days of reading, I came one night to 1 Nephi 3:7 [1 Ne. 3:7]: ‘I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.’” Karen continued: “I didn’t know this was a famous verse, but as I read that verse, I felt strongly impressed. I was impressed that Heavenly Father would help us keep His commandments, but the deep impression was really more of a feeling. I had seen my parents mark verses in their scriptures with red pencils. So I got up and searched through the house until I found a red pencil, and with a great sense of solemnity and importance, I marked that verse in my own Book of Mormon.” Karen continued, “Over the years as I read the scriptures, that experience was repeated time and time again—reading a verse and feeling deeply impressed. In time I came to recognize that feeling as the Holy Ghost. As a missionary I saw others read verses and feel deeply impressed to the extent that they were willing and able to change their lives and accept the gospel.”
+
+As we are learning to discern the promptings of the Spirit, there are so many distractions. At one time President Ezra Taft Benson reminded us that “the world shouts louder than the whisperings of the Holy Ghost” (“Beware of Pride,” Ensign, May 1989, 5). Each of us has to learn to be sensitive and to listen to the whisper.
+
+Years ago a friend was feeling challenged as she saw the world shouting at her family. She said, “I wish we could lock our children in the temple until they turn 21.” That solution might have kept them innocent, but that is not the plan. Just as Adam and Eve had to leave the Garden of Eden, spiritual maturity requires that we have experience in this world. It is experience that helps us know good from evil. It is experience that helps us recognize the promptings of the Spirit.
+
+Experience can also help us recognize when good feelings are lacking. In the booklet For the Strength of Youth, it states: “You cannot do wrong and feel right. It is impossible!” (pamphlet, 1990, 4). A young woman said: “The past few weeks I have come back to the Church. I went to my bishop and repented and I’ve been trying to live the gospel.” She added, “I have learned something: when I do good, I feel good.”
+
+Our Heavenly Father knew we would make mistakes as we learn to make choices. He provided a Savior for us. Elder Bruce C. Hafen said because of “the Atonement of Jesus Christ [we may] learn from our experience without being condemned by that experience” (“Eve Heard All These Things and Was Glad,” in Women in the Covenant of Grace, ed. Dawn Hall Fletcher and Susette Fletcher Green [1994], 32; emphasis added). We need to know how the Atonement works in our lives and how good feelings can be regained and retained when mistakes have been made.
+
+As we gain experience in this demanding “real world,” we sometimes fail to see the sacred nature of our seemingly routine daily tasks. Fundamentals of daily living—scripture reading, prayer, family home evening, the conversation at dinner—these provide the experiences that make faith a reality.
+
+Arthur Henry King, in discussing the importance of scripture reading, wrote:
+
+“Some may think that the language of the scriptures is too difficult for children, but ... [w]e need to remember that the Lord has given children faculties for learning language even greater than those of adults. ...
+
+“It is good for children to hear their favorite passages of scripture, and their other favorite stories, too, over and over. ... We should not bring up our children to respond to the exciting, the thrilling. ... They are a titillation of the nerves. To be moved is one thing; to be excited or titillated, a very different thing. If we bring up our children always to be wanting something new, ... they will have to have a stronger [and stronger] stimulus each time until they finally [burst]. But if we inure our children to stability, to repetition, to normal life ... , then they will live decent lives” (The Abundance of the Heart [1986], 222–23; emphasis added).
+
+The time we spend with children and youth in their growing years provides the experience that is preparation for the real world.
+
+A young man returning from his mission shared his experience with faith. He acknowledged it as a miracle in his life. He said, “I was the first of six children born to my parents. My mother and father taught me when I was young the principles of the gospel. Faith was taught through the example of both my mother and father. When I was only 10 years old, my father, this great example of trusting the Lord, was killed in an accident. I was young and had many feelings to deal with that were new to me.” This young man said he realized that he had two choices available to him, “I could have become bitter towards the Lord and lost all that I now have, or I could trust the Lord. Because of the example of my parents, trust was the path I chose. Choosing faith has made all of the difference.”
+
+Being a witness of the faith of young people has increased my faith. One young mother wrote:
+
+“When I was 13 I knew my life was not worth living. I was living in an abusive home where there never seemed to be lasting happiness. My two best friends told me they didn’t want to be friends with me anymore because I thought I was too good for them, which made no sense but left me feeling completely alone.
+
+“As the battles in my house continued to rage, I went to my bedroom. I was so scared. I knelt and called to the one person I still knew I had. I pleaded to my Father in Heaven to somehow take me home. I said, ‘Father, I need to be with you. I need to feel your arms around me.’ As I sat crying and quietly waiting in that desperate moment for Heavenly Father’s arms to reach down, I heard a voice, ‘Put your arms around yourself, and I will be with you.’ As I followed that prompting, I felt Heavenly Father’s love assure me that I could go on, and I would go on and I was not alone.”
+
+At a difficult time, this young woman turned to Heavenly Father. Her experience made her faith stronger and more real. The reward of her faith is evident in her temple marriage and family life today (see Alma 32:42–43).
+
+I am so thankful for leaders who encourage us to commit to experiences that help build faith. The auxiliaries of the Church are a resource to families in strengthening the faith of members. The Personal Progress program encourages each young woman to make commitments that will help make her faith a reality. Her choices invite her to make a commitment, carry it out, and report to someone. It is the process of progress. It is very much the same process we go through as we accept callings in the Church—make a commitment, carry it out, and report to someone. One of the miracles of the Restoration of the gospel and the organization of the Church in these latter days is that the plan allows growth and change to come to the members. We each have available to us the experience that will help us change—to become spiritually mature. Through our own repeated efforts, our faith can become a reality.
+
+May I, in concluding my service, express my love and appreciation to the many who have counseled and supported me—the First Presidency, priesthood leaders, and the other auxiliary leaders. My counselors, past and present, the Young Women general board, and the Young Women office staff are magnificent women, women of faith. Wherever they serve, their names will be known for good. I express gratitude to my Heavenly Father for my experience here, in the name of His Son, Jesus Christ, amen.
+

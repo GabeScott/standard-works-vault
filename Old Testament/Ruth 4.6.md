@@ -1,0 +1,9 @@
+# Ruth 4:6
+
+> ¶ And the kinsman said, I cannot <u>redeem</u>[^a] it for myself, lest I <u>mar</u>[^b] mine own inheritance: redeem thou my right to thyself; for I cannot redeem it.
+
+[Ruth 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/4.6?lang=eng#p6)
+
+
+[^a]: TG [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
+[^b]: [[Deuteronomy 25.6|Deut. 25:6 (5-6).]]

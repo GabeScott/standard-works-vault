@@ -1,0 +1,11 @@
+# Hebrews 11:7
+
+> By faith <u>Noah</u>[^a], being <u>warned</u>[^b] of God of things not seen as yet, <u>moved with fear</u>[^c], prepared an ark to the saving of his house; by the which he condemned the world, and became heir of the <u>righteousness</u>[^d] which is by faith.
+
+[Hebrews 11:7](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.7?lang=eng#p7)
+
+
+[^a]: [[Genesis 6.22|Gen. 6:22]]; [[Genesis 8.1|8:1]]; [[1 Peter 3.20|1 Pet. 3:20 (20-21)]]; 2 Pet. 2:5.
+[^b]: TG [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^c]: GR being cautious, reverent.
+[^d]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)

@@ -1,0 +1,8 @@
+# Acts 8:19
+
+> Saying, Give me also this <u>power</u>[^a], that on whomsoever I lay hands, he may receive the Holy Ghost.
+
+[Acts 8:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.19?lang=eng#p19)
+
+
+[^a]: TG [Priesthood, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng); [Selfishness](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng); [Unrighteous Dominion.](https://www.churchofjesuschrist.org/study/scriptures/tg/unrighteous-dominion?lang=eng)

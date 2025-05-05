@@ -1,0 +1,7 @@
+# 2 Corinthians 10:11
+
+> Let such an one think this, that, such as we are in word by letters when we are absent, such will we be also in deed when we are present.
+
+[2 Corinthians 10:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.11?lang=eng#p11)
+
+

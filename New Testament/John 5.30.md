@@ -1,0 +1,10 @@
+# John 5:30
+
+> I can of mine own self do nothing: as I hear, I judge: and my judgment is <u>just</u>[^a]; because I seek not mine own <u>will</u>[^b], but the <u>will</u>[^c] of the Father which hath sent me.
+
+[John 5:30](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.30?lang=eng#p30)
+
+
+[^a]: TG [God, Justice of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
+[^b]: [[2 Nephi 31.7|2 Ne. 31:7 (7-10)]]. TG [Agency](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng).
+[^c]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)

@@ -1,0 +1,9 @@
+# Luke 3:15
+
+> And as the people were in expectation, and all men <u>mused</u>[^a] in their hearts of <u>John</u>[^b], whether he were the Christ, or not;
+
+[Luke 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.15?lang=eng#p15)
+
+
+[^a]: TG [Meditation.](https://www.churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng)
+[^b]: [[John 1.19|John 1:19 (19-27).]]

@@ -1,0 +1,65 @@
+# The Priesthood—a Sacred Gift
+*By Thomas S. Monson - First Counselor in the First Presidency*
+
+*Given in the April session of the 2007 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/2007/04/the-priesthood-a-sacred-gift?lang=eng)
+
+Brethren, we are assembled this evening as a mighty body of the priesthood, both here in the Conference Center and in locations throughout the world. I am honored by the privilege to speak to you. I pray that the inspiration of the Lord will guide my thoughts and inspire my words.
+
+During the past several weeks, as I have contemplated what I might say to you tonight, I have thought repeatedly of the blessing which is ours to be bearers of the sacred priesthood of God. When we look at the world as a whole, with a population of over 6 1/2 billion people, we realize that we comprise a very small, select group. We who hold the priesthood are, in the words of the Apostle Peter, “a chosen generation, a royal priesthood.”1
+
+President Joseph F. Smith defined the priesthood as “the power of God delegated to man by which man can act in the earth for the salvation of the human family, ... by which [men] may speak the will of God as if the angels were here to speak it themselves; by which men are empowered to bind on earth and it shall be bound in heaven, and to loose on earth and it shall be loosed in heaven.” President Smith added, “[The priesthood] is sacred, and it must be held sacred by the people.”2
+
+My brethren, the priesthood is a gift which brings with it not only special blessings but also solemn responsibilities. It is our responsibility to conduct our lives so that we are ever worthy of the priesthood we bear. We live in a time when we are surrounded by much that is intended to entice us into paths which may lead to our destruction. To avoid such paths requires determination and courage.
+
+Courage counts. This truth came to me in a most vivid and dramatic manner many years ago. I was serving as a bishop at the time. The general session of our stake conference was being held in the Assembly Hall on Temple Square in Salt Lake City. Our stake presidency was to be reorganized. The Aaronic Priesthood, including members of bishoprics, were providing the music for the conference. As we concluded singing our first selection, President Joseph Fielding Smith, our conference visitor, stepped to the pulpit and read for sustaining approval the names of the new stake presidency. He then mentioned that Percy Fetzer, who became our new stake president, and John Burt, who became the first counselor—each of whom had been counselors in the previous presidency—had been made aware of their new callings before the conference began. However, he indicated that I, who had been called to be second counselor in the new presidency, had no previous knowledge of the calling and was hearing of it for the first time as my name was read for sustaining vote. He then announced, “If Brother Monson is willing to respond to this call, we will be pleased to hear from him now.”
+
+As I stood at the pulpit and gazed out on that sea of faces, I remembered the song we had just sung. It pertained to the Word of Wisdom and was titled “Have Courage, My Boy, to Say No.” That day I selected as my acceptance theme “Have Courage, My Boy, to Say Yes.” The call for courage comes constantly to each of us—the courage to stand firm for our convictions, the courage to fulfill our responsibilities, the courage to honor our priesthood.
+
+Wherever we go, our priesthood goes with us. Are we standing in “holy places”?3 Said President J. Reuben Clark Jr., who served for many years as a counselor in the First Presidency: “The Priesthood is not like a suit of clothes that you can lay off and take back on. ... Depending upon ourselves [it is] an everlasting endowment.” He continued: “If we really had that ... conviction ... that we could not lay [the priesthood] aside, and that God would hold us responsible if we [demeaned] it, it would save us from doing a good many things, save us from going a good many places. If, every time we started a little detour away from the straight and narrow, we would remember, ‘I am carrying my Priesthood here. Should I?’ it would not take us long to work back into the straight and narrow.”4
+
+President Spencer W. Kimball said: “There is no limit to the power of the priesthood which you hold. The limit comes in you if you do not live in harmony with the Spirit of the Lord and you limit yourselves in the power you exert.”5
+
+My brethren of the priesthood—from the youngest to the oldest—are you living your life in accordance with that which the Lord requires? Are you worthy to bear the priesthood of God? If you are not, make the decision here and now, muster the courage it will take, and institute whatever changes are necessary so that your life is what it should be. To sail safely the seas of mortality, we need the guidance of that eternal mariner—even the great Jehovah. If we are on the Lord’s errand, we are entitled to the Lord’s help.
+
+His help has come to me on countless occasions throughout my life. During the final phases of World War II, I turned 18 and was ordained an elder—one week before I departed for active duty with the navy. A member of my ward bishopric was at the train station to bid me farewell. Just before train time, he placed in my hand a book which I hold before you tonight. Its title: The Missionary’s Hand Book. I laughed and commented, “I’ll be in the navy—not on a mission.” He answered, “Take it anyway. It may come in handy.”
+
+It did. During basic training our company commander instructed us concerning how we might best pack our clothing in a large seabag. He then advised, “If you have a hard, rectangular object you can place in the bottom of the bag, your clothes will stay more firm.” I thought, “Where am I going to find a hard, rectangular object?” Suddenly I remembered just the right rectangular object—The Missionary’s Hand Book. And thus it served for 12 weeks at the bottom of that seabag.
+
+The night preceding our Christmas leave, our thoughts were, as always, on home. The barracks were quiet. Suddenly I became aware that my buddy in the adjoining bunk—a member of the Church, Leland Merrill—was moaning in pain. I asked, “What’s the matter, Merrill?”
+
+He replied, “I’m sick. I’m really sick.”
+
+I advised him to go to the base dispensary, but he answered knowingly that such a course would prevent him from being home for Christmas. I then suggested he be quiet so that we didn’t awaken the entire barracks.
+
+The hours lengthened; his groans grew louder. Then, in desperation, he whispered, “Monson, aren’t you an elder?” I acknowledged this to be so, whereupon he pleaded, “Give me a blessing.”
+
+I became very much aware that I had never given a blessing. I had never received such a blessing; I had never witnessed a blessing being given. My prayer to God was a plea for help. The answer came: “Look in the bottom of the seabag.” Thus, at 2:00 a.m. I emptied on the deck the contents of the bag. I then took to the night-light that hard, rectangular object, The Missionary’s Hand Book, and read how one blesses the sick. With about 120 curious sailors looking on, I proceeded with the blessing. Before I could stow my gear, Leland Merrill was sleeping like a child.
+
+The next morning, Merrill smilingly turned to me and said, “Monson, I’m glad you hold the priesthood!” His gladness was only surpassed by my gratitude—gratitude not only for the priesthood but for being worthy to receive the help I required in a time of desperate need and to exercise the power of the priesthood.
+
+Brethren, our Lord and Savior said, “Come, follow me.”6 When we accept His invitation and walk in His footsteps, He will direct our paths.
+
+In April of 2000, I felt such direction. I had received a phone call from Rosa Salas Gifford, whom I did not know. She explained that her parents had been visiting from Costa Rica for a few months and that just a week prior to her call, her father, Bernardo Agusto Salas, had been diagnosed with liver cancer. She indicated that the doctors had informed the family that her father would live just a few more days. Her father’s great desire, she explained, was to meet me before he died. She left her address and asked if I could come to her home in Salt Lake City to visit with her father.
+
+Because of meetings and obligations, it was rather late when I left my office. Instead of going straight home, however, I felt impressed that I should drive further south and visit Brother Salas that very evening. With the address in hand, I attempted to locate the residence. In rather heavy traffic and with dimming light, I drove past the location where the road to the house should have been. I could see nothing. However, I don’t give up easily. I drove around the block and came back. Still nothing. One more time I tried and still no sign of the road. I began to feel that I would be justified in turning toward home. I had made a gallant effort but had been unsuccessful in finding the address. Instead, I offered a silent prayer for help. The inspiration came that I should approach the area from the opposite direction. I drove a distance and turned the car around so that I was now on the other side of the road. Going in this direction, the traffic was much lighter. As I neared the location once again, I could see, through the faint light, a street sign that had been knocked down—it was lying on its side at the edge of the road—and a nearly invisible, weed-covered track leading to a small apartment building and a single, tiny residence some distance from the main road. As I drove toward the buildings, a small girl in a white dress waved to me, and I knew that I had found the family.
+
+I was ushered into the home and then to the room where Brother Salas lay. Surrounding the bed were three daughters and a son-in-law, as well as Sister Salas. All but the son-in-law were from Costa Rica. Brother Salas’s appearance reflected the gravity of his condition. A damp rag with frayed edges—not a towel or a washcloth but a damp rag with frayed edges—rested upon his forehead, emphasizing the humble economic circumstances of the family.
+
+With some prompting, Brother Salas opened his eyes, and a wan smile graced his lips as I took him by the hand. I spoke the words, “I have come to meet you.” Tears welled up in his eyes and in mine.
+
+I asked if a blessing would be desired, and the unanimous answer from the family members was affirmative. Since the son-in-law did not hold the priesthood, I proceeded by myself to provide a priesthood blessing. The words seemed to flow freely under the direction of the Spirit of the Lord. I included the Savior’s words found in the Doctrine and Covenants, section 84, verse 88: “I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.” Following the blessing, I offered a few words of comfort to the grieving family members. I spoke carefully so they could understand my English. And then, with my limited Spanish language ability, I let them know that I loved them and that our Heavenly Father would bless them.
+
+I asked for the family Bible and directed their attention to 3 John, verse 4: “I have no greater joy than to hear that my children walk in truth.” I said to them, “This is what your husband and father would have you remember as he prepares to depart this earthly existence.”
+
+With tears streaming down her face, Brother Salas’s sweet wife then asked if I would write down the references for the two scriptures I had shared with them so that the family might read them again. Not having anything handy on which I could write, Sister Salas reached into her purse and drew from it a slip of paper. As I took it from her, I noticed it was a tithing receipt. My heart was touched as I realized that, despite the extremely humble circumstances in which the family lived, they were faithful in paying their tithes.
+
+After a tender farewell, I was escorted to my car. As I drove homeward, I reflected on the special spirit we had felt. I experienced, as well, as I have many times before, a sense of gratitude that my Heavenly Father had answered another person’s prayer through me.
+
+My brethren, let us ever remember that the priesthood of God which we bear is a sacred gift which brings to us and to those we serve the blessings of heaven. May we, in whatever place we may be, honor and protect that priesthood. May we ever be on the Lord’s errand, that we might ever be entitled to the Lord’s help.
+
+There is a war being waged for men’s souls—yours and mine. It continues without abatement. Like a clarion call comes the word of the Lord to you and to me and to priesthood holders everywhere: “Wherefore, now let every man learn his duty, and to act in the office in which he is appointed, in all diligence.”7
+
+May we each have the courage to do so, I pray in the name of Jesus Christ, amen.
+

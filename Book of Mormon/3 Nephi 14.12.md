@@ -1,0 +1,8 @@
+# 3 Nephi 14:12
+
+> Therefore, all things whatsoever ye would that men should do to you, <u>do</u>[^a] ye even so to them, for this is the law and the prophets.
+
+[3 Nephi 14:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/14?lang=eng&id=p12#p12)
+
+
+[^a]: TG [Benevolence](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng); [Compassion](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng); [Courtesy.](https://www.churchofjesuschrist.org/study/scriptures/tg/courtesy?lang=eng)

@@ -1,0 +1,7 @@
+# Joshua 8:1
+
+> And the Lord said unto Joshua, Fear not, neither be thou dismayed: take all the people of war with thee, and arise, go up to Ai: see, I have given into thy hand the king of Ai, and his people, and his city, and his land:
+
+[Joshua 8:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8.1?lang=eng#p1)
+
+

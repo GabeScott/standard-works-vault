@@ -1,0 +1,7 @@
+# Acts 10:4
+
+> And when he looked on him, he was afraid, and said, What is it, Lord? And he said unto him, Thy prayers and thine alms are come up for a memorial before God.
+
+[Acts 10:4](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.4?lang=eng#p4)
+
+

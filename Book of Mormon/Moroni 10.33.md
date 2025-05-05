@@ -1,0 +1,11 @@
+# Moroni 10:33
+
+> And again, if ye by the grace of God are perfect in Christ, and deny not his power, then are ye <u>sanctified</u>[^a] in Christ by the grace of God, through the shedding of the <u>blood</u>[^b] of Christ, which is in the covenant of the Father unto the remission of your <u>sins</u>[^c], that ye become <u>holy</u>[^d], without spot.
+
+[Moroni 10:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p33#p33)
+
+
+[^a]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^b]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^c]: [[Exodus 34.7|Ex. 34:7.]]
+[^d]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)

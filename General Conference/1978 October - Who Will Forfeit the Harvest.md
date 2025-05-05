@@ -1,0 +1,101 @@
+# Who Will Forfeit the Harvest?
+*By Marvin J. Ashton - Of the Council of the Twelve*
+
+*Given in the October session of the 1978 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1978/10/who-will-forfeit-the-harvest?lang=eng)
+
+Today in many places of the world it is harvest time. Crops are being gathered for the use and benefit of all mankind. Besides being an appropriate time for all of us to give thanks, harvest time should be a time of personal contemplation, evaluation, and planning. In farming or in just plain living, what contributes to a successful harvest? What can we do to ensure better crops and production? On the other hand, what could cause us to forfeit the harvest?
+
+In the thirteenth chapter of Matthew, by use of the parable of the sower, the Savior points out conditions that cause crop failure. He answers the question, “Who will forfeit the harvest?” His warnings and observations are worthy. The same stony places are with us now; and unless we are mindful, our personal harvest can be lost.
+
+“Behold, a sower went forth to sow;
+
+“And when he sowed, some seeds fell by the way side and the fowls came and devoured them up:
+
+“Some fell upon stony places, where they had not much earth: and forthwith they sprung up, because they had no deepness of earth:
+
+“And when the sun was up, they were scorched; and because they had no root, they withered away.
+
+“But he that received seed into the good ground is he that heareth the word, and understandeth it; which also beareth fruit, and bringeth forth, some an hundredfold, some sixty, some thirty.” (Matt. 13:3–6, 23.)
+
+The promise of the harvest is there for those who receive the seed unto good ground and establish roots that are strong.
+
+Let me share with you four prevalent conditions on the horizon today that can cause us to lose the harvest.
+
+Unwillingness to accept human qualities. When Jesus had taught with such profound wisdom, judgment, and skill, some of those closest to him were astonished by his amazing abilities and miracles, and said, “Whence hath this man this wisdom, and these mighty works?
+
+“Is not this the carpenter’s son? is not his mother called Mary? ...
+
+“are they not all with us?” (Matt. 13:54–56; italics added.) They were mightily impressed, even astonished, at his words and works, but had difficulty accepting the source. “Is not this the carpenter’s son? ... are they not all with us?”
+
+Today some are sowing seeds on stony places because they, too, doubt the authority of those who give counsel and direction. There is a tendency on the part of some to ignore, criticize, or rebel because they cannot accept the human delivery system. Some will not accept Jesus Christ as the Savior because they are waiting for a Prince of Peace to come who is not quite as human as Jesus of Nazareth. Questions such as, “Is not this the carpenter’s son?” “Is not this the one born in a manger?” “Can any good ... come out of Nazareth?” (John 1:46) are evidences of the weakness of men who are unwilling to accept the human qualities of those who are called and raised up to give direction and counsel.
+
+We, too, should not be deceived by doubters who would use the same tactics by planting thorns to destroy the harvest. How can we avoid crop failure in this area of concern? By not allowing our roots to be withered away by winds and storms of: “Is not this the one who was raised in Arizona?” “Is not this the one who came from Canada?” “Is not this the one who was born in Mexico?” “Go to our new bishop for counsel? Is not he the one who lives just up the street?”
+
+We read in Matthew:
+
+“And they were offended in him. But Jesus said unto them, A prophet is not without honour, save in his own country, and in his own house.
+
+“And he did not many mighty works there because of their unbelief.” (Matt. 13:57–58; italics added.)
+
+The concept that “a prophet is not without honour, save in his own country, and in his own house” was a tragedy for these Galilean people. Shortly after this time Jesus left Nazareth and the Galilean ministry to concentrate most of his efforts in the southern part of the country nearer Jerusalem. Think of what miracles, manifestations, and healings of body and soul might have been enjoyed by these people if their faith had been sufficient to accept the great works of his faith. But he left them, never really to return again.
+
+Sadly enough, I think we see this around us now. Someone who daily walks and talks and enjoys the presence of a Joseph Smith or a Spencer W. Kimball, but who is still essentially without faith, may have great difficulty in accepting them as prophets. I remember President Harold B. Lee telling the story of a very prominent man from New York who could not accept Joseph Smith as a prophet because he was “too close to me” (“The Place of the Prophet, Seer, and Revelator,” address to seminary and institute of religion faculty, Brigham Young University, 8 July 1964, p. 2).
+
+Will we forfeit the harvest because we cannot accept direction, revelation, or counsel from someone who just lives down the street, in the ward, or in the stake? Will we reject leadership from the churchman who is human, with frailties, and who has family members who may be quite human also?
+
+While we are struggling with an “Is-not-this-the-carpenter’s-son?” attitude, we may be missing the truth, the way, and the ultimate harvest. Jesus was not accepted as the Only Begotten Son of God because thousands preferred to recognize him as “just the child of Mary.”
+
+The worth and significance of a President Joseph Fielding Smith, Brigham Young, or Joseph Smith is not measured by his physical stature, wearing apparel, or public image. Whether eternal truths were taught by one who dwelled near the Sea of Galilee or by one who lived in upstate New York, the size, origin, image, or popularity of the teachers can not detract from the value of the truths which they shared.
+
+Safety can be assured for us if “we believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God” (A of F 1:9). May I add, these revelations will come through people—even the prophets with human qualities.
+
+Unwillingness to accept change. If we are unable to accept change, in the language of the parable of the sower, we are those with no root.
+
+“Yet hath he not root in himself, but dureth for a while: for when tribulation or persecution ariseth because of the word, by and by he is offended” (Matt. 13:21).
+
+If our roots are deep, we will welcome continuing revelation, change, and direction. We will develop the ability to accept releases, callings, and new challenges with enthusiasm. We will be too busy to be offended. We will be too big to be hurt. We will serve wherever we are called with anxious dedication. We will accept people for what they are and what they can and do become. Change will not only drive our roots deeper but cause them to grow into new and fertile soil.
+
+Some years ago a young mother of my acquaintance shared this event in her life. She had been active in youth activities in the ward for several years and was at the time president of the young women. The stake president called one day and asked her to meet with the stake presidency the following Sunday afternoon. With anxiety in her voice and tears close to the surface, she went to her husband and said, I’m afraid they want me for a stake job. I don’t want a stake job. I love the ward. I love the youth in the ward. I love my counselors. I love my job. I don’t want to change.”
+
+Her husband said, “Please go and see what they want. I’ll support you in any assignment.”
+
+Her fears were realized. She was asked to be stake president of the Young Women. Later, the stake president told her that after she had reluctantly accepted the call, he had never seen a more forlorn-looking person walk out of his office.
+
+For over six years she, with the same sisters as counselors, took care of the stake work for the young women. “Those were some of the best years of service for me,” she said. “My horizons expanded. I became acquainted with the wonderful leaders and great young people in our stake. I even had leadership experiences with other fine leaders in the whole valley. Later the opportunity came to serve on a general board. I shudder to think what I would have missed if I had declined the change in assignments.”
+
+Our Father in Heaven knows what we need. Change can be difficult. Change can be fearful. But change in the right direction is a growing process. Each new assignment, each new experience in the gospel framework, if fulfilled to the best of one’s ability, adds new strengths.
+
+Resistance to and resentment of change, of new assignments, of new opportunities are stony places that may keep our roots in the gospel from going deep and growing strong.
+
+It was Theodore I. Rubin who wisely said, “If we let it, life produces endless experiences that demand change. If you are motivated and willing to struggle, you can change and grow for as long as you live. This is the challenge, the pain and the joy of being human.”
+
+Sometimes we are unwise and even cruel in our unwillingness to accept change in others. I recently learned of a man who raised his family and pursued his professional life in a small country town. He was not without his problems but was a good man with a great heart who loved the Lord and the gospel. Mistakes, even small ones, are not soon forgotten in some neighborhoods, however; and he never seemed to be “allowed” to grow, blossom, develop, and change into what he could become.
+
+As a missionary serving overseas, he had made a remarkable contribution. The mission president said he had done more to bridge the cultural gap between the two countries than any other adult American was able to do. Yet when his mission was over, he returned to the small town; and without malice or evil intent but with the insistent burden of memory, his neighbors did not invite him or let him be the man he had become, but rather seemed quite prepared to see him as the less attractive man of an earlier period.
+
+Because of their expectations, he completed the last years of his life much less happy and much less involved and surely much less productive to the kingdom than he had been for that one glorious period where people in a new land and in a different time allowed him to change and to be what he really wanted to be and, in his heart, really was.
+
+Let me share one other example. A friend of mine went to school with a boy who did not have much home life and for whom the gospel did not mean as much as it later would. He drank a little and caroused a little; but later, after moving away from his home town, he became very active in the Church. His one dream was to return to his home town and start a business, which he tried to do. But unfortunately, as with the other man, the people in the community insisted on treating him as he had been, not as what he had become. He finally moved away and is doing remarkably well in business and in the Church. He recently expressed to my friend how deeply disappointed he was that his former friends and townspeople had not let him “come home,” even in a gospel sense.
+
+Unwillingness to follow instructions. These are they who may forfeit the harvest because they will not be obedient. “Hearing they hear not, neither do they understand” is the description the parable of the sower uses to describe those who fall into this vulnerable territory (Matt. 13:13).
+
+“And some fell among thorns; and the thorns sprung up, and choked them” (Matt. 13:7). We, too, will fall among the thorns and be led away from our promised blessings if we fail in obedience.
+
+I was very impressed a few days ago when I heard an eager, reactivated elder say, “I’m back in the Church and active today because my elders quorum president came to see me when I didn’t want to be seen, and loved me when I didn’t want to be loved.” Here is an elders quorum president obediently doing his job as it should be done.
+
+Sometimes when we are asked to be obedient, we do not know why, except the Lord has commanded. From 1 Nephi 9:5 we read, “Wherefore, the Lord hath commanded me to make these plates for a wise purpose in him, which purpose I know not.” Nephi followed instructions even though he didn’t fully understand the wise purpose. His obedience resulted in blessings to mankind all over the world. By not obeying our present-day leaders, we plant our seeds in stony places and may forfeit the harvest.
+
+Unwillingness to be totally committed. The parable of the sower would refer to these as those who have no deepness. They are those without commitment or testimony. These are those who would be convenience members. Some testimonies spring up quickly and flourish for a while until the heat comes on or a stony place is encountered. Then the withering starts to take place.
+
+“Some fell upon stony places, where they had not much earth: and forthwith they sprung up, because they had no deepness of earth” (Matt. 13:5; italics added).
+
+Deep and enduring testimonies grow and strengthen as they are daily nurtured. They increase as they are shared. Meaningful testimonies have roots planted in fertile soil. The sun, the rain, and even the storms make them stronger and more durable. As the events of daily life come upon us, some testimonies wither under the heat of everyday occurrences. Roots are shallow, testimonies fade, and there is no harvest.
+
+Let us seek to be totally committed. Then we will not fall upon stony places, wither away, or stray from the paths of security and happiness. Those who serve with complete dedication wherever called do not wilt, wither, wonder, or wander. Their roots are deep and solidly planted in the fertile soils of the kingdom. The harvest is enjoyed with every passing day as they serve.
+
+Let us not forfeit the harvest. If we forfeit the harvest, what do we lose? We lose day by day pleasures of growth and development that come from doing our tasks in the framework of the gospel. We lose the satisfaction of accomplishing difficult tasks and serving better.
+
+Most of all, we forfeit the gift of eternal growth and progress. May we avoid the stony places of (1) unwillingness to accept human qualities, (2) unwillingness to accept change, (3) unwillingness to follow instructions, and (4) unwillingness to be totally committed. By so doing we can establish deep, strong roots and thus reap the harvest our Father in Heaven wants for all his children. For this I pray in the name of Jesus Christ. Amen.
+

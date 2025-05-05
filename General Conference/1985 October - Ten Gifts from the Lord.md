@@ -1,0 +1,111 @@
+# Ten Gifts from the Lord
+*By Gordon B. Hinckley - Second Counselor in the First Presidency*
+
+*Given in the October session of the 1985 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1985/10/ten-gifts-from-the-lord?lang=eng)
+
+I am confident there is no one in this vast audience who has not been deeply touched by the things we have seen and heard.
+
+I have been impressed with the great burdens which many people carry. There is so much of sorrow in the world. There is so much of pain. There is so much of loneliness and fear and misery. There are so many whose circumstances are desperate and who cry out in deep distress.
+
+President Kimball is not with us. I wish he were. What a wonderful man he is. What a wonderful life he has lived. Now he is elderly, trapped by the infirmities of age. But the great, overflowing goodness of his heart is felt by all of us who see him. We bring you his love, his blessing.
+
+President Romney celebrated his eighty-eighth birthday only a week ago. He, too, has been touched and bent by the storms of life. He also sends his love to each of you.
+
+In behalf of these, our Brethren and leaders, in behalf of the First Presidency of the Church, I thank you, all of you, wherever you may be, you great Latter-day Saint women, both old and young, who look to the Lord and walk in faith and strive to keep his commandments. May your prayers be answered. May you have peace and strength and love and gladness in your lives. I urge you to lift your heads and walk in gratitude. Spare yourselves from the indulgence of self-pity. It is always self-defeating. Subdue the negative and emphasize the positive. Count your blessings and not your problems.
+
+Some are prone to complain that you are discriminated against. All of us rejoice in the enlargement of opportunities for women. Under the law, there are few opportunities afforded men that are not now also open to women. With this enlargement of opportunity, a few Latter-day Saint women are asking why they are not entitled to hold the priesthood. To that I can say that only the Lord, through revelation, could alter that situation. He has not done so, so it is profitless for us to speculate and worry about it. May I suggest, rather, that you dwell on the remarkable blessings that are yours, the great positive privileges of your lives as women of The Church of Jesus Christ of Latter-day Saints, and the transcendent spiritual gifts that may be yours. I should like to name ten of these, with their coincident responsibilities. I shall have time to comment only briefly on each.
+
+You have the gift, the opportunity, and the responsibility of doing good. You possess an instinctive inclination to help those in distress, and you have a peculiar and remarkable way of doing so. There are so many who need your help. There are boys and girls who flounder and drift and waste their lives for want of someone interested in them to counsel and reassure and comfort and direct them.
+
+Nursing homes are filled with the aged and the infirm who cry out for a listening ear and a comforting word. There are so many who are lonely and afraid for whom a little companionship would mean so very, very much. There are the sick and dying who live in pain and fear for whom the holding of a hand and a few quiet words could make all the difference in the world.
+
+It was Florence Nightingale, the frail English girl, who out of a great sense of concern went to the Crimea and nursed the wounded and out of whose efforts has grown the great International Red Cross.
+
+We live in a world where peace exists only by reason of a balance of terror. I have often thought that if great numbers of the women of all nations were to unite and lift their voices in the cause of peace, there would develop a worldwide will for peace which could save our civilization and avoid untold suffering, misery, plague, starvation, and the death of millions.
+
+Jesus was described as one “who went about doing good.” (Acts 10:38.) Can you, as His followers, do less? In organizing the Relief society, the Prophet Joseph Smith said concerning the women, “They will pour in oil and wine to the wounded heart of the distressed; they will dry up the tears of the orphan and make the widow’s heart to rejoice.” (History of the Church, 4:567.)
+
+Prayer. Here is a great spiritual gift available to all. Every woman has as certain a right to approach the throne of deity in prayer as does any man. I am convinced that our Father in Heaven loves his daughters as much as He loves His sons and that He is as ready to hear their pleas and grant their petitions. The words of James concerning the blessing of the sick are interesting:
+
+“Is any sick among you? let him call for the elders of the church; and let them pray over him, anointing him with oil in the name of the Lord:
+
+“And the prayer of faith shall save the sick.” (James 5:14–15.)
+
+I repeat, “the prayer of faith shall save the sick.” It is the privilege and the responsibility of those holding the priesthood to anoint and bless. It is their privilege also to pray. And it is likewise your privilege to pray, with the full expectation that your Father in Heaven will hear that prayer when it is offered in faith.
+
+It is your privilege to pray in the meetings of the Church—not only in the meetings of the women’s organizations, but in the sacrament meetings when all of the saints are admonished to gather together. It is your privilege to pray in such tremendous gatherings as this. I hope you noted the beautiful and touching prayer of Sister Perezegea at the opening of this meeting. Each of you has available the great spiritual gift of prayer.
+
+It is your privilege and right to teach. You come within the province of the admonition given by the Lord:
+
+“And I give unto you a commandment that you shall teach one another the doctrine of the kingdom.
+
+“Teach ye diligently and my grace shall attend you, that you may be instructed more perfectly in theory, in principle, in doctrine, in the law of the gospel, in all things that pertain unto the kingdom of God, that are expedient for you to understand.” (D&C 88:77–78.)
+
+And further: “And as all have not faith, seek ye diligently and teach one another words of wisdom; yea, seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.” (D&C 88:118.)
+
+When I was a boy growing up in the First Ward in Liberty Stake, the president of the Relief Society was Elder Mark E. Petersen’s mother-in-law, Sister Sarah McDonald. She was also the teacher of the Gospel Doctrine class in the Sunday School. The men, as well as the women, profited from her down-to-earth wisdom, her unique sense of humor, her tremendous scholarship and familiarity with the scriptures, and her unyielding testimony which came of the great sacrifice she had made for membership in this Church.
+
+Yours, my sisters, is the privilege to teach, yours the responsibility, yours the opportunity. There are few resources of which we are in greater need than dedicated teachers of the gospel who teach with faith, with conviction, and with the knowledge that comes of study.
+
+Yours is the opportunity to preside. You have heard from Sister Young, who presides over the Primary Association, with combined enrollments of 825,000. You have heard from Sister Kapp, who presides over some 300,000 young women. You have heard from Sister Winder, who presides over the Relief Society, which includes 1,682,000 women across the world.
+
+When one of the candidates for the presidency of the United States visited us a year ago, I introduced these three women to him. I stated that Sister Winder presided over more than 1,600,000 women. He seemed incredulous. He possibly had heard some of the nonsense that Mormon women are subjugated and have no opportunities. When he met this charming woman and was told that she presided over 1,600,000 other women, he looked as if he could scarcely believe it.
+
+These women have counselors. They have general boards. They have their counterparts in stakes and wards. They deal with vast responsibilities, vast resources, and large numbers of people. They are executives in the truest sense.
+
+Sister Winder and Sister Kapp serve as members of the Board of Trustees of Brigham Young University, the largest private university in America. They likewise serve as members of the Church Board of Education. Their views carry as much weight as do the views of any of the Brethren. Sister Winder and her counselors serve as members of the General Welfare Committee. This is the policy-making body governing all Church welfare activities. Sister Young serves on the National Cub Scout Committee.
+
+My dear sisters, you, as women, have tremendous executive responsibilities in this Church. And no one appreciates more than I the wonderful contributions you make and the great wisdom you bring.
+
+Yours may be the spirit of prophecy. That may sound strange to some of you. Miriam in the Old Testament is spoken of as a prophetess. Peter, on the day of Pentecost, repeated the words of the prophet Joel, saying:
+
+“And it shall come to pass in the last days, saith God, I will pour out of my Spirit upon all flesh: and your sons and your daughters shall prophesy, and your young men shall see visions, and your old men shall dream dreams:
+
+“And on my servants and on my handmaidens I will pour out in those days of my Spirit; and they shall prophesy.” (Acts 2:17–18.)
+
+Can anyone doubt that many women have a special intuitive sense, even a prescient understanding of things to come?
+
+John the Revelator makes a very interesting statement: “The testimony of Jesus is the spirit of prophecy.” (Rev. 19:10.) As much so as any man in the world, each of you has the opportunity and the responsibility to develop a testimony of Jesus as the Savior of mankind. That testimony is the “spirit of prophecy.” It is a gift that may be yours.
+
+Yours is the opportunity to proclaim the gospel. Exclusive of missionary couples, we now have 5,872 sister missionaries serving in the field. For the most part, these are young women who are called as other missionaries are called. Many mission presidents give their sister missionaries credit for being more effective than the elders in opening doors and minds to the teaching of the gospel. One mission president told me, perhaps facetiously, that if he had four pairs of sister missionaries doing the finding and the teaching, he could keep a pair of elders busy doing the baptizing.
+
+You will immediately ask why, then, are lady missionaries not called until they are twenty-one, when young men are called at nineteen? While we recognize the vast good that sister missionaries do, and while we greatly appreciate their tremendous service, we are reluctant to have in the field the same or a larger number of sister missionaries than elders. I believe there is great wisdom in this.
+
+Furthermore, we regard a happy marriage as the greatest mission any young woman can enjoy, and we feel that the opportunities for such will be increased if there is some delay in young women going into the mission field.
+
+Nevertheless, you have the privilege. You have the right, conditioned upon worthiness. You have the opportunity, whether serving as full-time missionaries or on a local basis, to teach the gospel of Jesus Christ with power and conviction.
+
+Women have the great opportunities of the blessings of the temple. The right to receive the temple ordinances pertains as much to women as it does to men. The blessings to be received through that experience are as great for women as they are for men. While we discourage young women from going to the temple, just as we do young men, unless they serve as full-time missionaries, yet in the long term, in life or eternity, every worthy woman in the Church may qualify to receive the blessing of the temple endowment.
+
+For the woman who is married in the temple, there is afforded the opportunity for happiness and for security, for time and for all eternity, to a degree to be found in no other type of marriage. In fact, only in marriage in the house of the Lord can there be the promise of eternal companionship, conditioned, of course, upon the faithfulness of both parties to that marriage. The man cannot be exalted without the woman; neither the woman without the man. (See 1 Cor. 11:11.)
+
+Yours is also the privilege to minister in the temples. Women do the vicarious work for women. It is as important that this work be done in behalf of those beyond the veil in the case of women as it is in the case of men. The work you so do is as acceptable to the Lord. It is necessary for the accomplishment of his purposes. It is as spiritually uplifting as is that which men do.
+
+Furthermore, women fill very important responsibilities as ordinance workers in the temple. As surely as there is a temple president, there is also a temple matron. There must be many who assist her in carrying forward the sacred ordinance work of the House of the Lord.
+
+I mention next the unique and God-given privilege of motherhood. There is no miracle in all the world like the creation of new life. There is no responsibility greater than rearing children in “the nurture and admonition of the Lord.” (Eph. 6:4.)
+
+Without a mother’s efforts, her pain, her family concerns and service, it goes without saying that the race would soon die. The purposes of God would be totally frustrated.
+
+Her partnership with the Almighty in bringing to pass His eternal plan is a blessing that no man can enjoy in the same sense.
+
+I recognize, of course, that there are many within the sound of my voice who are not married and who may never be married in this life. The number of adult women who are presently unmarried constitutes approximately a third of the female members of the Church in the United States and Canada. However, this blessing is afforded two-thirds of the women of the Church. To you who are mothers, I wish to say that I know that your labors are heavy, that your burdens are many, that the task of rearing children in this complex age is a serious and demanding one. But there can be no doubt that as the years pass you will enjoy a sense of satisfaction that will come in no other way. You will enjoy a measure of peace, of love, of that gladness which is deep and sweet and good and which can come from no other source.
+
+To you who are single parents with families to rear, I know that yours is a particularly heavy burden. We pray that the Lord will bless you and sustain you and that you will have resources to do that which must be done and to do it well. The resources of the Church can be mobilized to help you when you need help.
+
+I think of my wife’s grandmother who, as a young married woman, went to Manti with her husband, who was called to work on the temple when it was being constructed there. While so working, he suffered an injury which took his life. She lived a widow for more than sixty years, working and struggling, most of the time alone, to rear and educate her children. Her lot was hard, but her satisfaction was great and her accomplishment heroic.
+
+I recognize that there are many unmarried women who long to have a child. Some think of bringing this about by artificial impregnation. This the Church strongly discourages. Those who do so may expect to be disciplined by the Church. A child so conceived and born cannot be sealed to one parent. This procedure frustrates the eternal family plan.
+
+I conclude with the tenth great privilege and opportunity you have. This is the opportunity and the encouragement to educate your minds and hands, to refine your talents, and to so qualify yourself to work in the society in which you will live.
+
+I am grateful that women today are afforded the same opportunity to study for science, for the professions, and for every other facet of human knowledge. You are as entitled as are men to the Spirit of Christ, which enlightens every man and woman who comes into the world. (See D&C 84:46.) Set your priorities in terms of marriage and family, but also pursue educational programs which will lead to satisfying work and productive employment in case you do not marry, or to a sense of security and fulfillment in the event you do marry.
+
+It is also important to enhance one’s appreciation of the arts and culture which are of the very substance of our civilization. Can anyone doubt that good music is godly or that there can be something of the essence of heaven in great art? Education will increase your appreciation and refine your talent.
+
+God bless you, my beloved sisters. Please know that you are deeply appreciated. Please know that your place in the divine plan is no less important, no less great, and no less necessary than that of men. Paul has said, “Neither is the man without the woman, neither the woman without the man, in the Lord.” (1 Cor. 11:11.)
+
+Count your wonderful blessings. Do not worry away your lives with concerns over “rights,” so-called, but move forward, concerned with responsibilities and opportunities. Your potential is limitless. You are daughters of God, endowed by inheritance with marvelous gifts and immeasurable potential. Accept the challenge. Go forward with confidence in the knowledge that the differences you face are not those which come of discrimination so much as those which come of designation. That you may be happy, and that your lives may be rich with that satisfaction which comes from the development of your spiritual gifts, I humbly pray in the name of Jesus Christ, amen.
+

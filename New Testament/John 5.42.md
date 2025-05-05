@@ -1,0 +1,8 @@
+# John 5:42
+
+> But I know you, that ye have not the <u>love</u>[^a] of God in you.
+
+[John 5:42](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.42?lang=eng#p42)
+
+
+[^a]: TG [God, Love of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng); [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)

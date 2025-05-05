@@ -1,0 +1,7 @@
+# Esther 4:8
+
+> Also he gave him the copy of the writing of the decree that was given at Shushan to destroy them, to shew it unto Esther, and to declare it unto her, and to charge her that she should go in unto the king, to make supplication unto him, and to make request before him for her people.
+
+[Esther 4:8](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/4.8?lang=eng#p8)
+
+

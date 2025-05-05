@@ -1,0 +1,10 @@
+# Hebrews 1:14
+
+> Are they not all <u>ministering</u>[^a] <u>spirits</u>[^b], sent forth <u>to minister</u>[^c] for them who shall be heirs of salvation?
+
+[Hebrews 1:14](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1.14?lang=eng#p14)
+
+
+[^a]: [[D&C 7.6|D&C 7:6]]. TG [Angels](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng).
+[^b]: [[Zechariah 6.5|Zech. 6:5 (4-8).]]
+[^c]: GR for service.

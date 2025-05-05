@@ -1,0 +1,8 @@
+# Psalms 93:2
+
+> Thy throne is established of old: thou art from <u>everlasting</u>[^a] .
+
+[Psalms 93:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/93.2?lang=eng#p2)
+
+
+[^a]: TG [God, Eternal Nature of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-eternal-nature-of?lang=eng)

@@ -1,0 +1,7 @@
+# Deuteronomy 30:5
+
+> And the Lord thy God will bring thee into the land which thy fathers possessed, and thou shalt possess it; and he will do thee good, and multiply thee above thy fathers.
+
+[Deuteronomy 30:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.5?lang=eng#p5)
+
+

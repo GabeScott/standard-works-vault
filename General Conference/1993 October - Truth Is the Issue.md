@@ -1,0 +1,43 @@
+# Truth Is the Issue
+*By F. Enzio Busche - Of the Seventy*
+
+*Given in the October session of the 1993 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1993/10/truth-is-the-issue?lang=eng)
+
+In the Doctrine and Covenants, section 1, verse 4, we read, “And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days.” [D&C 1:4]
+
+This message of warning reminds us that we human beings are spiritual children of a Father in Heaven, who is the author and finisher of all truth, and that we are lost in this earthly, fallen state unless we allow the Light of Christ, or the Spirit of truth, to become our constant and infinite guide.
+
+In the message of the Restoration, we learn that during our mortal life our agency is tested through the inseparable connection of our spirit with the elements of this earth, “the flesh,” or the “natural man” (see D&C 88:15). By this revelation we not only understand the cause of mankind’s misery, but we also receive the keys and power that enable us to end this misery once and for all. As our mind is opened through our study of the plan of salvation, each of us comes to see that our life means that the “real me,” or “the spiritual child of God,” created in innocence and beauty, is engaged in a fight for life or death with the elements of the earth, the “flesh,” which, in its present unredeemed state, is enticed and influenced by the enemy of God.
+
+From the revelations of the Book of Mormon, we know that this enemy fights with all fury and cunningness to make all men miserable like unto himself (see 2 Ne. 2:27). It is Jesus Christ who, through His light, is searching and finding each individual child of God who is yearning and fighting for righteousness and truth and who is crying for help. Without Christ, this war within us is lost. Without Christ’s plan of redemption and His atoning sacrifice, we all would have been lost. We knew that before we came to this earth, and we can sense it again, when through the Light of Christ our minds are quickened with understanding (see D&C 88:11).
+
+The issue is truth, my dear brothers and sisters, and the only way to find truth is through uncompromising self-education toward self-honesty to see the original “real me,” the child of God, in its innocence and potential in contrast to the influence from the other part of me, “the flesh,” with its selfish desires and foolishness. Only in that state of pure honesty are we able to see truth in its complete dimension. Honesty may not be everything, but everything is nothing without honesty. In its final state, honesty is a gift of the Spirit through which the true disciples of Christ feel the force to bear testimony of the truth in such a powerful way that it penetrates the very core of our existence.
+
+One great example of the effect of the preaching of the prophets is recorded in the Book of Mormon. King Benjamin, out of love and concern for the welfare of his people, preaches the truth of the plan of salvation. He does this in such an uncompromising, pure way that the people come to a complete awareness of their nothingness and their worthless and fallen state (see Mosiah 4:5). This last step of awareness of honesty, where we see ourselves in our sinful, mortal existence, causes the people of King Benjamin to cry aloud with one voice, “O have mercy, and apply the atoning blood of Christ that we may receive forgiveness of our sins” (Mosiah 4:2).
+
+Initiated by the hearing of the word of truth, a disciple of Christ is therefore constantly, even in the midst of all regular activities, striving all day long through silent prayer and contemplation to be in the depth of self-awareness to keep him in the state of meekness and lowliness of heart. It is the prophet Moroni who points out that “because of meekness and lowliness of heart cometh the visitation of the Holy Ghost, which Comforter filleth with hope and perfect love” (Moro. 8:26).
+
+With this enlightened understanding of the deadly battlefront inside of us, we are painfully aware that we can only ask for and receive the help of the Lord, as the God of truth, under the condition of complete and relentless self-honesty.
+
+This war is a war that has to be fought by all of Heavenly Father’s children, whether they know about it or not. But without a keen knowledge of the plan of salvation, and without the influence of the divine Light of Christ to bring us awareness, this war is being fought subconsciously, and therefore its battlefronts are not even known to us, and we have no chance to win. Wars in the inner self that are fought subconsciously, with unknown battlefronts, lead to defeats which also hurt us subconsciously. These defeats are reflected in our conscious life as expressions of misery, such as a lack of self-confidence, lack of happiness and joy, lack of faith and testimony, or as overreactions of our subconscious self, which we see then as pride, arrogance, or in other forms of misbehavior—even as acts of cruelty and indecency.
+
+No! There is no salvation without Christ, and Christ cannot be with us unless we pay the price of the constant fight for self-honesty.
+
+One of the great tragedies we see in our lives is that the adversary, through the influences of our “flesh,” can cheat us into establishing images of truth or perceptions of truth. Our brain, the great computer where all the facts of life’s memories are held together, can also be programmed by the “flesh,” with its self-centered ideas to deceive the spiritual self. Without the constant striving through prayer and contemplation to reach the ends of self-awareness and honesty, our so-called intellect can, therefore, based on look-alike truths, play many games of reason, to impress, to get gain, to intimidate, or even to manipulate truth with the vain results of deceit.
+
+Of such, the Apostle Paul wrote: “For men shall be lovers of their own selves, ... proud, blasphemers, ... unholy, ...
+
+“Having a form of godliness, but denying the power thereof: ...
+
+“Ever learning, and never able to come to the knowledge of the truth” (2 Tim. 3:2, 5, 7).
+
+All learning leads to nothing unless it is centered on finding the roots of truth, which cannot be received without first becoming honest. In such striving, we suddenly know how to pray. Paul says, “For we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us” (Rom. 8:26).
+
+Enlightened by the Spirit of truth, we will then be able to pray for the increased ability to endure truth and not to be made angry by it (see 2 Ne. 28:28). In the depth of such a prayer, we may finally be led to that lonesome place where we suddenly see ourselves naked in all soberness. Gone are all the little lies of self-defense. We see ourselves in our vanities and false hopes for carnal security. We are shocked to see our many deficiencies, our lack of gratitude for the smallest things. We are now at that sacred place that seemingly only a few have courage to enter, because this is that horrible place of unquenchable pain in fire and burning. This is that place where true repentance is born. This is that place where the conversion and the rebirth of the soul are happening. This is the place where the prophets were before they were called to serve. This is the place where converts find themselves before they can have the desire to be baptized for the remission of their sins. This is the place where sanctifications and rededications and renewal of covenants are happening. This is the place where suddenly the atonement of Christ is understood and embraced. This is the place where suddenly, when commitments have solemnly been established, the soul begins to “sing the song of redeeming love” and indestructible faith in Christ is born (Alma 5:26). This is the place where we suddenly see the heavens open as we feel the full impact of the love of our Heavenly Father, which fills us with indescribable joy. With this fulfillment of love in our hearts, we will never be happy anymore just by being ourselves or living our own lives. We will not be satisfied until we have surrendered our lives into the arms of the loving Christ, and until He has become the doer of all our deeds and He has become the speaker of all our words. As He has said,
+
+“I am the vine, ye are the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing” (John 15:5).
+
+Let us, therefore, listen, my dear brothers and sisters, to the voice of warning. And let us embrace the Spirit of truth that we may stand blameless through the atonement of our Lord. I say this in the name of Jesus Christ, amen.
+

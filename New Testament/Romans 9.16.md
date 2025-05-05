@@ -1,0 +1,8 @@
+# Romans 9:16
+
+> So then it is not of him that willeth, nor of him that runneth, but of God that sheweth <u>mercy</u>[^a] .
+
+[Romans 9:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.16?lang=eng#p16)
+
+
+[^a]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)

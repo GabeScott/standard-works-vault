@@ -1,0 +1,65 @@
+# Reflections on a Consecrated Life
+*By D. Todd Christofferson - Of the Quorum of the Twelve Apostles*
+
+*Given in the October session of the 2010 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/2010/10/reflections-on-a-consecrated-life?lang=eng)
+
+As a youth I visited the 1964 World’s Fair in New York City. One of my favorite stops was the LDS Church pavilion with its impressive replica of the Salt Lake Temple spires. There for the first time I saw the film Man’s Search for Happiness. The movie’s depiction of the plan of salvation, narrated by Elder Richard L. Evans, had a significant impact on many visitors, including me. Among other things, Elder Evans said:
+
+“Life offers you two precious gifts—one is time, the other freedom of choice, the freedom to buy with your time what you will. You are free to exchange your allotment of time for thrills. You may trade it for base desires. You may invest it in greed. ...
+
+“Yours is the freedom to choose. But these are no bargains, for in them you find no lasting satisfaction.
+
+“Every day, every hour, every minute of your span of mortal years must sometime be accounted for. And it is in this life that you walk by faith and prove yourself able to choose good over evil, right over wrong, enduring happiness over mere amusement. And your eternal reward will be according to your choosing.
+
+“A prophet of God has said: ‘Men are that they might have joy’—a joy that includes a fullness of life, a life dedicated to service, to love and harmony in the home, and the fruits of honest toil—an acceptance of the Gospel of Jesus Christ—of its requirements and commandments.
+
+“Only in these will you find true happiness, the happiness which doesn’t fade with the lights and the music and the crowds.”1
+
+These statements express the reality that our life on earth is a stewardship of time and choices granted by our Creator. The word stewardship calls to mind the Lord’s law of consecration (see, for example, D&C 42:32, 53), which has an economic role but, more than that, is an application of celestial law to life here and now (see D&C 105:5). To consecrate is to set apart or dedicate something as sacred, devoted to holy purposes. True success in this life comes in consecrating our lives—that is, our time and choices—to God’s purposes (see John 17:1, 4; D&C 19:19). In so doing, we permit Him to raise us to our highest destiny.
+
+I would like to consider with you five of the elements of a consecrated life: purity, work, respect for one’s physical body, service, and integrity.
+
+As the Savior demonstrated, the consecrated life is a pure life. While Jesus is the only one to have led a sinless life, those who come unto Him and take His yoke upon them have claim on His grace, which will make them as He is, guiltless and spotless. With deep love the Lord encourages us in these words: “Repent, all ye ends of the earth, and come unto me and be baptized in my name, that ye may be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me at the last day” (3 Nephi 27:20).
+
+Consecration therefore means repentance. Stubbornness, rebellion, and rationalization must be abandoned, and in their place submission, a desire for correction, and acceptance of all that the Lord may require. This is what King Benjamin called putting off the natural man, yielding to the enticings of the Holy Spirit, and becoming “a saint through the atonement of Christ the Lord” (Mosiah 3:19). Such a one is promised the enduring presence of the Holy Spirit, a promise remembered and renewed each time a repentant soul partakes of the sacrament of the Lord’s Supper (see D&C 20:77, 79).
+
+Elder B. H. Roberts once expressed the process in these words: “The man who so walks in the light and wisdom and power of God, will at the last, by the very force of association, make the light and wisdom and power of God his own—weaving those bright rays into a chain divine, linking himself forever to God and God to him. This [is] the sum of Messiah’s mystic words, ‘Thou, Father, in me, and I in thee’—beyond this human greatness cannot achieve.”2
+
+A consecrated life is a life of labor. Beginning early in His life, Jesus was about His Father’s business (see Luke 2:48–49). God Himself is glorified by His work of bringing to pass the immortality and eternal life of His children (see Moses 1:39). We naturally desire to participate with Him in His work, and in so doing, we ought to recognize that all honest work is the work of God. In the words of Thomas Carlyle: “All true Work is sacred; in all true Work, were it but true hand-labour, there is something of divineness. Labour, wide as the Earth, has its summit in Heaven.”3
+
+God has designed this mortal existence to require nearly constant exertion. I recall the Prophet Joseph Smith’s simple statement: “By continuous labor [we] were enabled to get a comfortable maintenance” (Joseph Smith—History 1:55). By work we sustain and enrich life. It enables us to survive the disappointments and tragedies of the mortal experience. Hard-earned achievement brings a sense of self-worth. Work builds and refines character, creates beauty, and is the instrument of our service to one another and to God. A consecrated life is filled with work, sometimes repetitive, sometimes menial, sometimes unappreciated but always work that improves, orders, sustains, lifts, ministers, aspires.
+
+Having spoken in praise of labor, I must also add a kind word for leisure. Just as honest toil gives rest its sweetness, wholesome recreation is the friend and steadying companion of work. Music, literature, art, dance, drama, athletics—all can provide entertainment to enrich one’s life and further consecrate it. At the same time, it hardly needs to be said that much of what passes for entertainment today is coarse, degrading, violent, mind-numbing, and time wasting. Ironically, it sometimes takes hard work to find wholesome leisure. When entertainment turns from virtue to vice, it becomes a destroyer of the consecrated life. “Wherefore, take heed ... that ye do not judge that which is evil to be of God” (Moroni 7:14).
+
+A consecrated life respects the incomparable gift of one’s physical body, a divine creation in the very image of God. A central purpose of the mortal experience is that each spirit should receive such a body and learn to exercise moral agency in a tabernacle of flesh. A physical body is also essential for exaltation, which comes only in the perfect combination of the physical and the spiritual, as we see in our beloved, resurrected Lord. In this fallen world, some lives will be painfully brief; some bodies will be malformed, broken, or barely adequate to maintain life; yet life will be long enough for each spirit, and each body will qualify for resurrection.
+
+Those who believe that our bodies are nothing more than the result of evolutionary chance will feel no accountability to God or anyone else for what they do with or to their body. We who have a witness of the broader reality of premortal, mortal, and postmortal eternity, however, must acknowledge that we have a duty to God with respect to this crowning achievement of His physical creation. In Paul’s words:
+
+“What? know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own?
+
+“For ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God’s” (1 Corinthians 6:19–20).
+
+Acknowledging these truths and the direction of President Thomas S. Monson in last April’s general conference, we would certainly not deface our body, as with tattoos; or debilitate it, as with drugs; or defile it, as with fornication, adultery, or immodesty.4 As our body is the instrument of our spirit, it is vital that we care for it as best we can. We should consecrate its powers to serve and further the work of Christ. Said Paul, “I beseech you therefore, brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God” (Romans 12:1).
+
+Jesus demonstrated that a consecrated life is a life of service. Hours before the agony of His Atonement began, the Lord humbly washed His disciples’ feet, saying to them:
+
+“If I then, your Lord and Master, have washed your feet; ye also ought to wash one another’s feet.
+
+“For I have given you an example, that ye should do as I have done to you.
+
+“Verily, verily, I say unto you, The servant is not greater than his lord; neither he that is sent greater than he that sent him” (John 13:14–16).
+
+Those who quietly and thoughtfully go about doing good offer a model of consecration. No one in our time more perfectly incorporates this trait into daily life than President Thomas S. Monson. He has cultivated a listening ear that can discern even the faintest whisper of the Spirit signaling the need of someone he can reach and help. Often it is in simple acts that confirm divine love and awareness, but always, always Thomas Monson responds.
+
+I find in the life of my grandfather and grandmother Alexander DeWitt and Louise Vickery Christofferson an instance of such consecration. Grandpa was a strong man and was good at shearing sheep in the days before electric clippers. He got good enough, he said, that “in one day I sheared 287 sheep and could have sheared over 300, but we ran out of sheep.” During 1919 he sheared over 12,000 sheep, earning some $2,000. The money would have substantially expanded his farm and upgraded his home, but a call to serve in the Southern States Mission came from the Brethren, and with Louise’s full support, he accepted. He left his wife (then pregnant with their first son, my father) and their three daughters with the sheep-shearing money. Upon his joyous return two years later, he observed, “Our savings had lasted us throughout the two years, and we had $29 left.”
+
+A consecrated life is a life of integrity. We see it in the husband and wife “who honor marital vows with complete fidelity.”5 We see it in the father and mother whose demonstrated first priority is to nourish their marriage and ensure the physical and spiritual welfare of their children. We see it in those who are honest.
+
+Years ago I became acquainted with two families in the process of dissolving a jointly owned commercial enterprise. The principals, two men who were friends and members of the same Christian congregation, had formed the company years earlier. They had a generally congenial relationship as business partners, but as they grew older and the next generation began to take part in the business, conflicts emerged. Finally, all parties decided it would be best to divide up the assets and go their separate ways. One of the two original partners devised a stratagem with his lawyers to secure for himself a significant financial advantage in the dissolution at the expense of the other partner and his sons. In a meeting of the parties, one of the sons complained about this unfair treatment and appealed to the honor and Christian beliefs of the first partner. “You know this is not right,” he said. “How could you take advantage of someone this way, especially a brother in the same church?” The first partner’s lawyer retorted, “Oh, grow up! How can you be so naive?”
+
+Integrity is not naiveté. What is naive is to suppose that we are not accountable to God. The Savior declared: “My Father sent me that I might be lifted up upon the cross; ... that as I have been lifted up by men even so should men be lifted up by the Father, to stand before me, to be judged of their works, whether they be good or whether they be evil” (3 Nephi 27:14). One who lives a consecrated life does not seek to take advantage of another but, if anything, will turn the other cheek and, if required to deliver a coat, will give the cloak also (see Matthew 5:39–40). The Savior’s sternest rebukes were to hypocrites. Hypocrisy is terribly destructive, not only to the hypocrite but also to those who observe or know of his or her conduct, especially children. It is faith destroying, whereas honor is the rich soil in which the seed of faith thrives.
+
+A consecrated life is a beautiful thing. Its strength and serenity are “as a very fruitful tree which is planted in a goodly land, by a pure stream, that yieldeth much precious fruit” (D&C 97:9). Of particular significance is the influence of a consecrated man or woman upon others, especially those closest and dearest. The consecration of many who have gone before us and others who live among us has helped lay the foundation for our happiness. In like manner future generations will take courage from your consecrated life, acknowledging their debt to you for the possession of all that truly matters. May we consecrate ourselves as sons and daughters of God, “that when he shall appear we shall be like him, for we shall see him as he is; that we may have this hope” (Moroni 7:48; see also 1 John 3:2), I pray in the name of Jesus Christ, amen.
+

@@ -1,0 +1,9 @@
+# Moroni 7:19
+
+> Wherefore, I beseech of you, brethren, that ye should search diligently in the <u>light of Christ</u>[^a] that ye may know good from evil; and if ye will lay hold upon every good thing, and condemn it not, ye certainly will be a <u>child</u>[^b] of Christ.
+
+[Moroni 7:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p19#p19)
+
+
+[^a]: [[D&C 84.45|D&C 84:45]]; [[D&C 88.7|88:7 (6-13).]]
+[^b]: [[Mosiah 15.10|Mosiah 15:10]]; [[Mosiah 27.25|27:25]]. TG [Sons and Daughters of God](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng).

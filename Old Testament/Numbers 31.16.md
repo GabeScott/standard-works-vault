@@ -1,0 +1,8 @@
+# Numbers 31:16
+
+> Behold, these caused the children of Israel, through the counsel of Balaam, to commit <u>trespass</u>[^a] against the Lord in the matter of Peor, and there was a plague among the congregation of the Lord .
+
+[Numbers 31:16](https://www.churchofjesuschrist.org/study/scriptures/ot/num/31.16?lang=eng#p16)
+
+
+[^a]: 2 Pet. 2:15.

@@ -1,0 +1,9 @@
+# John 14:2
+
+> In my Father’s <u>house</u>[^a] are many <u>mansions</u>[^b] : if it were not so, I would have told you. I go to prepare a place for you.
+
+[John 14:2](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.2?lang=eng#p2)
+
+
+[^a]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^b]: [[D&C 59.2|D&C 59:2]]; [[D&C 98.18|98:18]]. TG [Eternal Life](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng); [Telestial Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/telestial-glory?lang=eng).

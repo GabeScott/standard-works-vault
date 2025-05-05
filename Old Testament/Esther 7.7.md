@@ -1,0 +1,8 @@
+# Esther 7:7
+
+> ¶ And the king arising from the banquet of wine in his wrath went into the palace <u>garden</u>[^a] : and Haman stood up to make request for his life to Esther the queen; for he saw that there was evil determined against him by the king.
+
+[Esther 7:7](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/7.7?lang=eng#p7)
+
+
+[^a]: [[Esther 1.5|Esth. 1:5.]]

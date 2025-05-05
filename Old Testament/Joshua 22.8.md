@@ -1,0 +1,7 @@
+# Joshua 22:8
+
+> And he spake unto them, saying, Return with much riches unto your tents, and with very much cattle, with silver, and with gold, and with brass, and with iron, and with very much raiment: divide the spoil of your enemies with your brethren.
+
+[Joshua 22:8](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/22.8?lang=eng#p8)
+
+

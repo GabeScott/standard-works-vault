@@ -1,0 +1,11 @@
+# 2 Peter 3:17
+
+> Ye therefore, beloved, <u>seeing</u>[^a] ye know these things before, beware lest ye also, being <u>led</u>[^b] <u>away</u>[^c] with the error of the wicked, fall from your own <u>steadfastness</u>[^d] .
+
+[2 Peter 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.17?lang=eng#p17)
+
+
+[^a]: JST 2 Pet. 3:17 … seeing ye know before the things which are coming, beware lest …
+[^b]: [[2 Nephi 28.14|2 Ne. 28:14 (3-14).]]
+[^c]: TG [Apostasy of the Early Christian Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
+[^d]: TG [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)

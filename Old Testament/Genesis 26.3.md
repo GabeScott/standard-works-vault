@@ -1,0 +1,11 @@
+# Genesis 26:3
+
+> <u>Sojourn</u>[^a] in this land, and I will be with thee, and will <u>bless</u>[^b] thee; for unto thee, and unto thy seed, I will give all these <u>countries</u>[^c], and I will perform the <u>oath</u>[^d] which I sware unto Abraham thy father;
+
+[Genesis 26:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.3?lang=eng#p3)
+
+
+[^a]: [[Psalms 39.12|Ps. 39:12]]; [[Acts 7.6|Acts 7:6 (2-8)]]; [[Hebrews 11.9|Heb. 11:9]]; [[1 Nephi 17.4|1 Ne. 17:4 (3-4)]]; [[Abraham 2.21|Abr. 2:21.]]
+[^b]: [[Ether 1.43|Ether 1:43 (42-43).]]
+[^c]: TG [Israel, Land of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng); [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^d]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)

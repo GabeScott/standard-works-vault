@@ -1,0 +1,10 @@
+# Romans 10:3
+
+> For they being ignorant of God’s <u>righteousness</u>[^a], and <u>going about</u>[^b] to establish their own righteousness, have not <u>submitted</u>[^c] themselves unto the righteousness of God.
+
+[Romans 10:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.3?lang=eng#p3)
+
+
+[^a]: TG [God, the Standard of Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-standard-of-righteousness?lang=eng)
+[^b]: GR desiring, endeavoring.
+[^c]: TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng); [Submissiveness.](https://www.churchofjesuschrist.org/study/scriptures/tg/submissiveness?lang=eng)

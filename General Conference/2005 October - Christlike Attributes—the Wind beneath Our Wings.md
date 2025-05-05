@@ -1,0 +1,67 @@
+# Christlike Attributes—the Wind beneath Our Wings
+*By Dieter F. Uchtdorf - Of the Quorum of the Twelve Apostles*
+
+*Given in the October session of the 2005 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/2005/10/christlike-attributes-the-wind-beneath-our-wings?lang=eng)
+
+My dear brothers and sisters, my dear friends: During my professional life as an airline pilot, I sometimes had passengers visit the cockpit of my Boeing 747. They asked about the many switches, instruments, systems, and procedures and how all this technical equipment would help such a huge and beautiful airplane fly.
+
+As with all pilots, I enjoyed the fact that they were impressed by the apparent complexity of this plane and that they wondered what kind of magnificent and brilliant person it takes to operate it! At this point of my story, my wife and children would kindly interrupt and say with a twinkling in their eyes, “Pilots are born with a great measure of natural humility!”
+
+To the visitors in my cockpit, I would explain that it takes a great aerodynamic design, many auxiliary systems and programs, and powerful engines to make this flying machine equal to the task of bringing comfort and safety to those joining the flight.
+
+To simplify my explanation by focusing on the basics, I would add that all you really need is a strong forward thrust, a powerful upward lift, and the right aircraft attitude, and the laws of nature will carry the 747 and its passengers safely across continents and oceans, over high mountains and dangerous thunderstorms to its destination.
+
+In recent years, I have often contemplated that being a member of The Church of Jesus Christ of Latter-day Saints invites us to ask similar questions. What are the basics, the fundamental principles of our membership in the kingdom of God on earth? After all is said and done, what will really carry us at times of greatest need to our desired eternal destination?
+
+The Church, with all its organizational structure and programs, offers many important activities for its members aimed at helping families and individuals to serve God and each other. Sometimes, however, it can appear that these programs and activities are closer to the center of our heart and soul than the core doctrines and principles of the gospel. Procedures, programs, policies, and patterns of organization are helpful for our spiritual progress here on earth, but let’s not forget that they are subject to change.
+
+In contrast, the core of the gospel—the doctrine and the principles—will never change. Living according to the basic gospel principles will bring power, strength, and spiritual self-reliance into the lives of all Latter-day Saints.
+
+Faith is such a principle of power. We need this source of power in our lives. God works by power, but this power is usually exercised in response to our faith. “Faith without works is dead” (James 2:20). God works according to the faith of His children.
+
+The Prophet Joseph Smith explained, “I teach them correct principles, and they govern themselves” (quoted by John Taylor, in “The Organization of the Church,” Millennial Star, Nov. 15, 1851, 339). To me, this teaching is beautifully straightforward. As we strive to understand, internalize, and live correct gospel principles, we will become more spiritually self-reliant. The principle of spiritual self-reliance grows out of a fundamental doctrine of the Church that God has granted us—agency. I believe that moral agency is one of the greatest gifts of God unto His children, next to life itself.
+
+When I study and ponder moral agency and its eternal consequences, I realize that we are truly spirit children of God and therefore should act accordingly. This understanding also reminds me that as members of The Church of Jesus Christ of Latter-day Saints, we are part of a great worldwide family of Saints.
+
+The organizational structure of the Church allows great flexibility according to the size, growth pattern, and needs of our congregations. There is the basic unit program with a very simple organizational structure and fewer meetings. We also have large wards with great organizational resources to serve one another. All are established within the inspired programs of the Church to help members “come unto Christ, and be perfected in him” (Moro. 10:32).
+
+All these varied options are equal in divine value because the doctrine of the restored gospel of Jesus Christ is the same in each unit. I testify as an Apostle of the Lord Jesus Christ that He lives, that the gospel is true, and that it offers the answers to all personal and collective challenges the children of God have on this earth today.
+
+This summer my wife and I visited with members of the Church in many countries throughout Europe. In some parts of Europe, the Church has been present for many years, even since 1837. There is a great heritage of faithful members in Europe. Currently, we have more than 400,000 members in Europe. As we look at all the generations who have emigrated from Europe to America during the nineteenth and twentieth centuries, that total number could easily be multiplied a few times.
+
+Why did so many faithful members leave their home countries in those early days of the Church? Many reasons can be named: to escape persecution, to help build the Church in America, to improve their economic circumstances, the desire to be close to a temple, and many more.
+
+Europe still feels the consequence of this exodus. But the strength that comes from several faithful generations of Church members is now becoming more apparent. We see more young men and women and more senior couples serve missions for the Lord; we see more temple marriages; we see more confidence and courage by the members to share the restored gospel. Among the peoples of Europe and many other parts of the world, there is a spiritual vacuum of Christ’s true teachings. This vacuum must, can, and will be filled with the message of the restored gospel as our wonderful members live and proclaim this gospel with greater courage and faith.
+
+With the expansion of the Church in Europe, there are now countries where the Church has been for less than 15 years. I spoke with a mission president serving in his homeland of Russia who has been a member for only seven years. He told me, “The same month I was baptized I was called as a branch president.” Did he feel overwhelmed at times? Absolutely! Did he try to implement the full range of Church programs? Fortunately not! How did he grow so strong in such a small congregation, in such a short time? He explained, “I knew with all my soul the Church was true. The doctrine of the gospel filled my mind and my heart. As we joined the Church, we felt part of a family. We felt warmth, trust, and love. We were only few, but we all tried to follow the Savior.”
+
+They supported each other, they did the best they could, and they knew the Church was true. It was not the organization that had attracted him, but the light of the gospel, and this light strengthened those good members.
+
+In many countries the Church is still in its beginnings, and the organizational circumstances are sometimes far from perfect. However, the members may have a perfect testimony of the truth in their hearts. As the members will stay in their countries and build the Church, despite economic challenges and hardships, future generations will be grateful to those courageous modern-day pioneers. They abide by the loving invitation of the First Presidency given in 1999:
+
+“In our day, the Lord has seen fit to provide the blessings of the gospel, including an increased number of temples, in many parts of the world. Therefore, we wish to reiterate the long-standing counsel to members of the Church to remain in their homelands rather than immigrate to the United States. ...
+
+“As members throughout the world remain in their homelands, working to build the Church in their native countries, great blessings will come to them personally and to the Church collectively” (First Presidency letter, Dec. 1, 1999).
+
+May I add a word of caution to those of us who live in large wards and stakes. We have to be careful that the center of our testimony is not located in the social dimension of the Church community or the wonderful activities, programs, and organizations of our wards and stakes. All of these things are important and valuable to have—but they are not enough. Even friendship is not enough.
+
+We recognize that we are living in a time of turmoil, disaster, and war. We and many others feel strongly the great need for a “defense, and for a refuge from the storm, and from wrath when it shall be poured out without mixture upon the whole earth” (D&C 115:6). How do we find such a place of safety? The prophet of God, even President Hinckley, has taught: “Our safety lies in the virtue of our lives. Our strength lies in our righteousness” (“Till We Meet Again,” Liahona, Jan. 2002, 105; Ensign, Nov. 2001, 90).
+
+Recall with me how Jesus Christ instructed His Apostles, clearly and directly, at the beginning of His mortal ministry, “[Come,] follow me, and I will make you fishers of men” (Matt. 4:19). This was also the beginning of the ministry of the Twelve Apostles, and I suspect that they had a feeling of inadequacy, as I deeply have, being one who has also been called to this sacred work. May I suggest that the Savior Himself teaches us here a lesson about core doctrine and priorities in life. Individually, we need to first “follow Him,” and as we do this, the Savior will bless us beyond our own capacity to become what He wants us to be.
+
+To follow Christ is to become more like Him. It is to learn from His character. As spirit children of our Heavenly Father, we do have the potential to incorporate Christlike attributes into our life and character. The Savior invites us to learn His gospel by living His teachings. To follow Him is to apply correct principles and then witness for ourselves the blessings that follow. This process is very complex and very simple at the same time. Ancient and modern prophets described it with three words: “Keep the commandments”—nothing more, nothing less.
+
+Developing Christlike attributes in our lives is not an easy task, especially when we move away from generalities and abstractions and begin to deal with real life. The test comes in practicing what we proclaim. The reality check comes when Christlike attributes need to become visible in our lives—as husband or wife, as father or mother, as son or daughter, in our friendships, in our employment, in our business, and in our recreation. We can recognize our growth, as can those around us, as we gradually increase our capacity to “act in all holiness before [Him]” (D&C 43:9).
+
+The scriptures describe a number of Christlike attributes we need to develop during the course of our lives. They include knowledge and humility, charity and love, obedience and diligence, faith and hope. These personal character qualities stand independent of the organizational status of our Church unit, our economic circumstances, our family situation, culture, race, or language. Christlike attributes are gifts from God. They cannot be developed without His help. The one help we all need is given to us freely through the Atonement of Jesus Christ. Having faith in Jesus Christ and in His Atonement means relying completely on Him—trusting in His infinite power, intelligence, and love. Christlike attributes come into our lives as we exercise our agency righteously. Faith in Jesus Christ leads to action. When we have faith in Christ, we trust the Lord enough to follow His commandments—even when we do not completely understand the reasons for them. In seeking to become more like the Savior, we need to reevaluate our lives regularly and rely, through the path of true repentance, upon the merits of Jesus Christ and the blessings of His Atonement.
+
+Developing Christlike attributes can be a painful process. We need to be ready to accept direction and correction from the Lord and His servants. This worldwide conference with its music and spoken word offers spiritual power, direction, and blessings “from on high” (D&C 43:16). It is a time when the voice of personal inspiration and revelation will bring peace to our souls and will teach us how to become more Christlike. This voice will be as sweet as the voice of a dear friend, and it will fill our souls when our hearts are sufficiently contrite.
+
+By becoming more like the Savior, we will grow in our ability to “abound in hope, through the power of the Holy Ghost” (Rom. 15:13). We will “lay aside the things of this world, and seek for the things of a better” (D&C 25:10).
+
+This leads me back to my aerodynamic analogy from the beginning. I spoke of focusing on the basics. Christlike attributes are the basics. They are the fundamental principles that will create “the wind beneath our wings.” As we develop Christlike attributes in our own lives, step-by-step, they will “bear [us] up as on eagles’ wings” (D&C 124:18). Our faith in Jesus Christ will provide power and a strong forward thrust; our unwavering and active hope will provide a powerful upward lift. Both faith and hope will carry us across oceans of temptations, over mountains of afflictions, and bring us safely back to our eternal home and destination.
+
+Of this I testify in the name of Jesus Christ, amen.
+

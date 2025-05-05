@@ -1,0 +1,51 @@
+# Take Time for Your Children
+*By Ben B. Banks - Of the Seventy*
+
+*Given in the October session of the 1993 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1993/10/take-time-for-your-children?lang=eng)
+
+Speaking to the inhabitants of Zion, the Lord said, “They shall ... teach their children to pray, and to walk uprightly before the Lord” (D&C 68:28).
+
+Early one Saturday morning while serving as stake president, I received a phone call from Bishop Nelson asking for help. He said the Janzen family from his ward, while on a family outing in the mountains, had lost their seven-year-old son, Mathew. Darkness had brought the search to a halt Friday evening. But within a short period of time Saturday morning, over a hundred brothers and sisters from the stake drove to the rescue site to join the search. After several hours of combing the trails, roads, and backwoods, little Mathew was finally found. Can you imagine the joy as he was swept into the arms of his mother and father? I listened through tears of grateful parents as they asked, “What happened?” Then this reply: “I took the wrong turn and got lost. When it got dark I tried to build a shelter and sleep, but it was so cold I couldn’t. I knelt down on a rock and prayed five times last night and again this morning. You taught me if I was ever lost, if I would pray to Heavenly Father and stay on the trail, I would find you. Heavenly Father did answer my prayers.”
+
+Elder Richard L. Evans stated, “We ‘shall not pass again this way’—and in these swift-passing scenes and seasons there seems to come—insistently, almost above all else—this compelling cry: Take time for your children. More and more, professional people are telling us that children are shaped and molded at a very early age” (Improvement Era, Nov. 1970, p. 125).
+
+In the fast-paced life that most of us lead, the simple concern of parents finding sufficient time to do the things they want to do is often a big problem. As a general rule, all parents have a desire to be good parents and are aware that within the home environment children are provided the best opportunity to be taught gospel principles and gospel understanding. The risen Lord, while visiting the Nephites, referred to the words of Isaiah, “And all thy children shall be taught of the Lord; and great shall be the peace of thy children” (3 Ne. 22:13).
+
+A few weeks ago, while attending a stake conference in the Philippines, where I currently live, I listened to eleven-year-old Joseph stand at the pulpit with childlike faith and express the following: “My sister got a toothache. I told her, ‘Get Dad to give you a blessing.’ He did, and it went away. My parents taught me to pray when I was a child. I said things that were funny, but I know Heavenly Father heard me. We always read the scriptures when I was young. I didn’t understand then, but I do now.”
+
+We cannot overemphasize the importance of parenthood and the family. Some Latter-day Saint families are what we refer to as the “traditional family,” consisting of parents and children all together in a permanent relationship, with both mother and father sharing in the responsibility of caring for children. Others have witnessed the loss of one of the parents and become one of the many single-parent families. I am one who grew up in a single-parent home. My father lost his life as a result of a construction accident when I was two years old, leaving my mother with seven children to raise. Even in single-parent families, the family continues on, for families are forever. Perhaps few human challenges are greater than that of being good parents. Yes, even with the best intentions, conscientious, good parents sometimes experience feelings of despair, failure, and hurt when children do not make right choices and turn out the way we would like. Even in those circumstances it is so important for parents to love, pray for, and never give up hope for a son or daughter who may have strayed or brought disappointment. Elder Howard W. Hunter stated: “The responsibilities of parenthood are of the greatest importance. The results of our efforts will have eternal consequences for us and the boys and girls we raise. Anyone who becomes a parent is under strict obligation to protect and love his children and assist them to return to their Heavenly Father” (Ensign, Nov. 1983, p. 65).
+
+Parents should be the master teachers of their children. The Church will assist parents in their teaching and training, but only assist. The Church cannot be a substitute for parental responsibility. Elder Richard L. Evans said the home “is also the source of our personal lives, and in a sense the determiner of our everlasting lives. And so our plea is for parents to take the time it takes to draw near to the children God has given them. Let there be love at home. Let there be tenderness and teaching and caring for and not a shifting of responsibility onto others. God grant that we may never be too busy to do the things that matter most, for ‘Home makes the man’” (Richard Evans’ Quote Book, Salt Lake City: Publishers Press, 1971, p. 21).
+
+As we bear this great responsibility of parenthood, may I share with you, in the spirit of trying to be helpful, a few thoughts that parents might use to strengthen their families against worldly temptations and to bring the love, unity, and success that all desire.
+
+Start early. “Columnist Sydney Harris was once asked by an anxious parent, ‘How can I get my 16-year-old son to mind me?’ He answered simply, ‘Shrink him down to six months and start over, differently.’
+
+“This may not be encouraging advice to those with problem teenagers, but to those just starting on the adventure of parenthood, it may serve as a reminder that love and training cannot be postponed” (Jon M. Taylor, Ensign, Oct. 1972, p. 9). In a revelation given through the Prophet Joseph Smith, the Lord explained that all children are innocent before God because of the redemption of Christ (see D&C 93:38). He further said, “But I have commanded you to bring up your children in light and truth” (D&C 93:40).
+
+Effective communication. Parents should spend a great deal of time listening, not just telling. This listening should be done with an open mind and heart. When children feel they can talk freely about their feelings, problems, and successes, wonderful relationships develop between parents and children.
+
+Enthrone love and unity. It is important to make your children aware of your love and feelings. This can be done by a hundred little acts and gestures, such as tucking children into bed at night after listening to their prayers, offering a comforting arm or ear even though he or she may not be hurt very badly. Encourage children to support each other through attendance at ball games and concerts where a family member is participating.
+
+Do things together. Vacations and recreational activities, also family work projects, give parents a good opportunity to teach the importance of developing a good work ethic. Doing things together gives a child and parent an opportunity to share their attention in a common objective.
+
+Provide opportunities to learn how to be independent and responsible. Teach children how to make their own decisions, even if it involves their failing once in a while. We need to help children come to an understanding such as Lehi taught, “knowing good from evil; to act for themselves and not to be acted upon” (2 Ne. 2:26).
+
+Discipline with love. “‘Discipline’ and ‘punishment’ are not synonymous. Punishment suggests hurting, paying someone back for a wrong committed. Discipline implies an action directed toward a goal ... of helping the recipient to improve himself” (William E. Homan, “How to Be a Better Parent,” Reader’s Digest, Oct. 1969, pp. 187–91). Discipline should always be with love.
+
+Service. In his great farewell address, King Benjamin taught, “When ye are in the service of your fellow beings ye are only in the service of your God” (Mosiah 2:17). There are few rewards in life that bring greater feelings of satisfaction, joy, and peace than when one gives meaningful service to a fellow being standing in need.
+
+The last and most important is to establish a “house of God.” The instruction the Lord gave the Prophet Joseph Smith in the 88th section of the Doctrine and Covenants referred to building a temple. Yet this verse of scripture also beautifully describes the type of home we ought to have:
+
+“Organize yourselves; prepare every needful thing; and establish a house, even a house of prayer, a house of fasting, a house of faith, a house of learning, a house of glory, a house of order, a house of God” (D&C 88:119).
+
+It is not easy for children to stay clean and pure in today’s world. There are times when it becomes hard for them to tell right from wrong. We need to teach our children, as Alma taught his son Corianton, “Wickedness never was happiness” (Alma 41:10). Teach them to stay on the Lord’s side of the line. Hold family home evening regularly. Hold family prayer twice a day, if possible. Teach them to love the scriptures and how to experience the sweet answer to individual prayer. Teach them to understand and recognize how the Holy Ghost communicates with us and how it comes as promptings, thoughts, impressions, and feelings. Teach the sacred significance of the atoning sacrifice of our Savior Jesus Christ.
+
+Elder Boyd K. Packer has said, “Teach our young people to bear testimony—to bear testimony that Jesus is the Christ, that Joseph Smith is a prophet of God, that the Book of Mormon is true, that we lived before we came here, that Christ died to redeem us, and that he is the Son of God” (Let Not Your Heart Be Troubled, Salt Lake City: Bookcraft, 1991, p. 154).
+
+Yes, “the best thing to spend on your children is your time” (Arnold Glasow, in Richard Evans’ Quote Book, p. 18).
+
+That all who are parents might be successful in convincing their children that true joy and happiness come from living the gospel of Jesus Christ, and that parents might find joy and fulfillment in their efforts and sacred role, is my prayer, in the name of Jesus Christ, amen.
+

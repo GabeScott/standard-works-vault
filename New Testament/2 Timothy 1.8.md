@@ -1,0 +1,9 @@
+# 2 Timothy 1:8
+
+> Be not thou therefore <u>ashamed</u>[^a] of the <u>testimony</u>[^b] of our Lord, nor of me his prisoner: but be thou partaker of the afflictions of the gospel according to the power of God;
+
+[2 Timothy 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.8?lang=eng#p8)
+
+
+[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^b]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)

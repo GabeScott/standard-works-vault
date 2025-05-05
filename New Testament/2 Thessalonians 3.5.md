@@ -1,0 +1,9 @@
+# 2 Thessalonians 3:5
+
+> And the Lord <u>direct</u>[^a] your hearts into the <u>love</u>[^b] of God, and into the patient waiting for Christ.
+
+[2 Thessalonians 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.5?lang=eng#p5)
+
+
+[^a]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^b]: [[Deuteronomy 11.13|Deut. 11:13.]]

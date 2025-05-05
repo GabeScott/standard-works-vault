@@ -1,0 +1,57 @@
+# The Priesthood and the Savior’s Atoning Power
+*By Dale G. Renlund - Of the Quorum of the Twelve Apostles*
+
+*Given in the October session of the 2017 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/2017/10/the-priesthood-and-the-saviors-atoning-power?lang=eng)
+
+Picture with me a rocket being maneuvered to a launchpad so it can be readied for liftoff. Now visualize the ignition. Fuel, in a controlled burn, is converted into hot gas that spews out, providing the necessary thrust to propel the rocket into space. Finally, envision the payload, or cargo, that sits atop the rocket. The payload’s worth is fully realized only when it gets where it needs to be and functions as it should. You don’t need to be a rocket scientist to appreciate that an expensive global communications satellite is of little value sitting in a warehouse. The rocket’s mission is simply to deliver a payload.
+
+This evening I would like to compare the priesthood that we hold to a rocket and the opportunity to benefit from the Savior’s atoning power to the payload that a rocket delivers.
+
+Because of His atoning sacrifice, Jesus Christ has the power and authority to redeem all mankind. To make His atoning power accessible, He has delegated a portion of His power and authority to men on earth. This delegated power and authority is called priesthood. It permits priesthood holders to help Heavenly Father and Jesus Christ in Their work—to bring about the salvation and exaltation of God’s children. It does so because it provides His children the opportunity to receive the blessings of the Savior’s atoning power.
+
+The atoning power of Jesus Christ is essential because none of us can return to our heavenly home without help. In mortality, we invariably make mistakes and violate God’s laws. We become stained by sin and cannot be allowed back to live in God’s presence. We need the Savior’s atoning power so that we can be reconciled to Heavenly Father. Jesus Christ broke the bands of physical death, allowing resurrection for all. He offers forgiveness of sins, conditioned on obedience to the laws and ordinances of His gospel. Through Him, exaltation is offered. The opportunity to benefit from the Savior’s atoning power is creation’s most important payload.
+
+For Heavenly Father’s purposes to be accomplished, Christ’s atoning power needs to be made available to God’s children. The priesthood delivers these opportunities. It is the rocket. Priesthood is essential because necessary ordinances and covenants on earth are administered only by its authority. If the priesthood fails to deliver the opportunity to benefit from the Savior’s atoning power, what would be its purpose? Would it just be a complex, attention-grabbing firecracker? God intends priesthood to be used for more than just a class on Sunday or as a service opportunity. He intends for it to deliver the payload.
+
+Minor defects in rockets can cause mission failure. Brittle seals and material fatigue can cause a rocket to malfunction. To guard the priesthood from, metaphorically, brittle seals and material fatigue, God protects both its conferral and use. Priesthood conferral is safeguarded by priesthood keys, which are the rights of presidency given to man. Priesthood use is likewise safeguarded by priesthood keys but also by covenants that the priesthood holder makes. The use of the priesthood is consequently governed by both priesthood keys and covenants. A man’s priesthood commission is individually given and does not exist independent of him; priesthood is not an amorphous source of autonomous power.
+
+Both the Aaronic and Melchizedek Priesthoods are received by covenant. God determines the terms and man accepts. Broadly speaking, priesthood holders covenant to help God in His work. Early in this dispensation, Jesus Christ explained that the priesthood covenant “is confirmed upon you for your sakes, and not for your sakes only, but for the sake of the whole world ... because they come not unto me.”
+
+This teaches that the purpose of the priesthood is to invite others to come unto Christ by helping them receive the restored gospel. We have the priesthood so that we can help Heavenly Father’s children be relieved of the burden of sin and become like Him. Through the priesthood, the power of godliness is manifest in the lives of all who make and keep gospel covenants and receive the associated ordinances. This is the way each of us comes unto Christ, is purified, and is reconciled to God. Christ’s atoning power is made accessible through the priesthood, which delivers the payload.
+
+Covenants with God are serious and solemn. A man should prepare for, learn about, and enter such covenants with the intent to honor them. A covenant becomes a pledge of self. Paraphrasing the English playwright Robert Bolt, a man makes a covenant only when he wants to commit himself quite exceptionally to a promise. He makes an identity between the truth of the promise and his own virtue. When a man makes a covenant, he is holding himself, like water, in his cupped hands. And if he opens his fingers, he need not hope to find himself again. A covenant-breaker no longer has a self to commit or a guarantee to offer.
+
+An Aaronic Priesthood holder covenants to avoid evil, help others be reconciled to God, and prepare to receive the Melchizedek Priesthood. These sacred responsibilities are fulfilled as he teaches, baptizes, strengthens Church members, and invites others to accept the gospel. These are his “rocket” functions. In return, God promises hope, forgiveness, the ministering of angels, and the keys of the gospel of repentance and baptism.
+
+A Melchizedek Priesthood holder covenants to fulfill the responsibilities associated with the Aaronic Priesthood and to magnify his calling in the Melchizedek Priesthood. He does so by keeping the commandments associated with the covenant. These commandments include giving “diligent heed to the words of eternal life” by living by every word that proceeds from the mouth of God, bearing testimony of Jesus Christ and His latter-day work, not boasting of himself, and becoming the Savior’s friend, trusting Him as a friend would.
+
+In return, God promises that a Melchizedek Priesthood holder will receive keys to understand the mysteries of God. He will become perfect so that he can stand in the presence of God. He will be able to fulfill his role in the work of salvation. Jesus Christ will prepare the way before the priesthood holder and will be with him. The Holy Ghost will be in the priesthood holder’s heart, and angels will bear him up. His body will be strengthened and renewed. He will become heir to the blessings of Abraham and, along with his wife, joint-heir with Jesus Christ to Heavenly Father’s kingdom. These are “exceeding great and precious promises.” No greater promises can be imagined.
+
+To each man who receives the Melchizedek Priesthood, God affirms His covenant promises with an oath. This oath pertains only to the Melchizedek Priesthood, and it is God who swears the oath, not the priesthood holder. Because this unique situation involves His divine power and authority, God uses an oath, employing the most forceful language He can, to assure us of the binding and irreversible nature of His promises.
+
+Severe consequences result from breaking priesthood covenants and altogether turning from them. Being casual or apathetic in a priesthood calling is like introducing material fatigue into a rocket component. It jeopardizes the priesthood covenant because it can lead to mission failure. Disobedience to God’s commandments breaks the covenant. For a perpetual, unrepentant covenant-breaker, the promised blessings are withdrawn.
+
+I came to understand more fully the relationship between the “priesthood” rocket and the “opportunity to benefit from Christ’s atoning power” payload several years ago. During a weekend, I had two assignments. One was to create the first stake in a country, and the other was to interview a young man and, if all was in order, restore his priesthood and temple blessings. This 30-year-old man had joined the Church in his late teens. He served an honorable mission. But when he returned home, he lost his way, and he lost his membership in the Church. After some years, “he came to himself,” and with the help of loving priesthood leaders and kind members, he repented and was readmitted by baptism into the Church.
+
+Later, he applied to have his priesthood and temple blessings restored. We set an appointment for Saturday at 10:00 a.m. at the meetinghouse. When I arrived for the earlier interviews, he was already there. He was so anxious to have the priesthood once again, he just could not wait.
+
+During our interview, I showed him the letter explaining that President Thomas S. Monson had personally reviewed his application and authorized the interview. This otherwise stoic young man wept. I then told him that the date of our interview would have no official meaning in his life. He looked puzzled. I informed him that after I restored his blessings, his membership record would show only his original baptism, confirmation, priesthood ordination, and endowment dates. He choked up again.
+
+I asked him to read from the Doctrine and Covenants:
+
+“Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.
+
+“By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them.”
+
+Tears filled his eyes a third time. Then I placed my hands on his head, and in the name of Jesus Christ and by the authority of the Melchizedek Priesthood, and with the authorization of the President of the Church, I restored his priesthood and temple blessings.
+
+The joy that came over us was profound. He knew he was once again authorized to hold and exercise the priesthood of God. He knew that his temple blessings were again fully operative. He had a bounce in his step and a radiant light about him. I was so proud of him, and I sensed how proud Heavenly Father was of him too.
+
+Thereafter, the stake was organized. The meetings were well attended by enthusiastic, faithful Saints, and a wonderful stake presidency was sustained. However, for me, the historic occasion of organizing this first stake in a country was overshadowed by the joy I felt in restoring the blessings to this young man.
+
+I have come to realize that the purpose of organizing a stake, or using the priesthood of God in any way, is to assist Heavenly Father and Jesus Christ in Their work—to provide the opportunity for redemption and exaltation to each of God’s children. Like the rocket whose purpose is to deliver a payload, the priesthood delivers the gospel of Jesus Christ, enabling all to make covenants and receive the associated ordinances. “The atoning blood of Christ” can thereby be applied in our lives as we experience the sanctifying influence of the Holy Ghost and receive the blessings God promises.
+
+In addition to obeying the laws and ordinances of the gospel yourself, I invite you to make and keep priesthood covenants. Receive God’s oath and His promise. Magnify your responsibilities in the priesthood to help Heavenly Father and Jesus Christ. Use the priesthood to help deliver the opportunity to benefit from the Savior’s atoning power to someone else! As you do, great blessings will come to you and your family. I testify that the Redeemer lives and directs this work, in the name of Jesus Christ, amen.
+

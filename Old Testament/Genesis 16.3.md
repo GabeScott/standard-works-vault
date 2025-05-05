@@ -1,0 +1,7 @@
+# Genesis 16:3
+
+> And Sarai Abram’s wife took Hagar her maid the Egyptian, after Abram had dwelt ten years in the land of Canaan, and gave her to her husband Abram to be his wife.
+
+[Genesis 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/16.3?lang=eng#p3)
+
+

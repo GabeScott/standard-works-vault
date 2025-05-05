@@ -1,0 +1,8 @@
+# Genesis 2:22
+
+> And the rib, which the Lord God had taken from man, made he a <u>woman</u>[^a], and brought her unto the man.
+
+[Genesis 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.22?lang=eng#p22)
+
+
+[^a]: TG [Man, Physical Creation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)

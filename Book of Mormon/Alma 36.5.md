@@ -1,0 +1,11 @@
+# Alma 36:5
+
+> Now, behold, I say unto you, if I had not been <u>born of God</u>[^a] I should <u>not</u>[^b] have known these things; but God has, by the mouth of his holy <u>angel</u>[^c], made these things known unto me, not of any <u>worthiness</u>[^d] of myself;
+
+[Alma 36:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p5#p5)
+
+
+[^a]: TG [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
+[^b]: [[Alma 26.21|Alma 26:21 (21-22).]]
+[^c]: [[Mosiah 27.11|Mosiah 27:11 (11-18).]]
+[^d]: TG [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)

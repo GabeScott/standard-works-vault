@@ -1,0 +1,9 @@
+# Isaiah 43:6
+
+> I will say to the <u>north</u>[^a], <u>Give up</u>[^b]; and to the south, Keep not back: bring my sons from far, and my daughters from the ends of the earth;
+
+[Isaiah 43:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.6?lang=eng#p6)
+
+
+[^a]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^b]: OR Deliver up.

@@ -1,0 +1,8 @@
+# Luke 10:18
+
+> And he said unto them, I beheld <u>Satan</u>[^a] as lightning fall from heaven.
+
+[Luke 10:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.18?lang=eng#p18)
+
+
+[^a]: TG [Council in Heaven](https://www.churchofjesuschrist.org/study/scriptures/tg/council-in-heaven?lang=eng); [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)

@@ -1,0 +1,9 @@
+# 2 Nephi 20:24
+
+> Therefore, thus saith the Lord God of Hosts: O my people that dwellest in Zion, <u>be</u>[^a] not afraid of the Assyrian; he shall smite thee with a rod, and shall lift up his staff against thee, after the <u>manner</u>[^b] of Egypt.
+
+[2 Nephi 20:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p24#p24)
+
+
+[^a]: [[Isaiah 37.6|Isa. 37:6 (6-7).]]
+[^b]: TG [Israel, Bondage of, in Egypt](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-egypt?lang=eng); [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)

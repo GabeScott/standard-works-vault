@@ -1,0 +1,11 @@
+# 2 Peter 1:20
+
+> Knowing this first, that <u>no</u>[^a] <u>prophecy</u>[^b] of the <u>scripture</u>[^c] is of any private <u>interpretation</u>[^d] .
+
+[2 Peter 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.20?lang=eng#p20)
+
+
+[^a]: JST 2 Pet. 1:20 … no prophecy of the scriptures is given of any private will of man.
+[^b]: TG [Prophecy.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
+[^c]: TG [Scriptures, Study of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
+[^d]: [[Genesis 40.8|Gen. 40:8.]]

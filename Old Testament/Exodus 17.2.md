@@ -1,0 +1,9 @@
+# Exodus 17:2
+
+> Wherefore the people <u>did chide with</u>[^a] Moses, and said, Give us water that we may drink. And Moses said unto them, Why chide ye with me? wherefore do ye <u>tempt the Lord</u>[^b] ?
+
+[Exodus 17:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.2?lang=eng#p2)
+
+
+[^a]: HEB strove with, or complained to. Ex. 32:22.
+[^b]: HEB put the Lord to the test. TG [Doubt](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng); [Test](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng).

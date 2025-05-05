@@ -1,0 +1,83 @@
+# The Bond of Charity
+*By By Barbara B. Smith - Relief Society General President*
+
+*Given in the October session of the 1980 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1980/10/the-bond-of-charity?lang=eng)
+
+As I have listened to President Kimball, and as I listened to this choir sing these entreating words, I am reminded of how significant charity is in the teachings of the Lord. He has said, “And above all things, clothe yourselves with the bond of charity, as with a mantle, which is the bond of perfectness and peace” (D&C 88:125; emphasis added).
+
+I see a mantle as many of you care for each other in acts of tender compassion, ever striving for the highest, noblest, strongest kind of love—the pure love of Christ. Charity, or the pure love of Christ, is not synonymous with good deeds or benevolence. But kind, thoughtful, loving acts are the way Jesus has directed us to express our love—both our love for him and our love for others. If we have the sustenance, he says we are to give to those in want. If we are thoughtful, warm, and caring to those who are sick, those who mourn, those who are fatherless, those we love, and those who despitefully use us, then we have charity, for we are moved to act with compassion.
+
+In Spanish the word charity means “the love that never ceases to be.” In Micronesia the word love translates into “the power to change lives.” These tender nuances give us a better understanding of the pure love of Christ. As we serve with the single desire to nurture all life, we come to know what charity means.
+
+This seemed to be a characteristic of Ruth, whose feelings for Naomi are recorded in the Old Testament. Ruth was compassionate, even though the circumstances of her life were bitter. Bitter experiences come into the lives of all of us. Without the bitter, we cannot know the sweet. The prophet Lehi explained:
+
+“For it must needs be, that there is an opposition in all things. If not so, ... righteousness could not be brought to pass, neither wickedness, neither holiness nor misery, neither good nor bad. Wherefore, all things must needs be a compound in one.” (2 Ne. 2:11.)
+
+Ruth knew this opposition. She was just a young woman when her husband died and left her alone without child. It was a bitter time, and yet there was the sweetness of her relationship with her mother-in-law and the strength of her faith in the God of Israel. Both had come into her life because of her marriage.
+
+Ruth gleaned from the fields to sustain herself and Naomi. But more than what she gleaned from the fields were the experiences that came as she worked to thresh out the wheat from the chaff. At the end of her day she had great blessings because of her effort. This is the challenge we all face in our own lives. We too must glean from life’s circumstances and experiences that which will give us growth and faith and peace of mind.
+
+There is no way that we can, or should want to, escape the challenges and struggles of mortality. How we struggle with them is our choice. The gospel plan gives us an eternal perspective that should help us have courage to be about our gleaning.
+
+When Joseph Smith spoke to the sisters in those first Relief Society meetings in Nauvoo, he said: “After this instruction, you will be responsible for your own sins; it is a desirable honor ... to save yourselves; we are all responsible ... to save ourselves” (Teachings of the Prophet Joseph Smith, sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 227).
+
+Notice he did not say that having the knowledge would save them. He said that having the knowledge gave them the responsibility to do the work of saving themselves.
+
+The Relief Society organization is prepared by the Lord to help us—his daughters—as we walk step by step toward perfection. Relief Society can be a guide, a strength, a light, a direction. Relief Society can teach us how to develop a love that never ceases. It provides us opportunities to demonstrate love by our actions. Relief Society will help us sort out truth from error in our modern world, of what Lehi called a compound of good and evil.
+
+Tonight I have selected eight directives that I believe are crucial if we are to develop the bond of charity.
+
+Our theme for this evening is—“learn, then teach.”
+
+Recall when Jesus sat at the table with his disciples just before his suffering in Gethsemane. He reminded them that “he that is greatest among you ... [is] he that doth serve” (Luke 22:26). He turned to Simon and said, “Simon, Simon ... I have prayed for thee, that thy faith fail not: and when thou art converted, strengthen thy brethren” (Luke 22:31–32).
+
+The procedure which the Lord revealed to Simon Peter is given to us all. We must know the principles of truth and then go forth converted and teach those principles to others. So we urge you tonight to go forth from this meeting determined to teach—learn in Relief Society through lessons prepared by inspiration, learn upon your knees in humble prayer, learn by studying the scriptures, learn by listening to the modern prophets, learn by listening to the promptings of the Holy Ghost. And when you have learned, teach—strengthen—your sisters; strengthen your children, your husband, your associates. Teach them through each opportunity that comes to you; teach them by the lives you live.
+
+Be active in Relief Society.
+
+To be active in Relief Society a woman needs to attend the meetings of Relief Society and accept assignments. Whether you are old or young, married or single, you should attend Relief Society and develop a bond of sisterhood with other women who share your concerns and beliefs. Be there. Participate in the lesson discussions.
+
+I was talking with President Kimball one day, and as I turned to leave his office, I asked him if there was anything I could do for him. He replied, “Yes, you can get the women to Relief Society.” He asked me to address that problem because he knows that attendance at Relief Society gives us an opportunity to be strengthened spiritually, to enlarge our understanding of eternal truths, and thus help us make choices in our lives which will allow us to save ourselves. If your present callings take you to Primary or to the Young Women’s meetings, reach out for other ways to become close to your Relief Society sisters. Read the lessons. Discuss them with your visiting teachers. Make Relief Society a part of your life.
+
+Spread the gospel message.
+
+When Joseph Smith addressed the Saints for the last time in the dusty street of Nauvoo en route to Carthage, he reminded them that their work was to minister life and salvation to all the world. President Kimball continues to remind us that it is our great responsibility to lengthen our stride and preach the gospel to all the nations.
+
+As women of the Church we need to prepare to do missionary work by study, by prayer, and by service. Then we will be better able to live by the principles of truth, and others seeing our good works are more apt to be accepting. The greatest numbers of baptisms come from among those people who know active Latter-day Saints.
+
+Even as thousands of our sons and daughters go out every year to teach the world the message of salvation, our local Relief Society units can find many ways that Relief Society women may cooperate with the full-time missionaries of the Church to bring the good tidings to other thousands. An important beginning is to give the missionaries nonmember names on a regular basis.
+
+Consider the possibility of a mission for yourself, either as a proselyting missionary or as a special-services missionary. A counselor in our stake Relief Society presidency has just accepted a mission call to Nigeria with her husband. She said, “My life would probably be easier if I didn’t go, but I want to share the gospel with others that they might have the blessings that now are mine.”
+
+Be genuinely interested in getting to know people in community service, in your neighborhood, in the work place—wherever your day’s activities take you. Be honest in your friendship and sincere in living what you believe, and then your opportunities for sharing the gospel will develop.
+
+Learn and live the principles of welfare work.
+
+Remember that the essence of the gospel plan is caring for the poor and the needy, developing a provident home, and contributing to the resource system of the Church so that there will be commodities to meet the needs of those who must call upon them. Every one of us has the God-given challenge to extend our love and compassion to those who have special needs and are heavily burdened. We cannot neglect the welfare work of the Church.
+
+Be sensitive to life’s transition, both for yourself and for others.
+
+We are constantly being made aware of the realities of life, which include many transitional phases—from youth to maturity, from single to married, from a house filled with children to an empty house, from military to civilian life, from employment to retirement, from married to widowed or divorced, from young and vibrant to old and dependent. Each transition brings with it a special set of stresses and concerns. Each of us needs a listening ear, at times, and encouragement as we seek to find our way. Relief Society officers and teachers and members can offer help through these difficulties. We must be sensitive to the changes that come into each other’s lives.
+
+Do quality visiting teaching.
+
+Visiting teaching is a tool given to us by the Lord. Properly used it is a great source of inspiration, strength, and comfort. We often hear of a sister whose prayers have been almost miraculously answered by visiting teachers in a time of need. In an urban world that is often filled with loneliness, in the midst of a crowd, visiting teachers are essential. They are the Lord’s way of helping us keep in touch with each other, and I think they are his recognition of the sanctity of each home. What the visiting teaching program needs is more dedication to those we are called to visit.
+
+Be a connecting link.
+
+During this historical year, look at yourself as a connecting link between the past and the future. Many of you are, or might consider, filling a jubilee box like this one over here that we will close tonight. Our grandmothers before us closed jubilee boxes. What goes into a jubilee box should represent the spirit of our sisters and their current activities, so that those who open the boxes in fifty years will find in them an insight into our commitment and faith.
+
+Individually, you already are a link in the great ongoing human experience. But you can also shape an understanding of our times by the journals you leave and by the things you choose to value and keep. Be a vital part of linking together for eternity those who went before you, those who live now, and those who are yet to come.
+
+Value yourself.
+
+The scriptures bear witness that our Heavenly Father values his children above all of his other creations. In his children are to be found immortality and eternal life. Each of us has the potential to become as he is.
+
+Each woman in the Church should realize that none of the blessings which our Father has for his faithful daughters will be denied any who live worthily. Relief Society is to help each of us, married or single, prepare through our faithfulness to rule and reign forever as an eternal companion with a husband, and not choose to serve merely as a ministering angel.
+
+If we all unite and become one sisterhood in our meetings and activities, together we can become instruments in the hands of God by which he can perform his work. We will be motivated to good works by the accepting, encouraging, ennobling love of Christ. My beloved sisters, “above all things, clothe yourselves with the bond of charity, as with a mantle, which is the bond of perfectness and peace” (D&C 88:125).
+
+God grant that we may “learn, then teach” with receptive minds and clear purpose. May we be fully united in the bond of charity so that we can glean all of the blessings which the Lord has prepared for us from the foundation of the earth, I humbly pray in the name of Jesus Christ, amen.
+

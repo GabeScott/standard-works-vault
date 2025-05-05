@@ -1,0 +1,10 @@
+# 1 Nephi 1:8
+
+> And being thus overcome with the Spirit, he was carried away in a <u>vision</u>[^a], even that he saw the <u>heavens</u>[^b] open, and he thought he <u>saw</u>[^c] God sitting upon his throne, surrounded with numberless concourses of angels in the attitude of singing and praising their God.
+
+[1 Nephi 1:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/1?lang=eng&id=p8#p8)
+
+
+[^a]: [[1 Nephi 3.18|1 Ne. 3:18 (17-18)]]; [[1 Nephi 5.4|5:4]]. TG [Vision](https://www.churchofjesuschrist.org/study/scriptures/tg/vision?lang=eng).
+[^b]: [[Ezekiel 1.1|Ezek. 1:1]]; [[Acts 7.56|Acts 7:56 (55-56)]]; [[1 Nephi 11.14|1 Ne. 11:14]]; [[Alma 36.22|Alma 36:22]]; [[Helaman 5.48|Hel. 5:48 (45-49)]]; [[D&C 137.1|D&C 137:1.]]
+[^c]: TG [God, Manifestations of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-manifestations-of?lang=eng); [God, Privilege of Seeing.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng)

@@ -1,0 +1,9 @@
+# Alma 11:22
+
+> And Amulek said unto him: Yea, if it be according to the <u>Spirit</u>[^a] of the Lord, which is in me; for I shall say nothing which is contrary to the Spirit of the Lord. And Zeezrom said unto him: Behold, here are six onties of silver, and all these will I <u>give</u>[^b] thee if thou wilt deny the existence of a Supreme Being.
+
+[Alma 11:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p22#p22)
+
+
+[^a]: TG [God, Spirit of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng); [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
+[^b]: TG [Bribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/bribe?lang=eng)

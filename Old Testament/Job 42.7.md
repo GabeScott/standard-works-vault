@@ -1,0 +1,7 @@
+# Job 42:7
+
+> ¶ And it was so, that after the Lord had spoken these words unto Job, the Lord said to Eliphaz the Temanite, My wrath is kindled against thee, and against thy two friends: for ye have not spoken of me the thing that is right, as my servant Job hath.
+
+[Job 42:7](https://www.churchofjesuschrist.org/study/scriptures/ot/job/42.7?lang=eng#p7)
+
+

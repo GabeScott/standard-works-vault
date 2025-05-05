@@ -1,0 +1,7 @@
+# Leviticus 3:3
+
+> And he shall offer of the sacrifice of the peace offering an offering made by fire unto the Lord ; the fat that covereth the inwards, and all the fat that is upon the inwards,
+
+[Leviticus 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/3.3?lang=eng#p3)
+
+

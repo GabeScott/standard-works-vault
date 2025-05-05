@@ -1,0 +1,10 @@
+# Hebrews 1:1
+
+> God, who <u>at</u>[^a] sundry times and in divers manners spake in time past unto the <u>fathers</u>[^b] by the <u>prophets</u>[^c],
+
+[Hebrews 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1.1?lang=eng#p1)
+
+
+[^a]: GR in many locations and various ways.
+[^b]: TG [Family, Patriarchal.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-patriarchal?lang=eng)
+[^c]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)

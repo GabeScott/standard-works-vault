@@ -1,0 +1,8 @@
+# Acts 8:32
+
+> The place of the scripture which he read was this, He was led as a sheep to the slaughter; and like a <u>lamb</u>[^a] dumb before his shearer, so opened he not his mouth:
+
+[Acts 8:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.32?lang=eng#p32)
+
+
+[^a]: TG [Jesus Christ, Lamb of God](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lamb-of-god?lang=eng); [Jesus Christ, Trials of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-trials-of?lang=eng)

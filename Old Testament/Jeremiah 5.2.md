@@ -1,0 +1,8 @@
+# Jeremiah 5:2
+
+> And though they say, The Lord liveth; surely they <u>swear</u>[^a] falsely.
+
+[Jeremiah 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.2?lang=eng#p2)
+
+
+[^a]: TG [Swearing.](https://www.churchofjesuschrist.org/study/scriptures/tg/swearing?lang=eng)

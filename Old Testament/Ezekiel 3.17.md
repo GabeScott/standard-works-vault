@@ -1,0 +1,9 @@
+# Ezekiel 3:17
+
+> Son of man, I have made thee a <u>watchman</u>[^a] unto the house of Israel: therefore hear the word at my mouth, and give them <u>warning</u>[^b] from me.
+
+[Ezekiel 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.17?lang=eng#p17)
+
+
+[^a]: TG [Delegation of Responsibility](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng); [Watchman.](https://www.churchofjesuschrist.org/study/scriptures/tg/watchman?lang=eng)
+[^b]: TG [Priesthood, Magnifying Callings within.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng)

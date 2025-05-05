@@ -1,0 +1,7 @@
+# Nehemiah 3:17
+
+> After him repaired the Levites, Rehum the son of Bani. Next unto him repaired Hashabiah, the ruler of the half part of Keilah, in his part.
+
+[Nehemiah 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/3.17?lang=eng#p17)
+
+

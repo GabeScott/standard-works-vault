@@ -1,0 +1,7 @@
+# Daniel 6:15
+
+> Then these men assembled unto the king, and said unto the king, Know, O king, that the law of the Medes and Persians is, That no decree nor statute which the king establisheth may be changed.
+
+[Daniel 6:15](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.15?lang=eng#p15)
+
+

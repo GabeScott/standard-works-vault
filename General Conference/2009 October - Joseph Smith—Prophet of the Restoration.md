@@ -1,0 +1,47 @@
+# Joseph Smith—Prophet of the Restoration
+*By Tad R. Callister - Of the Seventy*
+
+*Given in the October session of the 2009 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/2009/10/joseph-smith-prophet-of-the-restoration?lang=eng)
+
+Suppose for a moment someone told you these three facts about a New Testament personality and nothing more: first, the Savior said of this man, “O thou of little faith” (Matthew 14:31); second, this man, in a moment of anger, cut off an ear of the high priest’s servant; and third, this man denied knowing who the Savior was on three occasions, even though he had walked with Him daily. If that is all you knew or focused upon, you might have thought this man a scoundrel or a no-good, but in the process you would have failed to come to know one of the greatest men who ever walked the earth: Peter the Apostle.
+
+Similarly, attempts have been made by some to focus upon or magnify some minor weaknesses of the Prophet Joseph Smith, but in that process they too have missed the mark, the man, and his mission. Joseph Smith was the Lord’s anointed to restore Christ’s Church to the earth. When he emerged from the grove of trees, he eventually learned four fundamental truths not then taught by the majority of the contemporary Christian world.
+
+First, he learned that God the Father and His Son, Jesus Christ, are two separate, distinct beings. The Bible confirms Joseph Smith’s discovery. It tells us that the Son submitted His will to the Father (see Matthew 26:42). We are moved by the Savior’s submission and find strength in His example to do likewise, but what would have been the depth and passion of Christ’s submission or the motivational power of that example if the Father and the Son were the same being and in reality the Son was merely following His own will under a different name?
+
+The scriptures give further evidence of this great truth: “For God so loved the world, that he gave his only begotten Son” (John 3:16). A father offering up his only son is the supreme demonstration of love that the human mind and heart can conceive and feel. It is symbolized by the touching story of Abraham and Isaac (see Genesis 22). But if the Father is the same being as the Son, then this sacrifice of all sacrifices is lost, and Abraham is no longer offering up Isaac—Abraham is now offering up Abraham.
+
+The second great truth Joseph Smith discovered was that the Father and the Son have glorified bodies of flesh and bones. Following the Savior’s Resurrection, He appeared to His disciples and said, “Handle me, and see; for a spirit hath not flesh and bones, as ye see me have” (Luke 24:39). Some have suggested this was a temporary physical manifestation and that when He ascended to heaven He shed His body and returned to His spirit form. But the scriptures tell us this was not possible. Paul taught, “Knowing that Christ being raised from the dead dieth no more; death hath no more dominion over him” (Romans 6:9). In other words, once Christ was resurrected, His body could never again be separated from His spirit; otherwise He would suffer death, the very consequence Paul said was no longer possible after His Resurrection.
+
+The third truth that Joseph Smith learned was that God still speaks to man today—that the heavens are not closed. One need but ask three questions, once proposed by President Hugh B. Brown, to arrive at that conclusion (see “The Profile of a Prophet,” Liahona, June 2006, 13; Ensign, June 2006, 37). First, does God love us as much today as He loved the people to whom He spoke in New Testament times? Second, does God have the same power today as He did then? And third, do we need Him as much today as they needed Him anciently? If the answers to those questions are yes and if God is the same yesterday, today, and forever, as the scriptures so declare (see Mormon 9:9), then there is little doubt: God does speak to man today exactly as Joseph Smith testified.
+
+The fourth truth that Joseph Smith learned was that the full and complete Church of Jesus Christ was not then upon the earth. Of course there were good people and some components of the truth, but the Apostle Paul had anciently prophesied that the Second Coming of Christ would not come “except there come a falling away first” (2 Thessalonians 2:3).
+
+Following Joseph Smith’s First Vision, the Restoration of Christ’s Church commenced “line upon line, precept upon precept” (D&C 98:12).
+
+Through Joseph Smith was restored the doctrine of the gospel being preached to the dead in the spirit world to those who did not have a fair chance on earth to hear it (see D&C 128:5–22; see also D&C 138:30–34). This was not the invention of a creative mind; it was the restoration of a biblical truth. Peter had long ago taught, “For this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit” (1 Peter 4:6). Frederic W. Farrar, the well-known Church of England author and theologian, made the following observation about this teaching of Peter: “Every effort has been made to explain away the plain meaning of this passage. It is one of the most precious passages of Scripture, and it involves no ambiguity. ... For if language have any meaning, this language means that Christ, when His Spirit descended into the lower world, proclaimed the message of salvation to the once impenitent dead” (The Early Days of Christianity [1883], 78).
+
+Many teach that there is one heaven and one hell. Joseph Smith restored the truth that there are multiple heavens. Paul spoke of a man who was caught up into the third heaven (see 2 Corinthians 12:2). Could there be a third heaven if there was no second heaven or first heaven?
+
+In many ways the gospel of Jesus Christ is like a 1,000-piece jigsaw puzzle. When Joseph Smith came on the scene, perhaps 100 pieces were in place. Then Joseph Smith came along and put many of the other 900 pieces in place so that people could say, “Oh, now I understand where I came from, why I am here, and where I am going.” As for Joseph Smith’s role in the Restoration, the Lord defined it clearly: “This generation shall have my word through you” (D&C 5:10).
+
+In spite of this flood of restored biblical truths, some honest searchers have commented: “I can accept these doctrines, but what about all those angels and visions Joseph Smith claimed to have? It seems so hard to believe in modern times.”
+
+To those honest searchers, we lovingly respond: “Were there not angels and visions in Christ’s Church in New Testament times? Did not an angel appear to Mary and to Joseph? Did not angels appear to Peter, James, and John on the Mount of Transfiguration? Did not an angel rescue Peter and John from prison? Did not an angel appear to Cornelius, then to Paul before he was shipwrecked and to John on the Isle of Patmos? Did not Peter have a vision of the gospel going to the Gentiles, Paul a vision of the third heaven, John a vision of the latter days, and Stephen a vision of the Father and Son?”
+
+Yes, Joseph Smith did see angels and visions—because he was the instrument in God’s hands to restore the same Church of Jesus Christ as existed in primitive times—all of its powers as well as all of its doctrines.
+
+Yet sorrowfully, on occasion, some are willing to set aside the precious gospel truths restored by Joseph Smith because they get diverted on some historical issue or some scientific hypothesis not central to their exaltation, and in so doing they trade their spiritual birthright for a mess of pottage. They exchange the absolute certainty of the Restoration for a doubt, and in that process they fall into the trap of losing faith in the many things they do know because of a few things they do not know. There will always be some seemingly intellectual crisis looming on the horizon as long as faith is required and our minds are finite, but likewise there will always be the sure and solid doctrines of the Restoration to cling to, which will provide the rock foundation upon which our testimonies may be built.
+
+When many of Christ’s followers turned from Him, He asked His Apostles, “Will ye also go away?”
+
+Peter then responded with an answer that should be engraved on every heart: “To whom shall we go? thou hast the words of eternal life” (John 6:66–68).
+
+If someone turns from these restored doctrines, where will he go to learn the true nature of God as taught in the grove of trees? Where will he go to find the doctrines of the premortal existence, baptism for the dead, and eternal marriage? And where will he go to find the sealing powers that can bind husbands and wives and children beyond the grave?
+
+Through Joseph Smith have been restored all the powers, keys, teachings, and ordinances necessary for salvation and exaltation. You cannot go anywhere else in the world and get that. It is not to be found in any other church. It is not to be found in any philosophy of man or scientific digest or individual pilgrimage, however intellectual it may seem. Salvation is to be found in one place alone, as so designated by the Lord Himself when He said that this is “the only true and living church upon the face of the whole earth” (D&C 1:30).
+
+I bear my witness that Joseph Smith was the prophet of the Restoration, just as he claimed to be. I echo the strains of that stirring hymn: “Praise to the man who communed with Jehovah!” (“Praise to the Man,” Hymns, no. 27). In the name of Jesus Christ, amen.
+

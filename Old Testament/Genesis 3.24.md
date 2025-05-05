@@ -1,0 +1,9 @@
+# Genesis 3:24
+
+> So he drove out the man; and he placed at the east of the garden of Eden <u>Cherubims</u>[^a], and a flaming sword which turned every way, to keep the way of the <u>tree of life</u>[^b] .
+
+[Genesis 3:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.24?lang=eng#p24)
+
+
+[^a]: TG [Cherubim.](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
+[^b]: [[Genesis 2.9|Gen. 2:9]]; [[Alma 42.5|Alma 42:5 (2-5).]]

@@ -1,0 +1,131 @@
+# God among Us
+*By Dieter F. Uchtdorf - Of the Quorum of the Twelve Apostles*
+
+*Given in the April session of the 2021 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/2021/04/12uchtdorf?lang=eng)
+
+Throughout the ages, God has spoken through His servants, the prophets.1 This morning we have had the privilege to hear the prophet of God speak to all the world. We love you, President Nelson, and I encourage everyone everywhere to study and heed your words.
+
+Before I reached my 12th birthday, our family had been forced twice to flee our home and start over amid the chaos, fear, and uncertainties caused by war and political division. It was an anxious time for me, but it must have been terrifying for my beloved parents.
+
+My mother and father shared little about this burden with us four children. They bore the strain and suffering as best they could. The fear must have been oppressive, consuming their hours and dampening their hope.
+
+This time of bleakness after World War II left its mark upon the world. It left its mark upon me.
+
+Back then, in the solitude of my loneliest hours, I often wondered, “Is there any hope left in the world?”
+
+As I pondered this question, I thought about our young American missionaries who served among us during those years. They had left the safety of their homes half a world away and traveled to Germany—land of their recent enemies—to offer divine hope to our people. They came not to blame, lecture, or shame. They willingly gave of their young lives without thought of earthly gain, wanting only to help others find the joy and peace they had experienced.
+
+To me, these young men and women were perfect. I am sure they had flaws, but not to me. I will always think of them as being bigger than life—angels of light and glory, ministers of compassion, goodness, and truth.
+
+While the world was drowning in cynicism, bitterness, hatred, and fear, the example and teachings of these young people filled me with hope. The gospel message they offered transcended politics, history, grudges, grievances, and personal agendas. It gave divine answers to important questions we had during these difficult times.
+
+The message was that God lived and cared about us, even in these hours of turmoil, confusion, and chaos. That He actually appeared in our time to restore truth and light—His gospel and His Church. That He speaks to prophets again; that God is among us—and is personally involved in our lives and actively guiding His children.
+
+It is astonishing what we can learn when we look a little closer at our Heavenly Father’s plan of salvation and exaltation, the plan of happiness, for His children. When we feel insignificant, cast off, and forgotten, we learn that we may be assured that God has not forgotten us—in fact, that He offers to all His children something unimaginable: to become “heirs of God, and joint-heirs with Christ.”2
+
+What does this mean?
+
+That we will live forever, receive a fulness of joy,3 and have the potential to “inherit thrones, kingdoms, principalities, and powers.”4
+
+It is so humbling to know that this magnificent and supernal future is possible—not because of who we are but because of who God is.
+
+Knowing this, how could we ever murmur or remain embittered? How could we ever keep our eyes on the ground when the King of kings invites us to take flight into an unimaginable future of divine happiness?5
+
+Because of God’s perfect love for us and the eternal sacrifice of Jesus Christ, our sins—both great and small—can be blotted out and remembered no more.6 We can stand before Him pure, worthy, and sanctified.
+
+My heart overflows with gratitude for my Heavenly Father. I realize that He has not doomed His children to stumble through mortality without hope for a bright and eternal future. He has provided instructions that reveal the way back to Him. And at the center of it all is His Beloved Son, Jesus Christ,7 and His sacrifice for us.
+
+The Savior’s infinite Atonement completely changes the way we may view our transgressions and imperfections. Instead of dwelling on them and feeling irredeemable or hopeless, we can learn from them and feel hopeful.8 The cleansing gift of repentance allows us to leave our sins behind and emerge a new creature.9
+
+Because of Jesus Christ, our failures do not have to define us. They can refine us.
+
+Like a musician rehearsing scales, we can see our missteps, flaws, and sins as opportunities for greater self-awareness, deeper and more honest love for others, and refinement through repentance.
+
+If we repent, mistakes do not disqualify us. They are part of our progress.
+
+We are all infants compared to the beings of glory and grandeur we are designed to become. No mortal being advances from crawling to walking to running without frequent stumbles, bumps, and bruises. That is how we learn.
+
+If we earnestly keep practicing, always striving to keep God’s commandments, and committing our efforts to repenting, enduring, and applying what we learn, line upon line, we will gather light into our souls.10 And though we may not fully comprehend our full potential now, “we know that, when [the Savior] shall appear,” we will see His countenance in us and “shall see him as he is.”11
+
+What a glorious promise!
+
+Yes, the world is in turmoil. And yes, we have weaknesses. But we do not need to hang our heads in despair, because we can trust God, we can trust His Son, Jesus Christ, and we can accept the gift of the Spirit to guide us on this path toward a life filled with joy and divine happiness.12
+
+I often have wondered, What would Jesus teach and do if He were among us today?
+
+After the Resurrection, Jesus Christ fulfilled His promise to visit His “other sheep.”13
+
+The Book of Mormon: Another Testament of Jesus Christ speaks of such an appearance to the people on the American continent. We have this precious record as a tangible witness of the Savior’s work.
+
+The people of the Book of Mormon lived on the other side of the globe—their histories, cultures, and political climates were vastly different from the people Jesus taught during His mortal ministry. And yet He taught them many of the same things He taught in the Holy Land.
+
+Why would He do that?
+
+The Savior always teaches timeless truths. They apply to people of every age and in any circumstance.
+
+His message was and is a message of hope and belonging—a testimony that God our Heavenly Father has not abandoned His children.
+
+That God is among us!
+
+Two hundred years ago, the Savior again returned to earth. Together with God the Father, He appeared to a 14-year-old Joseph Smith and ushered in the Restoration of the gospel and the Church of Jesus Christ. From that day forward, the heavens opened, and heavenly messengers descended from halls of immortal glory. Light and knowledge poured forth from the celestial throne.
+
+The Lord Jesus Christ spoke once again to the world.
+
+What did He say?
+
+To our blessing, many of His words are recorded in the Doctrine and Covenants—available to anyone in the world who wishes to read and study them. How priceless are these words to us today!
+
+And we should not be surprised to find that the Savior again teaches the core message of His gospel: “Thou shalt love the Lord thy God with all thy heart, with all thy might, mind, and strength; and in the name of Jesus Christ thou shalt serve him.”14 He inspires us to seek God15 and live by the teachings He has revealed to His servants, the prophets.16
+
+He teaches us to love one another17 and to be “full of charity towards all men.”18
+
+He invites us to be His hands, to go about doing good.19 “Let us not love in word ... but in deed and in truth.”20
+
+He challenges us to heed His great commission: to love, to share, to invite all to His gospel and His Church.21
+
+He commands us to build holy temples and to enter and serve there.22
+
+He teaches us to become His disciples—that our hearts should not strive for personal power, wealth, approval, or position. He teaches us to “lay aside the things of this world, and seek for the things of a better.”23
+
+He urges us to seek joy, enlightenment, peace, truth, happiness,24 and the promise of immortality and eternal life.25
+
+Let us take this a step further. Suppose Jesus came to your ward, to your branch, or to your home today. What would that be like?
+
+He would see right into your heart. Outward appearances would lose their importance. He would know you as you are. He would know your heart’s desires.
+
+The meek and the humble He would lift.
+
+The sick He would heal.
+
+The doubting He would infuse with faith and courage to believe.
+
+He would teach us to open our hearts to God and reach out to others.
+
+He would recognize and honor honesty, humility, integrity, faithfulness, compassion, and charity.
+
+One look into His eyes and we would never be the same. We would be forever changed. Transformed by the profound realization that, indeed, God is among us.
+
+I look back with kindness on the young man I was during my growing-up years. If I could go back in time, I would comfort him and tell him to stay on the right track and keep searching. And I would ask him to invite Jesus Christ into his life, for God is among us!
+
+To you, my dear brothers and sisters, my dear friends, and to all who are searching for answers, truth, and happiness, I do offer the same counsel: keep searching with faith and patience.27
+
+Ask, and you will receive. Knock, and it will be opened unto you.28 Trust the Lord.29
+
+In our daily life it is our paramount task and blessed opportunity to encounter God.
+
+As we set aside pride and approach His throne with a broken heart and a contrite spirit,30 He will draw near to us.31
+
+As we seek to follow Jesus Christ and walk the path of discipleship, line upon line, the day will come that we will experience that unimaginable gift of receiving a fulness of joy.
+
+My beloved friends, your Heavenly Father loves you with a perfect love. He has proven His love in endless ways, but above all by giving His Only Begotten Son as a sacrifice and as a gift to His children to make the return to our heavenly parents a reality.
+
+I bear witness that our Heavenly Father lives, that Jesus Christ leads His Church, that President Russell M. Nelson is His prophet.
+
+I extend to you my love and blessing at this joyful Easter season. Open your hearts to our Savior and Redeemer, no matter your circumstances, trials, sufferings, or mistakes; you can know that He lives, that He loves you, and that because of Him, you will never be alone.
+
+God is among us.
+
+Of this I testify and bear witness in the sacred name of Jesus Christ, amen.
+

@@ -1,0 +1,12 @@
+# 2 Nephi 27:27
+
+> And <u>wo</u>[^a] unto them that seek deep to hide their <u>counsel</u>[^b] from the Lord! And their works are in the <u>dark</u>[^c]; and they say: Who seeth us, and who knoweth us? And they also say: Surely, your turning of things upside down shall be esteemed as the <u>potter’s</u>[^d] clay. But behold, I will show unto them, saith the Lord of Hosts, that I <u>know</u>[^e] all their works. For shall the work say of him that made it, he made me not? Or shall the thing framed say of him that framed it, he had no understanding?
+
+[2 Nephi 27:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p27#p27)
+
+
+[^a]: [[Isaiah 29.15|Isa. 29:15 (15-16).]]
+[^b]: TG [Conspiracy](https://www.churchofjesuschrist.org/study/scriptures/tg/conspiracy?lang=eng); [Counsel.](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng)
+[^c]: TG [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
+[^d]: [[Jeremiah 18.6|Jer. 18:6.]]
+[^e]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)

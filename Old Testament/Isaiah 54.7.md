@@ -1,0 +1,10 @@
+# Isaiah 54:7
+
+> For a small <u>moment</u>[^a] have I <u>forsaken</u>[^b] thee; but with great mercies will I <u>gather</u>[^c] thee.
+
+[Isaiah 54:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.7?lang=eng#p7)
+
+
+[^a]: [[Isaiah 10.25|Isa. 10:25.]]
+[^b]: TG [Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng); [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^c]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)

@@ -1,0 +1,10 @@
+# Abraham 3:24
+
+> And there stood <u>one</u>[^a] among them that was like unto God, and he said unto those who were with him: We will go down, for there is space there, and we will take of these materials, and <u>we</u>[^b] will make an earth whereon these may <u>dwell</u>[^c];
+
+[Abraham 3:24](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.24?lang=eng#p24)
+
+
+[^a]: TG [Jesus Christ, Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-firstborn?lang=eng)
+[^b]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
+[^c]: TG [Earth, Purpose of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-purpose-of?lang=eng)

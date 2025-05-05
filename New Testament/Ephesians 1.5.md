@@ -1,0 +1,9 @@
+# Ephesians 1:5
+
+> Having <u>predestinated</u>[^a] us unto the <u>adoption</u>[^b] of children by Jesus Christ to himself, according to the good pleasure of his will,
+
+[Ephesians 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.5?lang=eng#p5)
+
+
+[^a]: GR foreordained. Eph. 1:11. TG [Foreordination](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng).
+[^b]: TG [Sons and Daughters of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)

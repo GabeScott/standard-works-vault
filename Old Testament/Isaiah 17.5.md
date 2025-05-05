@@ -1,0 +1,7 @@
+# Isaiah 17:5
+
+> And it shall be as when the harvestman gathereth the corn, and reapeth the ears with his arm; and it shall be as he that gathereth ears in the valley of Rephaim.
+
+[Isaiah 17:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/17.5?lang=eng#p5)
+
+

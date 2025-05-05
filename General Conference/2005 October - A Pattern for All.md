@@ -1,0 +1,47 @@
+# A Pattern for All
+*By Merrill J. Bateman - Of the Presidency of the Seventy*
+
+*Given in the October session of the 2005 General Conference*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/2005/10/a-pattern-for-all?lang=eng)
+
+Recently, a participant on a radio program questioned the international appeal of the Church, given its origins in New York, its headquarters in Utah, and the Book of Mormon story of an ancient American people. As I thought of friends in Asia, Africa, Europe, and other parts of the world, it was apparent that the discussant did not understand the universal nature of the restored gospel or the all-encompassing applicability of its ordinances, covenants, and blessings. The worldwide significance of the Prophet Joseph Smith’s First Vision and the Book of Mormon are not measured by location, but by their message regarding man’s relationship to God, the Father’s love for His children, and the divine potential within each human being.
+
+The prophetic call through all ages has been, “Come unto Christ, and be perfected in him” (Moro. 10:32; see also Matt. 5:48; John 10:10; John 14:6), that salvation is through the Only Begotten Son of the Father (see John 1:14, 18; D&C 29:42). The call is universal and applies to all of God’s children, whether African, Asian, European, or any other nationality. As the Apostle Paul declared to the Athenians, all of us “are the offspring of God” (Acts 17:29).
+
+The Father’s plan of life, with its central focus on Christ’s Atonement, was prepared before the foundation of the world (see Abr. 3:22–28; Alma 13:3). It was given to Adam and Eve, and they were commanded to teach it to their children (see Moses 5:6–12). Over time, the posterity of Adam rejected the gospel, but it was renewed through Noah and then again through Abraham (see Ex. 6:2–4; Gal. 3:6–9). The gospel was offered to the Israelites in Moses’s day. But a sterner taskmaster was required to bring them to Christ, given centuries in apostasy (see Ex. 19:5–6; D&C 84:19–24). The fulness of the gospel was finally restored to Israel by the Savior Himself in the meridian of time.
+
+One of the most illuminating passages of scripture regarding this sequence of apostasy and restoration is found in Jesus’s parable of the wicked husbandmen (see Mark 12:1–10). In the parable, Jesus reminds the people of the many prophets who have been sent through the ages to raise up righteous nations. He then states how the messengers were rejected again and again. Some were beaten and sent away empty. Others were killed. And then, prophesying about His own ministry, Jesus tells His listeners that the Father decided to send His “one son, his well beloved” (Joseph Smith Translation, Mark 12:7), saying, “They will reverence my son” (Matt. 21:37).
+
+Jesus, however, knowing His own fate, then declared:
+
+“But those husbandmen said ... , This is the heir; come, let us kill him, and the inheritance shall be ours.
+
+“And they took him, and killed him, and cast him out of the vineyard” (Mark 12:7–8).
+
+Following the Savior’s death and those of His Apostles, doctrines and ordinances were changed, and apostasy set in again. This time spiritual darkness lasted for hundreds of years before rays of light would once more penetrate the earth. The Apostle Peter knew of this Apostasy and prophesied following the Savior’s Ascension that the Lord would not return for His Second Coming until there was a “restitution of all things” (see Acts 3:19–21). The Apostle Paul also prophesied of a time when the members would “not endure sound doctrine” (2 Tim. 4:3–4) and that a “falling away” (2 Thes. 2:2–3) would precede the Second Coming of Christ. He, too, referred to the “restitution of all things,” saying that the Savior “in the dispensation of the fulness of times ... might gather together in one all things in Christ” (Eph. 1:10).
+
+The Lord directed the Restoration of the gospel through the Prophet Joseph Smith. The “restitution of all things” began in the Sacred Grove with the Father and the Son appearing to Joseph Smith. In vision, Joseph learned of God’s personal nature—that the Father and the Son are separate, exalted beings with bodies of flesh and bone.
+
+At the beginning of most dispensations, a book is given to the newly called prophet. Moses received tablets (see Ex. 31:18). Lehi was given a book to read concerning the destruction of Jerusalem (see 1 Ne. 1:11–14). Ezekiel was given “a roll of a book” (Ezek. 2:9–10) containing the Lord’s message for the house of Judah in his day. John the Revelator on the Isle of Patmos was shown a book with seven seals (see Rev. 5; D&C 77:6). Is it any wonder, then, that the Lord would provide a book containing the fulness of the gospel as part of the “restitution of all things”? The Book of Mormon has the power to draw all men and women to Christ. Its references to the Savior’s Atonement are the clearest on record with regard to its purpose and powers.
+
+The Holy Spirit has whispered to my soul that Joseph saw the Father and the Son in the Sacred Grove and that the Book of Mormon is true. I am grateful for the additional knowledge concerning the Savior’s Atonement contained in the Book of Mormon. One of the titles given to the Savior is that of Only Begotten Son of the Father. For example, the Apostle John in his Gospel states that he beheld the majesty and glory of the Lord on the Mount of Transfiguration and that His glory was that of the “only begotten of the Father” (John 1:14; see also John 1:18). The Book of Mormon likewise uses this title many times.
+
+Unlike mortals who inherit the seeds of death from both parents, Jesus was born of a mortal mother but an immortal Father. The seeds of death received from Mary meant that He could die, but the inheritance from His Father gave Him infinite life, which meant death was a voluntary act. Thus, Jesus told the Jewish people, “For as the Father hath life in himself; so hath he given to the Son to have life in himself” (John 5:26).
+
+On another occasion He stated:
+
+“Therefore doth my Father love me, because I lay down my life, that I might take it again.
+
+“No man taketh it from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again. This commandment have I received of my Father” (John 10:17–18).
+
+The infinite nature received from His Father gave Jesus power to perform the Atonement, to suffer for the sins of all. The prophet Alma in the Book of Mormon teaches that Jesus not only took upon Himself our sins but also our pains, afflictions, and temptations. Alma also explains that Jesus took upon Himself our sicknesses, death, and our infirmities. (See Alma 7:11–13.) This He did, Alma said, so that His “bowels may be filled with mercy, according to the flesh, that he may know ... how to succor his people” (Alma 7:12).
+
+The prophet Abinadi further states that “when his soul has been made an offering for sin he shall see his seed” (Mosiah 15:10). Abinadi then identifies the Savior’s seed as the prophets and those who follow them. For many years I thought of the Savior’s experience in the garden and on the cross as places where a large mass of sin was heaped upon Him. Through the words of Alma, Abinadi, Isaiah, and other prophets, however, my view has changed. Instead of an impersonal mass of sin, there was a long line of people, as Jesus felt “our infirmities” (Heb. 4:15), “[bore] our griefs, ... carried our sorrows ... [and] was bruised for our iniquities” (Isa. 53:4–5).
+
+The Atonement was an intimate, personal experience in which Jesus came to know how to help each of us.
+
+The Pearl of Great Price teaches that Moses was shown all the inhabitants of the earth, which were “numberless as the sand upon the sea shore” (Moses 1:28). If Moses beheld every soul, then it seems reasonable that the Creator of the universe has the power to become intimately acquainted with each of us. He learned about your weaknesses and mine. He experienced your pains and sufferings. He experienced mine. I testify that He knows us. He understands the way in which we deal with temptations. He knows our weaknesses. But more than that, more than just knowing us, He knows how to help us if we come to Him in faith. That is why a young Hispanic woman suddenly realized that she was more than a speck in the universe when the Holy Spirit gave her a witness of the Restoration. She felt God’s love, that she was His daughter, and realized that He knew her. It also explains why the plan of salvation seemed familiar to my Japanese friend as the missionaries taught him and as the Holy Spirit confirmed his purposes on earth and his potential.
+
+I testify that the restored gospel of Jesus Christ is a pattern for all. It is not the location of events that matters; it is the good news—the timeless doctrine and atoning powers of the Lord Jesus Christ. I bear witness that He lives, that He is the Christ. I testify that the gospel restored through the Prophet Joseph Smith is Peter’s “restitution of all things.” I bear witness that President Gordon B. Hinckley is the Lord’s prophet today. In the name of Jesus Christ, amen.
+

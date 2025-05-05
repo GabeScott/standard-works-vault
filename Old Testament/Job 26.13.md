@@ -1,0 +1,11 @@
+# Job 26:13
+
+> By his <u>spirit</u>[^a] he hath <u>garnished</u>[^b] the <u>heavens</u>[^c]; his hand hath formed the crooked <u>serpent</u>[^d] .
+
+[Job 26:13](https://www.churchofjesuschrist.org/study/scriptures/ot/job/26.13?lang=eng#p13)
+
+
+[^a]: [[1 Nephi 19.12|1 Ne. 19:12.]]
+[^b]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
+[^c]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^d]: [[Isaiah 27.1|Isa. 27:1.]]

@@ -1,0 +1,9 @@
+# Ezekiel 18:26
+
+> When a righteous man <u>turneth</u>[^a] away from his righteousness, and committeth iniquity, and <u>dieth</u>[^b] in them; for his iniquity that he hath done shall he die.
+
+[Ezekiel 18:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.26?lang=eng#p26)
+
+
+[^a]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^b]: [[1 Nephi 15.33|1 Ne. 15:33 (32-33)]]; [[Mosiah 15.26|Mosiah 15:26]]; [[Moroni 10.26|Moro. 10:26.]]

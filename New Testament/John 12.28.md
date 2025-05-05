@@ -1,0 +1,9 @@
+# John 12:28
+
+> Father, glorify thy name. Then came there a <u>voice</u>[^a] from heaven, saying, I have both <u>glorified</u>[^b] it, and will glorify it again.
+
+[John 12:28](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.28?lang=eng#p28)
+
+
+[^a]: TG [Godhead](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng); [Witness of the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness-of-the-father?lang=eng)
+[^b]: [[D&C 45.4|D&C 45:4.]]
