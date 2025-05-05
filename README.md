@@ -97,5 +97,11 @@ Built with ❤️ by a student of the scriptures. Inspired by the power of perso
 
 ---
 
+## 📝 License
+
+This project is licensed under the MIT License. See the [LICENSE](LICENSE) file for details.
+
+---
+
 > *"Feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do."*
 > — 2 Nephi 32:3
