@@ -5,4 +5,4 @@
 [1 Chronicles 21:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/21.15?lang=eng#p15)
 
 
-[^a]: JST 1 Chr. 21:15 (Appendix).
+[^a]: [[JST 1 Chronicles 21.15|JST 1 Chr. 21:15 (Appendix).]]
