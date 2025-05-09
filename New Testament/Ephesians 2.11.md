@@ -5,4 +5,4 @@
 [Ephesians 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.11?lang=eng#p11)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^a]: TG [[Circumcision]].

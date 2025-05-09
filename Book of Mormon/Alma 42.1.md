@@ -5,6 +5,6 @@
 [Alma 42:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p1#p1)
 
 
-[^a]: [[Mosiah 15.27|Mosiah 15:27]]. TG [God, Justice of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng).
-[^b]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
-[^c]: [[Romans 3.5|Rom. 3:5]]; [[2 Nephi 26.7|2 Ne. 26:7]]. TG [Injustice](https://www.churchofjesuschrist.org/study/scriptures/tg/injustice?lang=eng).
+[^a]: [[Mosiah 15.27|Mosiah 15:27]]. TG [[God, Justice of]].
+[^b]: TG [[Punish, Punishment]].
+[^c]: [[Romans 3.5|Rom. 3:5]]; [[2 Nephi 26.7|2 Ne. 26:7]]. TG [[Injustice]].

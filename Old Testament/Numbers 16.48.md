@@ -5,5 +5,5 @@
 [Numbers 16:48](https://www.churchofjesuschrist.org/study/scriptures/ot/num/16.48?lang=eng#p48)
 
 
-[^a]: TG [Death.](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng)
+[^a]: TG [[Death]].
 [^b]: [[Numbers 18.5|Num. 18:5 (2-7).]]

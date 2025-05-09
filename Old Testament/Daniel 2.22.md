@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 26.22|Alma 26:22]]; [[D&C 124.5|D&C 124:5.]]
-[^b]: TG [God, Intelligence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-intelligence-of?lang=eng)
+[^b]: TG [[God, Intelligence of]].
 [^c]: [[James 1.17|James 1:17]]; [[D&C 88.50|D&C 88:50 (49-50).]]

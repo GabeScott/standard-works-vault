@@ -7,5 +7,5 @@
 
 [^a]: [[2 Nephi 28.27|2 Ne. 28:27]]; [[3 Nephi 26.10|3 Ne. 26:10 (9-10)]]; [[Ether 4.8|Ether 4:8.]]
 [^b]: [[D&C 93.39|D&C 93:39.]]
-[^c]: TG [Teachable.](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng)
+[^c]: TG [[Teachable]].
 [^d]: Dan. 2:21; [[2 Nephi 28.30|2 Ne. 28:30]]; [[D&C 50.24|D&C 50:24]]; [[D&C 71.5|71:5.]]

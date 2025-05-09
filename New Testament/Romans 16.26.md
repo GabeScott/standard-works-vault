@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 21.33|Gen. 21:33.]]
-[^b]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^b]: TG [[Obedience, Obedient, Obey]].

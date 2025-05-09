@@ -5,7 +5,7 @@
 [John 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.5?lang=eng#p5)
 
 
-[^a]: TG [Holy Ghost, Baptism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-baptism-of?lang=eng)
-[^b]: TG [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng); [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng), Essential.
-[^c]: TG [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
+[^a]: TG [[Holy Ghost, Baptism of]].
+[^b]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential.
+[^c]: TG [[Holy Ghost, Mission of]].
 [^d]: [[1 Corinthians 6.9|1 Cor. 6:9]]; [[1 Corinthians 15.50|15:50.]]

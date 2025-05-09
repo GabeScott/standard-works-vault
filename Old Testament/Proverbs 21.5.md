@@ -5,4 +5,4 @@
 [Proverbs 21:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.5?lang=eng#p5)
 
 
-[^a]: TG [Haste.](https://www.churchofjesuschrist.org/study/scriptures/tg/haste?lang=eng)
+[^a]: TG [[Haste, Hasten, Hasty]].

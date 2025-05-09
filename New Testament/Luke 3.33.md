@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 38.29|Gen. 38:29 (1-30)]]; [[Ruth 4.18|Ruth 4:18 (18-22).]]
-[^b]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^b]: TG [[Israel, Judah, People of]].

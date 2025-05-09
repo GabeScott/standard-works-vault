@@ -5,7 +5,7 @@
 [Deuteronomy 33:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.29?lang=eng#p29)
 
 
-[^a]: TG [Happiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng)
+[^a]: TG [[Happiness, Happy]].
 [^b]: [[Psalms 33.20|Ps. 33:20.]]
 [^c]: OR victory, triumph.
 [^d]: HEB diminish before.

@@ -5,4 +5,4 @@
 [Proverbs 31:27](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/31.27?lang=eng#p27)
 
 
-[^a]: TG [Idleness.](https://www.churchofjesuschrist.org/study/scriptures/tg/idleness?lang=eng)
+[^a]: TG [[Idleness, Idle, Idler]].

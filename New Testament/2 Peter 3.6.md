@@ -5,5 +5,5 @@
 [2 Peter 3:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.6?lang=eng#p6)
 
 
-[^a]: TG [Flood.](https://www.churchofjesuschrist.org/study/scriptures/tg/flood?lang=eng)
+[^a]: TG [[Flood, Noah’s]].
 [^b]: [[Genesis 7.19|Gen. 7:19.]]

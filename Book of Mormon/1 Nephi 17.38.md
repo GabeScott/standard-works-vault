@@ -5,5 +5,5 @@
 [1 Nephi 17:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/17?lang=eng&id=p38#p38)
 
 
-[^a]: TG [Lands of Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
+[^a]: TG [[Lands of Inheritance]].
 [^b]: [[Leviticus 20.22|Lev. 20:22.]]

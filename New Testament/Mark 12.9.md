@@ -5,4 +5,4 @@
 [Mark 12:9](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.9?lang=eng#p9)
 
 
-[^a]: TG [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
+[^a]: TG [[Vineyard of the Lord]].

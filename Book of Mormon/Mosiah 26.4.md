@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 25.22|Mosiah 25:22 (18-23)]]; [[Alma 4.5|Alma 4:5 (4-5).]]
-[^b]: TG [Man, Natural, Not Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-natural-not-spiritually-reborn?lang=eng)
+[^b]: TG [[Man, Natural, Not Spiritually Reborn]].

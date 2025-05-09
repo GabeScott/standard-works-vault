@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 35.2|Ex. 35:2.]]
-[^b]: TG [Industry](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng); [Labor.](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
+[^b]: TG [[Industry, Industrious]]; [[Labor]].

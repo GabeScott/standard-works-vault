@@ -6,4 +6,4 @@
 
 
 [^a]: 2 Pet. 3:1 (1-2).
-[^b]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^b]: TG [[Deliver, Deliverance]].

@@ -5,4 +5,4 @@
 [Hebrews 11:36](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.36?lang=eng#p36)
 
 
-[^b]: TG [Mocking](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng); [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
+[^b]: TG [[Mocking, Mock, Mocker, Mockery]]; [[Persecution, Persecute]].

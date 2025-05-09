@@ -5,8 +5,8 @@
 [Hebrews 12:2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.2?lang=eng#p2)
 
 
-[^a]: TG [Jesus Christ, Authority of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng); [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
+[^a]: TG [[Jesus Christ, Authority of]]; [[Jesus Christ, Messiah]].
 [^b]: GR one who completes, perfects.
 [^c]: [[1 Peter 1.11|1 Pet. 1:11.]]
-[^d]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^d]: TG [[Shame]].
 [^e]: [[Hebrews 1.3|Heb. 1:3.]]

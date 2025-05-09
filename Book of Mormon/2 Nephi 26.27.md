@@ -5,6 +5,6 @@
 [2 Nephi 26:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p27#p27)
 
 
-[^a]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^a]: TG [[Salvation for the Dead]].
 [^b]: [[Ephesians 2.8|Eph. 2:8.]]
-[^c]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^c]: TG [[Repent, Repentance]].

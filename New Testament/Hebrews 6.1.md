@@ -6,5 +6,5 @@
 
 
 [^a]: GR having left behind the beginning of the doctrine. JST Heb. 6:1 … not leaving …
-[^b]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
-[^c]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^b]: TG [[Perfection, Perfect, Perfectly]].
+[^c]: TG [[Repent, Repentance]].

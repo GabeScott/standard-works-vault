@@ -5,4 +5,4 @@
 [Ether 9:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Drought](https://www.churchofjesuschrist.org/study/scriptures/tg/drought?lang=eng); [Famine.](https://www.churchofjesuschrist.org/study/scriptures/tg/famine?lang=eng)
+[^a]: TG [[Drought]]; [[Famine]].

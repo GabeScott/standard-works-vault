@@ -5,4 +5,4 @@
 [Luke 24:6](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.6?lang=eng#p6)
 
 
-[^a]: TG [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
+[^a]: TG [[Jesus Christ, Resurrection]].

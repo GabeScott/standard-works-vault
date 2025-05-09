@@ -5,5 +5,5 @@
 [Luke 16:2](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.2?lang=eng#p2)
 
 
-[^a]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
-[^b]: TG [Stewardship.](https://www.churchofjesuschrist.org/study/scriptures/tg/stewardship?lang=eng)
+[^a]: TG [[Accountability]].
+[^b]: TG [[Stewardship, Steward]].

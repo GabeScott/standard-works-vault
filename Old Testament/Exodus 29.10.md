@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 43.19|Ezek. 43:19.]]
-[^b]: TG [Hands, Laying on of.](https://www.churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng)
+[^b]: TG [[Hands, Laying on of]].

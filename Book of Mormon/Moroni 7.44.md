@@ -7,5 +7,5 @@
 
 [^a]: [[1 Corinthians 13.13|1 Cor. 13:13 (1-13)]]; [[Alma 7.24|Alma 7:24]]; [[Ether 12.31|Ether 12:31 (28-35).]]
 [^b]: [[Leviticus 10.19|Lev. 10:19.]]
-[^c]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
-[^d]: [[Luke 12.8|Luke 12:8 (8-9)]]. TG [Holy Ghost, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng); [Testimony](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng).
+[^c]: TG [[Meek, Meekness]].
+[^d]: [[Luke 12.8|Luke 12:8 (8-9)]]. TG [[Holy Ghost, Gifts of]]; [[Testimony]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 21.10|Ps. 21:10 (10-11)]]; [[Psalms 37.28|37:28]]; [[Psalms 109.13|109:13.]]
-[^b]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^b]: TG [[Wickedness, Wicked]].

@@ -5,5 +5,5 @@
 [Job 19:21](https://www.churchofjesuschrist.org/study/scriptures/ot/job/19.21?lang=eng#p21)
 
 
-[^a]: TG [Friendship.](https://www.churchofjesuschrist.org/study/scriptures/tg/friendship?lang=eng)
+[^a]: TG [[Friendship, Friend]].
 [^b]: [[Job 1.11|Job 1:11.]]

@@ -5,4 +5,4 @@
 [Numbers 18:21](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.21?lang=eng#p21)
 
 
-[^a]: TG [Birthright.](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng)
+[^a]: TG [[Birthright]].

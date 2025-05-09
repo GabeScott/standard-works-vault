@@ -6,5 +6,5 @@
 
 
 [^a]: [[Joel 2.26|Joel 2:26 (26-27)]]; [[2 Nephi 6.13|2 Ne. 6:13 (7, 13).]]
-[^b]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
-[^c]: TG [Reproach.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproach?lang=eng)
+[^b]: TG [[Shame]].
+[^c]: TG [[Reproach]].

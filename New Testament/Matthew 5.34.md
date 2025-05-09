@@ -5,5 +5,5 @@
 [Matthew 5:34](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.34?lang=eng#p34)
 
 
-[^a]: TG [Honesty](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng); [Profanity](https://www.churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng); [Swearing.](https://www.churchofjesuschrist.org/study/scriptures/tg/swearing?lang=eng)
+[^a]: TG [[Honesty]]; [[Profanity]]; [[Swearing, Swear, Sware, Sworn]].
 [^b]: [[Isaiah 66.1|Isa. 66:1.]]

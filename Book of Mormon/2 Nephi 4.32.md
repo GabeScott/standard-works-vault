@@ -5,5 +5,5 @@
 [2 Nephi 4:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p32#p32)
 
 
-[^a]: TG [Contrite Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/contrite-heart?lang=eng)
-[^b]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^a]: TG [[Contrite Heart]].
+[^b]: TG [[Walking with God]].

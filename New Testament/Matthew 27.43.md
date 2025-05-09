@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 22.8|Ps. 22:8.]]
-[^b]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
-[^c]: TG [Jesus Christ, Divine Sonship.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
+[^b]: TG [[Deliver, Deliverance]].
+[^c]: TG [[Jesus Christ, Divine Sonship]].

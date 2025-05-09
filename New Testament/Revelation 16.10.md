@@ -5,4 +5,4 @@
 [Revelation 16:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.10?lang=eng#p10)
 
 
-[^a]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
+[^a]: TG [[Darkness, Spiritual]].

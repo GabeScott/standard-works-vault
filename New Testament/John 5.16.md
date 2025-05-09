@@ -5,5 +5,5 @@
 [John 5:16](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.16?lang=eng#p16)
 
 
-[^a]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
+[^a]: TG [[Persecution, Persecute]].
 [^b]: [[John 7.1|John 7:1.]]

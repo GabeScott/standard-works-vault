@@ -6,4 +6,4 @@
 
 
 [^a]: HEB esteems lightly, disgraces.
-[^b]: TG [Honoring Father and Mother.](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng)
+[^b]: TG [[Honoring Father and Mother]].

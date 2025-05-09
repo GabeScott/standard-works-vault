@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Kings 8.1|1 Kgs. 8:1 (1-11).]]
-[^b]: TG [Ark of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/ark-of-the-covenant?lang=eng)
+[^b]: TG [[Ark of the Covenant]].

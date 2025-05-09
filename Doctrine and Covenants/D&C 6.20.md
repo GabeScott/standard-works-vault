@@ -5,6 +5,6 @@
 [D&C 6:20](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.20?lang=eng#p20)
 
 
-[^a]: [[D&C 11.26|D&C 11:26]]; [[D&C 84.85|84:85]]. TG [Treasure](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng).
-[^b]: TG [Diligence.](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng)
-[^c]: [[John 15.12|John 15:12 (12-15)]]. TG [God, Love of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng).
+[^a]: [[D&C 11.26|D&C 11:26]]; [[D&C 84.85|84:85]]. TG [[Treasure]].
+[^b]: TG [[Diligence, Diligent, Diligently]].
+[^c]: [[John 15.12|John 15:12 (12-15)]]. TG [[God, Love of]].

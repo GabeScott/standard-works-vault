@@ -7,4 +7,4 @@
 
 [^a]: [[1 Corinthians 13.2|1 Cor. 13:2 (1-2).]]
 [^b]: [[Matthew 25.28|Matt. 25:28 (14-30).]]
-[^c]: TG [Talents.](https://www.churchofjesuschrist.org/study/scriptures/tg/talents?lang=eng)
+[^c]: TG [[Talents]].

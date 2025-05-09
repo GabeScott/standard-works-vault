@@ -5,4 +5,4 @@
 [Psalms 16:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/16.9?lang=eng#p9)
 
 
-[^a]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^a]: TG [[Jesus Christ, Resurrection]].

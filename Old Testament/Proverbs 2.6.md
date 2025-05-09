@@ -5,5 +5,5 @@
 [Proverbs 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/2.6?lang=eng#p6)
 
 
-[^a]: TG [God, Wisdom of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-wisdom-of?lang=eng); [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
-[^b]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^a]: TG [[God, Wisdom of]]; [[Wisdom]].
+[^b]: TG [[Understanding]].

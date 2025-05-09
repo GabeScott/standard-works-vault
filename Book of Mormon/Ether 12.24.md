@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jacob 4.1|Jacob 4:1.]]
-[^b]: TG [Language.](https://www.churchofjesuschrist.org/study/scriptures/tg/language?lang=eng)
+[^b]: TG [[Language]].
 [^c]: [[Ether 4.1|Ether 4:1.]]

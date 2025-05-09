@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 26.5|Alma 26:5]]; [[D&C 4.4|D&C 4:4]]; [[D&C 33.3|33:3.]]
-[^b]: TG [Missionary Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng)
+[^b]: TG [[Missionary Work]].

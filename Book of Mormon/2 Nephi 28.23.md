@@ -5,5 +5,5 @@
 [2 Nephi 28:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p23#p23)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].
 [^b]: [[Revelation 19.20|Rev. 19:20]]; [[Revelation 21.8|21:8]]; [[2 Nephi 9.16|2 Ne. 9:16 (8-19, 26)]]; [[Jacob 6.10|Jacob 6:10.]]

@@ -7,4 +7,4 @@
 
 [^a]: JST 1 Cor. 10:23 All things are not lawful for me, for all things are not expedient; all things are not lawful, for all things edify not.
 [^b]: GR advantageous, appropriate, beneficial.
-[^c]: TG [Edification.](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng)
+[^c]: TG [[Edification, Edify]].

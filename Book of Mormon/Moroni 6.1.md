@@ -5,5 +5,5 @@
 [Moroni 6:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/6?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Baptism, Qualifications for.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng)
-[^b]: TG [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
+[^a]: TG [[Baptism, Qualifications for]].
+[^b]: TG [[Worthiness, Worthy]].

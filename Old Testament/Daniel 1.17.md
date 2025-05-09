@@ -6,6 +6,6 @@
 
 
 [^a]: Dan. 2:20 (20-22); [[Jacob 4.8|Jacob 4:8]]; [[Alma 12.9|Alma 12:9 (9-11)]]; [[D&C 89.19|D&C 89:19.]]
-[^b]: TG [Education](https://www.churchofjesuschrist.org/study/scriptures/tg/education?lang=eng); [Learn.](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng)
+[^b]: TG [[Education]]; [[Learn, Learning]].
 [^c]: [[Genesis 41.15|Gen. 41:15 (1-43)]]; Dan. 10:1.
-[^d]: TG [Vision.](https://www.churchofjesuschrist.org/study/scriptures/tg/vision?lang=eng)
+[^d]: TG [[Vision]].

@@ -5,5 +5,5 @@
 [Matthew 19:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.9?lang=eng#p9)
 
 
-[^a]: TG [Fornication.](https://www.churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng)
-[^b]: TG [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
+[^a]: TG [[Fornication]].
+[^b]: TG [[Sexual Immorality]].

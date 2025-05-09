@@ -5,6 +5,6 @@
 [Isaiah 66:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.13?lang=eng#p13)
 
 
-[^a]: TG [Marriage, Motherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-motherhood?lang=eng)
-[^b]: TG [Comfort.](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng)
-[^c]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
+[^a]: TG [[Marriage, Motherhood]].
+[^b]: TG [[Holy Ghost, Comforter]].
+[^c]: TG [[Israel, Restoration of]].

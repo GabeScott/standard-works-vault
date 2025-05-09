@@ -5,4 +5,4 @@
 [Helaman 6:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p11#p11)
 
 
-[^a]: TG [Industry.](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng)
+[^a]: TG [[Industry, Industrious]].

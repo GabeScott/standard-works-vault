@@ -7,4 +7,4 @@
 
 [^a]: [[2 Kings 19.31|2 Kgs. 19:31.]]
 [^b]: [[Genesis 49.22|Gen. 49:22 (22-26)]]; [[1 Nephi 15.12|1 Ne. 15:12 (12, 16)]]; [[2 Nephi 3.5|2 Ne. 3:5 (4-5).]]
-[^c]: TG [Scriptures, Study of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
+[^c]: TG [[Scriptures, Study of]].

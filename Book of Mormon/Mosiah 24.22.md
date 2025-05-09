@@ -5,4 +5,4 @@
 [Mosiah 24:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/24?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^a]: TG [[Thanksgiving]].

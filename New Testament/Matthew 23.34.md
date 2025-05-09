@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 1.38|D&C 1:38]]; [[D&C 43.25|43:25.]]
-[^b]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^b]: TG [[Scribe]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 46.16|Alma 46:16 (10-16).]]
-[^b]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^b]: TG [[Liberty]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 34.14|Ex. 34:14]]; [[Deuteronomy 6.14|Deut. 6:14.]]
-[^b]: TG [Idolatry](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng); [Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/worship?lang=eng)
+[^b]: TG [[Idolatry, Idol]]; [[Assembly for Worship]].

@@ -5,4 +5,4 @@
 [Psalms 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/2.11?lang=eng#p11)
 
 
-[^a]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
+[^a]: TG [[Reverence]].

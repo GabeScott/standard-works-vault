@@ -5,4 +5,4 @@
 [1 Timothy 4:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/4.13?lang=eng#p13)
 
 
-[^a]: TG [Study.](https://www.churchofjesuschrist.org/study/scriptures/tg/study?lang=eng)
+[^a]: TG [[Study]].

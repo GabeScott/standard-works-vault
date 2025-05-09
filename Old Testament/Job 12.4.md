@@ -5,4 +5,4 @@
 [Job 12:4](https://www.churchofjesuschrist.org/study/scriptures/ot/job/12.4?lang=eng#p4)
 
 
-[^a]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
+[^a]: TG [[Persecution, Persecute]].

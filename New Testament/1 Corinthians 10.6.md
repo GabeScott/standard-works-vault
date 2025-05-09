@@ -6,4 +6,4 @@
 
 
 [^a]: GR types.
-[^b]: GR desire, long for. TG [Lust](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng).
+[^b]: GR desire, long for. TG [[Lust]].

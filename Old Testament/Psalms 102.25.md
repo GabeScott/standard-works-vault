@@ -5,4 +5,4 @@
 [Psalms 102:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/102.25?lang=eng#p25)
 
 
-[^a]: TG [Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng)
+[^a]: TG [[Creation, Create]].

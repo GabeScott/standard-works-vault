@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 1.4|2 Ne. 1:4.]]
-[^b]: TG [Protection, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng)
+[^b]: TG [[Protection, Divine]].
 [^c]: [[Mosiah 27.16|Mosiah 27:16.]]

@@ -5,6 +5,6 @@
 [3 Nephi 6:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p13#p13)
 
 
-[^a]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
-[^b]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
-[^c]: [[3 Nephi 12.39|3 Ne. 12:39]]; 4 Ne. 1:34; [[D&C 98.23|D&C 98:23 (23-27)]]. TG [Reviling](https://www.churchofjesuschrist.org/study/scriptures/tg/reviling?lang=eng).
+[^a]: TG [[Persecution, Persecute]].
+[^b]: TG [[Affliction]].
+[^c]: [[3 Nephi 12.39|3 Ne. 12:39]]; 4 Ne. 1:34; [[D&C 98.23|D&C 98:23 (23-27)]]. TG [[Reviling, Revile]].

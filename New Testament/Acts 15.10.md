@@ -5,4 +5,4 @@
 [Acts 15:10](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.10?lang=eng#p10)
 
 
-[^a]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^a]: TG [[Testament]].

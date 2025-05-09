@@ -5,4 +5,4 @@
 [Psalms 36:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/36.9?lang=eng#p9)
 
 
-[^a]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^a]: TG [[Light]].

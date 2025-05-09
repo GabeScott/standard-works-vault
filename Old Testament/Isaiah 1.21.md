@@ -5,5 +5,5 @@
 [Isaiah 1:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.21?lang=eng#p21)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Apostasy of Israel]].
 [^b]: OR justice.

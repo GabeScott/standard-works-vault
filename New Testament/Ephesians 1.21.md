@@ -5,4 +5,4 @@
 [Ephesians 1:21](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.21?lang=eng#p21)
 
 
-[^a]: [[Hebrews 1.4|Heb. 1:4]]. TG [Name](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng).
+[^a]: [[Hebrews 1.4|Heb. 1:4]]. TG [[Name of the Lord]].

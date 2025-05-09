@@ -5,4 +5,4 @@
 [Habakkuk 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/2.12?lang=eng#p12)
 
 
-[^a]: HEB bloodshed. TG [Cruelty](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng).
+[^a]: HEB bloodshed. TG [[Cruelty, Cruel]].

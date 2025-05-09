@@ -5,5 +5,5 @@
 [Psalms 10:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/10.7?lang=eng#p7)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
-[^b]: TG [Fraud.](https://www.churchofjesuschrist.org/study/scriptures/tg/fraud?lang=eng)
+[^a]: TG [[Curse]].
+[^b]: TG [[Fraud]].

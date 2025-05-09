@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 23.17|Deut. 23:17 (17-18).]]
-[^b]: TG [Whore.](https://www.churchofjesuschrist.org/study/scriptures/tg/whore?lang=eng)
+[^b]: TG [[Whore, Whoredom]].
 [^c]: HEB lewdness.

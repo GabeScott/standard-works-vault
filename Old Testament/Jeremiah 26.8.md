@@ -5,4 +5,4 @@
 [Jeremiah 26:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/26.8?lang=eng#p8)
 
 
-[^a]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^a]: TG [[Prophets, Rejection of]].

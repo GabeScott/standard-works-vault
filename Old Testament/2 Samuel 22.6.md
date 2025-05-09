@@ -5,4 +5,4 @@
 [2 Samuel 22:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.6?lang=eng#p6)
 
 
-[^a]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^a]: TG [[Damnation, Damned]].

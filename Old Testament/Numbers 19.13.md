@@ -5,4 +5,4 @@
 [Numbers 19:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/19.13?lang=eng#p13)
 
 
-[^a]: TG [Excommunication.](https://www.churchofjesuschrist.org/study/scriptures/tg/excommunication?lang=eng)
+[^a]: TG [[Excommunication]].

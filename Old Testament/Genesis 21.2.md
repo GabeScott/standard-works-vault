@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 24.36|Gen. 24:36.]]
-[^b]: TG [Old Age.](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
+[^b]: TG [[Old Age]].
 [^c]: [[Genesis 17.21|Gen. 17:21.]]

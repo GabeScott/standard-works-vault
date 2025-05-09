@@ -5,4 +5,4 @@
 [Matthew 18:12](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.12?lang=eng#p12)
 
 
-[^a]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^a]: TG [[Sheep]].

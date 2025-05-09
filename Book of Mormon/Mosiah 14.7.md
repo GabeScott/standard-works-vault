@@ -5,5 +5,5 @@
 [Mosiah 14:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/14?lang=eng&id=p7#p7)
 
 
-[^a]: [[Isaiah 53.7|Isa. 53:7 (7-8)]]; [[Mark 15.3|Mark 15:3 (2-14)]]; [[John 19.9|John 19:9 (9-10)]]; [[1 Peter 2.23|1 Pet. 2:23 (22-23)]]; [[Mosiah 15.6|Mosiah 15:6]]. TG [Jesus Christ, Trials of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-trials-of?lang=eng).
-[^b]: [[Jeremiah 11.19|Jer. 11:19]]. TG [Passover](https://www.churchofjesuschrist.org/study/scriptures/tg/passover?lang=eng).
+[^a]: [[Isaiah 53.7|Isa. 53:7 (7-8)]]; [[Mark 15.3|Mark 15:3 (2-14)]]; [[John 19.9|John 19:9 (9-10)]]; [[1 Peter 2.23|1 Pet. 2:23 (22-23)]]; [[Mosiah 15.6|Mosiah 15:6]]. TG [[Jesus Christ, Trials of]].
+[^b]: [[Jeremiah 11.19|Jer. 11:19]]. TG [[Passover]].

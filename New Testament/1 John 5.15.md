@@ -5,5 +5,5 @@
 [1 John 5:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/5.15?lang=eng#p15)
 
 
-[^a]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: TG [[Prayer, Pray]].
 [^b]: [[Psalms 145.19|Ps. 145:19.]]

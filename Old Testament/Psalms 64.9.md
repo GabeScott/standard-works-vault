@@ -5,4 +5,4 @@
 [Psalms 64:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/64.9?lang=eng#p9)
 
 
-[^a]: TG [God, Works of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-works-of?lang=eng)
+[^a]: TG [[God, Works of]].

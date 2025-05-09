@@ -6,5 +6,5 @@
 
 
 [^a]: [[Job 10.12|Job 10:12.]]
-[^b]: TG [Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng)
+[^b]: TG [[Telestial Glory]].
 [^c]: [[Isaiah 6.5|Isa. 6:5]]; [[Acts 9.4|Acts 9:4]]; JS—H 1:20.

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moroni 10.32|Moro. 10:32 (30-33).]]
-[^b]: TG [Living Water.](https://www.churchofjesuschrist.org/study/scriptures/tg/living-water?lang=eng)
+[^b]: TG [[Living Water]].

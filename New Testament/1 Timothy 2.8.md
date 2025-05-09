@@ -8,4 +8,4 @@
 [^a]: GR desire.
 [^b]: [[D&C 19.28|D&C 19:28]]; [[D&C 20.47|20:47]]; [[D&C 23.6|23:6.]]
 [^c]: [[Psalms 24.4|Ps. 24:4.]]
-[^d]: GR dispute, contention, doubt. TG [Doubt](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng).
+[^d]: GR dispute, contention, doubt. TG [[Doubt, Doubtful]].

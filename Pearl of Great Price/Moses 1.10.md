@@ -6,5 +6,5 @@
 
 
 [^a]: Dan. 10:8 (8, 17); [[1 Nephi 17.47|1 Ne. 17:47]]; [[1 Nephi 19.20|19:20]]; [[Alma 27.17|Alma 27:17.]]
-[^b]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
-[^c]: [[Job 42.6|Job 42:6 (1-6)]]; Dan. 4:35; [[Helaman 12.7|Hel. 12:7]]; [[Ether 3.2|Ether 3:2]]. TG [Humility](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng).
+[^b]: TG [[Mortality]].
+[^c]: [[Job 42.6|Job 42:6 (1-6)]]; Dan. 4:35; [[Helaman 12.7|Hel. 12:7]]; [[Ether 3.2|Ether 3:2]]. TG [[Humility, Humble]].

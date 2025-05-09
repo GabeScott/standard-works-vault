@@ -5,5 +5,5 @@
 [Mosiah 26:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p38#p38)
 
 
-[^a]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
-[^b]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^a]: TG [[Church Organization]].
+[^b]: TG [[Walking with God]].

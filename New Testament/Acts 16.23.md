@@ -5,4 +5,4 @@
 [Acts 16:23](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/16.23?lang=eng#p23)
 
 
-[^a]: [[2 Corinthians 11.23|2 Cor. 11:23]]. TG [Cruelty](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng).
+[^a]: [[2 Corinthians 11.23|2 Cor. 11:23]]. TG [[Cruelty, Cruel]].

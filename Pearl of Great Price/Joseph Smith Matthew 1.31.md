@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 9.35|Matt. 9:35]]; [[D&C 84.80|D&C 84:80 (79-80).]]
-[^b]: TG [Nations.](https://www.churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng)
+[^b]: TG [[Nations]].

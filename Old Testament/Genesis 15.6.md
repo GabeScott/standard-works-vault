@@ -6,5 +6,5 @@
 
 
 [^a]: JST Gen. 15:9-12 (Appendix).
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
-[^c]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^b]: TG [[Faith]].
+[^c]: TG [[God, the Standard of Righteousness]].

@@ -6,4 +6,4 @@
 
 
 [^a]: JST Eph. 4:26 Can ye be angry, and not sin? …
-[^b]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^b]: TG [[Anger]].

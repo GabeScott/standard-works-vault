@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 24.8|D&C 24:8]]; [[D&C 31.9|31:9.]]
-[^b]: TG [Adversity.](https://www.churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng)
+[^b]: TG [[Adversity]].
 [^c]: GR constantly persisting in.

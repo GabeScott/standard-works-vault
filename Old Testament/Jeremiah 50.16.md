@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 13.14|Isa. 13:14.]]
-[^b]: TG [Lands of Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
+[^b]: TG [[Lands of Inheritance]].

@@ -5,5 +5,5 @@
 [Acts 15:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.2?lang=eng#p2)
 
 
-[^a]: TG [Disputations.](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng)
+[^a]: TG [[Disputations, Dispute]].
 [^b]: [[Galatians 2.1|Gal. 2:1.]]

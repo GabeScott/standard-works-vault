@@ -6,8 +6,8 @@
 
 
 [^a]: [[3 Nephi 20.36|3 Ne. 20:36 (36-38).]]
-[^b]: TG [Israel, Restoration of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng); [Mission of Latter-day Saints](https://www.churchofjesuschrist.org/study/scriptures/tg/mission-of-latter-day-saints?lang=eng); [Priesthood, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng); [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
-[^c]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^b]: TG [[Israel, Restoration of]]; [[Mission of Latter-day Saints]]; [[Priesthood, Power of]]; [[Strength]].
+[^c]: TG [[Zion, Sion]].
 [^d]: D&C 113:7-8.
 [^e]: [[D&C 82.14|D&C 82:14.]]
-[^f]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^f]: TG [[Jerusalem]].

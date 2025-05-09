@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 51.6|Jer. 51:6 (6, 44-45)]]; [[D&C 133.5|D&C 133:5 (5-14).]]
-[^b]: TG [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
+[^b]: TG [[Israel, Bondage of, in Other Lands]].
 [^c]: [[Isaiah 44.1|Isa. 44:1 (1-2, 21)]]; [[Isaiah 45.4|45:4.]]

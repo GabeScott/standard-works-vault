@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 68.31|Ps. 68:31.]]
-[^b]: TG [Vow.](https://www.churchofjesuschrist.org/study/scriptures/tg/vow?lang=eng)
+[^b]: TG [[Vow]].

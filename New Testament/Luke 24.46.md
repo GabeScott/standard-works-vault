@@ -6,4 +6,4 @@
 
 
 [^a]: GR was necessary for, proper for.
-[^b]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^b]: TG [[Jesus Christ, Resurrection]].

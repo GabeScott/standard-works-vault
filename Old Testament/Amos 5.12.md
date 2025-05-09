@@ -5,6 +5,6 @@
 [Amos 5:12](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/5.12?lang=eng#p12)
 
 
-[^a]: TG [Bribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/bribe?lang=eng)
+[^a]: TG [[Bribe, Bribery]].
 [^b]: [[Isaiah 29.21|Isa. 29:21.]]
 [^c]: [[Ezekiel 22.7|Ezek. 22:7 (7-13)]]; [[Helaman 6.39|Hel. 6:39 (37-40).]]

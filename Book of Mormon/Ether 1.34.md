@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ether 2.13|Ether 2:13]]; [[Ether 6.1|6:1.]]
-[^b]: TG [Communication.](https://www.churchofjesuschrist.org/study/scriptures/tg/communication?lang=eng)
+[^b]: TG [[Communication]].

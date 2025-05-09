@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 16.10|3 Ne. 16:10 (10-14)]]; [[D&C 20.15|D&C 20:15 (8-15).]]
-[^b]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^b]: TG [[Testimony]].

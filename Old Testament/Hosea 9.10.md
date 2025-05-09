@@ -7,4 +7,4 @@
 
 [^a]: [[Jeremiah 24.2|Jer. 24:2.]]
 [^b]: [[Numbers 25.3|Num. 25:3 (1-3)]]; [[Psalms 106.28|Ps. 106:28.]]
-[^c]: TG [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
+[^c]: TG [[Sexual Immorality]].

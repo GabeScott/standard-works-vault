@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 21.29|3 Ne. 21:29.]]
-[^b]: TG [Haste](https://www.churchofjesuschrist.org/study/scriptures/tg/haste?lang=eng); [Rashness.](https://www.churchofjesuschrist.org/study/scriptures/tg/rashness?lang=eng)
+[^b]: TG [[Haste, Hasten, Hasty]]; [[Rashness]].

@@ -6,7 +6,7 @@
 
 
 [^a]: [[Omni 1.20|Omni 1:20]]; [[Alma 9.21|Alma 9:21.]]
-[^b]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^b]: TG [[Scriptures, Writing of]].
 [^c]: [[Mosiah 8.8|Mosiah 8:8 (7-12)]]; [[Alma 22.30|Alma 22:30.]]
 [^d]: [[Ether 1.3|Ether 1:3 (1-5).]]
 [^e]: [[Genesis 11.7|Gen. 11:7 (6-9)]]; [[Omni 1.22|Omni 1:22.]]

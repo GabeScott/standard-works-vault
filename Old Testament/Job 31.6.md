@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 5:27.
-[^b]: TG [Integrity.](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng)
+[^b]: TG [[Integrity]].

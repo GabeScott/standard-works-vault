@@ -5,4 +5,4 @@
 [Mark 15:37](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.37?lang=eng#p37)
 
 
-[^a]: TG [Spirits, Disembodied.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-disembodied?lang=eng)
+[^a]: TG [[Spirits, Disembodied]].

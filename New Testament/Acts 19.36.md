@@ -5,4 +5,4 @@
 [Acts 19:36](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.36?lang=eng#p36)
 
 
-[^a]: TG [Rashness.](https://www.churchofjesuschrist.org/study/scriptures/tg/rashness?lang=eng)
+[^a]: TG [[Rashness]].

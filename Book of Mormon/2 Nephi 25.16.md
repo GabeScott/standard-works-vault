@@ -8,4 +8,4 @@
 [^a]: [[Ezekiel 34.12|Ezek. 34:12]]; [[Mormon 5.14|Morm. 5:14.]]
 [^b]: [[2 Nephi 10.7|2 Ne. 10:7 (5-9)]]; [[2 Nephi 30.7|30:7 (7-8).]]
 [^c]: [[Job 17.9|Job 17:9]]; [[D&C 88.86|D&C 88:86.]]
-[^d]: TG [False Christs.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-christs?lang=eng)
+[^d]: TG [[False Christs]].

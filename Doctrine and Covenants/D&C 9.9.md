@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 10.2|D&C 10:2.]]
-[^b]: TG [Sacred.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacred?lang=eng)
+[^b]: TG [[Sacred]].

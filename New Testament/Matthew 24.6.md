@@ -5,5 +5,5 @@
 [Matthew 24:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.6?lang=eng#p6)
 
 
-[^a]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
+[^a]: TG [[War]].
 [^b]: GR frightened. D&C 45:35 (34-35).

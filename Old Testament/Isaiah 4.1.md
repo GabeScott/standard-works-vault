@@ -7,5 +7,5 @@
 
 [^a]: IE because of scarcity of men due to wars. See Isa. 3:25.
 [^b]: [[Isaiah 3.25|Isa. 3:25 (24-25).]]
-[^c]: TG [Marriage, Marry.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-marry?lang=eng)
-[^d]: IE the stigma of being unmarried and childless. TG [Reproach](https://www.churchofjesuschrist.org/study/scriptures/tg/reproach?lang=eng).
+[^c]: TG [[Marriage, Marry]].
+[^d]: IE the stigma of being unmarried and childless. TG [[Reproach]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 2.3|Isa. 2:3 (2-4).]]
-[^b]: TG [Stake.](https://www.churchofjesuschrist.org/study/scriptures/tg/stake?lang=eng)
+[^b]: TG [[Stake]].

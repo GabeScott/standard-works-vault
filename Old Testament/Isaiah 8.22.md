@@ -5,5 +5,5 @@
 [Isaiah 8:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.22?lang=eng#p22)
 
 
-[^a]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
+[^a]: TG [[Darkness, Spiritual]].
 [^b]: HEB dark affliction.

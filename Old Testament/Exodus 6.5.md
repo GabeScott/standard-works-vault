@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 2.24|Ex. 2:24 (23-24).]]
-[^b]: TG [Bondage, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng)
+[^b]: TG [[Bondage, Physical]].

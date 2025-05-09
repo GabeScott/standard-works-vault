@@ -6,6 +6,6 @@
 
 
 [^a]: [[Matthew 14.23|Matt. 14:23.]]
-[^b]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
-[^c]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^b]: TG [[Beauty]].
+[^c]: TG [[Prayer, Pray]].
 [^d]: [[Psalms 77.1|Ps. 77:1.]]

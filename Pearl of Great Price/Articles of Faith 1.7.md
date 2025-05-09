@@ -5,10 +5,10 @@
 [Articles of Faith 1:7](https://www.churchofjesuschrist.org/study/scriptures/pgp/a-of-f/1.7?lang=eng#p7)
 
 
-[^a]: TG [Holy Ghost, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng)
-[^b]: TG [Language.](https://www.churchofjesuschrist.org/study/scriptures/tg/language?lang=eng)
-[^c]: TG [Prophecy.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
-[^d]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
-[^e]: TG [Vision.](https://www.churchofjesuschrist.org/study/scriptures/tg/vision?lang=eng)
-[^f]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^a]: TG [[Holy Ghost, Gifts of]].
+[^b]: TG [[Language]].
+[^c]: TG [[Prophecy]].
+[^d]: TG [[Revelation]].
+[^e]: TG [[Vision]].
+[^f]: TG [[Health]].
 [^g]: [[1 Corinthians 12.10|1 Cor. 12:10]]; [[Mormon 9.7|Morm. 9:7.]]

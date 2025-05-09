@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 18.24|Lev. 18:24 (24-30).]]
-[^b]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^b]: TG [[God, Presence of]].

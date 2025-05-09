@@ -5,4 +5,4 @@
 [Psalms 89:47](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.47?lang=eng#p47)
 
 
-[^a]: TG [Time.](https://www.churchofjesuschrist.org/study/scriptures/tg/time?lang=eng)
+[^a]: TG [[Time]].

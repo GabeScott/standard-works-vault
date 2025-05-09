@@ -5,6 +5,6 @@
 [Isaiah 58:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/58.4?lang=eng#p4)
 
 
-[^a]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
+[^a]: TG [[Strife]].
 [^b]: IE Fasting without spiritual motivation only engenders discomfort and irritability.
-[^c]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^c]: TG [[Hypocrisy, Hypocrite]].

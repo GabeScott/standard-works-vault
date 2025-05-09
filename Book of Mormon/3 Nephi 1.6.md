@@ -5,4 +5,4 @@
 [3 Nephi 1:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Mocking.](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng)
+[^a]: TG [[Mocking, Mock, Mocker, Mockery]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 42.5|Jer. 42:5.]]
-[^b]: TG [Jesus Christ, Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-firstborn?lang=eng)
-[^c]: TG [Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng)
+[^b]: TG [[Jesus Christ, Firstborn]].
+[^c]: TG [[Creation, Create]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 45.19|Isa. 45:19]]; [[2 Nephi 26.23|2 Ne. 26:23 (23-28).]]
-[^b]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
+[^b]: TG [[Authority]].

@@ -6,4 +6,4 @@
 
 
 [^a]: IE A symbol of His power will come to destroy “Assyria” or wickedness (see v. 31).
-[^b]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^b]: TG [[God, Indignation of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: JST Ps. 24:7-10 (Appendix).
-[^b]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
+[^b]: TG [[Jesus Christ, Second Coming]].

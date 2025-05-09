@@ -5,4 +5,4 @@
 [Ezekiel 22:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.13?lang=eng#p13)
 
 
-[^a]: TG [Honesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
+[^a]: TG [[Honesty]].

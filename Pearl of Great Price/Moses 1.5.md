@@ -5,7 +5,7 @@
 [Moses 1:5](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.5?lang=eng#p5)
 
 
-[^a]: TG [God, Works of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-works-of?lang=eng)
-[^b]: TG [Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng); Jesus Christ, [Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng) of.
-[^c]: TG [God, Privilege of Seeing.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng)
-[^d]: [[Exodus 24.17|Ex. 24:17]]; [[John 12.41|John 12:41]]. TG [Celestial Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/celestial-glory?lang=eng).
+[^a]: TG [[God, Works of]].
+[^b]: TG [[Telestial Glory]]; Jesus Christ, [[Telestial Glory]] of.
+[^c]: TG [[God, Privilege of Seeing]].
+[^d]: [[Exodus 24.17|Ex. 24:17]]; [[John 12.41|John 12:41]]. TG [[Celestial Glory]].

@@ -5,6 +5,6 @@
 [Matthew 27:35](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.35?lang=eng#p35)
 
 
-[^a]: TG [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^a]: TG [[Jesus Christ, Crucifixion of]].
 [^b]: IE they divided His clothes among themselves.
 [^c]: [[Psalms 22.18|Ps. 22:18.]]

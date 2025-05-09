@@ -5,5 +5,5 @@
 [1 Peter 2:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.15?lang=eng#p15)
 
 
-[^a]: TG [Silence.](https://www.churchofjesuschrist.org/study/scriptures/tg/silence?lang=eng)
-[^b]: TG [Ignorance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ignorance?lang=eng)
+[^a]: TG [[Silence, Silent]].
+[^b]: TG [[Ignorance, Ignorant]].

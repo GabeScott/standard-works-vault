@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ether 12.23|Ether 12:23 (23-27).]]
-[^b]: [[Romans 10.17|Rom. 10:17 (13-17)]]; [[D&C 100.8|D&C 100:8 (7-8)]]. TG [Holy Ghost, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng).
+[^b]: [[Romans 10.17|Rom. 10:17 (13-17)]]; [[D&C 100.8|D&C 100:8 (7-8)]]. TG [[Holy Ghost, Gifts of]].

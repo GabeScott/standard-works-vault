@@ -5,5 +5,5 @@
 [Acts 1:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.25?lang=eng#p25)
 
 
-[^a]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
+[^a]: TG [[Church Organization]].
 [^b]: [[1 Corinthians 10.12|1 Cor. 10:12]]; [[D&C 3.9|D&C 3:9.]]

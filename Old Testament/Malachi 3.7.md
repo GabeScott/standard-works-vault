@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 7.51|Acts 7:51.]]
-[^b]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
-[^c]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^b]: TG [[Ordinance]].
+[^c]: TG [[Repent, Repentance]].

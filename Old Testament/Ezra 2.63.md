@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 22.2|Lev. 22:2 (2, 10, 15-16).]]
-[^b]: TG [Urim and Thummim.](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng)
+[^b]: TG [[Urim and Thummim]].

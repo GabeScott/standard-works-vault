@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mormon 9.19|Morm. 9:19 (19-21)]]; [[D&C 63.10|D&C 63:10 (7-10).]]
-[^b]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^b]: TG [[God, Spirit of]].

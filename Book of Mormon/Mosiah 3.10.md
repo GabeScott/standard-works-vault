@@ -5,6 +5,6 @@
 [Mosiah 3:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/3?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
+[^a]: TG [[Jesus Christ, Resurrection]].
 [^b]: [[2 Nephi 25.13|2 Ne. 25:13]]; [[Helaman 14.20|Hel. 14:20 (20-27).]]
-[^c]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^c]: TG [[Jesus Christ, Judge]].

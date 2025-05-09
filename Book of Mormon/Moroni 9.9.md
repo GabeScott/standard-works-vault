@@ -5,7 +5,7 @@
 [Moroni 9:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/9?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Body, Sanctity of.](https://www.churchofjesuschrist.org/study/scriptures/tg/body-sanctity-of?lang=eng)
-[^b]: TG [Sensuality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sensuality?lang=eng)
-[^c]: TG [Chastity.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng)
-[^d]: TG [Virtue.](https://www.churchofjesuschrist.org/study/scriptures/tg/virtue?lang=eng)
+[^a]: TG [[Body, Sanctity of]].
+[^b]: TG [[Sensuality]].
+[^c]: TG [[Chastity, Chaste]].
+[^d]: TG [[Virtue, Virtuous]].

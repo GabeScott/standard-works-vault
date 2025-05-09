@@ -5,4 +5,4 @@
 [Revelation 7:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/7.8?lang=eng#p8)
 
 
-[^a]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
+[^a]: TG [[Israel, Joseph, People of]].

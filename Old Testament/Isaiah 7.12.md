@@ -5,4 +5,4 @@
 [Isaiah 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.12?lang=eng#p12)
 
 
-[^a]: OR test, try. TG [Test](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng).
+[^a]: OR test, try. TG [[Testament]].

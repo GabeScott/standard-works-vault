@@ -5,8 +5,8 @@
 [2 Nephi 9:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p40#p40)
 
 
-[^a]: TG [Reviling.](https://www.churchofjesuschrist.org/study/scriptures/tg/reviling?lang=eng)
-[^b]: [[Proverbs 15.10|Prov. 15:10]]; [[Mosiah 13.7|Mosiah 13:7]]. TG [Truth](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng).
+[^a]: TG [[Reviling, Revile]].
+[^b]: [[Proverbs 15.10|Prov. 15:10]]; [[Mosiah 13.7|Mosiah 13:7]]. TG [[Truth]].
 [^c]: [[1 Nephi 16.2|1 Ne. 16:2]]; [[2 Nephi 28.28|2 Ne. 28:28]]; [[2 Nephi 33.5|33:5.]]
-[^d]: TG [Uncleanness.](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng)
+[^d]: TG [[Uncleanness, Unclean]].
 [^e]: [[Proverbs 28.1|Prov. 28:1.]]

@@ -5,5 +5,5 @@
 [Lamentations 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.14?lang=eng#p14)
 
 
-[^a]: TG [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
+[^a]: TG [[False Prophets]].
 [^b]: [[Helaman 13.27|Hel. 13:27 (27-29).]]

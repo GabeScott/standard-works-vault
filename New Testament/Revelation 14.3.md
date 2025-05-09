@@ -5,4 +5,4 @@
 [Revelation 14:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.3?lang=eng#p3)
 
 
-[^a]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^a]: TG [[Singing, Sing, Sang, Sung]].

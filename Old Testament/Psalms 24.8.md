@@ -5,5 +5,5 @@
 [Psalms 24:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/24.8?lang=eng#p8)
 
 
-[^a]: TG [Kingdom of God, in Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng)
+[^a]: TG [[Kingdom of God, in Heaven]].
 [^b]: [[Alma 5.50|Alma 5:50.]]

@@ -5,4 +5,4 @@
 [Genesis 6:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.21?lang=eng#p21)
 
 
-[^a]: TG [Food.](https://www.churchofjesuschrist.org/study/scriptures/tg/food?lang=eng)
+[^a]: TG [[Food]].

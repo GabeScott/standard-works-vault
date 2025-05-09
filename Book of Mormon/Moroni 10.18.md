@@ -6,4 +6,4 @@
 
 
 [^a]: [[James 1.17|James 1:17.]]
-[^b]: TG [Talents.](https://www.churchofjesuschrist.org/study/scriptures/tg/talents?lang=eng)
+[^b]: TG [[Talents]].

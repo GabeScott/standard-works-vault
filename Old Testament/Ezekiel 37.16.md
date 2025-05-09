@@ -5,9 +5,9 @@
 [Ezekiel 37:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.16?lang=eng#p16)
 
 
-[^a]: HEB wood. Wooden writing tablets were in common use in Babylon in Ezekiel’s day. Num. 17:2 (1-10). TG [Scriptures to Come Forth](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-to-come-forth?lang=eng).
-[^b]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
-[^c]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
-[^d]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
-[^e]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
+[^a]: HEB wood. Wooden writing tablets were in common use in Babylon in Ezekiel’s day. Num. 17:2 (1-10). TG [[Scriptures to Come Forth]].
+[^b]: TG [[Scriptures, Preservation of]].
+[^c]: TG [[Israel, Judah, People of]].
+[^d]: TG [[Scriptures, Writing of]].
+[^e]: TG [[Israel, Joseph, People of]].
 [^f]: [[D&C 27.5|D&C 27:5.]]

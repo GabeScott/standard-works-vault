@@ -5,6 +5,6 @@
 [Genesis 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1.14?lang=eng#p14)
 
 
-[^a]: [[Psalms 104.19|Ps. 104:19]]; [[D&C 67.9|D&C 67:9]]. TG [Astronomy](https://www.churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng).
-[^b]: [[D&C 29.14|D&C 29:14]]. TG [Signs](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng); [Symbolism](https://www.churchofjesuschrist.org/study/scriptures/tg/symbolism?lang=eng).
-[^c]: TG [Order.](https://www.churchofjesuschrist.org/study/scriptures/tg/order?lang=eng)
+[^a]: [[Psalms 104.19|Ps. 104:19]]; [[D&C 67.9|D&C 67:9]]. TG [[Astronomy]].
+[^b]: [[D&C 29.14|D&C 29:14]]. TG [[Signs]]; [[Blood, Symbolism of]].
+[^c]: TG [[Order]].

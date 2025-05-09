@@ -5,5 +5,5 @@
 [Moses 5:33](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.33?lang=eng#p33)
 
 
-[^a]: TG [Boast.](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng)
-[^b]: TG [Covet.](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
+[^a]: TG [[Boast, Boasting]].
+[^b]: TG [[Covet, Covetousness]].

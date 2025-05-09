@@ -5,4 +5,4 @@
 [John 14:31](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.31?lang=eng#p31)
 
 
-[^a]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
+[^a]: TG [[Jesus Christ, Authority of]].

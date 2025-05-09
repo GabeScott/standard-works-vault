@@ -7,4 +7,4 @@
 
 [^a]: [[Helaman 6.6|Hel. 6:6.]]
 [^b]: [[Helaman 11.19|Hel. 11:19.]]
-[^c]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^c]: TG [[Joy]].

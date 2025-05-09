@@ -5,5 +5,5 @@
 [John 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.9?lang=eng#p9)
 
 
-[^a]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^a]: TG [[Health]].
 [^b]: [[Matthew 12.1|Matt. 12:1 (1-14).]]

@@ -6,5 +6,5 @@
 
 
 [^a]: GR unable to sympathize with our frailties, imperfections.
-[^b]: TG [Jesus Christ, Exemplar](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-exemplar?lang=eng); [Jesus Christ, [Temptation](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng) of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-temptation-of?lang=eng); [Temptation](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng); [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
-[^c]: [[John 8.46|John 8:46]]; [[Hebrews 7.26|Heb. 7:26]]; [[D&C 45.4|D&C 45:4]]. TG [Sin](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng).
+[^b]: TG [[Jesus Christ, Exemplar]]; [[Jesus Christ, Temptation of]]; [[Temptation]]; [[Testament]].
+[^c]: [[John 8.46|John 8:46]]; [[Hebrews 7.26|Heb. 7:26]]; [[D&C 45.4|D&C 45:4]]. TG [[Sin]].

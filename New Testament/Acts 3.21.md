@@ -5,5 +5,5 @@
 [Acts 3:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.21?lang=eng#p21)
 
 
-[^a]: TG [Dispensations](https://www.churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng); [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
-[^b]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
+[^a]: TG [[Dispensations]]; [[Restoration of the Gospel]].
+[^b]: TG [[Prophets, Mission of]].

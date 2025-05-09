@@ -5,6 +5,6 @@
 [Zechariah 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/7.9?lang=eng#p9)
 
 
-[^a]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
-[^b]: TG [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
-[^c]: TG [Charity](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng); [Compassion.](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
+[^a]: TG [[God, Justice of]].
+[^b]: TG [[Mercy, Merciful]].
+[^c]: TG [[Charity]]; [[Compassion]].

@@ -5,6 +5,6 @@
 [Romans 7:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.18?lang=eng#p18)
 
 
-[^a]: TG [Man, Natural, Not Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-natural-not-spiritually-reborn?lang=eng)
+[^a]: TG [[Man, Natural, Not Spiritually Reborn]].
 [^b]: [[Alma 22.15|Alma 22:15.]]
 [^c]: [[2 Nephi 4.19|2 Ne. 4:19 (17-20, 26).]]

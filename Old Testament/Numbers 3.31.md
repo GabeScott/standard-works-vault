@@ -5,4 +5,4 @@
 [Numbers 3:31](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.31?lang=eng#p31)
 
 
-[^a]: TG [Ark of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/ark-of-the-covenant?lang=eng)
+[^a]: TG [[Ark of the Covenant]].

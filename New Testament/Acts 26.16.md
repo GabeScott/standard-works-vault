@@ -5,5 +5,5 @@
 [Acts 26:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.16?lang=eng#p16)
 
 
-[^a]: TG [Jesus Christ, Appearances, Postmortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-postmortal?lang=eng)
-[^b]: [[Luke 1.2|Luke 1:2]]; [[John 1.14|John 1:14]]; [[Acts 5.32|Acts 5:32]]; [[Acts 9.15|9:15]]; [[Acts 22.15|22:15]]; [[D&C 14.8|D&C 14:8]]. TG [Conversion](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng).
+[^a]: TG [[Jesus Christ, Appearances, Postmortal]].
+[^b]: [[Luke 1.2|Luke 1:2]]; [[John 1.14|John 1:14]]; [[Acts 5.32|Acts 5:32]]; [[Acts 9.15|9:15]]; [[Acts 22.15|22:15]]; [[D&C 14.8|D&C 14:8]]. TG [[Conversion, Convert]].

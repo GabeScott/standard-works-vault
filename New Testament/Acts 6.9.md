@@ -6,4 +6,4 @@
 
 
 [^a]: GR Freed-men.
-[^b]: TG [Disputations.](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng)
+[^b]: TG [[Disputations, Dispute]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 54.1|Isa. 54:1 (1-17).]]
-[^b]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^b]: TG [[Singing, Sing, Sang, Sung]].
 [^c]: [[Isaiah 49.21|Isa. 49:21.]]

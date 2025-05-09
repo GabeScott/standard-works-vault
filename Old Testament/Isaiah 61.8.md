@@ -5,5 +5,5 @@
 [Isaiah 61:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/61.8?lang=eng#p8)
 
 
-[^a]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
-[^b]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^a]: TG [[Judgment]].
+[^b]: TG [[Covenants]].

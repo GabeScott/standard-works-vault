@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Samuel 6.5|1 Sam. 6:5.]]
-[^b]: TG [Confession.](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng)
-[^c]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
+[^b]: TG [[Confession]].
+[^c]: TG [[Accountability]].

@@ -5,5 +5,5 @@
 [Jeremiah 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.1?lang=eng#p1)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
-[^b]: TG [Despair](https://www.churchofjesuschrist.org/study/scriptures/tg/despair?lang=eng); [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
+[^a]: TG [[Mourning, Mourn]].
+[^b]: TG [[Despair]]; [[Suffering]].

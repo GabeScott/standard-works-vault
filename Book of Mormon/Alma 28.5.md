@@ -5,4 +5,4 @@
 [Alma 28:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/28?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Widows.](https://www.churchofjesuschrist.org/study/scriptures/tg/widows?lang=eng)
+[^a]: TG [[Widows]].

@@ -5,5 +5,5 @@
 [Exodus 23:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.12?lang=eng#p12)
 
 
-[^a]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
-[^b]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^a]: TG [[Sabbath]].
+[^b]: TG [[Restoration of the Gospel]].

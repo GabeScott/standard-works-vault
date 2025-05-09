@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jonah 2.7|Jonah 2:7.]]
-[^b]: TG [Adversity.](https://www.churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng)
+[^b]: TG [[Adversity]].

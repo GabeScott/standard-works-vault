@@ -6,6 +6,6 @@
 
 
 [^a]: [[Isaiah 24.23|Isa. 24:23]]; [[Ezekiel 32.7|Ezek. 32:7 (7-8)]]; [[Revelation 6.13|Rev. 6:13 (12-13).]]
-[^b]: TG [Astronomy.](https://www.churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng)
+[^b]: TG [[Astronomy]].
 [^c]: [[Joel 3.15|Joel 3:15.]]
-[^d]: TG [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
+[^d]: TG [[World, End of]].

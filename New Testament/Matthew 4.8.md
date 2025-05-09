@@ -6,4 +6,4 @@
 
 
 [^a]: JST Matt. 4:8 And again, Jesus was in the Spirit, and it taketh him …
-[^b]: [[D&C 10.19|D&C 10:19]]. TG [Kings, Earthly](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng).
+[^b]: [[D&C 10.19|D&C 10:19]]. TG [[Kings, Earthly]].

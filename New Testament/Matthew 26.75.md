@@ -5,4 +5,4 @@
 [Matthew 26:75](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.75?lang=eng#p75)
 
 
-[^a]: TG [Honesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
+[^a]: TG [[Honesty]].

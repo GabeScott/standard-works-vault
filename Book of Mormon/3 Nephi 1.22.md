@@ -6,5 +6,5 @@
 
 
 [^a]: [[Moses 5.13|Moses 5:13.]]
-[^b]: TG [Signs.](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng)
+[^b]: TG [[Signs]].
 [^c]: [[Helaman 16.6|Hel. 16:6.]]

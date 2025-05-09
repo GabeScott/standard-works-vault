@@ -7,4 +7,4 @@
 
 [^a]: [[Exodus 12.6|Ex. 12:6 (1-14)]]; [[Ezekiel 45.21|Ezek. 45:21.]]
 [^b]: IE between daytime and nighttime.
-[^c]: TG [Passover.](https://www.churchofjesuschrist.org/study/scriptures/tg/passover?lang=eng)
+[^c]: TG [[Passover]].

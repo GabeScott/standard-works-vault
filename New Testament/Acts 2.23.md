@@ -6,5 +6,5 @@
 
 
 [^a]: GR appointed plan, purpose.
-[^b]: TG [Foreordination](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng); [God, Foreknowledge of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-foreknowledge-of?lang=eng)
-[^c]: [[Matthew 26.24|Matt. 26:24]]; [[Luke 22.22|Luke 22:22]]. TG [Jesus Christ, Crucifixion of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng).
+[^b]: TG [[Foreordination]]; [[God, Foreknowledge of]].
+[^c]: [[Matthew 26.24|Matt. 26:24]]; [[Luke 22.22|Luke 22:22]]. TG [[Jesus Christ, Crucifixion of]].

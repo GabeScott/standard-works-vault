@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 17.40|1 Ne. 17:40]]; [[D&C 27.10|D&C 27:10.]]
-[^b]: TG [Abrahamic Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng); [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^b]: TG [[Abrahamic Covenant]]; [[Seed of Abraham]].

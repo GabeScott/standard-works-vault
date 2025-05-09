@@ -5,4 +5,4 @@
 [Alma 56:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/56?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^a]: TG [[Covenants]].

@@ -5,5 +5,5 @@
 [Ether 11:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
-[^b]: TG [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
+[^a]: TG [[Prophets, Rejection of]].
+[^b]: TG [[Secret Combinations]].

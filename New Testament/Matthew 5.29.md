@@ -5,5 +5,5 @@
 [Matthew 5:29](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.29?lang=eng#p29)
 
 
-[^a]: GR cause to stumble; see also Matt. 18:6-9. TG [Offense](https://www.churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng).
-[^b]: TG [Damnation](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng); [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^a]: GR cause to stumble; see also Matt. 18:6-9. TG [[Offense, Offend, Offender]].
+[^b]: TG [[Damnation, Damned]]; [[Hell]].

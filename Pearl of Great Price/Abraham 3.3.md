@@ -5,4 +5,4 @@
 [Abraham 3:3](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.3?lang=eng#p3)
 
 
-[^a]: See also Abr., fac. 2, figs. 1-5. Abr. 3:16; 5:13. TG [Astronomy](https://www.churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng).
+[^a]: See also Abr., fac. 2, figs. 1-5. Abr. 3:16; 5:13. TG [[Astronomy]].

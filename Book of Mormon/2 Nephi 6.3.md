@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jacob 2.3|Jacob 2:3]]; [[Mosiah 25.11|Mosiah 25:11.]]
-[^b]: TG [Scriptures, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng)
+[^b]: TG [[Scriptures, Value of]].

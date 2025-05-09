@@ -5,4 +5,4 @@
 [Genesis 28:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.22?lang=eng#p22)
 
 
-[^a]: TG [Tithing.](https://www.churchofjesuschrist.org/study/scriptures/tg/tithing?lang=eng)
+[^a]: TG [[Tithing]].

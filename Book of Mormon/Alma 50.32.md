@@ -5,5 +5,5 @@
 [Alma 50:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/50?lang=eng&id=p32#p32)
 
 
-[^a]: TG [Contention](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng); [Division.](https://www.churchofjesuschrist.org/study/scriptures/tg/division?lang=eng)
-[^b]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^a]: TG [[Contention]]; [[Division]].
+[^b]: TG [[Liberty]].

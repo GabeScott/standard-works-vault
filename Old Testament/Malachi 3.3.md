@@ -6,7 +6,7 @@
 
 
 [^a]: [[Proverbs 17.3|Prov. 17:3.]]
-[^b]: [[Isaiah 1.25|Isa. 1:25]]. TG [Purification](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng).
+[^b]: [[Isaiah 1.25|Isa. 1:25]]. TG [[Purification, Purify, Purifying]].
 [^c]: [[1 Chronicles 6.1|1 Chr. 6:1 (1-3)]]; [[D&C 84.34|D&C 84:34 (31-43).]]
-[^d]: TG [Priesthood, Aaronic.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-aaronic?lang=eng)
-[^e]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^d]: TG [[Priesthood, Aaronic]].
+[^e]: TG [[Self-Sacrifice]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 119.11|Ps. 119:11]]; [[D&C 88.62|D&C 88:62.]]
-[^b]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^b]: TG [[Heart]].

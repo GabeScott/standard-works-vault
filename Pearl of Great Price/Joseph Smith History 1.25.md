@@ -6,7 +6,7 @@
 
 
 [^a]: JS—H 1:17.
-[^b]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
-[^c]: TG [Adversity.](https://www.churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng)
-[^d]: TG [Injustice.](https://www.churchofjesuschrist.org/study/scriptures/tg/injustice?lang=eng)
-[^e]: TG [Courage](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng); [Honesty](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng); [Integrity.](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng)
+[^b]: TG [[Hate]].
+[^c]: TG [[Adversity]].
+[^d]: TG [[Injustice]].
+[^e]: TG [[Courage, Courageous]]; [[Honesty]]; [[Integrity]].

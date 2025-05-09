@@ -5,9 +5,9 @@
 [Alma 11:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
+[^a]: TG [[Selfishness]].
 [^b]: [[Proverbs 28.8|Prov. 28:8.]]
-[^c]: TG [Provoking.](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng)
-[^d]: TG [Rioting and Reveling.](https://www.churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng)
+[^c]: TG [[Provoking, Provoke]].
+[^d]: TG [[Rioting and Reveling]].
 [^e]: [[Alma 10.32|Alma 10:32.]]
 [^f]: [[Luke 11.52|Luke 11:52 (45-54).]]

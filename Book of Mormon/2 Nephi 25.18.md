@@ -7,7 +7,7 @@
 
 [^a]: [[3 Nephi 16.4|3 Ne. 16:4.]]
 [^b]: [[2 Nephi 29.11|2 Ne. 29:11]]; [[2 Nephi 33.14|33:14 (11, 14-15)]]; W of M 1:11; [[3 Nephi 27.25|3 Ne. 27:25 (23-27)]]; [[Ether 5.4|Ether 5:4.]]
-[^c]: TG [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^c]: TG [[Judgment, the Last]].
 [^d]: [[2 Nephi 26.12|2 Ne. 26:12]]; [[Mormon 3.21|Morm. 3:21.]]
-[^e]: TG [False Christs.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-christs?lang=eng)
-[^f]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
+[^e]: TG [[False Christs]].
+[^f]: TG [[Jesus Christ, Messiah]].

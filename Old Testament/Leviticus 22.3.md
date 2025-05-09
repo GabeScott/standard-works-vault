@@ -7,4 +7,4 @@
 
 [^a]: HEB and any impurity is upon him.
 [^b]: [[Numbers 18.11|Num. 18:11]]; [[Mormon 9.29|Morm. 9:29.]]
-[^c]: TG [Death, Spiritual, First.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-first?lang=eng)
+[^c]: TG [[Death, Spiritual, First]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Ezekiel 44.21|Ezek. 44:21.]]
 [^b]: HEB intoxicating drink.
-[^c]: TG [Word of Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/word-of-wisdom?lang=eng)
+[^c]: TG [[Word of Wisdom]].

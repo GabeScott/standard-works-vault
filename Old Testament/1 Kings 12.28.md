@@ -7,4 +7,4 @@
 
 [^a]: [[2 Kings 23.15|2 Kgs. 23:15.]]
 [^b]: [[2 Kings 10.29|2 Kgs. 10:29]]; [[2 Kings 17.16|17:16]]; [[Hosea 8.5|Hosea 8:5 (5-7)]]; [[Hosea 10.5|10:5.]]
-[^c]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^c]: TG [[Idolatry, Idol]].

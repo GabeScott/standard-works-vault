@@ -7,6 +7,6 @@
 
 [^a]: [[D&C 76.55|D&C 76:55 (53-60).]]
 [^b]: [[D&C 45.8|D&C 45:8.]]
-[^c]: TG [Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/godliness?lang=eng)
+[^c]: TG [[Mysteries of Godliness]].
 [^d]: GR through, by.
-[^e]: TG [Virtue.](https://www.churchofjesuschrist.org/study/scriptures/tg/virtue?lang=eng)
+[^e]: TG [[Virtue, Virtuous]].

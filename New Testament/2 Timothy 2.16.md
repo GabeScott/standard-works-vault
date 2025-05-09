@@ -6,4 +6,4 @@
 
 
 [^a]: GR vain disputation.
-[^b]: TG [Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/godliness?lang=eng)
+[^b]: TG [[Mysteries of Godliness]].

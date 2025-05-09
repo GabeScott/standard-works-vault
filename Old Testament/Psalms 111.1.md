@@ -5,4 +5,4 @@
 [Psalms 111:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/111.1?lang=eng#p1)
 
 
-[^a]: TG [Assembly for Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/assembly-for-worship?lang=eng)
+[^a]: TG [[Assembly for Worship]].

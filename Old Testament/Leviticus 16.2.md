@@ -6,5 +6,5 @@
 
 
 [^a]: [[Hebrews 9.12|Heb. 9:12 (7, 12, 24-25)]]; [[Hebrews 10.19|10:19 (19-22).]]
-[^b]: TG [Veil.](https://www.churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng)
+[^b]: TG [[Veil]].
 [^c]: [[Exodus 25.22|Ex. 25:22]]; [[Exodus 29.42|29:42 (42-43)]]; [[Exodus 40.34|40:34 (34-35)]]; [[D&C 97.16|D&C 97:16 (15-17)]]; [[D&C 109.5|109:5 (5, 12-13)]]; [[Abraham 2.19|Abr. 2:19 (19-20).]]

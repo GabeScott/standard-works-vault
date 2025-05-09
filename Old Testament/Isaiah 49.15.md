@@ -5,5 +5,5 @@
 [Isaiah 49:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.15?lang=eng#p15)
 
 
-[^a]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
-[^b]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^a]: TG [[Woman, Women]].
+[^b]: TG [[God, Mercy of]].

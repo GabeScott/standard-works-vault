@@ -5,9 +5,9 @@
 [Moses 7:62](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.62?lang=eng#p62)
 
 
-[^a]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^b]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
-[^c]: TG [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
-[^d]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
-[^e]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
-[^f]: TG [Jerusalem, New.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem-new?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]].
+[^b]: TG [[Testimony]].
+[^c]: TG [[Jesus Christ, Resurrection]].
+[^d]: TG [[Israel, Gathering of]].
+[^e]: TG [[Zion, Sion]].
+[^f]: TG [[Jerusalem, New]].

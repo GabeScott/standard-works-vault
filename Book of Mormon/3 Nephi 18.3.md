@@ -5,4 +5,4 @@
 [3 Nephi 18:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Jesus Christ, Types of, in Memory.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-memory?lang=eng)
+[^a]: TG [[Jesus Christ, Types of, in Memory]].

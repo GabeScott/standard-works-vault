@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 2.18|Acts 2:18]]; [[Acts 21.11|21:11 (4, 10-11).]]
-[^b]: OR famine. TG [Drought](https://www.churchofjesuschrist.org/study/scriptures/tg/drought?lang=eng).
+[^b]: OR famine. TG [[Drought]].

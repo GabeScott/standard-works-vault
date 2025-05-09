@@ -5,5 +5,5 @@
 [Psalms 40:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/40.8?lang=eng#p8)
 
 
-[^a]: TG [Objectives.](https://www.churchofjesuschrist.org/study/scriptures/tg/objectives?lang=eng)
-[^b]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
+[^a]: TG [[Objectives]].
+[^b]: TG [[God, Will of]].

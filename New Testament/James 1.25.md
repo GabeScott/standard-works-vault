@@ -5,5 +5,5 @@
 [James 1:25](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.25?lang=eng#p25)
 
 
-[^a]: TG [God, Law of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-law-of?lang=eng)
-[^b]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^a]: TG [[God, Law of]].
+[^b]: TG [[Liberty]].

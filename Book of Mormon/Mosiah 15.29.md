@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 52.8|Isa. 52:8 (8-10)]]; [[Mosiah 12.22|Mosiah 12:22 (22-24).]]
-[^b]: TG [Watchman.](https://www.churchofjesuschrist.org/study/scriptures/tg/watchman?lang=eng)
+[^b]: TG [[Watchman, Watchmen]].

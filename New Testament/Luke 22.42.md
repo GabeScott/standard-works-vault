@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 19.18|D&C 19:18.]]
-[^b]: [[Moses 4.2|Moses 4:2 (1-4)]]. TG [God, Will of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng).
+[^b]: [[Moses 4.2|Moses 4:2 (1-4)]]. TG [[God, Will of]].

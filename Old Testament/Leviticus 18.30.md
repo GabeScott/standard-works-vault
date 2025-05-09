@@ -5,4 +5,4 @@
 [Leviticus 18:30](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.30?lang=eng#p30)
 
 
-[^a]: TG [Traditions of Men.](https://www.churchofjesuschrist.org/study/scriptures/tg/traditions-of-men?lang=eng)
+[^a]: TG [[Traditions of Men]].

@@ -5,7 +5,7 @@
 [Alma 12:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p36#p36)
 
 
-[^a]: [[1 Kings 16.33|1 Kgs. 16:33]]. TG [Provoking](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng).
-[^b]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^a]: [[1 Kings 16.33|1 Kgs. 16:33]]. TG [[Provoking, Provoke]].
+[^b]: TG [[God, Indignation of]].
 [^c]: [[Hebrews 3.8|Heb. 3:8]]; [[2 Nephi 9.7|2 Ne. 9:7]]; [[Jacob 1.7|Jacob 1:7 (7-8)]]; [[Mosiah 16.4|Mosiah 16:4 (4-7)]]; [[Alma 11.45|Alma 11:45]]; [[Alma 42.6|42:6 (6, 9, 14).]]
-[^d]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^d]: TG [[Damnation, Damned]].

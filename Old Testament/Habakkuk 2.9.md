@@ -5,4 +5,4 @@
 [Habakkuk 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/2.9?lang=eng#p9)
 
 
-[^a]: TG [Covet.](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
+[^a]: TG [[Covet, Covetousness]].

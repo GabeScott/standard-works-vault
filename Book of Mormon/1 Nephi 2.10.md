@@ -6,4 +6,4 @@
 
 
 [^a]: IE like Ezion-geber, the Hebrew roots of which denote firmness and strength, or might of a man.
-[^b]: TG [Dependability.](https://www.churchofjesuschrist.org/study/scriptures/tg/dependability?lang=eng)
+[^b]: TG [[Dependability]].

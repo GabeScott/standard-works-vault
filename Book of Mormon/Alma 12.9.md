@@ -6,5 +6,5 @@
 
 
 [^a]: Dan. 1:17.
-[^b]: [[Alma 26.22|Alma 26:22]]. TG [Mysteries of Godliness](https://www.churchofjesuschrist.org/study/scriptures/tg/mysteries-of-godliness?lang=eng).
+[^b]: [[Alma 26.22|Alma 26:22]]. TG [[Mysteries of Godliness]].
 [^c]: [[John 16.12|John 16:12]]; [[Alma 29.8|Alma 29:8]]; [[3 Nephi 26.10|3 Ne. 26:10 (6-11)]]; [[Ether 4.7|Ether 4:7 (1-7).]]

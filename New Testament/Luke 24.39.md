@@ -6,6 +6,6 @@
 
 
 [^a]: [[3 Nephi 11.14|3 Ne. 11:14 (12-15).]]
-[^b]: TG [Man, Potential to Become like Heavenly Father](https://www.churchofjesuschrist.org/study/scriptures/tg/man-potential-to-become-like-heavenly-father?lang=eng); [Spirits, Disembodied.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-disembodied?lang=eng)
-[^c]: [[D&C 129.2|D&C 129:2]]. TG [God, Body of, Corporeal Nature](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng); [Jesus Christ, Appearances, Postmortal](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-postmortal?lang=eng); [Resurrection](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng).
-[^d]: TG [God, Knowledge about.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng)
+[^b]: TG [[Man, Potential to Become like Heavenly Father]]; [[Spirits, Disembodied]].
+[^c]: [[D&C 129.2|D&C 129:2]]. TG [[God, Body of, Corporeal Nature]]; [[Jesus Christ, Appearances, Postmortal]]; [[Jesus Christ, Resurrection]].
+[^d]: TG [[God, Knowledge about]].

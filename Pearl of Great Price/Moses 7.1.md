@@ -5,5 +5,5 @@
 [Moses 7:1](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.1?lang=eng#p1)
 
 
-[^a]: TG [Sons and Daughters of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)
+[^a]: TG [[Sons and Daughters of God]].
 [^b]: [[Alma 40.14|Alma 40:14 (11-14).]]

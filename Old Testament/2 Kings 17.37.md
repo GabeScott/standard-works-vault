@@ -5,4 +5,4 @@
 [2 Kings 17:37](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.37?lang=eng#p37)
 
 
-[^a]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^a]: TG [[Ordinance]].

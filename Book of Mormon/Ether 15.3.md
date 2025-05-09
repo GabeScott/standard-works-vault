@@ -5,5 +5,5 @@
 [Ether 15:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/15?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
-[^b]: [[Genesis 37.35|Gen. 37:35]]; [[Moses 7.44|Moses 7:44]]. TG [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng).
+[^a]: TG [[Mourning, Mourn]].
+[^b]: [[Genesis 37.35|Gen. 37:35]]; [[Moses 7.44|Moses 7:44]]. TG [[Holy Ghost, Comforter]].

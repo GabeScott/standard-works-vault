@@ -5,5 +5,5 @@
 [Moses 4:22](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.22?lang=eng#p22)
 
 
-[^a]: [[Genesis 3.16|Gen. 3:16]]. TG [Pain](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng).
-[^b]: TG [Marriage, Husbands](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-husbands?lang=eng); [Marriage, Wives.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-wives?lang=eng)
+[^a]: [[Genesis 3.16|Gen. 3:16]]. TG [[Pain]].
+[^b]: TG [[Marriage, Husbands]]; [[Marriage, Wives]].

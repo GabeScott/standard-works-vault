@@ -5,4 +5,4 @@
 [Job 31:2](https://www.churchofjesuschrist.org/study/scriptures/ot/job/31.2?lang=eng#p2)
 
 
-[^a]: TG [Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/inheritance?lang=eng)
+[^a]: TG [[Inheritance]].

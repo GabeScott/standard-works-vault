@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 3.14|Alma 3:14.]]
-[^b]: TG [Darkness, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng); [Spiritual Blindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng)
+[^b]: TG [[Darkness, Spiritual]]; [[Spiritual Blindness]].
 [^c]: W of M 1:8; [[D&C 49.24|D&C 49:24]]; [[D&C 109.65|109:65.]]

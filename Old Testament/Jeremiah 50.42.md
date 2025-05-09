@@ -5,4 +5,4 @@
 [Jeremiah 50:42](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.42?lang=eng#p42)
 
 
-[^a]: TG [Cruelty.](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
+[^a]: TG [[Cruelty, Cruel]].

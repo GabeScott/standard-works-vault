@@ -7,4 +7,4 @@
 
 [^b]: [[Genesis 15.1|Gen. 15:1]]; [[Isaiah 41.10|Isa. 41:10]]; [[D&C 68.6|D&C 68:6.]]
 [^c]: [[Genesis 28.15|Gen. 28:15]]; [[Genesis 31.3|31:3.]]
-[^d]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^d]: TG [[Seed of Abraham]].

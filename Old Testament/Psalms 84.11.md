@@ -7,6 +7,6 @@
 
 [^a]: [[3 Nephi 25.2|3 Ne. 25:2.]]
 [^b]: [[Proverbs 30.5|Prov. 30:5.]]
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^c]: TG [[Grace]].
 [^d]: [[Revelation 21.7|Rev. 21:7]]; [[D&C 76.59|D&C 76:59 (50-64).]]
-[^e]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^e]: TG [[Walking with God]].

@@ -5,5 +5,5 @@
 [Proverbs 10:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.16?lang=eng#p16)
 
 
-[^a]: TG [Labor](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng); [Work, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng)
+[^a]: TG [[Labor]]; [[Work, Value of]].
 [^b]: [[Proverbs 19.23|Prov. 19:23.]]

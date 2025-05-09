@@ -5,5 +5,5 @@
 [Joshua 8:35](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8.35?lang=eng#p35)
 
 
-[^a]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].
 [^b]: HEB went, walked.

@@ -6,4 +6,4 @@
 
 
 [^a]: GR despoiled other churches, having taken provisions for you.
-[^b]: TG [Wages.](https://www.churchofjesuschrist.org/study/scriptures/tg/wages?lang=eng)
+[^b]: TG [[Wages]].

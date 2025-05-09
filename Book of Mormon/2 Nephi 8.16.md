@@ -5,5 +5,5 @@
 [2 Nephi 8:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/8?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Israel, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng); [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
+[^a]: TG [[Israel, Mission of]]; [[Prophets, Mission of]].
 [^b]: [[1 Kings 8.51|1 Kgs. 8:51]]; [[2 Nephi 3.9|2 Ne. 3:9]]; [[2 Nephi 29.14|29:14.]]

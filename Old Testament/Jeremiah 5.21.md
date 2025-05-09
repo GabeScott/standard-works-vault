@@ -5,6 +5,6 @@
 [Jeremiah 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.21?lang=eng#p21)
 
 
-[^a]: TG [Foolishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/foolishness?lang=eng)
-[^b]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
+[^a]: TG [[Foolishness]].
+[^b]: TG [[Watch, Watchfulness]].
 [^c]: [[Matthew 13.14|Matt. 13:14.]]

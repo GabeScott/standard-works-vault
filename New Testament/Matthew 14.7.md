@@ -5,4 +5,4 @@
 [Matthew 14:7](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/14.7?lang=eng#p7)
 
 
-[^a]: TG [Vow.](https://www.churchofjesuschrist.org/study/scriptures/tg/vow?lang=eng)
+[^a]: TG [[Vow]].

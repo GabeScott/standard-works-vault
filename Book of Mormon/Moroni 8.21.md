@@ -5,6 +5,6 @@
 [Moroni 8:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p21#p21)
 
 
-[^a]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^a]: TG [[Hell]].
 [^b]: [[Jacob 6.10|Jacob 6:10]]; [[Mosiah 28.3|Mosiah 28:3]]; [[D&C 19.12|D&C 19:12 (10-12).]]
-[^c]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^c]: TG [[Jesus Christ, Judge]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 1.26|Gen. 1:26]]; [[D&C 29.24|D&C 29:24 (24-25)]]; [[D&C 49.19|49:19 (18-21)]]; [[D&C 77.2|77:2]]; [[Moses 3.19|Moses 3:19.]]
-[^b]: TG [Cruelty.](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
+[^b]: TG [[Cruelty, Cruel]].

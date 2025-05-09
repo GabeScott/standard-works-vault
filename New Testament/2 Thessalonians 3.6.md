@@ -5,5 +5,5 @@
 [2 Thessalonians 3:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.6?lang=eng#p6)
 
 
-[^a]: [[1 Corinthians 5.9|1 Cor. 5:9 (1-13)]]; [[Alma 1.24|Alma 1:24 (21-24)]]; [[Alma 5.57|5:57 (56-57)]]. TG [Excommunication](https://www.churchofjesuschrist.org/study/scriptures/tg/excommunication?lang=eng).
+[^a]: [[1 Corinthians 5.9|1 Cor. 5:9 (1-13)]]; [[Alma 1.24|Alma 1:24 (21-24)]]; [[Alma 5.57|5:57 (56-57)]]. TG [[Excommunication]].
 [^b]: [[Romans 16.17|Rom. 16:17 (17-19).]]

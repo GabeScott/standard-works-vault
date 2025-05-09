@@ -5,7 +5,7 @@
 [Isaiah 46:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.10?lang=eng#p10)
 
 
-[^a]: TG [Foreordination](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng); [God, Intelligence of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-intelligence-of?lang=eng); [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^a]: TG [[Foreordination]]; [[God, Intelligence of]]; [[God, Omniscience of]].
 [^b]: OR latter things.
 [^c]: [[Proverbs 19.21|Prov. 19:21.]]
 [^d]: [[Isaiah 44.28|Isa. 44:28.]]

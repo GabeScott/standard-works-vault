@@ -5,5 +5,5 @@
 [1 Corinthians 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.19?lang=eng#p19)
 
 
-[^a]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
-[^b]: TG [Prudence.](https://www.churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
+[^a]: TG [[Understanding]].
+[^b]: TG [[Prudence, Prudent]].

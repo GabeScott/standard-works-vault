@@ -5,4 +5,4 @@
 [Matthew 10:29](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.29?lang=eng#p29)
 
 
-[^a]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^a]: TG [[God, Omniscience of]].

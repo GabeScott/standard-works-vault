@@ -6,4 +6,4 @@
 
 
 [^a]: HEB necromancers.
-[^b]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^b]: TG [[Sorcery]].

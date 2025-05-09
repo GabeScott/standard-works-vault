@@ -5,4 +5,4 @@
 [Psalms 144:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/144.15?lang=eng#p15)
 
 
-[^a]: TG [Abundant Life](https://www.churchofjesuschrist.org/study/scriptures/tg/abundant-life?lang=eng); [Happiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng)
+[^a]: TG [[Abundant Life]]; [[Happiness, Happy]].

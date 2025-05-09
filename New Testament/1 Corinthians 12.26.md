@@ -5,5 +5,5 @@
 [1 Corinthians 12:26](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.26?lang=eng#p26)
 
 
-[^a]: TG [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
-[^b]: TG [Compassion.](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
+[^a]: TG [[Suffering]].
+[^b]: TG [[Compassion]].

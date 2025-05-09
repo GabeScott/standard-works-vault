@@ -5,4 +5,4 @@
 [Helaman 4:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/4?lang=eng&id=p23#p23)
 
 
-[^a]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^a]: TG [[Apostasy of Individuals]].

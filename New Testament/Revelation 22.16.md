@@ -5,6 +5,6 @@
 [Revelation 22:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.16?lang=eng#p16)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].
 [^b]: [[Isaiah 53.2|Isa. 53:2]]; [[Revelation 5.5|Rev. 5:5 (1-14).]]
 [^c]: 2 Pet. 1:19; [[Revelation 2.28|Rev. 2:28.]]

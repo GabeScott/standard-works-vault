@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 15.24|Acts 15:24]]; [[Moroni 8.8|Moro. 8:8.]]
-[^b]: TG [Signs.](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng)
+[^b]: TG [[Signs]].
 [^c]: [[3 Nephi 20.12|3 Ne. 20:12.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Corinthians 9.2|2 Cor. 9:2.]]
-[^b]: TG [Boast.](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng)
+[^b]: TG [[Boast, Boasting]].

@@ -6,7 +6,7 @@
 
 
 [^a]: IE It is in this way that you ought to pray.
-[^b]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
-[^c]: TG [God the Father, Elohim.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-father-elohim?lang=eng)
+[^b]: TG [[Prayer, Pray]].
+[^c]: TG [[God the Father, Elohim]].
 [^d]: GR Let Thy name be sanctified.
-[^e]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^e]: TG [[Name of the Lord]].

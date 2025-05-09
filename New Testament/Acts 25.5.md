@@ -5,4 +5,4 @@
 [Acts 25:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/25.5?lang=eng#p5)
 
 
-[^a]: [[Acts 18.14|Acts 18:14]]. TG [Wickedness](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng).
+[^a]: [[Acts 18.14|Acts 18:14]]. TG [[Wickedness, Wicked]].

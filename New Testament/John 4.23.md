@@ -5,5 +5,5 @@
 [John 4:23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.23?lang=eng#p23)
 
 
-[^a]: TG [Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/worship?lang=eng)
+[^a]: TG [[Assembly for Worship]].
 [^b]: [[Psalms 145.18|Ps. 145:18 (1-21).]]

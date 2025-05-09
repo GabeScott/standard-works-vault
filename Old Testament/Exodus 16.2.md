@@ -5,4 +5,4 @@
 [Exodus 16:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.2?lang=eng#p2)
 
 
-[^a]: TG [Murmuring](https://www.churchofjesuschrist.org/study/scriptures/tg/murmuring?lang=eng); [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^a]: TG [[Murmuring, Murmur]]; [[Rebellion, Rebel]].

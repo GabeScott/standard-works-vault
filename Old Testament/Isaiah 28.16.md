@@ -6,5 +6,5 @@
 
 
 [^a]: [[Helaman 5.12|Hel. 5:12.]]
-[^b]: [[Psalms 87.1|Ps. 87:1]]; [[1 Peter 2.6|1 Pet. 2:6 (6-8)]]. TG [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng).
-[^c]: TG [Cornerstone.](https://www.churchofjesuschrist.org/study/scriptures/tg/cornerstone?lang=eng)
+[^b]: [[Psalms 87.1|Ps. 87:1]]; [[1 Peter 2.6|1 Pet. 2:6 (6-8)]]. TG [[Jesus Christ, Prophecies about]].
+[^c]: TG [[Cornerstone]].

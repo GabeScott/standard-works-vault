@@ -7,4 +7,4 @@
 
 [^a]: GR just, right.
 [^b]: GR establishment, strengthening.
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^c]: TG [[Grace]].

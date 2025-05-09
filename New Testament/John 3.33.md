@@ -6,4 +6,4 @@
 
 
 [^a]: OR declared that, certified that.
-[^b]: TG [Seal.](https://www.churchofjesuschrist.org/study/scriptures/tg/seal?lang=eng)
+[^b]: TG [[Seal]].

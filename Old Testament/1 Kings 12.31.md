@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Kings 17.29|2 Kgs. 17:29.]]
-[^b]: TG [False Priesthoods.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-priesthoods?lang=eng)
+[^b]: TG [[False Priesthoods]].

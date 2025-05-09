@@ -6,7 +6,7 @@
 
 
 [^a]: Philip. 2:10 (9-11); [[Mosiah 16.1|Mosiah 16:1 (1-2)]]; [[D&C 88.104|D&C 88:104]]; [[D&C 138.23|138:23.]]
-[^b]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^b]: TG [[Jesus Christ, Judge]].
 [^c]: [[Mosiah 7.27|Mosiah 7:27]]; [[Alma 11.39|Alma 11:39 (38-39).]]
 [^d]: [[Ephesians 2.12|Eph. 2:12]]; [[Alma 41.11|Alma 41:11.]]
-[^e]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^e]: TG [[God, Omniscience of]].

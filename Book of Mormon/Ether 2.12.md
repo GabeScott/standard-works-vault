@@ -5,5 +5,5 @@
 [Ether 2:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p12#p12)
 
 
-[^a]: [[1 Nephi 13.19|1 Ne. 13:19]]. TG [Liberty](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng).
+[^a]: [[1 Nephi 13.19|1 Ne. 13:19]]. TG [[Liberty]].
 [^b]: [[Isaiah 60.12|Isa. 60:12.]]

@@ -5,4 +5,4 @@
 [Leviticus 10:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/10.17?lang=eng#p17)
 
 
-[^a]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
+[^a]: TG [[Accountability]].

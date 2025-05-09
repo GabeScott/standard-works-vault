@@ -6,8 +6,8 @@
 
 
 [^a]: [[Ezekiel 43.7|Ezek. 43:7 (1-7).]]
-[^b]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
-[^c]: [[Hosea 10.4|Hosea 10:4]]; [[D&C 104.5|D&C 104:5 (4-5)]]. TG [Swearing](https://www.churchofjesuschrist.org/study/scriptures/tg/swearing?lang=eng).
-[^d]: [[Psalms 94.6|Ps. 94:6]]. TG [Oppression](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng).
+[^b]: TG [[Sorcery]].
+[^c]: [[Hosea 10.4|Hosea 10:4]]; [[D&C 104.5|D&C 104:5 (4-5)]]. TG [[Swearing, Swear, Sware, Sworn]].
+[^d]: [[Psalms 94.6|Ps. 94:6]]. TG [[Oppression, Oppress]].
 [^e]: [[Psalms 10.14|Ps. 10:14]]; [[Psalms 68.5|68:5]]; [[James 1.27|James 1:27]]; [[D&C 136.8|D&C 136:8.]]
-[^f]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^f]: TG [[Stranger]].

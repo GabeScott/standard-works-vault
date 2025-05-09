@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 18.3|Acts 18:3]]; [[1 Corinthians 9.18|1 Cor. 9:18 (4-18)]]; 1 Thes. 2:9.
-[^b]: TG [Labor.](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
+[^b]: TG [[Labor]].

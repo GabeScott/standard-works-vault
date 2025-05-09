@@ -5,4 +5,4 @@
 [Psalms 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/7.8?lang=eng#p8)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].

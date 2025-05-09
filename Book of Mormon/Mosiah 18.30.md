@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 26.15|Mosiah 26:15.]]
-[^b]: TG [Praise](https://www.churchofjesuschrist.org/study/scriptures/tg/praise?lang=eng); [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^b]: TG [[Praise]]; [[Singing, Sing, Sang, Sung]].

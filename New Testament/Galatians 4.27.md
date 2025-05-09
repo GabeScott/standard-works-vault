@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 21.6|Gen. 21:6.]]
-[^b]: TG [Barren.](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng)
+[^b]: TG [[Barren, Barrenness]].

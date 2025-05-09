@@ -5,4 +5,4 @@
 [Joshua 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/4.6?lang=eng#p6)
 
 
-[^a]: TG [Children.](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng)
+[^a]: TG [[Children]].

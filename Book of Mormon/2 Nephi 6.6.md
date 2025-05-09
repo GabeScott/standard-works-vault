@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 49.22|Isa. 49:22 (22-23)]]; [[2 Nephi 10.9|2 Ne. 10:9.]]
-[^b]: TG [Ensign.](https://www.churchofjesuschrist.org/study/scriptures/tg/ensign?lang=eng)
+[^b]: TG [[Ensign]].

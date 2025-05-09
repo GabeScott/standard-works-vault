@@ -5,4 +5,4 @@
 [Exodus 13:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.13?lang=eng#p13)
 
 
-[^a]: TG [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
+[^a]: TG [[Firstborn]].

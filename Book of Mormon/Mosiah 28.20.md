@@ -7,5 +7,5 @@
 
 [^a]: [[Mosiah 1.3|Mosiah 1:3 (3-4)]]; [[Alma 37.3|Alma 37:3 (3-12).]]
 [^b]: [[Alma 37.1|Alma 37:1.]]
-[^c]: TG [Urim and Thummim.](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng)
-[^d]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^c]: TG [[Urim and Thummim]].
+[^d]: TG [[Scriptures, Preservation of]].

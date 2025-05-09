@@ -5,4 +5,4 @@
 [John 9:28](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.28?lang=eng#p28)
 
 
-[^a]: TG [Reviling.](https://www.churchofjesuschrist.org/study/scriptures/tg/reviling?lang=eng)
+[^a]: TG [[Reviling, Revile]].

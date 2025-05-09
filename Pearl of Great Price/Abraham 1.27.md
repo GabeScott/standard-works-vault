@@ -5,5 +5,5 @@
 [Abraham 1:27](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.27?lang=eng#p27)
 
 
-[^a]: TG [Priesthood, Qualifying for.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-qualifying-for?lang=eng)
-[^b]: TG [Unrighteous Dominion.](https://www.churchofjesuschrist.org/study/scriptures/tg/unrighteous-dominion?lang=eng)
+[^a]: TG [[Priesthood, Qualifying for]].
+[^b]: TG [[Unrighteous Dominion]].

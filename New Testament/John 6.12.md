@@ -5,4 +5,4 @@
 [John 6:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.12?lang=eng#p12)
 
 
-[^a]: TG [Waste.](https://www.churchofjesuschrist.org/study/scriptures/tg/waste?lang=eng)
+[^a]: TG [[Waste]].

@@ -5,4 +5,4 @@
 [Psalms 51:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.14?lang=eng#p14)
 
 
-[^a]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^a]: TG [[Deliver, Deliverance]].

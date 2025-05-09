@@ -5,4 +5,4 @@
 [2 Nephi 15:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p18#p18)
 
 
-[^a]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
+[^a]: TG [[Vanity]].

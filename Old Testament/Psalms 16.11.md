@@ -5,7 +5,7 @@
 [Psalms 16:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/16.11?lang=eng#p11)
 
 
-[^a]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
-[^b]: TG [Exaltation.](https://www.churchofjesuschrist.org/study/scriptures/tg/exaltation?lang=eng)
-[^c]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[God, Presence of]].
+[^b]: TG [[Exaltation]].
+[^c]: TG [[Joy]].
 [^d]: [[Psalms 36.8|Ps. 36:8.]]

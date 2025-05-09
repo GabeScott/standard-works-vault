@@ -7,4 +7,4 @@
 
 [^a]: [[Deuteronomy 32.6|Deut. 32:6]]; [[1 Chronicles 29.10|1 Chr. 29:10]]; [[Isaiah 64.8|Isa. 64:8.]]
 [^b]: IE Such forefathers as Abraham and Jacob, long dead, were not available to help.
-[^c]: TG [God, Eternal Nature of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-eternal-nature-of?lang=eng)
+[^c]: TG [[God, Eternal Nature of]].

@@ -8,4 +8,4 @@
 [^a]: [[Alma 25.6|Alma 25:6.]]
 [^b]: [[Alma 22.14|Alma 22:14 (13-14).]]
 [^c]: [[Mosiah 5.8|Mosiah 5:8]]; [[Alma 38.9|Alma 38:9.]]
-[^d]: TG [Jesus Christ, Death of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
+[^d]: TG [[Jesus Christ, Death of]].

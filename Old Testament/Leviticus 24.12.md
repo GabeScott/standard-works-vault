@@ -6,4 +6,4 @@
 
 
 [^a]: HEB under guard.
-[^b]: [[D&C 102.23|D&C 102:23]]. TG [Mind](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng).
+[^b]: [[D&C 102.23|D&C 102:23]]. TG [[Mind, Minded]].

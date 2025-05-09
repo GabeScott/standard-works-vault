@@ -7,5 +7,5 @@
 
 [^a]: [[Mosiah 4.30|Mosiah 4:30]]; [[D&C 84.43|D&C 84:43 (43-44).]]
 [^b]: [[1 Nephi 7.10|1 Ne. 7:10 (10-12).]]
-[^c]: [[Ephesians 6.4|Eph. 6:4 (1-4)]]. TG [Family, Children, Responsibilities toward](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng); [Teaching](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng).
+[^c]: [[Ephesians 6.4|Eph. 6:4 (1-4)]]. TG [[Family, Children, Responsibilities toward]]; [[Teaching with the Spirit]].
 [^d]: [[Psalms 78.3|Ps. 78:3 (3-4)]]; [[Psalms 145.4|145:4 (1-21)]]; 2 Tim. 3:15 (14-17).

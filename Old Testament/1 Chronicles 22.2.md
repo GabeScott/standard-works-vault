@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Kings 9.21|1 Kgs. 9:21.]]
-[^b]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^b]: TG [[Israel, Land of]].

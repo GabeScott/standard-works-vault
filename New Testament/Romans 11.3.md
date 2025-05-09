@@ -5,5 +5,5 @@
 [Romans 11:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.3?lang=eng#p3)
 
 
-[^a]: TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng); [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^a]: TG [[Apostasy of Israel]]; [[Martyrdom]].
 [^b]: [[1 Kings 19.14|1 Kgs. 19:14 (10-18).]]

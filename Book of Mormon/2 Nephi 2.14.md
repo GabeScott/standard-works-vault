@@ -5,6 +5,6 @@
 [2 Nephi 2:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Learn.](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng)
-[^b]: TG [Creation](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng); [God, Creator](https://www.churchofjesuschrist.org/study/scriptures/tg/god-creator?lang=eng); [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
+[^a]: TG [[Learn, Learning]].
+[^b]: TG [[Creation, Create]]; [[God, Creator]]; [[Jesus Christ, Creator]].
 [^c]: [[D&C 93.30|D&C 93:30.]]

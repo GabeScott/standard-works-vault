@@ -5,7 +5,7 @@
 [Isaiah 3:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/3.14?lang=eng#p14)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].
 [^b]: HEB elders.
 [^c]: HEB rulers or leaders.
 [^d]: HEB consumed or burned.

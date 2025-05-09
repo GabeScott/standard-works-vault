@@ -5,5 +5,5 @@
 [Omni 1:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p17#p17)
 
 
-[^a]: [[1 Nephi 3.19|1 Ne. 3:19]]. TG [Language](https://www.churchofjesuschrist.org/study/scriptures/tg/language?lang=eng).
+[^a]: [[1 Nephi 3.19|1 Ne. 3:19]]. TG [[Language]].
 [^b]: [[Mosiah 1.3|Mosiah 1:3 (2-6).]]

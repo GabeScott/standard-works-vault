@@ -5,7 +5,7 @@
 [Deuteronomy 14:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.1?lang=eng#p1)
 
 
-[^a]: TG [Sons and Daughters of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)
+[^a]: TG [[Sons and Daughters of God]].
 [^b]: [[Jeremiah 16.6|Jer. 16:6.]]
-[^c]: [[1 Kings 18.28|1 Kgs. 18:28]]. TG [Body, Sanctity of](https://www.churchofjesuschrist.org/study/scriptures/tg/body-sanctity-of?lang=eng).
+[^c]: [[1 Kings 18.28|1 Kgs. 18:28]]. TG [[Body, Sanctity of]].
 [^d]: IE on the forehead.

@@ -5,4 +5,4 @@
 [Isaiah 42:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.10?lang=eng#p10)
 
 
-[^a]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^a]: TG [[Singing, Sing, Sang, Sung]].

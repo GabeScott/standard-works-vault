@@ -6,8 +6,8 @@
 
 
 [^a]: JS—H 1:15 (15-17).
-[^b]: TG [Opposition.](https://www.churchofjesuschrist.org/study/scriptures/tg/opposition?lang=eng)
-[^c]: TG [Flesh and Blood.](https://www.churchofjesuschrist.org/study/scriptures/tg/flesh-and-blood?lang=eng)
+[^b]: TG [[Opposition]].
+[^c]: TG [[Flesh and Blood]].
 [^d]: [[2 Corinthians 4.4|2 Cor. 4:4.]]
-[^e]: TG [Darkness, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng); [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
-[^f]: TG [Governments](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng); [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^e]: TG [[Darkness, Spiritual]]; [[Secret Combinations]].
+[^f]: TG [[Governments]]; [[Wickedness, Wicked]].

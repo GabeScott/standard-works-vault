@@ -7,4 +7,4 @@
 
 [^a]: GR creation.
 [^b]: [[Genesis 1.31|Gen. 1:31.]]
-[^c]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^c]: TG [[Thanksgiving]].

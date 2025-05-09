@@ -5,4 +5,4 @@
 [Alma 13:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p6#p6)
 
 
-[^a]: [[Alma 12.37|Alma 12:37]]; [[Alma 16.17|16:17]]. TG [Rest](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng).
+[^a]: [[Alma 12.37|Alma 12:37]]; [[Alma 16.17|16:17]]. TG [[Restoration of the Gospel]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Romans 16.17|Rom. 16:17.]]
-[^b]: TG [Drunkenness.](https://www.churchofjesuschrist.org/study/scriptures/tg/drunkenness?lang=eng)
+[^b]: TG [[Drunkenness]].
 [^c]: GR not even.
 [^d]: 2 Jn. 1:10.

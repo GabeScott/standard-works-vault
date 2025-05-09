@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 6.4|Isa. 6:4]]; [[Mosiah 27.18|Mosiah 27:18.]]
-[^b]: [[Proverbs 2.5|Prov. 2:5]]. TG [Fear of God](https://www.churchofjesuschrist.org/study/scriptures/tg/fear-of-god?lang=eng).
+[^b]: [[Proverbs 2.5|Prov. 2:5]]. TG [[Fear of God]].

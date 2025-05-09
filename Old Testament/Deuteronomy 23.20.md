@@ -6,4 +6,4 @@
 
 
 [^a]: HEB foreigner.
-[^b]: TG [Debt.](https://www.churchofjesuschrist.org/study/scriptures/tg/debt?lang=eng)
+[^b]: TG [[Debt]].

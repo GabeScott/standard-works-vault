@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 25.1|3 Ne. 25:1.]]
-[^b]: [[Deuteronomy 4.24|Deut. 4:24]]; [[Zechariah 13.9|Zech. 13:9]]; [[D&C 128.24|D&C 128:24]]. TG [Earth, Cleansing of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng); [Jesus Christ, Second Coming](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng).
+[^b]: [[Deuteronomy 4.24|Deut. 4:24]]; [[Zechariah 13.9|Zech. 13:9]]; [[D&C 128.24|D&C 128:24]]. TG [[Earth, Cleansing of]]; [[Jesus Christ, Second Coming]].

@@ -8,4 +8,4 @@
 [^a]: [[Isaiah 5.5|Isa. 5:5 (1-7)]]; [[Luke 14.24|Luke 14:24 (21-24)]]; [[Acts 13.46|Acts 13:46]]; [[1 Nephi 13.26|1 Ne. 13:26]]; [[D&C 90.3|D&C 90:3 (1-5).]]
 [^b]: Dan. 2:44.
 [^c]: [[Isaiah 48.11|Isa. 48:11.]]
-[^d]: TG [Nations.](https://www.churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng)
+[^d]: TG [[Nations]].

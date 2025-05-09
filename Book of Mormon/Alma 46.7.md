@@ -5,7 +5,7 @@
 [Alma 46:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Flatter.](https://www.churchofjesuschrist.org/study/scriptures/tg/flatter?lang=eng)
+[^a]: TG [[Flatter, Flattery]].
 [^b]: [[Alma 1.24|Alma 1:24.]]
 [^c]: [[Alma 44.20|Alma 44:20.]]
-[^d]: [[Joshua 21.44|Josh. 21:44]]; [[1 Kings 5.3|1 Kgs. 5:3]]; [[Mosiah 9.17|Mosiah 9:17]]. TG [Deliver](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng).
+[^d]: [[Joshua 21.44|Josh. 21:44]]; [[1 Kings 5.3|1 Kgs. 5:3]]; [[Mosiah 9.17|Mosiah 9:17]]. TG [[Deliver, Deliverance]].

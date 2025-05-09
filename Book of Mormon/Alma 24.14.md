@@ -5,5 +5,5 @@
 [Alma 24:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Worth of Souls.](https://www.churchofjesuschrist.org/study/scriptures/tg/worth-of-souls?lang=eng)
-[^b]: TG [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng); [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
+[^a]: TG [[Worth of Souls]].
+[^b]: TG [[Jesus Christ, Prophecies about]]; [[Salvation, Plan of]].

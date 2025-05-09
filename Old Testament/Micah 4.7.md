@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 1.33|Luke 1:33 (30-33)]]; [[D&C 1.36|D&C 1:36]]; A of F 1:10.
-[^b]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^b]: TG [[Zion, Sion]].

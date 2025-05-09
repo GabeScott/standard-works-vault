@@ -5,4 +5,4 @@
 [Luke 16:17](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.17?lang=eng#p17)
 
 
-[^a]: TG [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
+[^a]: TG [[Law of Moses]].

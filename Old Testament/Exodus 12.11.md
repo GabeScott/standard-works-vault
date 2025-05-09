@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 11.5|Isa. 11:5]]; [[D&C 27.15|D&C 27:15 (15-18).]]
-[^b]: [[Deuteronomy 16.3|Deut. 16:3]]. TG [Haste](https://www.churchofjesuschrist.org/study/scriptures/tg/haste?lang=eng).
+[^b]: [[Deuteronomy 16.3|Deut. 16:3]]. TG [[Haste, Hasten, Hasty]].

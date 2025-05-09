@@ -5,6 +5,6 @@
 [Abraham 1:31](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.31?lang=eng#p31)
 
 
-[^a]: TG [Record Keeping](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng); [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
-[^b]: [[Abraham 3.2|Abr. 3:2 (1-21)]]. TG [Astronomy](https://www.churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng).
-[^c]: TG [Book of Remembrance.](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-remembrance?lang=eng)
+[^a]: TG [[Record Keeping]]; [[Scriptures, Preservation of]].
+[^b]: [[Abraham 3.2|Abr. 3:2 (1-21)]]. TG [[Astronomy]].
+[^c]: TG [[Book of Remembrance]].

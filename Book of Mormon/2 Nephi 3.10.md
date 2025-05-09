@@ -5,4 +5,4 @@
 [2 Nephi 3:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/3?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Foreordination.](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng)
+[^a]: TG [[Foreordination]].

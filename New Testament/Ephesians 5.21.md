@@ -5,4 +5,4 @@
 [Ephesians 5:21](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.21?lang=eng#p21)
 
 
-[^a]: TG [Reconciliation.](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng)
+[^a]: TG [[Reconciliation, Reconcile]].

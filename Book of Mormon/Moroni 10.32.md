@@ -5,8 +5,8 @@
 [Moroni 10:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p32#p32)
 
 
-[^a]: [[Revelation 22.17|Rev. 22:17 (17-21)]]; [[Jacob 1.7|Jacob 1:7]]; [[Omni 1.26|Omni 1:26]]. TG [Teachable](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng).
-[^b]: [[Galatians 3.24|Gal. 3:24]]; Philip. 3:15 (14-15). TG [Man, New, Spiritually Reborn](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng); [Worthiness](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng).
-[^c]: [[Romans 12.1|Rom. 12:1 (1-3)]]. TG [Perseverance](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng).
-[^d]: [[Deuteronomy 11.1|Deut. 11:1]]; [[Mosiah 2.4|Mosiah 2:4]]; [[D&C 20.19|D&C 20:19]]; [[D&C 59.5|59:5 (5-6)]]. TG [Commitment](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng); [Dedication](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng).
-[^e]: [[Romans 6.6|Rom. 6:6 (1-7)]]. TG [Perfection](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng).
+[^a]: [[Revelation 22.17|Rev. 22:17 (17-21)]]; [[Jacob 1.7|Jacob 1:7]]; [[Omni 1.26|Omni 1:26]]. TG [[Teachable]].
+[^b]: [[Galatians 3.24|Gal. 3:24]]; Philip. 3:15 (14-15). TG [[Man, New, Spiritually Reborn]]; [[Worthiness, Worthy]].
+[^c]: [[Romans 12.1|Rom. 12:1 (1-3)]]. TG [[Perseverance]].
+[^d]: [[Deuteronomy 11.1|Deut. 11:1]]; [[Mosiah 2.4|Mosiah 2:4]]; [[D&C 20.19|D&C 20:19]]; [[D&C 59.5|59:5 (5-6)]]. TG [[Commitment]]; [[Dedication, Dedicate]].
+[^e]: [[Romans 6.6|Rom. 6:6 (1-7)]]. TG [[Perfection, Perfect, Perfectly]].

@@ -5,5 +5,5 @@
 [James 1:26](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.26?lang=eng#p26)
 
 
-[^a]: TG [Gossip](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng); [Profanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng)
+[^a]: TG [[Gossip]]; [[Profanity]].
 [^b]: GR useless, deceptive, erroneous.

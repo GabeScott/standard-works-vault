@@ -5,9 +5,9 @@
 [Jacob 4:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/4?lang=eng&id=p11#p11)
 
 
-[^a]: [[Leviticus 6.30|Lev. 6:30]]. TG [Jesus Christ, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng); [Reconciliation](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng).
-[^b]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
-[^c]: TG [Jesus Christ, Divine Sonship.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
-[^d]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
-[^e]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
+[^a]: [[Leviticus 6.30|Lev. 6:30]]. TG [[Jesus Christ, Mission of]]; [[Reconciliation, Reconcile]].
+[^b]: TG [[Jesus Christ, Atonement through]].
+[^c]: TG [[Jesus Christ, Divine Sonship]].
+[^d]: TG [[Jesus Christ, Resurrection]].
+[^e]: TG [[God, Power of]].
 [^f]: [[Mosiah 15.21|Mosiah 15:21 (21-23)]]; [[Mosiah 18.9|18:9]]; [[Alma 40.16|Alma 40:16 (16-21).]]

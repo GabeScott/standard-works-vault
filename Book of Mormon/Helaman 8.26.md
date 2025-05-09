@@ -5,4 +5,4 @@
 [Helaman 8:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p26#p26)
 
 
-[^a]: TG [Fornication.](https://www.churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng)
+[^a]: TG [[Fornication]].

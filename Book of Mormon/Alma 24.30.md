@@ -6,8 +6,8 @@
 
 
 [^a]: [[Matthew 12.45|Matt. 12:45.]]
-[^b]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^b]: TG [[God, Spirit of]].
 [^c]: [[Hebrews 10.26|Heb. 10:26 (26-27)]]; [[Alma 47.36|Alma 47:36.]]
-[^d]: [[2 Nephi 31.14|2 Ne. 31:14]]; [[Alma 9.19|Alma 9:19]]; [[Alma 31.8|31:8]]; [[D&C 93.19|D&C 93:19]]. TG [Apostasy of Individuals](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng); [Holy Ghost, Loss of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-loss-of?lang=eng).
-[^e]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^d]: [[2 Nephi 31.14|2 Ne. 31:14]]; [[Alma 9.19|Alma 9:19]]; [[Alma 31.8|31:8]]; [[D&C 93.19|D&C 93:19]]. TG [[Apostasy of Individuals]]; [[Holy Ghost, Loss of]].
+[^e]: TG [[Hardheartedness, Harden, Hardness]].
 [^f]: [[2 Chronicles 33.9|2 Chr. 33:9]]; [[Ezekiel 5.6|Ezek. 5:6]]; 2 Pet. 2:20 (20-21).

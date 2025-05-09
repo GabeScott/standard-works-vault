@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 7.42|Acts 7:42.]]
-[^b]: TG [Uncleanness.](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng)
+[^b]: TG [[Uncleanness, Unclean]].

@@ -5,5 +5,5 @@
 [Luke 24:34](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.34?lang=eng#p34)
 
 
-[^a]: TG [Jesus Christ, Appearances, Postmortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-postmortal?lang=eng)
+[^a]: TG [[Jesus Christ, Appearances, Postmortal]].
 [^b]: [[1 Corinthians 15.5|1 Cor. 15:5 (3-8).]]

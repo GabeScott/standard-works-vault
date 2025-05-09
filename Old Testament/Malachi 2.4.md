@@ -5,4 +5,4 @@
 [Malachi 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.4?lang=eng#p4)
 
 
-[^a]: TG [Priesthood, Oath and Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-oath-and-covenant?lang=eng)
+[^a]: TG [[Priesthood, Oath and Covenant]].

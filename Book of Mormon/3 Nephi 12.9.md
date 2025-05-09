@@ -5,5 +5,5 @@
 [3 Nephi 12:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Peacemakers.](https://www.churchofjesuschrist.org/study/scriptures/tg/peacemakers?lang=eng)
-[^b]: TG [Sons and Daughters of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)
+[^a]: TG [[Peacemakers]].
+[^b]: TG [[Sons and Daughters of God]].

@@ -5,4 +5,4 @@
 [Alma 51:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p21#p21)
 
 
-[^a]: TG [Courage.](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng)
+[^a]: TG [[Courage, Courageous]].

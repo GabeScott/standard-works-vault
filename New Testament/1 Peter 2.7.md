@@ -5,5 +5,5 @@
 [1 Peter 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.7?lang=eng#p7)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].
 [^b]: [[Matthew 21.42|Matt. 21:42 (42-46)]]; [[Luke 9.22|Luke 9:22.]]

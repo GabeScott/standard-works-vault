@@ -8,4 +8,4 @@
 [^a]: [[Helaman 11.20|Hel. 11:20 (19-20).]]
 [^b]: [[Alma 2.27|Alma 2:27.]]
 [^c]: [[Jacob 7.24|Jacob 7:24]]; [[Enos 1.20|Enos 1:20]]; [[Alma 26.24|Alma 26:24 (23-25).]]
-[^d]: TG [Blood, Eating of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-eating-of?lang=eng)
+[^d]: TG [[Blood, Eating of]].

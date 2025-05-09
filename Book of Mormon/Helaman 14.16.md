@@ -6,7 +6,7 @@
 
 
 [^a]: [[John 20.9|John 20:9]]; [[D&C 18.12|D&C 18:12 (11-12).]]
-[^b]: TG [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
-[^c]: TG [Fall of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng)
+[^b]: TG [[Salvation, Plan of]].
+[^c]: TG [[Fall of Man]].
 [^d]: [[2 Nephi 2.5|2 Ne. 2:5]]; [[2 Nephi 9.6|9:6 (6-15)]]; [[Alma 11.42|Alma 11:42 (40-45)]]; [[Alma 12.16|12:16 (16, 24, 36)]]; [[Alma 42.7|42:7 (6-11).]]
-[^e]: TG [Death, Spiritual, First.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-first?lang=eng)
+[^e]: TG [[Death, Spiritual, First]].

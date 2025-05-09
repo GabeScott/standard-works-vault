@@ -5,5 +5,5 @@
 [Psalms 102:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/102.18?lang=eng#p18)
 
 
-[^a]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^a]: TG [[Scriptures, Writing of]].
 [^b]: [[Psalms 48.13|Ps. 48:13.]]

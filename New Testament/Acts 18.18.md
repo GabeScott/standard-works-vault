@@ -5,4 +5,4 @@
 [Acts 18:18](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/18.18?lang=eng#p18)
 
 
-[^a]: TG [Vow.](https://www.churchofjesuschrist.org/study/scriptures/tg/vow?lang=eng)
+[^a]: TG [[Vow]].

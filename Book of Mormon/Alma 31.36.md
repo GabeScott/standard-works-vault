@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 18.37|3 Ne. 18:37.]]
-[^b]: TG [Hands, Laying on of.](https://www.churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng)
+[^b]: TG [[Hands, Laying on of]].

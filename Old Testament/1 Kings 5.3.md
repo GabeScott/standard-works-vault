@@ -5,4 +5,4 @@
 [1 Kings 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/5.3?lang=eng#p3)
 
 
-[^a]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^a]: TG [[Genealogy and Temple Work]].

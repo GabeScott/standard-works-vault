@@ -5,4 +5,4 @@
 [Jeremiah 29:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/29.7?lang=eng#p7)
 
 
-[^a]: TG [Contentment.](https://www.churchofjesuschrist.org/study/scriptures/tg/contentment?lang=eng)
+[^a]: TG [[Contentment]].

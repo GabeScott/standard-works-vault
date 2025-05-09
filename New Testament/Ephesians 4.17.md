@@ -6,5 +6,5 @@
 
 
 [^a]: 1 Thes. 4:5.
-[^b]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
-[^c]: TG [Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng)
+[^b]: TG [[Vanity]].
+[^c]: TG [[Mind, Minded]].

@@ -5,5 +5,5 @@
 [Deuteronomy 33:7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.7?lang=eng#p7)
 
 
-[^a]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^a]: TG [[Israel, Judah, People of]].
 [^b]: [[Judges 1.19|Judg. 1:19 (17-19).]]

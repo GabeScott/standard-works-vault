@@ -5,5 +5,5 @@
 [1 John 5:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/5.17?lang=eng#p17)
 
 
-[^a]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^a]: TG [[Sin]].
 [^b]: [[D&C 64.7|D&C 64:7.]]

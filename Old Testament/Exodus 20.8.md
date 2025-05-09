@@ -5,5 +5,5 @@
 [Exodus 20:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.8?lang=eng#p8)
 
 
-[^a]: HEB stopping, cessation, rest (from labor). See Ex. 31:17. TG [Sabbath](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng).
-[^b]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
+[^a]: HEB stopping, cessation, rest (from labor). See Ex. 31:17. TG [[Sabbath]].
+[^b]: TG [[Holiness]].

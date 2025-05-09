@@ -5,4 +5,4 @@
 [3 Nephi 1:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p23#p23)
 
 
-[^a]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^a]: TG [[Remission of Sins]].

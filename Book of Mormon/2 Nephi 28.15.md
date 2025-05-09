@@ -6,8 +6,8 @@
 
 
 [^a]: [[Proverbs 3.7|Prov. 3:7 (5-7)]]; [[2 Nephi 15.21|2 Ne. 15:21.]]
-[^b]: TG [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
-[^c]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^b]: TG [[Pride]].
+[^c]: TG [[Hardheartedness, Harden, Hardness]].
 [^d]: [[Matthew 5.19|Matt. 5:19.]]
 [^e]: [[Mosiah 11.2|Mosiah 11:2.]]
 [^f]: [[3 Nephi 29.5|3 Ne. 29:5 (4-7)]]; [[Mormon 9.26|Morm. 9:26.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: JST Gen. 9:21-25 (Appendix).
-[^b]: TG [New and Everlasting Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/new-and-everlasting-covenant?lang=eng)
+[^b]: TG [[New and Everlasting Covenant]].

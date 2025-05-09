@@ -5,6 +5,6 @@
 [Luke 15:13](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.13?lang=eng#p13)
 
 
-[^a]: TG [Waste.](https://www.churchofjesuschrist.org/study/scriptures/tg/waste?lang=eng)
+[^a]: TG [[Waste]].
 [^b]: GR property.
-[^c]: [[Proverbs 28.7|Prov. 28:7]]. TG [Rioting and Reveling](https://www.churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng).
+[^c]: [[Proverbs 28.7|Prov. 28:7]]. TG [[Rioting and Reveling]].

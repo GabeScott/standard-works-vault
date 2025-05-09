@@ -6,4 +6,4 @@
 
 
 [^a]: GR slanderers, traitors, devils.
-[^b]: TG [Gossip.](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng)
+[^b]: TG [[Gossip]].

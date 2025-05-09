@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 30.2|2 Ne. 30:2 (1-2).]]
-[^b]: TG [Gentiles.](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng)
+[^b]: TG [[Gentiles]].

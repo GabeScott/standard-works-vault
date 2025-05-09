@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 11.45|Alma 11:45 (41-45).]]
-[^b]: TG [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^b]: TG [[Judgment, the Last]].

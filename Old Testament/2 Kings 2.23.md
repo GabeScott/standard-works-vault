@@ -6,5 +6,5 @@
 
 
 [^a]: HEB youths (not little children).
-[^b]: TG [Mocking.](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng)
+[^b]: TG [[Mocking, Mock, Mocker, Mockery]].
 [^c]: Lam. 4:16 (16-17).

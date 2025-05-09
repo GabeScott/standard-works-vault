@@ -5,5 +5,5 @@
 [Galatians 5:23](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.23?lang=eng#p23)
 
 
-[^a]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
-[^b]: GR self-control. TG [Temperance](https://www.churchofjesuschrist.org/study/scriptures/tg/temperance?lang=eng).
+[^a]: TG [[Meek, Meekness]].
+[^b]: GR self-control. TG [[Temperance, Temperate]].

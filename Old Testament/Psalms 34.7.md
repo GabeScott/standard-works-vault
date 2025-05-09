@@ -5,4 +5,4 @@
 [Psalms 34:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.7?lang=eng#p7)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].

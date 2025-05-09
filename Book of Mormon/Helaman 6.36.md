@@ -5,5 +5,5 @@
 [Helaman 6:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p36#p36)
 
 
-[^a]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^a]: TG [[God, Spirit of]].
 [^b]: [[Exodus 25.2|Ex. 25:2 (1-7).]]

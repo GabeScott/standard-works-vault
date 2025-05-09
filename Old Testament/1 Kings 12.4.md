@@ -5,4 +5,4 @@
 [1 Kings 12:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.4?lang=eng#p4)
 
 
-[^a]: [[1 Kings 4.7|1 Kgs. 4:7]]; [[1 Kings 5.13|5:13]]. TG [Bondage, Physical](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng).
+[^a]: [[1 Kings 4.7|1 Kgs. 4:7]]; [[1 Kings 5.13|5:13]]. TG [[Bondage, Physical]].

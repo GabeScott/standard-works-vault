@@ -5,4 +5,4 @@
 [2 Chronicles 26:22](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.22?lang=eng#p22)
 
 
-[^a]: TG [Scribe](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng); [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^a]: TG [[Scribe]]; [[Scriptures, Writing of]].

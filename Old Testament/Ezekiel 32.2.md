@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 19.1|Isa. 19:1]]; [[Ezekiel 31.2|Ezek. 31:2.]]
 [^b]: HEB monster.
-[^c]: TG [Pollution.](https://www.churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng)
+[^c]: TG [[Pollution, Pollute]].

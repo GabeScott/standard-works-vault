@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 44.5|Alma 44:5]]; [[Alma 46.12|46:12]]; [[Alma 48.10|48:10 (10, 24).]]
-[^b]: TG [Citizenship.](https://www.churchofjesuschrist.org/study/scriptures/tg/citizenship?lang=eng)
-[^c]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^b]: TG [[Citizenship]].
+[^c]: TG [[Liberty]].

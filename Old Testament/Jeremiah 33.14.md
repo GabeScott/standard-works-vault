@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 29.10|Jer. 29:10.]]
-[^b]: TG [Promise.](https://www.churchofjesuschrist.org/study/scriptures/tg/promise?lang=eng)
+[^b]: TG [[Promise]].

@@ -5,6 +5,6 @@
 [Genesis 49:28](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.28?lang=eng#p28)
 
 
-[^a]: TG [Israel, Twelve Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-twelve-tribes-of?lang=eng)
+[^a]: TG [[Israel, Twelve Tribes of]].
 [^b]: [[Deuteronomy 33.1|Deut. 33:1 (1-25).]]
-[^c]: TG [Israel, Blessings of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng)
+[^c]: TG [[Israel, Blessings of]].

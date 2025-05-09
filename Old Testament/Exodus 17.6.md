@@ -6,5 +6,5 @@
 
 
 [^a]: [[Numbers 20.8|Num. 20:8 (2-13)]]; [[Psalms 74.15|Ps. 74:15]]; [[Psalms 78.15|78:15 (15-16)]]; [[1 Nephi 17.29|1 Ne. 17:29]]; [[D&C 133.26|D&C 133:26.]]
-[^b]: [[1 Nephi 20.21|1 Ne. 20:21]]; [[2 Nephi 25.20|2 Ne. 25:20]]. TG [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng).
+[^b]: [[1 Nephi 20.21|1 Ne. 20:21]]; [[2 Nephi 25.20|2 Ne. 25:20]]. TG [[Jesus Christ, Types of, in Anticipation]].
 [^c]: [[Nehemiah 9.15|Neh. 9:15]]; [[Psalms 114.8|Ps. 114:8]]; [[Isaiah 48.21|Isa. 48:21.]]

@@ -5,5 +5,5 @@
 [Galatians 1:16](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.16?lang=eng#p16)
 
 
-[^a]: GR nations, Gentiles. TG [Heathen](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng).
-[^b]: TG [Flesh and Blood.](https://www.churchofjesuschrist.org/study/scriptures/tg/flesh-and-blood?lang=eng)
+[^a]: GR nations, Gentiles. TG [[Heathen]].
+[^b]: TG [[Flesh and Blood]].

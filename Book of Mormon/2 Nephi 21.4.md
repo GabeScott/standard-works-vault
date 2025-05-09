@@ -6,7 +6,7 @@
 
 
 [^a]: [[Psalms 50.6|Ps. 50:6]]; [[Mosiah 29.12|Mosiah 29:12.]]
-[^b]: [[Psalms 72.4|Ps. 72:4 (2-4)]]. TG [Jesus Christ, Judge](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng).
-[^c]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
+[^b]: [[Psalms 72.4|Ps. 72:4 (2-4)]]. TG [[Jesus Christ, Judge]].
+[^c]: TG [[Meek, Meekness]].
 [^d]: [[Psalms 2.9|Ps. 2:9.]]
 [^e]: 2 Thes. 2:8; [[Revelation 19.15|Rev. 19:15.]]

@@ -5,5 +5,5 @@
 [Zechariah 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/1.16?lang=eng#p16)
 
 
-[^a]: TG [Last Days](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng); [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^a]: TG [[Last Days]]; [[Genealogy and Temple Work]].
 [^b]: [[Jeremiah 31.39|Jer. 31:39.]]

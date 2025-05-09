@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 84.63|D&C 84:63.]]
-[^b]: TG [Commandments of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)
+[^b]: TG [[Commandments of God]].

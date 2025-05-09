@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 21.22|Matt. 21:22 (18-22)]]; [[3 Nephi 18.20|3 Ne. 18:20.]]
-[^b]: TG [Promise.](https://www.churchofjesuschrist.org/study/scriptures/tg/promise?lang=eng)
+[^b]: TG [[Promise]].

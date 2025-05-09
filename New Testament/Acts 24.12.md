@@ -5,4 +5,4 @@
 [Acts 24:12](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/24.12?lang=eng#p12)
 
 
-[^a]: TG [Disputations.](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng)
+[^a]: TG [[Disputations, Dispute]].

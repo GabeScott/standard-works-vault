@@ -6,6 +6,6 @@
 
 
 [^a]: [[John 1.42|John 1:42.]]
-[^b]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
-[^c]: TG [Fellowshipping.](https://www.churchofjesuschrist.org/study/scriptures/tg/fellowshipping?lang=eng)
+[^b]: TG [[Grace]].
+[^c]: TG [[Fellowshipping]].
 [^d]: GR nations, Gentiles.

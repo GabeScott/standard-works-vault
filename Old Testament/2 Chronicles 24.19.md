@@ -5,6 +5,6 @@
 [2 Chronicles 24:19](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/24.19?lang=eng#p19)
 
 
-[^a]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
+[^a]: TG [[Authority]].
 [^b]: [[2 Nephi 27.5|2 Ne. 27:5.]]
-[^c]: TG [Preaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
+[^c]: TG [[Preaching, Preach]].

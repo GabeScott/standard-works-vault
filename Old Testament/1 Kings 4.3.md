@@ -5,5 +5,5 @@
 [1 Kings 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/4.3?lang=eng#p3)
 
 
-[^a]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Scribe]].
 [^b]: [[D&C 127.6|D&C 127:6]]; [[D&C 128.2|128:2.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: HEB less than the gods.
-[^b]: TG [Man, Potential to Become like Heavenly Father](https://www.churchofjesuschrist.org/study/scriptures/tg/man-potential-to-become-like-heavenly-father?lang=eng); [Worth of Souls.](https://www.churchofjesuschrist.org/study/scriptures/tg/worth-of-souls?lang=eng)
+[^b]: TG [[Man, Potential to Become like Heavenly Father]]; [[Worth of Souls]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Joshua 19.18|Josh. 19:18.]]
-[^b]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
+[^b]: TG [[Woman, Women]].

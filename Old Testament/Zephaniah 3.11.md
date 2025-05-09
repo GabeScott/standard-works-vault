@@ -5,5 +5,5 @@
 [Zephaniah 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/3.11?lang=eng#p11)
 
 
-[^a]: TG [Haughtiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng)
+[^a]: TG [[Haughtiness, Haughty]].
 [^b]: HEB in.

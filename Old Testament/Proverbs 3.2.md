@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 5.33|D&C 5:33.]]
-[^b]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^b]: TG [[Peace of God]].

@@ -6,6 +6,6 @@
 
 
 [^a]: JST John 3:36 And he who believeth on the Son hath everlasting life; and shall receive of his fullness. But he who believeth not the Son, shall not receive of his fullness; for the wrath of God is upon him.
-[^b]: TG [Eternal Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng)
+[^b]: TG [[Eternal Life]].
 [^c]: GR disbelieves, disobeys, is uncompliant to.
-[^d]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^d]: TG [[God, Indignation of]].

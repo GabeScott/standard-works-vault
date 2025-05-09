@@ -6,4 +6,4 @@
 
 
 [^a]: Mal. 3:2 (2-3).
-[^b]: GR test, put to proof. TG [Test](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng).
+[^b]: GR test, put to proof. TG [[Testament]].

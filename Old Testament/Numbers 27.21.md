@@ -7,4 +7,4 @@
 
 [^a]: [[Leviticus 16.32|Lev. 16:32 (1-34).]]
 [^c]: OR as revealed through the Urim and Thummim.
-[^d]: TG [Urim and Thummim.](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng)
+[^d]: TG [[Urim and Thummim]].

@@ -5,4 +5,4 @@
 [Mormon 9:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Conscience](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng); [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^a]: TG [[Conscience]]; [[Guiltless]].

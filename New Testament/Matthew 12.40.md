@@ -5,4 +5,4 @@
 [Matthew 12:40](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.40?lang=eng#p40)
 
 
-[^a]: TG [Jesus Christ, Death of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng); [Jesus Christ, Types of, in Anticipation.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng)
+[^a]: TG [[Jesus Christ, Death of]]; [[Jesus Christ, Types of, in Anticipation]].

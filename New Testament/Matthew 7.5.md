@@ -5,4 +5,4 @@
 [Matthew 7:5](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.5?lang=eng#p5)
 
 
-[^a]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^a]: TG [[Hypocrisy, Hypocrite]].

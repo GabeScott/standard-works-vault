@@ -5,5 +5,5 @@
 [Isaiah 29:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.19?lang=eng#p19)
 
 
-[^a]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
-[^b]: TG [Poor.](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng)
+[^a]: TG [[Joy]].
+[^b]: TG [[Poor]].

@@ -5,6 +5,6 @@
 [1 John 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.16?lang=eng#p16)
 
 
-[^a]: TG [Chastity](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng); [Lust](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng); [Sensuality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sensuality?lang=eng)
-[^b]: GR haughtiness, ostentation. TG [Pride](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng).
+[^a]: TG [[Chastity, Chaste]]; [[Lust]]; [[Sensuality]].
+[^b]: GR haughtiness, ostentation. TG [[Pride]].
 [^c]: [[Mark 7.21|Mark 7:21 (21-22).]]

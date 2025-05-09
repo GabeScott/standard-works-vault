@@ -5,4 +5,4 @@
 [1 Nephi 14:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^a]: TG [[Bondage, Spiritual]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Psalms 19.1|Ps. 19:1]]; [[Psalms 97.6|97:6.]]
 [^b]: [[2 Nephi 21.4|2 Ne. 21:4]]; [[Mosiah 29.12|Mosiah 29:12.]]
-[^c]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^c]: TG [[Jesus Christ, Judge]].

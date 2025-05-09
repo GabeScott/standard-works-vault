@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 9.16|Deut. 9:16 (16-17, 21).]]
-[^b]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^b]: TG [[Anger]].
 [^c]: [[Exodus 34.1|Ex. 34:1]]; [[D&C 84.23|D&C 84:23 (19-26).]]

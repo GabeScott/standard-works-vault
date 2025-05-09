@@ -5,6 +5,6 @@
 [2 Timothy 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/4.8?lang=eng#p8)
 
 
-[^a]: TG [Exaltation](https://www.churchofjesuschrist.org/study/scriptures/tg/exaltation?lang=eng); [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
-[^b]: TG [God, the Standard of Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-standard-of-righteousness?lang=eng)
-[^c]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Exaltation]]; [[Reward]].
+[^b]: TG [[God, the Standard of Righteousness]].
+[^c]: TG [[Jesus Christ, Judge]].

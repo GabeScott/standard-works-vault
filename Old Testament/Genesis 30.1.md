@@ -5,4 +5,4 @@
 [Genesis 30:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.1?lang=eng#p1)
 
 
-[^a]: [[Genesis 16.5|Gen. 16:5 (4-16)]]; [[1 Samuel 1.6|1 Sam. 1:6 (1-20)]]. TG [Envy](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng).
+[^a]: [[Genesis 16.5|Gen. 16:5 (4-16)]]; [[1 Samuel 1.6|1 Sam. 1:6 (1-20)]]. TG [[Envy, Envious]].

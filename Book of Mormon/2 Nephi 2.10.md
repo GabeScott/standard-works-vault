@@ -5,8 +5,8 @@
 [2 Nephi 2:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p10#p10)
 
 
-[^a]: [[Psalms 65.2|Ps. 65:2]]. TG [Jesus Christ, Redeemer](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng).
-[^b]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
-[^c]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
-[^d]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
-[^e]: [[2 Nephi 9.26|2 Ne. 9:26 (7, 21-22, 26)]]; [[Alma 22.14|Alma 22:14]]; [[Alma 33.22|33:22]]; [[Alma 34.9|34:9 (8-16)]]. TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng).
+[^a]: [[Psalms 65.2|Ps. 65:2]]. TG [[Jesus Christ, Redeemer]].
+[^b]: TG [[Jesus Christ, Judge]].
+[^c]: TG [[Holiness]].
+[^d]: TG [[Punish, Punishment]].
+[^e]: [[2 Nephi 9.26|2 Ne. 9:26 (7, 21-22, 26)]]; [[Alma 22.14|Alma 22:14]]; [[Alma 33.22|33:22]]; [[Alma 34.9|34:9 (8-16)]]. TG [[Jesus Christ, Atonement through]].

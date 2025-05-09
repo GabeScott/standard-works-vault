@@ -5,4 +5,4 @@
 [Exodus 18:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.25?lang=eng#p25)
 
 
-[^a]: TG [Delegation of Responsibility.](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng)
+[^a]: TG [[Delegation of Responsibility]].

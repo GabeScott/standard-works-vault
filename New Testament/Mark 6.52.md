@@ -6,4 +6,4 @@
 
 
 [^a]: OR did not understand. 1 Cor. 2:11.
-[^b]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^b]: TG [[Hardheartedness, Harden, Hardness]].

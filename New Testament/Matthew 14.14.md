@@ -5,5 +5,5 @@
 [Matthew 14:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/14.14?lang=eng#p14)
 
 
-[^a]: TG [Compassion.](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
-[^b]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
+[^a]: TG [[Compassion]].
+[^b]: TG [[Sickness, Sick]].

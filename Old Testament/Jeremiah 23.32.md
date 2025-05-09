@@ -5,4 +5,4 @@
 [Jeremiah 23:32](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.32?lang=eng#p32)
 
 
-[^a]: TG [Dream.](https://www.churchofjesuschrist.org/study/scriptures/tg/dream?lang=eng)
+[^a]: TG [[Dream]].

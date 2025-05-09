@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ether 3.1|Ether 3:1.]]
-[^b]: [[Ether 12.24|Ether 12:24]]. TG [Record Keeping](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng); [Scriptures, Writing of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng).
+[^b]: [[Ether 12.24|Ether 12:24]]. TG [[Record Keeping]]; [[Scriptures, Writing of]].
 [^c]: [[Ether 3.21|Ether 3:21.]]

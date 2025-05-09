@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 25.1|Alma 25:1.]]
-[^b]: TG [Compassion](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng); [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^b]: TG [[Compassion]]; [[Repent, Repentance]].

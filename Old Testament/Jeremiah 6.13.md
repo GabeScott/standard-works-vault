@@ -5,5 +5,5 @@
 [Jeremiah 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.13?lang=eng#p13)
 
 
-[^a]: TG [Covet.](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
-[^b]: TG [Priestcraft.](https://www.churchofjesuschrist.org/study/scriptures/tg/priestcraft?lang=eng)
+[^a]: TG [[Covet, Covetousness]].
+[^b]: TG [[Priestcraft]].

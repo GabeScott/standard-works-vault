@@ -5,4 +5,4 @@
 [2 Timothy 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.3?lang=eng#p3)
 
 
-[^a]: TG [Conscience.](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
+[^a]: TG [[Conscience]].

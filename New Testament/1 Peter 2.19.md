@@ -6,4 +6,4 @@
 
 
 [^a]: GR pleasing, gracious.
-[^b]: TG [Tribulation.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
+[^b]: TG [[Tribulation]].

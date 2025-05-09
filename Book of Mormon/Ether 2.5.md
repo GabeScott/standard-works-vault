@@ -7,4 +7,4 @@
 
 [^a]: [[Numbers 9.17|Num. 9:17]]; [[Ether 1.42|Ether 1:42.]]
 [^b]: [[Exodus 13.21|Ex. 13:21.]]
-[^c]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^c]: TG [[Guidance, Divine]].

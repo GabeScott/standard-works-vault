@@ -5,4 +5,4 @@
 [Proverbs 20:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.26?lang=eng#p26)
 
 
-[^a]: TG [Kings, Earthly.](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
+[^a]: TG [[Kings, Earthly]].

@@ -6,5 +6,5 @@
 
 
 [^a]: HEB Yet (see context of previous verse).
-[^b]: TG [God, Love of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng)
-[^c]: TG [Peculiar People.](https://www.churchofjesuschrist.org/study/scriptures/tg/peculiar-people?lang=eng)
+[^b]: TG [[God, Love of]].
+[^c]: TG [[Peculiar People]].

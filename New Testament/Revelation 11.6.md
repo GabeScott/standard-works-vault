@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 7.17|Ex. 7:17 (17-21).]]
-[^b]: TG [Plague.](https://www.churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng)
+[^b]: TG [[Plague]].

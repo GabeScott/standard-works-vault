@@ -5,6 +5,6 @@
 [2 Timothy 2:21](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.21?lang=eng#p21)
 
 
-[^a]: TG [Body, Sanctity of.](https://www.churchofjesuschrist.org/study/scriptures/tg/body-sanctity-of?lang=eng)
+[^a]: TG [[Body, Sanctity of]].
 [^b]: [[Isaiah 52.11|Isa. 52:11.]]
 [^c]: GR useful, profitable.

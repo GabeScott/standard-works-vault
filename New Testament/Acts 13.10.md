@@ -6,5 +6,5 @@
 
 
 [^a]: 1 Jn. 3:10 (10-18); [[Alma 11.23|Alma 11:23.]]
-[^b]: TG [Enemies.](https://www.churchofjesuschrist.org/study/scriptures/tg/enemies?lang=eng)
-[^c]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^b]: TG [[Enemies, Enemy]].
+[^c]: TG [[God, the Standard of Righteousness]].

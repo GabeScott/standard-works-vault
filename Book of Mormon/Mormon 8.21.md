@@ -6,5 +6,5 @@
 
 
 [^a]: [[Proverbs 19.19|Prov. 19:19.]]
-[^b]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
+[^b]: TG [[Strife]].
 [^c]: [[1 Nephi 14.17|1 Ne. 14:17.]]

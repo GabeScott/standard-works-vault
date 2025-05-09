@@ -5,4 +5,4 @@
 [Numbers 22:29](https://www.churchofjesuschrist.org/study/scriptures/ot/num/22.29?lang=eng#p29)
 
 
-[^a]: TG [Rashness.](https://www.churchofjesuschrist.org/study/scriptures/tg/rashness?lang=eng)
+[^a]: TG [[Rashness]].

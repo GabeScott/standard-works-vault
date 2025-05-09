@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 16.4|Deut. 16:4.]]
-[^b]: TG [Leaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/leaven?lang=eng)
+[^b]: TG [[Leaven]].
 [^c]: OR within all your borders.

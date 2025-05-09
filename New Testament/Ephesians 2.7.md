@@ -5,4 +5,4 @@
 [Ephesians 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.7?lang=eng#p7)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^a]: TG [[Treasure]].

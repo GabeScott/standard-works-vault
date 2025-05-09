@@ -6,4 +6,4 @@
 
 
 [^a]: GR do not be anxiously concerned. Dan. 3:16; [[Acts 20.24|Acts 20:24.]]
-[^b]: [[Exodus 4.12|Ex. 4:12 (12-15)]]; [[Mark 13.11|Mark 13:11]]; [[Luke 21.15|Luke 21:15 (14-15)]]; [[D&C 24.6|D&C 24:6]]. TG [Teaching](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng).
+[^b]: [[Exodus 4.12|Ex. 4:12 (12-15)]]; [[Mark 13.11|Mark 13:11]]; [[Luke 21.15|Luke 21:15 (14-15)]]; [[D&C 24.6|D&C 24:6]]. TG [[Teaching with the Spirit]].

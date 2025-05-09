@@ -6,4 +6,4 @@
 
 
 [^a]: OR Prove yourselves by performing a miracle.
-[^b]: TG [Sign Seekers.](https://www.churchofjesuschrist.org/study/scriptures/tg/sign-seekers?lang=eng)
+[^b]: TG [[Sign Seekers]].

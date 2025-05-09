@@ -5,5 +5,5 @@
 [Proverbs 10:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.17?lang=eng#p17)
 
 
-[^a]: TG [Teachable.](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng)
-[^b]: TG [Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng); [Reproof.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproof?lang=eng)
+[^a]: TG [[Teachable]].
+[^b]: TG [[Chastening]]; [[Reproof, Reprove]].

@@ -5,7 +5,7 @@
 [1 Corinthians 16:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/16.13?lang=eng#p13)
 
 
-[^a]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
+[^a]: TG [[Watch, Watchfulness]].
 [^b]: Philip. 4:1 (1-7).
 [^c]: [[D&C 9.14|D&C 9:14.]]
 [^d]: GR behave like men.

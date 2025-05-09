@@ -5,4 +5,4 @@
 [Psalms 116:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/116.11?lang=eng#p11)
 
 
-[^a]: TG [Rashness.](https://www.churchofjesuschrist.org/study/scriptures/tg/rashness?lang=eng)
+[^a]: TG [[Rashness]].

@@ -6,8 +6,8 @@
 
 
 [^a]: [[Moses 1.12|Moses 1:12.]]
-[^b]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
-[^c]: [[2 Nephi 2.18|2 Ne. 2:18]]; [[D&C 10.25|D&C 10:25]]. TG [Honesty](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng); [Lying](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng).
-[^d]: 1 Thes. 3:5; [[D&C 29.39|D&C 29:39 (39-40, 47)]]. TG [Deceit](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng).
-[^e]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
-[^f]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^b]: TG [[Devil, Church of]].
+[^c]: [[2 Nephi 2.18|2 Ne. 2:18]]; [[D&C 10.25|D&C 10:25]]. TG [[Honesty]]; [[Lying, Liar, Lie]].
+[^d]: 1 Thes. 3:5; [[D&C 29.39|D&C 29:39 (39-40, 47)]]. TG [[Deceit, Deceive]].
+[^e]: TG [[Bondage, Spiritual]].
+[^f]: TG [[Disobedience, Disobey]].

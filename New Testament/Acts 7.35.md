@@ -5,4 +5,4 @@
 [Acts 7:35](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.35?lang=eng#p35)
 
 
-[^a]: TG [Deliver](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng); [Jesus Christ, Savior](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng); [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^a]: TG [[Deliver, Deliverance]]; [[Jesus Christ, Savior]]; [[Salvation for the Dead]].

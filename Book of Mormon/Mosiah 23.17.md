@@ -5,5 +5,5 @@
 [Mosiah 23:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Priesthood, Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng)
+[^a]: TG [[Priesthood, Authority]].
 [^b]: [[Leviticus 16.32|Lev. 16:32]]; [[2 Nephi 5.26|2 Ne. 5:26.]]

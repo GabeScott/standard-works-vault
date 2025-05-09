@@ -7,4 +7,4 @@
 
 [^a]: [[Revelation 9.4|Rev. 9:4.]]
 [^b]: [[Revelation 22.4|Rev. 22:4 (1-5).]]
-[^c]: TG [High Priest, Melchizedek Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/high-priest-melchizedek-priesthood?lang=eng); [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
+[^c]: TG [[High Priest, Melchizedek Priesthood]]; [[Servant]].

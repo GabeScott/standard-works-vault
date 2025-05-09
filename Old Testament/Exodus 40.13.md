@@ -5,4 +5,4 @@
 [Exodus 40:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.13?lang=eng#p13)
 
 
-[^a]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
+[^a]: TG [[Called of God]].

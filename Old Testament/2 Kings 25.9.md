@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 64.11|Isa. 64:11]]; [[Jeremiah 39.8|Jer. 39:8]]; [[Jeremiah 52.13|52:13]]; [[Ezekiel 16.41|Ezek. 16:41.]]
-[^b]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^b]: TG [[Genealogy and Temple Work]].
 [^c]: [[Psalms 79.1|Ps. 79:1]]; [[Hosea 8.14|Hosea 8:14.]]

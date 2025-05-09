@@ -7,4 +7,4 @@
 
 [^a]: HEB shofar, or ram’s horn.
 [^b]: [[Joel 3.17|Joel 3:17]]; [[2 Nephi 12.3|2 Ne. 12:3 (2-4)]]; [[2 Nephi 30.15|30:15 (12-18).]]
-[^c]: TG [Day of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/day-of-the-lord?lang=eng)
+[^c]: TG [[Day of the Lord]].

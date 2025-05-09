@@ -5,5 +5,5 @@
 [Moses 3:10](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.10?lang=eng#p10)
 
 
-[^a]: TG [Eden.](https://www.churchofjesuschrist.org/study/scriptures/tg/eden?lang=eng)
+[^a]: TG [[Eden]].
 [^b]: [[Genesis 2.10|Gen. 2:10.]]

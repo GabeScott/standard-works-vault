@@ -5,5 +5,5 @@
 [Revelation 21:22](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/21.22?lang=eng#p22)
 
 
-[^a]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
-[^b]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^a]: TG [[God, Power of]].
+[^b]: TG [[Genealogy and Temple Work]].

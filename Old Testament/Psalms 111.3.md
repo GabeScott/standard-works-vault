@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Chronicles 16.12|1 Chr. 16:12.]]
-[^b]: TG [Honor.](https://www.churchofjesuschrist.org/study/scriptures/tg/honor?lang=eng)
+[^b]: TG [[Honorable]].

@@ -5,8 +5,8 @@
 [Jacob 4:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/4?lang=eng&id=p13#p13)
 
 
-[^a]: TG [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
-[^b]: [[John 17.17|John 17:17]]. TG [Honesty](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng).
+[^a]: TG [[Holy Ghost, Mission of]].
+[^b]: [[John 17.17|John 17:17]]. TG [[Honesty]].
 [^c]: [[D&C 93.24|D&C 93:24.]]
 [^d]: [[Nehemiah 8.8|Neh. 8:8]]; [[Jacob 2.11|Jacob 2:11]]; [[Alma 13.23|Alma 13:23.]]
-[^e]: TG [Witness of the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness-of-the-father?lang=eng)
+[^e]: TG [[Witness of the Father]].

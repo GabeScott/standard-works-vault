@@ -5,4 +5,4 @@
 [Luke 9:20](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.20?lang=eng#p20)
 
 
-[^a]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^a]: TG [[Testimony]].

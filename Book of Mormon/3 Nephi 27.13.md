@@ -5,5 +5,5 @@
 [3 Nephi 27:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p13#p13)
 
 
-[^a]: [[Acts 10.36|Acts 10:36 (36-40)]]; [[D&C 76.40|D&C 76:40 (40-42)]]. TG [Gospel](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng).
-[^b]: [[John 6.39|John 6:39]]. TG [Jesus Christ, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng).
+[^a]: [[Acts 10.36|Acts 10:36 (36-40)]]; [[D&C 76.40|D&C 76:40 (40-42)]]. TG [[Gospel]].
+[^b]: [[John 6.39|John 6:39]]. TG [[Jesus Christ, Mission of]].

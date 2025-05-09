@@ -5,5 +5,5 @@
 [Matthew 23:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.2?lang=eng#p2)
 
 
-[^a]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Scribe]].
 [^b]: The Greek word connotes a chair of judgment and instruction.

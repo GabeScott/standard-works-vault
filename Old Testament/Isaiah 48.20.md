@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 52.11|Isa. 52:11.]]
-[^b]: TG [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
+[^b]: TG [[Israel, Bondage of, in Other Lands]].

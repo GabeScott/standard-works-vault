@@ -5,4 +5,4 @@
 [Psalms 50:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.3?lang=eng#p3)
 
 
-[^a]: TG [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
+[^a]: TG [[World, End of]].

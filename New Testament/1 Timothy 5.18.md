@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 25.4|Deut. 25:4.]]
-[^b]: TG [Labor.](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
-[^c]: GR wage. TG [Wages](https://www.churchofjesuschrist.org/study/scriptures/tg/wages?lang=eng).
+[^b]: TG [[Labor]].
+[^c]: GR wage. TG [[Wages]].

@@ -7,5 +7,5 @@
 
 [^a]: [[Exodus 6.7|Ex. 6:7.]]
 [^b]: [[Haggai 2.5|Hag. 2:5.]]
-[^c]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^c]: TG [[God, Presence of]].
 [^d]: [[Ezekiel 34.24|Ezek. 34:24 (20-31).]]

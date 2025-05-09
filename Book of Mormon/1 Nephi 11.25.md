@@ -7,6 +7,6 @@
 
 [^a]: [[Revelation 2.27|Rev. 2:27]]; JST [[Revelation 2.27|Rev. 2:27]] (Bible Appendix).
 [^b]: [[1 Nephi 8.19|1 Ne. 8:19.]]
-[^c]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
-[^d]: TG [Living Water.](https://www.churchofjesuschrist.org/study/scriptures/tg/living-water?lang=eng)
+[^c]: TG [[Guidance, Divine]].
+[^d]: TG [[Living Water]].
 [^e]: [[Genesis 2.9|Gen. 2:9]]; [[Proverbs 11.30|Prov. 11:30 (22-30)]]; [[Moses 4.28|Moses 4:28 (28, 31).]]

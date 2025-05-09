@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 10.7|1 Ne. 10:7]]; [[1 Nephi 11.27|11:27.]]
-[^b]: TG [Jesus Christ, Lamb of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lamb-of-god?lang=eng)
+[^b]: TG [[Jesus Christ, Lamb of God]].

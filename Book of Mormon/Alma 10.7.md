@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 8.20|Alma 8:20.]]
 [^b]: [[Alma 5.46|Alma 5:46]]; [[Alma 6.6|6:6.]]
-[^c]: [[Acts 10.30|Acts 10:30 (30-35)]]. TG [Hospitality](https://www.churchofjesuschrist.org/study/scriptures/tg/hospitality?lang=eng).
+[^c]: [[Acts 10.30|Acts 10:30 (30-35)]]. TG [[Hospitality]].

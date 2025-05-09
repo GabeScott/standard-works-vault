@@ -5,6 +5,6 @@
 [Proverbs 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.9?lang=eng#p9)
 
 
-[^a]: TG [Honor.](https://www.churchofjesuschrist.org/study/scriptures/tg/honor?lang=eng)
-[^b]: TG [Tithing.](https://www.churchofjesuschrist.org/study/scriptures/tg/tithing?lang=eng)
+[^a]: TG [[Honorable]].
+[^b]: TG [[Tithing]].
 [^c]: [[Exodus 22.29|Ex. 22:29.]]

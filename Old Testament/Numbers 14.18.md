@@ -5,4 +5,4 @@
 [Numbers 14:18](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.18?lang=eng#p18)
 
 
-[^b]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^b]: TG [[Forgive, Forgiveness]].

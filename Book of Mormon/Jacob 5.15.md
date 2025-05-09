@@ -5,4 +5,4 @@
 [Jacob 5:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p15#p15)
 
 
-[^a]: TG [Millennium, Preparing a People for.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium-preparing-a-people-for?lang=eng)
+[^a]: TG [[Millennium, Preparing a People for]].

@@ -5,4 +5,4 @@
 [Mark 9:22](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.22?lang=eng#p22)
 
 
-[^a]: TG [Compassion.](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
+[^a]: TG [[Compassion]].

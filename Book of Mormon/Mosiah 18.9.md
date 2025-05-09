@@ -5,7 +5,7 @@
 [Mosiah 18:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Baptism, Qualifications for.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng)
-[^b]: TG [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng); [Compassion.](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
-[^c]: TG [Missionary Work](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng); [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
+[^a]: TG [[Baptism, Qualifications for]].
+[^b]: TG [[Holy Ghost, Comforter]]; [[Compassion]].
+[^c]: TG [[Missionary Work]]; [[Witness, Witnesses]].
 [^d]: [[Jacob 4.11|Jacob 4:11.]]

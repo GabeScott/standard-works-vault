@@ -5,4 +5,4 @@
 [Alma 7:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p27#p27)
 
 
-[^a]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^a]: TG [[Peace of God]].

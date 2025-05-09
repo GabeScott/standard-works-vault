@@ -5,4 +5,4 @@
 [Jacob 5:68](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p68#p68)
 
 
-[^a]: TG [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^a]: TG [[Israel, Mission of]].

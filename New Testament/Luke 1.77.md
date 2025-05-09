@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 11.52|Luke 11:52.]]
-[^b]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^b]: TG [[Remission of Sins]].

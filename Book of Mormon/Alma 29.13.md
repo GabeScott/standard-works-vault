@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 5.3|Alma 5:3.]]
-[^b]: TG [Preaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
+[^b]: TG [[Preaching, Preach]].

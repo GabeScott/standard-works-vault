@@ -6,7 +6,7 @@
 
 
 [^a]: [[Isaiah 53.7|Isa. 53:7]]; [[Mosiah 14.7|Mosiah 14:7]]; [[D&C 135.4|D&C 135:4.]]
-[^b]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
-[^c]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^b]: TG [[Persecution, Persecute]].
+[^c]: TG [[Prophets, Rejection of]].
 [^d]: Lam. 3:62 (60-62).
 [^e]: [[Psalms 83.4|Ps. 83:4]]; [[1 Nephi 1.20|1 Ne. 1:20.]]

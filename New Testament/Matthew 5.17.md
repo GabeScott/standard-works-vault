@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 10.52|D&C 10:52 (52, 54).]]
-[^b]: TG [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
+[^b]: TG [[Law of Moses]].

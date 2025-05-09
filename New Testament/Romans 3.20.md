@@ -6,6 +6,6 @@
 
 
 [^a]: [[2 Nephi 25.23|2 Ne. 25:23.]]
-[^b]: TG [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
+[^b]: TG [[Law of Moses]].
 [^c]: [[2 Nephi 2.5|2 Ne. 2:5 (5-8).]]
 [^d]: GR through.

@@ -5,5 +5,5 @@
 [Romans 6:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.15?lang=eng#p15)
 
 
-[^a]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: TG [[Grace]].
 [^b]: GR May it not be!

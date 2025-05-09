@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 18.24|Mosiah 18:24 (24, 26)]]; Alma 1:3, 26.
-[^b]: TG [Work, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng)
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^b]: TG [[Work, Value of]].
+[^c]: TG [[Grace]].

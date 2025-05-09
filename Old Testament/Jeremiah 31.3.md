@@ -6,6 +6,6 @@
 
 
 [^a]: HEB from afar.
-[^b]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
-[^c]: TG [God, Love of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng)
+[^b]: TG [[Love]].
+[^c]: TG [[God, Love of]].
 [^d]: IE to me.

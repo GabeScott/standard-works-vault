@@ -7,4 +7,4 @@
 
 [^a]: [[2 Kings 24.14|2 Kgs. 24:14.]]
 [^b]: [[1 Chronicles 28.3|1 Chr. 28:3.]]
-[^c]: TG [Prudence.](https://www.churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
+[^c]: TG [[Prudence, Prudent]].

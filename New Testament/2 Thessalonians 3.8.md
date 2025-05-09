@@ -6,4 +6,4 @@
 
 
 [^a]: GR undeservedly, gratuitously.
-[^b]: TG [Work, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng)
+[^b]: TG [[Work, Value of]].

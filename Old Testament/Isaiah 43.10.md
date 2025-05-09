@@ -6,6 +6,6 @@
 
 
 [^a]: IE Israel.
-[^b]: TG [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^b]: TG [[Israel, Mission of]].
 [^c]: [[Haggai 2.23|Hag. 2:23.]]
-[^d]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^d]: TG [[Faith]].

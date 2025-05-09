@@ -5,4 +5,4 @@
 [Psalms 62:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/62.8?lang=eng#p8)
 
 
-[^a]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Trust in God]].

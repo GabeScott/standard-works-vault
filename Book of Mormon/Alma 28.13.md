@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 17.35|1 Ne. 17:35.]]
-[^b]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^b]: TG [[Transgressor]].
 [^c]: [[2 Nephi 9.28|2 Ne. 9:28.]]

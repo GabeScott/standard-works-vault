@@ -5,4 +5,4 @@
 [2 Nephi 29:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/29?lang=eng&id=p3#p3)
 
 
-[^a]: [[1 Nephi 13.24|1 Ne. 13:24 (23-24)]]. TG [Bible](https://www.churchofjesuschrist.org/study/scriptures/tg/bible?lang=eng); [Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-mormon?lang=eng).
+[^a]: [[1 Nephi 13.24|1 Ne. 13:24 (23-24)]]. TG [[Bible]]; [[Book of Mormon]].

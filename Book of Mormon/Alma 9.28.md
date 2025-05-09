@@ -5,7 +5,7 @@
 [Alma 9:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p28#p28)
 
 
-[^a]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^a]: TG [[Reward]].
 [^b]: [[Job 34.11|Job 34:11]]; [[D&C 1.10|D&C 1:10]]; [[D&C 6.33|6:33.]]
 [^c]: [[Psalms 7.16|Ps. 7:16.]]
-[^d]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^d]: TG [[Damnation, Damned]].

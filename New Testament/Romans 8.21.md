@@ -6,6 +6,6 @@
 
 
 [^a]: GR creation, material universe.
-[^b]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^b]: TG [[Deliver, Deliverance]].
 [^c]: [[1 Corinthians 15.42|1 Cor. 15:42.]]
-[^d]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^d]: TG [[Liberty]].

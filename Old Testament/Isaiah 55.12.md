@@ -5,5 +5,5 @@
 [Isaiah 55:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.12?lang=eng#p12)
 
 
-[^a]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Joy]].
 [^b]: [[1 Chronicles 16.33|1 Chr. 16:33 (31-33)]]; [[D&C 128.23|D&C 128:23 (22-23).]]

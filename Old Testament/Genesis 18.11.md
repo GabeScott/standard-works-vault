@@ -5,5 +5,5 @@
 [Genesis 18:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.11?lang=eng#p11)
 
 
-[^a]: TG [Old Age.](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
-[^b]: TG [Barren.](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng)
+[^a]: TG [[Old Age]].
+[^b]: TG [[Barren, Barrenness]].

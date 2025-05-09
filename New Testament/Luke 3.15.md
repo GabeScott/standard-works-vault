@@ -5,5 +5,5 @@
 [Luke 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.15?lang=eng#p15)
 
 
-[^a]: TG [Meditation.](https://www.churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng)
+[^a]: TG [[Meditation, Meditate]].
 [^b]: [[John 1.19|John 1:19 (19-27).]]

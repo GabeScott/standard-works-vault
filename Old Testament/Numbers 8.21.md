@@ -5,4 +5,4 @@
 [Numbers 8:21](https://www.churchofjesuschrist.org/study/scriptures/ot/num/8.21?lang=eng#p21)
 
 
-[^a]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^a]: TG [[Purification, Purify, Purifying]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ezekiel 5.7|Ezek. 5:7.]]
-[^b]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
-[^c]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^b]: TG [[Apostasy of Israel]].
+[^c]: TG [[Heathen]].

@@ -5,7 +5,7 @@
 [Ezekiel 37:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.12?lang=eng#p12)
 
 
-[^a]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
-[^b]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
-[^c]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[Jesus Christ, Prophecies about]].
+[^b]: TG [[Jesus Christ, Resurrection]].
+[^c]: TG [[Israel, Gathering of]].
 [^d]: [[Ezekiel 36.28|Ezek. 36:28 (24-28).]]

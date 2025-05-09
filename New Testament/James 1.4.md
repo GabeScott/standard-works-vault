@@ -5,4 +5,4 @@
 [James 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.4?lang=eng#p4)
 
 
-[^a]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
+[^a]: TG [[Perfection, Perfect, Perfectly]].

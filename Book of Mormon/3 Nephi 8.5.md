@@ -6,4 +6,4 @@
 
 
 [^a]: [[Helaman 14.20|Hel. 14:20 (20-27)]]; [[3 Nephi 11.2|3 Ne. 11:2.]]
-[^b]: TG [Jesus Christ, Crucifixion of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng); [Jesus Christ, Death of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
+[^b]: TG [[Jesus Christ, Crucifixion of]]; [[Jesus Christ, Death of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Micah 3.6|Micah 3:6.]]
-[^b]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^b]: TG [[Sorcery]].

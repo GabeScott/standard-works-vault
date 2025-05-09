@@ -5,9 +5,9 @@
 [Joseph Smith History 1:28](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.28?lang=eng#p28)
 
 
-[^a]: TG [Friendship.](https://www.churchofjesuschrist.org/study/scriptures/tg/friendship?lang=eng)
-[^b]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
+[^a]: TG [[Friendship, Friend]].
+[^b]: TG [[Temptation]].
 [^c]: [[Psalms 25.7|Ps. 25:7]]; [[D&C 20.5|D&C 20:5.]]
-[^d]: TG [Levity.](https://www.churchofjesuschrist.org/study/scriptures/tg/levity?lang=eng)
-[^e]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
-[^f]: TG [Cheerful.](https://www.churchofjesuschrist.org/study/scriptures/tg/cheerful?lang=eng)
+[^d]: TG [[Levity]].
+[^e]: TG [[Called of God]].
+[^f]: TG [[Cheerful, Cheerfulness]].

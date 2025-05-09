@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 19.27|Lev. 19:27]]; [[Ezekiel 44.20|Ezek. 44:20.]]
-[^b]: TG [Body, Sanctity of.](https://www.churchofjesuschrist.org/study/scriptures/tg/body-sanctity-of?lang=eng)
+[^b]: TG [[Body, Sanctity of]].

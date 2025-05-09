@@ -5,4 +5,4 @@
 [Matthew 20:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.2?lang=eng#p2)
 
 
-[^a]: TG [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
+[^a]: TG [[Vineyard of the Lord]].

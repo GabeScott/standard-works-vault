@@ -5,4 +5,4 @@
 [John 8:6](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.6?lang=eng#p6)
 
 
-[^a]: TG [Jesus Christ, Teaching Mode of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-teaching-mode-of?lang=eng)
+[^a]: TG [[Jesus Christ, Teaching Mode of]].

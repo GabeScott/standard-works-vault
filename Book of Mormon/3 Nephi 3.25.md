@@ -5,4 +5,4 @@
 [3 Nephi 3:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/3?lang=eng&id=p25#p25)
 
 
-[^a]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Trust in God]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 7.24|Alma 7:24.]]
-[^b]: TG [God, the Standard of Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-standard-of-righteousness?lang=eng)
+[^b]: TG [[God, the Standard of Righteousness]].

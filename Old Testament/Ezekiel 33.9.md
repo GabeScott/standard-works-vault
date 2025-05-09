@@ -5,5 +5,5 @@
 [Ezekiel 33:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.9?lang=eng#p9)
 
 
-[^a]: TG [Priesthood, Magnifying Callings within](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng); [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
+[^a]: TG [[Priesthood, Magnifying Callings within]]; [[Prophets, Mission of]].
 [^b]: [[1 Nephi 10.21|1 Ne. 10:21.]]

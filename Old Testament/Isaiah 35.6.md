@@ -6,4 +6,4 @@
 
 
 [^a]: OR deer.
-[^b]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^b]: TG [[Singing, Sing, Sang, Sung]].

@@ -5,5 +5,5 @@
 [Isaiah 9:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.17?lang=eng#p17)
 
 
-[^a]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^a]: TG [[Hypocrisy, Hypocrite]].
 [^b]: [[Proverbs 26.25|Prov. 26:25.]]

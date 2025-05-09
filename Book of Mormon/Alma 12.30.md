@@ -6,6 +6,6 @@
 
 
 [^a]: [[Moses 1.1|Moses 1:1]]; [[Moses 5.4|5:4 (4-5)]]; [[Moses 6.51|6:51 (4, 51-68).]]
-[^b]: TG [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
+[^b]: TG [[Salvation, Plan of]].
 [^c]: [[Genesis 2.16|Gen. 2:16 (16-17)]]; [[Mosiah 18.13|Mosiah 18:13]]; [[Alma 13.3|Alma 13:3 (3, 5, 7-8)]]; [[Abraham 3.26|Abr. 3:26 (24-26).]]
 [^d]: [[Luke 8.15|Luke 8:15 (14-15).]]

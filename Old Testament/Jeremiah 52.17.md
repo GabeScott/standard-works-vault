@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 27.19|Jer. 27:19 (16-22).]]
-[^b]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^b]: TG [[Genealogy and Temple Work]].

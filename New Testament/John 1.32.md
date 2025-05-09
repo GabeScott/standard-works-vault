@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 93.11|D&C 93:11.]]
-[^b]: TG [Jesus Christ, Baptism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-baptism-of?lang=eng)
-[^c]: TG [Holy Ghost, Dove, Sign of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-dove-sign-of?lang=eng)
+[^b]: TG [[Jesus Christ, Baptism of]].
+[^c]: TG [[Holy Ghost, Dove, Sign of]].

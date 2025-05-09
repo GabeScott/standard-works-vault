@@ -5,5 +5,5 @@
 [Matthew 26:40](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.40?lang=eng#p40)
 
 
-[^a]: TG [Sleep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sleep?lang=eng)
+[^a]: TG [[Sleep, Slept]].
 [^b]: GR are you so powerless that you could not stay awake with me …

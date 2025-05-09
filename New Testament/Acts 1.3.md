@@ -5,6 +5,6 @@
 [Acts 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.3?lang=eng#p3)
 
 
-[^a]: TG [Jesus Christ, Appearances, Postmortal](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-postmortal?lang=eng); [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
+[^a]: TG [[Jesus Christ, Appearances, Postmortal]]; [[Jesus Christ, Resurrection]].
 [^b]: GR suffering. JST Acts 1:3 … sufferings …
 [^c]: [[D&C 100.11|D&C 100:11.]]

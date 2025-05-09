@@ -5,6 +5,6 @@
 [Exodus 13:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/13.21?lang=eng#p21)
 
 
-[^b]: [[Exodus 24.15|Ex. 24:15]]; [[Exodus 40.34|40:34]]; [[Numbers 9.15|Num. 9:15]]; [[Psalms 78.14|Ps. 78:14]]; [[Psalms 105.39|105:39]]; [[Ether 2.5|Ether 2:5]]. TG [God, Presence of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng); [Protection, Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng).
-[^c]: [[Exodus 32.1|Ex. 32:1]]; [[D&C 103.17|D&C 103:17 (15-34)]]. TG [Guidance, Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng).
+[^b]: [[Exodus 24.15|Ex. 24:15]]; [[Exodus 40.34|40:34]]; [[Numbers 9.15|Num. 9:15]]; [[Psalms 78.14|Ps. 78:14]]; [[Psalms 105.39|105:39]]; [[Ether 2.5|Ether 2:5]]. TG [[God, Presence of]]; [[Protection, Divine]].
+[^c]: [[Exodus 32.1|Ex. 32:1]]; [[D&C 103.17|D&C 103:17 (15-34)]]. TG [[Guidance, Divine]].
 [^d]: [[Nehemiah 9.12|Neh. 9:12.]]

@@ -6,9 +6,9 @@
 
 
 [^a]: HEB tent of meeting.
-[^b]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^b]: TG [[Apostasy of the Early Christian Church]].
 [^c]: OR outside of the veil.
-[^d]: TG [Veil.](https://www.churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng)
+[^d]: TG [[Veil]].
 [^e]: [[Exodus 30.8|Ex. 30:8 (7-8)]]; [[D&C 27.8|D&C 27:8]]; [[D&C 84.34|84:34 (30-34)]]; [[D&C 107.13|107:13.]]
 [^f]: OR keep it in order.
 [^g]: [[Exodus 28.43|Ex. 28:43 (40-43)]]; 29:9, 28.

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 134.3|Ps. 134:3.]]
-[^b]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^b]: TG [[Zion, Sion]].

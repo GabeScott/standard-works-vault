@@ -6,4 +6,4 @@
 
 
 [^a]: JST Matt. 6:25-27 (Appendix).
-[^b]: GR anxious concern. Ps. 55:22; [[Proverbs 16.3|Prov. 16:3]]; [[Luke 12.22|Luke 12:22]]; Philip. 4:6; [[3 Nephi 13.25|3 Ne. 13:25]]; [[D&C 84.81|D&C 84:81]]. TG [Self-Sacrifice](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng).
+[^b]: GR anxious concern. Ps. 55:22; [[Proverbs 16.3|Prov. 16:3]]; [[Luke 12.22|Luke 12:22]]; Philip. 4:6; [[3 Nephi 13.25|3 Ne. 13:25]]; [[D&C 84.81|D&C 84:81]]. TG [[Self-Sacrifice]].

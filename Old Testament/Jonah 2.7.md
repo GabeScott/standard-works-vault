@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 107.6|Ps. 107:6 (5-6)]]; [[Helaman 12.3|Hel. 12:3.]]
-[^b]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^b]: TG [[Prayer, Pray]].
 [^c]: [[Psalms 18.6|Ps. 18:6.]]

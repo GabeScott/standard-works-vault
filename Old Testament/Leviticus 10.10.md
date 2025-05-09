@@ -6,6 +6,6 @@
 
 
 [^a]: HEB to distinguish between the holy and the profane, and between the impure and the pure. Ezek. 22:26; 44:23.
-[^b]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
-[^c]: TG [Uncleanness.](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng)
+[^b]: TG [[Holiness]].
+[^c]: TG [[Uncleanness, Unclean]].
 [^d]: [[3 Nephi 20.41|3 Ne. 20:41.]]

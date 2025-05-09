@@ -5,4 +5,4 @@
 [1 Chronicles 27:32](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/27.32?lang=eng#p32)
 
 
-[^a]: TG [Counselor.](https://www.churchofjesuschrist.org/study/scriptures/tg/counselor?lang=eng)
+[^a]: TG [[Counselor]].

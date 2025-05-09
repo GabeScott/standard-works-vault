@@ -5,4 +5,4 @@
 [Micah 5:12](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/5.12?lang=eng#p12)
 
 
-[^a]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^a]: TG [[Sorcery]].

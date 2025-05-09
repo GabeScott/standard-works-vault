@@ -5,5 +5,5 @@
 [Revelation 22:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.14?lang=eng#p14)
 
 
-[^a]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
-[^b]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
+[^a]: TG [[Obedience, Obedient, Obey]].
+[^b]: TG [[Good Works]].

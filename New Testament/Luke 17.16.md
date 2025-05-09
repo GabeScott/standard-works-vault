@@ -5,4 +5,4 @@
 [Luke 17:16](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.16?lang=eng#p16)
 
 
-[^a]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^a]: TG [[Thanksgiving]].

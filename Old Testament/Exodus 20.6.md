@@ -5,5 +5,5 @@
 [Exodus 20:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.6?lang=eng#p6)
 
 
-[^a]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
-[^b]: TG [Commandments of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)
+[^a]: TG [[God, Mercy of]].
+[^b]: TG [[Commandments of God]].

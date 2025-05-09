@@ -6,4 +6,4 @@
 
 
 [^a]: GR wish.
-[^b]: TG [Prophecy.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
+[^b]: TG [[Prophecy]].

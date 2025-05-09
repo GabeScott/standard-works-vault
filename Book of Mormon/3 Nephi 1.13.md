@@ -7,4 +7,4 @@
 
 [^a]: [[Matthew 2.2|Matt. 2:2.]]
 [^b]: [[Luke 2.11|Luke 2:11 (10-11).]]
-[^c]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^c]: TG [[Jesus Christ, Prophecies about]].

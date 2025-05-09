@@ -5,7 +5,7 @@
 [2 Timothy 3:2](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.2?lang=eng#p2)
 
 
-[^a]: TG [Covet.](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
-[^b]: TG [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
-[^c]: TG [Contention](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng); [Disobedience](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng); [Family, Children, Duties of.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-duties-of?lang=eng)
-[^d]: TG [Ingratitude.](https://www.churchofjesuschrist.org/study/scriptures/tg/ingratitude?lang=eng)
+[^a]: TG [[Covet, Covetousness]].
+[^b]: TG [[Pride]].
+[^c]: TG [[Contention]]; [[Disobedience, Disobey]]; [[Family, Children, Duties of]].
+[^d]: TG [[Ingratitude]].

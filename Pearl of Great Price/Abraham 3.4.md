@@ -8,4 +8,4 @@
 [^a]: Dan. 2:21.
 [^b]: [[Abraham 5.13|Abr. 5:13.]]
 [^c]: [[Psalms 90.4|Ps. 90:4]]; 2 Pet. 3:8.
-[^d]: TG [Time.](https://www.churchofjesuschrist.org/study/scriptures/tg/time?lang=eng)
+[^d]: TG [[Time]].

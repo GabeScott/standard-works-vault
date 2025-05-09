@@ -5,4 +5,4 @@
 [John 1:34](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.34?lang=eng#p34)
 
 
-[^a]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^a]: TG [[Testimony]].

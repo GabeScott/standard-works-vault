@@ -5,7 +5,7 @@
 [Mosiah 4:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p30#p30)
 
 
-[^a]: [[Deuteronomy 4.9|Deut. 4:9]]; [[Alma 12.14|Alma 12:14]]. TG [Watch](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng).
+[^a]: [[Deuteronomy 4.9|Deut. 4:9]]; [[Alma 12.14|Alma 12:14]]. TG [[Watch, Watchfulness]].
 [^b]: [[Matthew 5.28|Matt. 5:28 (27-28)]]; [[Mark 7.23|Mark 7:23 (15-23).]]
-[^c]: [[Matthew 15.18|Matt. 15:18 (18-20)]]. TG [Gossip](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng).
-[^d]: TG [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
+[^c]: [[Matthew 15.18|Matt. 15:18 (18-20)]]. TG [[Gossip]].
+[^d]: TG [[Steadfastness, Steadfast]].

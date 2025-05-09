@@ -7,4 +7,4 @@
 
 [^a]: Zeph. 2:7; 3:20.
 [^b]: [[Jeremiah 12.15|Jer. 12:15.]]
-[^c]: [[Nehemiah 1.9|Neh. 1:9]]; [[Psalms 147.2|Ps. 147:2]]; [[Ezekiel 20.34|Ezek. 20:34]]; [[D&C 33.6|D&C 33:6]]; [[D&C 45.69|45:69]]; [[D&C 101.13|101:13]]. TG [Israel, Gathering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng).
+[^c]: [[Nehemiah 1.9|Neh. 1:9]]; [[Psalms 147.2|Ps. 147:2]]; [[Ezekiel 20.34|Ezek. 20:34]]; [[D&C 33.6|D&C 33:6]]; [[D&C 45.69|45:69]]; [[D&C 101.13|101:13]]. TG [[Israel, Gathering of]].

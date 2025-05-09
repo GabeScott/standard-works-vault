@@ -5,5 +5,5 @@
 [Psalms 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/10.1?lang=eng#p1)
 
 
-[^a]: TG [Despair.](https://www.churchofjesuschrist.org/study/scriptures/tg/despair?lang=eng)
+[^a]: TG [[Despair]].
 [^b]: [[Proverbs 15.29|Prov. 15:29]]; [[Mosiah 11.24|Mosiah 11:24 (23-24)]]; [[D&C 101.7|D&C 101:7.]]

@@ -7,5 +7,5 @@
 
 [^a]: GR was advancing.
 [^b]: GR men of my age.
-[^c]: TG [Zeal.](https://www.churchofjesuschrist.org/study/scriptures/tg/zeal?lang=eng)
-[^d]: TG [Traditions of Men.](https://www.churchofjesuschrist.org/study/scriptures/tg/traditions-of-men?lang=eng)
+[^c]: TG [[Zeal, Zealous]].
+[^d]: TG [[Traditions of Men]].

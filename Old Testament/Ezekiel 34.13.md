@@ -5,6 +5,6 @@
 [Ezekiel 34:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.13?lang=eng#p13)
 
 
-[^a]: [[Ezekiel 38.8|Ezek. 38:8]]. TG [Millennium, Preparing a People for](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium-preparing-a-people-for?lang=eng).
+[^a]: [[Ezekiel 38.8|Ezek. 38:8]]. TG [[Millennium, Preparing a People for]].
 [^b]: [[D&C 33.6|D&C 33:6 (3-7).]]
 [^c]: [[Deuteronomy 18.9|Deut. 18:9.]]

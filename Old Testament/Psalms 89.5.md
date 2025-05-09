@@ -5,4 +5,4 @@
 [Psalms 89:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.5?lang=eng#p5)
 
 
-[^a]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 31.9|Jer. 31:9 (1, 9).]]
-[^b]: TG [Sons and Daughters of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)
-[^c]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
+[^b]: TG [[Sons and Daughters of God]].
+[^c]: TG [[God, Power of]].

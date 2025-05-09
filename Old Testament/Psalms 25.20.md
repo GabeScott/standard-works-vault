@@ -5,5 +5,5 @@
 [Psalms 25:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.20?lang=eng#p20)
 
 
-[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
-[^b]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Shame]].
+[^b]: TG [[Trust in God]].

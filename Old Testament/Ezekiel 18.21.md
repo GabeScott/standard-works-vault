@@ -5,4 +5,4 @@
 [Ezekiel 18:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/18.21?lang=eng#p21)
 
 
-[^a]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Repent, Repentance]].

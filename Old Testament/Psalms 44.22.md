@@ -6,4 +6,4 @@
 
 
 [^a]: [[Romans 8.36|Rom. 8:36.]]
-[^b]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^b]: TG [[Sheep]].

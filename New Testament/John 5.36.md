@@ -7,6 +7,6 @@
 
 [^a]: JST John 5:37 But I have a greater witness than the testimony of John …
 [^b]: GR the greater witness than John’s.
-[^c]: TG [God, Works of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-works-of?lang=eng)
+[^c]: TG [[God, Works of]].
 [^d]: [[Matthew 11.4|Matt. 11:4]]; [[John 10.25|John 10:25.]]
-[^e]: TG [Jesus Christ, Messenger of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messenger-of-the-covenant?lang=eng)
+[^e]: TG [[Jesus Christ, Messenger of the Covenant]].

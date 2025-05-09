@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 16.3|Ex. 16:3 (2-3).]]
-[^b]: TG [Carnal Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/carnal-mind?lang=eng)
+[^b]: TG [[Carnal Mind]].

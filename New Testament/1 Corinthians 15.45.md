@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 84.16|D&C 84:16.]]
-[^b]: TG [Adam.](https://www.churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng)
+[^b]: TG [[Adam]].
 [^c]: [[Romans 5.14|Rom. 5:14.]]
 [^d]: [[John 5.21|John 5:21.]]

@@ -6,6 +6,6 @@
 
 
 [^a]: JS—M 1:32.
-[^b]: TG [Abomination of Desolation.](https://www.churchofjesuschrist.org/study/scriptures/tg/abomination-of-desolation?lang=eng)
-[^c]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^b]: TG [[Abomination of Desolation]].
+[^c]: TG [[Jerusalem]].
 [^d]: [[D&C 101.22|D&C 101:22 (22-25).]]

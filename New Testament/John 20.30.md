@@ -5,5 +5,5 @@
 [John 20:30](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.30?lang=eng#p30)
 
 
-[^a]: TG [Signs.](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng)
+[^a]: TG [[Signs]].
 [^b]: [[John 21.25|John 21:25]]; [[1 Nephi 14.25|1 Ne. 14:25 (18-30)]]; [[D&C 93.6|D&C 93:6 (6, 18).]]

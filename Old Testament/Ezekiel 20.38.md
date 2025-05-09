@@ -6,6 +6,6 @@
 
 
 [^a]: [[Ezekiel 34.17|Ezek. 34:17 (17, 20, 22).]]
-[^b]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^b]: TG [[Rebellion, Rebel]].
 [^c]: [[Ezekiel 13.9|Ezek. 13:9.]]
-[^d]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^d]: TG [[Israel, Land of]].

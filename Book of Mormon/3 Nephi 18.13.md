@@ -6,5 +6,5 @@
 
 
 [^a]: [[Joshua 1.7|Josh. 1:7]]; [[D&C 3.2|D&C 3:2.]]
-[^b]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^b]: TG [[Apostasy of Individuals]].
 [^c]: [[Matthew 16.18|Matt. 16:18]]; [[3 Nephi 11.39|3 Ne. 11:39.]]

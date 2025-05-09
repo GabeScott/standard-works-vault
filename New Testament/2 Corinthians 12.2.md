@@ -7,5 +7,5 @@
 
 [^a]: GR I know a man in Christ who fourteen years ago.
 [^b]: [[D&C 137.1|D&C 137:1.]]
-[^c]: TG [Celestial Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/celestial-glory?lang=eng)
-[^d]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^c]: TG [[Celestial Glory]].
+[^d]: TG [[Man, a Spirit Child of Heavenly Father]].

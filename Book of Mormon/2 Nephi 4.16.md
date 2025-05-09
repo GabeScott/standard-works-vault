@@ -5,5 +5,5 @@
 [2 Nephi 4:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Spirituality](https://www.churchofjesuschrist.org/study/scriptures/tg/spirituality?lang=eng); [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
-[^b]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^a]: TG [[Spirituality]]; [[Thanksgiving]].
+[^b]: TG [[Heart]].

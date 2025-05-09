@@ -6,5 +6,5 @@
 
 
 [^a]: Mal. 4:5; [[3 Nephi 28.31|3 Ne. 28:31.]]
-[^b]: [[Mormon 5.23|Morm. 5:23]]; [[D&C 63.21|D&C 63:21 (20-21)]]. TG [World, End of](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng).
+[^b]: [[Mormon 5.23|Morm. 5:23]]; [[D&C 63.21|D&C 63:21 (20-21)]]. TG [[World, End of]].
 [^c]: [[Amos 9.13|Amos 9:13]]; [[3 Nephi 26.3|3 Ne. 26:3.]]

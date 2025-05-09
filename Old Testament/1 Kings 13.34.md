@@ -5,4 +5,4 @@
 [1 Kings 13:34](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/13.34?lang=eng#p34)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Apostasy of Israel]].

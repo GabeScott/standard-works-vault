@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hebrews 3.11|Heb. 3:11.]]
-[^b]: TG [God, Privilege of Seeing](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng); [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^b]: TG [[God, Privilege of Seeing]]; [[Restoration of the Gospel]].

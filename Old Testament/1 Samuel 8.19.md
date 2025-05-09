@@ -5,4 +5,4 @@
 [1 Samuel 8:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/8.19?lang=eng#p19)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].

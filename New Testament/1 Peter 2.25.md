@@ -5,6 +5,6 @@
 [1 Peter 2:25](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.25?lang=eng#p25)
 
 
-[^a]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
-[^b]: TG [Jesus Christ, Good Shepherd](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng); [Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)
-[^c]: TG [Bishop.](https://www.churchofjesuschrist.org/study/scriptures/tg/bishop?lang=eng)
+[^a]: TG [[Sheep]].
+[^b]: TG [[Jesus Christ, Good Shepherd]]; [[Shepherd]].
+[^c]: TG [[Bishop]].

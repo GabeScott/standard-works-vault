@@ -6,5 +6,5 @@
 
 
 [^a]: 2 Thes. 2:16.
-[^b]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
-[^c]: TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng); [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
+[^b]: TG [[Jesus Christ, Authority of]].
+[^c]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer]].

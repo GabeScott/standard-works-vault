@@ -6,7 +6,7 @@
 
 
 [^a]: [[Proverbs 13.24|Prov. 13:24.]]
-[^b]: TG [Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng); [Reproof.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproof?lang=eng)
-[^c]: TG [Family, Children, Responsibilities toward.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng)
-[^d]: TG [Marriage, Motherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-motherhood?lang=eng)
-[^e]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^b]: TG [[Chastening]]; [[Reproof, Reprove]].
+[^c]: TG [[Family, Children, Responsibilities toward]].
+[^d]: TG [[Marriage, Motherhood]].
+[^e]: TG [[Shame]].

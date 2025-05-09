@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jacob 5.3|Jacob 5:3 (1-77)]]; [[Jacob 6.1|6:1 (1-13).]]
-[^b]: TG [Apostasy of the Early Christian Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
+[^b]: TG [[Apostasy of the Early Christian Church]].

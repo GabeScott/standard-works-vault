@@ -5,4 +5,4 @@
 [Isaiah 56:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/56.8?lang=eng#p8)
 
 
-[^a]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[Israel, Gathering of]].

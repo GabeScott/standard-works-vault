@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 51.1|Isa. 51:1 (1-23)]]; [[2 Nephi 7.1|2 Ne. 7:1.]]
-[^b]: IE Abraham and Sarah; see v. 2. TG [Rock](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng).
+[^b]: IE Abraham and Sarah; see v. 2. TG [[Rock]].

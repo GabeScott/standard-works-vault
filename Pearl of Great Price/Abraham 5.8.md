@@ -5,4 +5,4 @@
 [Abraham 5:8](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.8?lang=eng#p8)
 
 
-[^a]: TG [Eden.](https://www.churchofjesuschrist.org/study/scriptures/tg/eden?lang=eng)
+[^a]: TG [[Eden]].

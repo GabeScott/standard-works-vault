@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 77.13|D&C 77:13.]]
-[^b]: TG [Jesus Christ, Second Coming](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng); [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
-[^c]: TG [Silence.](https://www.churchofjesuschrist.org/study/scriptures/tg/silence?lang=eng)
+[^b]: TG [[Jesus Christ, Second Coming]]; [[Sabbath]].
+[^c]: TG [[Silence, Silent]].

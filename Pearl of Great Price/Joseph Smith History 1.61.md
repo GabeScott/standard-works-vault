@@ -5,5 +5,5 @@
 [Joseph Smith History 1:61](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.61?lang=eng#p61)
 
 
-[^a]: TG [Injustice.](https://www.churchofjesuschrist.org/study/scriptures/tg/injustice?lang=eng)
+[^a]: TG [[Injustice]].
 [^b]: [[D&C 5.1|D&C 5:1 (1-32).]]

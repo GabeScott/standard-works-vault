@@ -5,4 +5,4 @@
 [Deuteronomy 28:40](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.40?lang=eng#p40)
 
 
-[^a]: TG [Anointing.](https://www.churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng)
+[^a]: TG [[Anointing, Anoint]].

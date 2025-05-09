@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 50.6|Isa. 50:6]]; [[Matthew 5.39|Matt. 5:39]]; [[3 Nephi 12.39|3 Ne. 12:39.]]
-[^b]: TG [Reproach.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproach?lang=eng)
+[^b]: TG [[Reproach]].

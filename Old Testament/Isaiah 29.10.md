@@ -6,7 +6,7 @@
 
 
 [^a]: [[Romans 11.8|Rom. 11:8 (7-8).]]
-[^b]: TG [Spiritual Blindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng)
+[^b]: TG [[Spiritual Blindness]].
 [^c]: [[2 Nephi 27.5|2 Ne. 27:5.]]
-[^d]: TG [Seer.](https://www.churchofjesuschrist.org/study/scriptures/tg/seer?lang=eng)
+[^d]: TG [[Seer]].
 [^e]: [[Micah 3.7|Micah 3:7.]]

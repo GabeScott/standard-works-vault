@@ -5,4 +5,4 @@
 [John 12:44](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.44?lang=eng#p44)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Faith]].

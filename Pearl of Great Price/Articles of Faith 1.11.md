@@ -6,6 +6,6 @@
 
 
 [^a]: [[Alma 21.22|Alma 21:22 (21-22)]]; [[D&C 93.19|D&C 93:19]]; [[D&C 134.4|134:4 (1-4).]]
-[^b]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
-[^c]: TG [Conscience.](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
-[^d]: [[Micah 4.5|Micah 4:5]]; [[D&C 134.7|D&C 134:7 (4, 7)]]. TG [Worship](https://www.churchofjesuschrist.org/study/scriptures/tg/worship?lang=eng).
+[^b]: TG [[Agency]].
+[^c]: TG [[Conscience]].
+[^d]: [[Micah 4.5|Micah 4:5]]; [[D&C 134.7|D&C 134:7 (4, 7)]]. TG [[Assembly for Worship]].

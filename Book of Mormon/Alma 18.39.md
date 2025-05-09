@@ -5,5 +5,5 @@
 [Alma 18:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p39#p39)
 
 
-[^a]: [[Alma 19.31|Alma 19:31]]. TG [Missionary Work](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng).
-[^b]: TG [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
+[^a]: [[Alma 19.31|Alma 19:31]]. TG [[Missionary Work]].
+[^b]: TG [[Salvation, Plan of]].

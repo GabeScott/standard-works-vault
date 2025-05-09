@@ -6,7 +6,7 @@
 
 
 [^a]: [[Galatians 3.29|Gal. 3:29 (26-29)]]; [[Abraham 2.10|Abr. 2:10 (9-11).]]
-[^b]: [[Matthew 8.12|Matt. 8:12]]. TG [Israel, Judah, People of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng).
+[^b]: [[Matthew 8.12|Matt. 8:12]]. TG [[Israel, Judah, People of]].
 [^c]: [[Luke 3.9|Luke 3:9 (3-9)]]; [[Romans 9.6|Rom. 9:6]]; [[Jacob 5.6|Jacob 5:6.]]
 [^d]: [[Romans 3.29|Rom. 3:29.]]
-[^e]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^e]: TG [[Repent, Repentance]].

@@ -6,4 +6,4 @@
 
 
 [^a]: Septuagint: any of their cities.
-[^b]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
+[^b]: TG [[Sickness, Sick]].

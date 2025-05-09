@@ -5,4 +5,4 @@
 [1 Nephi 16:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p25#p25)
 
 
-[^a]: [[Ether 2.14|Ether 2:14]]. TG [Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng); [Repent](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng).
+[^a]: [[Ether 2.14|Ether 2:14]]. TG [[Chastening]]; [[Repent, Repentance]].

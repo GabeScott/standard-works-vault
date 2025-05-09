@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 42.11|Ps. 42:11.]]
-[^b]: TG [Adversary](https://www.churchofjesuschrist.org/study/scriptures/tg/adversary?lang=eng); [Enemies.](https://www.churchofjesuschrist.org/study/scriptures/tg/enemies?lang=eng)
+[^b]: TG [[Adversary]]; [[Enemies, Enemy]].

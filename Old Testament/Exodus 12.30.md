@@ -5,4 +5,4 @@
 [Exodus 12:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.30?lang=eng#p30)
 
 
-[^a]: TG [Death.](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng)
+[^a]: TG [[Death]].

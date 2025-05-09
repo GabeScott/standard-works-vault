@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 45.22|Isa. 45:22]]; [[D&C 43.34|D&C 43:34.]]
-[^b]: TG [Motivations.](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng)
-[^c]: TG [Doubt.](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng)
+[^b]: TG [[Motivations]].
+[^c]: TG [[Doubt, Doubtful]].

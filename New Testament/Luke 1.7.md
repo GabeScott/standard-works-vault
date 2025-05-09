@@ -5,5 +5,5 @@
 [Luke 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.7?lang=eng#p7)
 
 
-[^a]: TG [Barren.](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng)
+[^a]: TG [[Barren, Barrenness]].
 [^b]: GR advanced.

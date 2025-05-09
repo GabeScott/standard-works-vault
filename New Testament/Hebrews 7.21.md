@@ -5,5 +5,5 @@
 [Hebrews 7:21](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.21?lang=eng#p21)
 
 
-[^a]: TG [Priesthood, Aaronic.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-aaronic?lang=eng)
-[^b]: TG [Priesthood, Oath and Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-oath-and-covenant?lang=eng)
+[^a]: TG [[Priesthood, Aaronic]].
+[^b]: TG [[Priesthood, Oath and Covenant]].

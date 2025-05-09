@@ -5,4 +5,4 @@
 [Revelation 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.9?lang=eng#p9)
 
 
-[^a]: TG [Patience.](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
+[^a]: TG [[Patience, Patient, Patiently]].

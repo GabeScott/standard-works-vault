@@ -5,4 +5,4 @@
 [Psalms 119:143](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.143?lang=eng#p143)
 
 
-[^a]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
+[^a]: TG [[Pain]].

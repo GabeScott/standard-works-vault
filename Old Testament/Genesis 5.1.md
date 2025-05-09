@@ -5,7 +5,7 @@
 [Genesis 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/5.1?lang=eng#p1)
 
 
-[^a]: [[1 Nephi 19.23|1 Ne. 19:23]]; [[3 Nephi 24.16|3 Ne. 24:16]]; [[D&C 85.9|D&C 85:9 (7-9)]]. TG [Scriptures, Writing of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng).
-[^b]: TG [Priesthood, History of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-history-of?lang=eng)
-[^c]: TG [God, Body of, Corporeal Nature.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
-[^d]: TG [Man, Physical Creation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)
+[^a]: [[1 Nephi 19.23|1 Ne. 19:23]]; [[3 Nephi 24.16|3 Ne. 24:16]]; [[D&C 85.9|D&C 85:9 (7-9)]]. TG [[Scriptures, Writing of]].
+[^b]: TG [[Priesthood, History of]].
+[^c]: TG [[God, Body of, Corporeal Nature]].
+[^d]: TG [[Man, Physical Creation of]].

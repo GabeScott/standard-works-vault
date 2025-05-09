@@ -5,4 +5,4 @@
 [Psalms 31:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.13?lang=eng#p13)
 
 
-[^a]: [[Jeremiah 20.10|Jer. 20:10]]. TG [Slander](https://www.churchofjesuschrist.org/study/scriptures/tg/slander?lang=eng).
+[^a]: [[Jeremiah 20.10|Jer. 20:10]]. TG [[Slander]].

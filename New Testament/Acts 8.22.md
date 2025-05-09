@@ -5,6 +5,6 @@
 [Acts 8:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.22?lang=eng#p22)
 
 
-[^a]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
-[^b]: TG [Motivations.](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng)
+[^a]: TG [[Wickedness, Wicked]].
+[^b]: TG [[Motivations]].
 [^c]: [[3 Nephi 12.29|3 Ne. 12:29.]]

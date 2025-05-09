@@ -6,7 +6,7 @@
 
 
 [^a]: JST Matt. 16:25-29 (Appendix).
-[^b]: TG [Self-Mastery.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
+[^b]: TG [[Self-Mastery]].
 [^c]: [[Matthew 10.38|Matt. 10:38]]; [[3 Nephi 12.30|3 Ne. 12:30.]]
 [^d]: Philip. 3:17 (13-21); [[2 Nephi 31.12|2 Ne. 31:12 (12-13).]]
 [^e]: JST Matt. 16:25-26 … me. And now for a man to take up his cross, is to deny himself all ungodliness, and every worldly lust, and keep my commandments.

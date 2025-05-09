@@ -5,6 +5,6 @@
 [3 Nephi 19:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/19?lang=eng&id=p23#p23)
 
 
-[^a]: TG [Jesus Christ, Relationships with the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
+[^a]: TG [[Jesus Christ, Relationships with the Father]].
 [^b]: [[3 Nephi 9.15|3 Ne. 9:15]]; [[3 Nephi 11.27|11:27.]]
 [^c]: [[John 17.22|John 17:22 (1-22)]]; [[1 Corinthians 6.17|1 Cor. 6:17.]]

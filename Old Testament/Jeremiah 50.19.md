@@ -5,4 +5,4 @@
 [Jeremiah 50:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.19?lang=eng#p19)
 
 
-[^a]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[Israel, Gathering of]].

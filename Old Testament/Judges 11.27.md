@@ -5,4 +5,4 @@
 [Judges 11:27](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/11.27?lang=eng#p27)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].

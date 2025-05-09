@@ -5,4 +5,4 @@
 [Numbers 8:14](https://www.churchofjesuschrist.org/study/scriptures/ot/num/8.14?lang=eng#p14)
 
 
-[^a]: TG [Setting Apart.](https://www.churchofjesuschrist.org/study/scriptures/tg/setting-apart?lang=eng)
+[^a]: TG [[Setting Apart]].

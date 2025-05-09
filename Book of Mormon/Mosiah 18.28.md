@@ -5,4 +5,4 @@
 [Mosiah 18:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p28#p28)
 
 
-[^a]: TG [Generosity](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng); [Initiative.](https://www.churchofjesuschrist.org/study/scriptures/tg/initiative?lang=eng)
+[^a]: TG [[Generosity]]; [[Initiative]].

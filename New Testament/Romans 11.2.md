@@ -5,7 +5,7 @@
 [Romans 11:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/11.2?lang=eng#p2)
 
 
-[^a]: TG [Israel, Blessings of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng)
-[^b]: TG [Foreordination](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng); [God, Foreknowledge of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-foreknowledge-of?lang=eng)
+[^a]: TG [[Israel, Blessings of]].
+[^b]: TG [[Foreordination]]; [[God, Foreknowledge of]].
 [^c]: GR Know.
 [^d]: IE Elijah.

@@ -5,4 +5,4 @@
 [1 Kings 7:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/7.23?lang=eng#p23)
 
 
-[^a]: [[2 Kings 16.17|2 Kgs. 16:17]]; [[1 Chronicles 18.8|1 Chr. 18:8]]. TG [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng).
+[^a]: [[2 Kings 16.17|2 Kgs. 16:17]]; [[1 Chronicles 18.8|1 Chr. 18:8]]. TG [[Holy Ghost, Baptism of]].

@@ -5,4 +5,4 @@
 [John 1:40](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.40?lang=eng#p40)
 
 
-[^a]: TG [Apostles.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng)
+[^a]: TG [[Apostles]].

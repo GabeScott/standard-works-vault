@@ -6,9 +6,9 @@
 
 
 [^a]: [[2 Nephi 30.9|2 Ne. 30:9 (8-15).]]
-[^b]: TG [Jesus Christ, Authority of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng); [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
-[^c]: HEB decide with equity. TG [Reproof](https://www.churchofjesuschrist.org/study/scriptures/tg/reproof?lang=eng).
-[^d]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
+[^b]: TG [[Jesus Christ, Authority of]]; [[Jesus Christ, Judge]].
+[^c]: HEB decide with equity. TG [[Reproof, Reprove]].
+[^d]: TG [[Meek, Meekness]].
 [^e]: [[Psalms 2.9|Ps. 2:9]]; [[2 Nephi 7.8|2 Ne. 7:8.]]
 [^f]: [[Isaiah 30.28|Isa. 30:28.]]
 [^g]: [[Psalms 139.19|Ps. 139:19 (17-24)]]; [[2 Nephi 30.10|2 Ne. 30:10 (10-11)]]; [[D&C 63.33|D&C 63:33 (29-37).]]

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 33.3|Jer. 33:3.]]
-[^b]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^b]: TG [[Guidance, Divine]].
 [^c]: [[2 Nephi 1.24|2 Ne. 1:24.]]

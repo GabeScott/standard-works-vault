@@ -7,5 +7,5 @@
 
 [^a]: IE genealogical lines.
 [^b]: [[Ezekiel 14.14|Ezek. 14:14.]]
-[^c]: HEB complete, whole, having integrity. D&C 129:3 (3, 6); [[Moses 8.27|Moses 8:27]]. TG [Integrity](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng); [Perfection](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng).
-[^d]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^c]: HEB complete, whole, having integrity. D&C 129:3 (3, 6); [[Moses 8.27|Moses 8:27]]. TG [[Integrity]]; [[Perfection, Perfect, Perfectly]].
+[^d]: TG [[Walking with God]].

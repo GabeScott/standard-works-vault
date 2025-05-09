@@ -5,5 +5,5 @@
 [1 John 2:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.5?lang=eng#p5)
 
 
-[^a]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^a]: TG [[Obedience, Obedient, Obey]].
 [^b]: [[2 Corinthians 5.17|2 Cor. 5:17.]]

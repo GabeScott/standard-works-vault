@@ -6,6 +6,6 @@
 
 
 [^a]: This is the Greek form of the Hebrew name, Elijah. Matt. 11:14; [[D&C 27.7|D&C 27:7 (6-8).]]
-[^b]: TG [Salvation for the Dead.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-for-the-dead?lang=eng)
-[^c]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^b]: TG [[Salvation for the Dead]].
+[^c]: TG [[Disobedience, Disobey]].
 [^d]: [[Luke 1.76|Luke 1:76.]]

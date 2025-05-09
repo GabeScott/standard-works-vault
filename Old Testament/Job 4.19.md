@@ -5,4 +5,4 @@
 [Job 4:19](https://www.churchofjesuschrist.org/study/scriptures/ot/job/4.19?lang=eng#p19)
 
 
-[^a]: TG [Man, Physical Creation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)
+[^a]: TG [[Man, Physical Creation of]].

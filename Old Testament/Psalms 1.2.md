@@ -5,6 +5,6 @@
 [Psalms 1:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/1.2?lang=eng#p2)
 
 
-[^a]: TG [Abundant Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/abundant-life?lang=eng)
-[^b]: HEB teaching, direction, doctrine. TG [God, Law of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-law-of?lang=eng).
-[^c]: TG [Meditation.](https://www.churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng)
+[^a]: TG [[Abundant Life]].
+[^b]: HEB teaching, direction, doctrine. TG [[God, Law of]].
+[^c]: TG [[Meditation, Meditate]].

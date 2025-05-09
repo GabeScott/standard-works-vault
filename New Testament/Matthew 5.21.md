@@ -5,6 +5,6 @@
 [Matthew 5:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.21?lang=eng#p21)
 
 
-[^a]: TG [Commandments of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)
-[^b]: TG [Blood, Shedding of](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-shedding-of?lang=eng); [Murder.](https://www.churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng)
+[^a]: TG [[Commandments of God]].
+[^b]: TG [[Blood, Shedding of]]; [[Murder, Murderer]].
 [^c]: GR subject to condemnation.

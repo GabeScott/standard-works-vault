@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 12.29|Ex. 12:29.]]
-[^b]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^b]: TG [[Sanctification, Sanctify]].

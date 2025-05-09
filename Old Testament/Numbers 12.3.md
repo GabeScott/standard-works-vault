@@ -5,4 +5,4 @@
 [Numbers 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/12.3?lang=eng#p3)
 
 
-[^a]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
+[^a]: TG [[Meek, Meekness]].

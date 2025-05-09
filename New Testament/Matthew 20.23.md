@@ -5,4 +5,4 @@
 [Matthew 20:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.23?lang=eng#p23)
 
 
-[^a]: TG [Godhead.](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng)
+[^a]: TG [[Godhead]].

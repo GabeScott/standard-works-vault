@@ -6,4 +6,4 @@
 
 
 [^a]: This verse appears to be a superscription like the one appearing at the beginning of Psalm 60.
-[^b]: TG [Scriptures, Lost.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng)
+[^b]: TG [[Scriptures, Lost]].

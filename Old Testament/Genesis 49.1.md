@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 4.12|2 Ne. 4:12]]; [[Alma 8.22|Alma 8:22]]; [[Alma 45.15|45:15.]]
-[^b]: TG [Patriarch.](https://www.churchofjesuschrist.org/study/scriptures/tg/patriarch?lang=eng)
-[^c]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
+[^b]: TG [[Family, Patriarchal]].
+[^c]: TG [[Last Days]].

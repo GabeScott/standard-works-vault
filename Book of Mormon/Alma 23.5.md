@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 26.4|Alma 26:4.]]
 [^b]: [[Alma 37.19|Alma 37:19.]]
-[^c]: [[Alma 63.12|Alma 63:12]]. TG [Scriptures, Value of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng).
+[^c]: [[Alma 63.12|Alma 63:12]]. TG [[Scriptures, Value of]].

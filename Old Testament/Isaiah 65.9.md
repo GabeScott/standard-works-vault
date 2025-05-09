@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 69.35|Ps. 69:35 (35-36).]]
-[^b]: TG [Election.](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng)
+[^b]: TG [[Election, Elect]].
 [^c]: [[Deuteronomy 18.9|Deut. 18:9.]]

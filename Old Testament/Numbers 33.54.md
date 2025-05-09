@@ -5,6 +5,6 @@
 [Numbers 33:54](https://www.churchofjesuschrist.org/study/scriptures/ot/num/33.54?lang=eng#p54)
 
 
-[^a]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^a]: TG [[Israel, Land of]].
 [^b]: [[D&C 85.7|D&C 85:7.]]
 [^c]: [[Deuteronomy 9.1|Deut. 9:1 (1-6).]]

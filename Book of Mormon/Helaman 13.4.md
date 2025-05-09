@@ -6,4 +6,4 @@
 
 
 [^a]: [[Helaman 14.11|Hel. 14:11]]; [[Helaman 16.1|16:1.]]
-[^b]: TG [Teaching with the Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching-with-the-spirit?lang=eng)
+[^b]: TG [[Teaching with the Spirit]].

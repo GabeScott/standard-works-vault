@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 1.38|D&C 1:38.]]
-[^b]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^b]: TG [[Obedience, Obedient, Obey]].

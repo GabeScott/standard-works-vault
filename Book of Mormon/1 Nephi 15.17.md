@@ -5,4 +5,4 @@
 [1 Nephi 15:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Jesus Christ, Betrayal of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-betrayal-of?lang=eng); [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^a]: TG [[Jesus Christ, Betrayal of]]; [[Jesus Christ, Crucifixion of]].

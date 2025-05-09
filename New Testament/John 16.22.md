@@ -5,5 +5,5 @@
 [John 16:22](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.22?lang=eng#p22)
 
 
-[^a]: TG [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
-[^b]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Sorrow]].
+[^b]: TG [[Joy]].

@@ -6,5 +6,5 @@
 
 
 [^b]: OR beside him.
-[^c]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
-[^d]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^c]: TG [[Jesus Christ, Jehovah]].
+[^d]: TG [[Promised Lands]].

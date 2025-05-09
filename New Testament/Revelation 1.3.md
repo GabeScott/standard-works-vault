@@ -6,5 +6,5 @@
 
 
 [^a]: [[Revelation 22.7|Rev. 22:7 (7, 18-19).]]
-[^b]: TG [Scriptures, Study of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
+[^b]: TG [[Scriptures, Study of]].
 [^c]: [[D&C 34.7|D&C 34:7.]]

@@ -5,6 +5,6 @@
 [Mosiah 12:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/12?lang=eng&id=p29#p29)
 
 
-[^a]: TG [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
+[^a]: TG [[Law of Moses]].
 [^b]: [[Jeremiah 48.7|Jer. 48:7.]]
-[^c]: TG [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
+[^c]: TG [[Sexual Immorality]].

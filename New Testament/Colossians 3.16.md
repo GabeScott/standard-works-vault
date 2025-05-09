@@ -6,6 +6,6 @@
 
 
 [^a]: [[2 Nephi 32.3|2 Ne. 32:3.]]
-[^b]: TG [God, Intelligence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-intelligence-of?lang=eng)
-[^c]: TG [Teaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng)
-[^d]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^b]: TG [[God, Intelligence of]].
+[^c]: TG [[Teaching with the Spirit]].
+[^d]: TG [[Singing, Sing, Sang, Sung]].

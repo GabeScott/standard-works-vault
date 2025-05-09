@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 19.38|Luke 19:38.]]
-[^b]: TG [Peace.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
+[^b]: TG [[Peace of God]].

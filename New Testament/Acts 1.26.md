@@ -5,4 +5,4 @@
 [Acts 1:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.26?lang=eng#p26)
 
 
-[^a]: TG [Apostles.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng)
+[^a]: TG [[Apostles]].

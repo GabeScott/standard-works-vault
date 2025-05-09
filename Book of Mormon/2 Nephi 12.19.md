@@ -5,4 +5,4 @@
 [2 Nephi 12:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/12?lang=eng&id=p19#p19)
 
 
-[^a]: TG [Jesus Christ, Glory of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng)
+[^a]: TG [[Jesus Christ, Glory of]].

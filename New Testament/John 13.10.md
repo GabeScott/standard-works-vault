@@ -5,5 +5,5 @@
 [John 13:10](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.10?lang=eng#p10)
 
 
-[^a]: TG [Purity.](https://www.churchofjesuschrist.org/study/scriptures/tg/purity?lang=eng)
+[^a]: TG [[Purity, Pure]].
 [^b]: [[D&C 38.10|D&C 38:10.]]

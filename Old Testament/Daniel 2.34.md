@@ -5,5 +5,5 @@
 [Daniel 2:34](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.34?lang=eng#p34)
 
 
-[^a]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
+[^a]: TG [[Rock]].
 [^b]: Dan. 8:25.

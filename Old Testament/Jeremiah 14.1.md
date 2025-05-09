@@ -5,4 +5,4 @@
 [Jeremiah 14:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.1?lang=eng#p1)
 
 
-[^a]: TG [Famine.](https://www.churchofjesuschrist.org/study/scriptures/tg/famine?lang=eng)
+[^a]: TG [[Famine]].

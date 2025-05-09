@@ -5,4 +5,4 @@
 [2 Samuel 6:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/6.12?lang=eng#p12)
 
 
-[^a]: TG [Ark of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/ark-of-the-covenant?lang=eng)
+[^a]: TG [[Ark of the Covenant]].

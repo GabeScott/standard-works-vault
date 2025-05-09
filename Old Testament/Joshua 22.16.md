@@ -5,5 +5,5 @@
 [Joshua 22:16](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/22.16?lang=eng#p16)
 
 
-[^a]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].
 [^b]: [[1 Nephi 2.23|1 Ne. 2:23 (21-24)]]; [[Mosiah 15.26|Mosiah 15:26.]]

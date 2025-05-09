@@ -6,4 +6,4 @@
 
 
 [^a]: IE all within thy border.
-[^b]: TG [Plague.](https://www.churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng)
+[^b]: TG [[Plague]].

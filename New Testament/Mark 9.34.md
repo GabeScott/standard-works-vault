@@ -5,5 +5,5 @@
 [Mark 9:34](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.34?lang=eng#p34)
 
 
-[^a]: TG [Disputations.](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng)
+[^a]: TG [[Disputations, Dispute]].
 [^b]: [[Luke 9.46|Luke 9:46.]]

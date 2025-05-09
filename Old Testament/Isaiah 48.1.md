@@ -5,6 +5,6 @@
 [Isaiah 48:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.1?lang=eng#p1)
 
 
-[^a]: [[1 Nephi 20.1|1 Ne. 20:1]]. TG [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng).
-[^b]: TG [Swearing.](https://www.churchofjesuschrist.org/study/scriptures/tg/swearing?lang=eng)
+[^a]: [[1 Nephi 20.1|1 Ne. 20:1]]. TG [[Holy Ghost, Baptism of]].
+[^b]: TG [[Swearing, Swear, Sware, Sworn]].
 [^c]: [[Isaiah 29.13|Isa. 29:13.]]

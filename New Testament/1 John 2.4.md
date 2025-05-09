@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Jn. 3:6.
-[^b]: TG [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^b]: TG [[Lying, Liar, Lie]].

@@ -5,4 +5,4 @@
 [1 Thessalonians 5:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.18?lang=eng#p18)
 
 
-[^a]: TG [Communication](https://www.churchofjesuschrist.org/study/scriptures/tg/communication?lang=eng); [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^a]: TG [[Communication]]; [[Thanksgiving]].

@@ -5,4 +5,4 @@
 [2 Timothy 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.18?lang=eng#p18)
 
 
-[^a]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^a]: TG [[God, Mercy of]].

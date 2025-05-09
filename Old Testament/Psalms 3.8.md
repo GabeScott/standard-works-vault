@@ -5,4 +5,4 @@
 [Psalms 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/3.8?lang=eng#p8)
 
 
-[^a]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^a]: TG [[Salvation for the Dead]].

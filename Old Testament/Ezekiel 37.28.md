@@ -5,6 +5,6 @@
 [Ezekiel 37:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/37.28?lang=eng#p28)
 
 
-[^a]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
-[^b]: TG [God, Knowledge about.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng)
-[^c]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^a]: TG [[Heathen]].
+[^b]: TG [[God, Knowledge about]].
+[^c]: TG [[Sanctification, Sanctify]].

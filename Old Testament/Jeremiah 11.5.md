@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 7.12|Deut. 7:12 (12-13)]]; [[D&C 38.20|D&C 38:20.]]
-[^b]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^b]: TG [[Israel, Land of]].
 [^c]: [[Exodus 3.8|Ex. 3:8.]]

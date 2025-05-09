@@ -6,5 +6,5 @@
 
 
 [^a]: [[Proverbs 15.16|Prov. 15:16.]]
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^c]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^b]: TG [[God, the Standard of Righteousness]].
+[^c]: TG [[Treasure]].

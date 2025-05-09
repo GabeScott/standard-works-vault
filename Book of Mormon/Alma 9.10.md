@@ -5,4 +5,4 @@
 [Alma 9:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^a]: TG [[Deliver, Deliverance]].

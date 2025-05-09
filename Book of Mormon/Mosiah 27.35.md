@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 1.10|Mosiah 1:10]]; [[Mosiah 28.18|28:18.]]
-[^b]: TG [Zeal.](https://www.churchofjesuschrist.org/study/scriptures/tg/zeal?lang=eng)
+[^b]: TG [[Zeal, Zealous]].
 [^c]: [[Alma 39.13|Alma 39:13.]]

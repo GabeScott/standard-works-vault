@@ -5,6 +5,6 @@
 [Leviticus 19:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.13?lang=eng#p13)
 
 
-[^a]: [[Deuteronomy 24.15|Deut. 24:15]]. TG [Fraud](https://www.churchofjesuschrist.org/study/scriptures/tg/fraud?lang=eng).
-[^b]: TG [Neighbor.](https://www.churchofjesuschrist.org/study/scriptures/tg/neighbor?lang=eng)
-[^c]: TG [Wages.](https://www.churchofjesuschrist.org/study/scriptures/tg/wages?lang=eng)
+[^a]: [[Deuteronomy 24.15|Deut. 24:15]]. TG [[Fraud]].
+[^b]: TG [[Neighbor]].
+[^c]: TG [[Wages]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 18.15|Deut. 18:15 (15, 18).]]
-[^b]: TG [God, Privilege of Seeing](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng); [Jesus Christ, Appearances, Antemortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-antemortal?lang=eng)
+[^b]: TG [[God, Privilege of Seeing]]; [[Jesus Christ, Appearances, Antemortal]].

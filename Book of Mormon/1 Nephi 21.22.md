@@ -5,6 +5,6 @@
 [1 Nephi 21:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/21?lang=eng&id=p22#p22)
 
 
-[^a]: [[Isaiah 66.19|Isa. 66:19 (18-20)]]. TG [Israel, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng).
+[^a]: [[Isaiah 66.19|Isa. 66:19 (18-20)]]. TG [[Israel, Mission of]].
 [^b]: [[Isaiah 11.12|Isa. 11:12 (10-12)]]; [[Isaiah 18.3|18:3]]; [[Zechariah 9.16|Zech. 9:16.]]
 [^c]: [[1 Nephi 22.8|1 Ne. 22:8]]; [[2 Nephi 10.8|2 Ne. 10:8 (8-9).]]

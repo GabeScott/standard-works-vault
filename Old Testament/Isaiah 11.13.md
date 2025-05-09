@@ -5,5 +5,5 @@
 [Isaiah 11:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.13?lang=eng#p13)
 
 
-[^a]: The tribes led by Judah and Ephraim were historically adversaries (after events of 1 Kgs. 12:16-20). In the latter days this enmity will be healed. TG [Envy](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng).
-[^b]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^a]: The tribes led by Judah and Ephraim were historically adversaries (after events of 1 Kgs. 12:16-20). In the latter days this enmity will be healed. TG [[Envy, Envious]].
+[^b]: TG [[Israel, Judah, People of]].

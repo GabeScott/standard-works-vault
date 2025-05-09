@@ -5,8 +5,8 @@
 [Deuteronomy 24:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.16?lang=eng#p16)
 
 
-[^a]: TG [Marriage, Fatherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-fatherhood?lang=eng)
-[^b]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^a]: TG [[Marriage, Fatherhood]].
+[^b]: TG [[Punish, Punishment]].
 [^c]: [[2 Samuel 21.6|2 Sam. 21:6 (1-14)]]; [[Isaiah 14.21|Isa. 14:21.]]
-[^d]: TG [Accountability](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng); [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
-[^e]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^d]: TG [[Accountability]]; [[God, Justice of]].
+[^e]: TG [[Sin]].

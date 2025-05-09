@@ -5,4 +5,4 @@
 [Isaiah 2:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.17?lang=eng#p17)
 
 
-[^a]: TG [Haughtiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng)
+[^a]: TG [[Haughtiness, Haughty]].

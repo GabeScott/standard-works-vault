@@ -6,6 +6,6 @@
 
 
 [^a]: JST Gen. 17:11-12 (Appendix).
-[^b]: TG [Israel, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng); [New and Everlasting Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/new-and-everlasting-covenant?lang=eng)
+[^b]: TG [[Israel, Mission of]]; [[New and Everlasting Covenant]].
 [^c]: [[2 Nephi 29.14|2 Ne. 29:14 (13-14).]]
 [^d]: [[Genesis 24.12|Gen. 24:12.]]

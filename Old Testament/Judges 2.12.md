@@ -5,4 +5,4 @@
 [Judges 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.12?lang=eng#p12)
 
 
-[^a]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^a]: TG [[Anger]].

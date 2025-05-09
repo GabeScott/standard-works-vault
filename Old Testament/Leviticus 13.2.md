@@ -6,4 +6,4 @@
 
 
 [^a]: HEB a swelling.
-[^b]: TG [Leprosy.](https://www.churchofjesuschrist.org/study/scriptures/tg/leprosy?lang=eng)
+[^b]: TG [[Leprosy, Leper, Leprous]].

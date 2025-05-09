@@ -5,5 +5,5 @@
 [Alma 44:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/44?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Bondage, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng)
+[^a]: TG [[Bondage, Physical]].
 [^b]: [[Alma 43.8|Alma 43:8.]]

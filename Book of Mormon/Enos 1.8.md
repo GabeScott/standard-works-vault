@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ether 3.13|Ether 3:13 (12-13).]]
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
-[^c]: [[Matthew 9.22|Matt. 9:22]]. TG [Man, New, Spiritually Reborn](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng); [Steadfastness](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng).
+[^b]: TG [[Faith]].
+[^c]: [[Matthew 9.22|Matt. 9:22]]. TG [[Man, New, Spiritually Reborn]]; [[Steadfastness, Steadfast]].

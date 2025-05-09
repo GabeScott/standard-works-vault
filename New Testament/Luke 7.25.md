@@ -5,4 +5,4 @@
 [Luke 7:25](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.25?lang=eng#p25)
 
 
-[^a]: TG [Apparel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng)
+[^a]: TG [[Apparel]].

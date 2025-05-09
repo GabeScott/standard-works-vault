@@ -5,6 +5,6 @@
 [2 Kings 14:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/14.6?lang=eng#p6)
 
 
-[^a]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
-[^b]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
-[^c]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^a]: TG [[Punish, Punishment]].
+[^b]: TG [[Accountability]].
+[^c]: TG [[Sin]].

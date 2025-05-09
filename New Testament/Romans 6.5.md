@@ -5,6 +5,6 @@
 [Romans 6:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6.5?lang=eng#p5)
 
 
-[^a]: TG [Jesus Christ, Types of, in Memory.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-memory?lang=eng)
+[^a]: TG [[Jesus Christ, Types of, in Memory]].
 [^b]: Col. 2:20; 3:3; 2 Tim. 2:11.
-[^c]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^c]: TG [[Jesus Christ, Resurrection]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Peter 4.13|1 Pet. 4:13 (12-16).]]
-[^b]: TG [Hate](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng); [Malice.](https://www.churchofjesuschrist.org/study/scriptures/tg/malice?lang=eng)
+[^b]: TG [[Hate]]; [[Malice]].

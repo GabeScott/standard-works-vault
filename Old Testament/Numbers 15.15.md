@@ -5,5 +5,5 @@
 [Numbers 15:15](https://www.churchofjesuschrist.org/study/scriptures/ot/num/15.15?lang=eng#p15)
 
 
-[^a]: TG [Unity.](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng)
+[^a]: TG [[Unity]].
 [^b]: [[Numbers 35.15|Num. 35:15 (15-34).]]

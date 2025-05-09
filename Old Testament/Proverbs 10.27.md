@@ -5,4 +5,4 @@
 [Proverbs 10:27](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.27?lang=eng#p27)
 
 
-[^a]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
+[^a]: TG [[Reverence]].

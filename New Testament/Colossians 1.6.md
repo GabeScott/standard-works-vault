@@ -7,4 +7,4 @@
 
 [^a]: JST Col. 1:6 … as in all generations of the world …
 [^b]: [[Alma 32.42|Alma 32:42 (28-42)]]; [[3 Nephi 14.16|3 Ne. 14:16]]; [[D&C 52.34|D&C 52:34 (18, 34).]]
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^c]: TG [[Grace]].

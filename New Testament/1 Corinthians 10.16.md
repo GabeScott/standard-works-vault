@@ -6,5 +6,5 @@
 
 
 [^a]: [[Matthew 26.27|Matt. 26:27 (26-29).]]
-[^b]: TG [Blessing.](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)
+[^b]: TG [[Israel, Blessings of]].
 [^c]: GR aid, fellowship, partnership.

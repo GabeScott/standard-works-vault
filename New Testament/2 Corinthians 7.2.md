@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Thes. 2:3 (3-10).
-[^b]: TG [Fraud.](https://www.churchofjesuschrist.org/study/scriptures/tg/fraud?lang=eng)
+[^b]: TG [[Fraud]].

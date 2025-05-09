@@ -6,6 +6,6 @@
 
 
 [^a]: [[Genesis 1.26|Gen. 1:26 (26-28)]]; [[Genesis 2.7|2:7.]]
-[^b]: TG [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
-[^c]: TG [Redemption.](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
+[^b]: TG [[Salvation, Plan of]].
+[^c]: TG [[Redemption]].
 [^d]: [[2 Nephi 9.18|2 Ne. 9:18]]; [[Alma 13.3|Alma 13:3 (3, 5, 7-9).]]

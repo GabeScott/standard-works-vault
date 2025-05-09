@@ -7,4 +7,4 @@
 
 [^a]: [[Acts 7.29|Acts 7:29.]]
 [^b]: IE A sojourner there. Ex. 18:3 (2-3); [[1 Chronicles 23.15|1 Chr. 23:15.]]
-[^c]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^c]: TG [[Stranger]].

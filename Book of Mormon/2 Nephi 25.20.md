@@ -10,4 +10,4 @@
 [^c]: [[2 Kings 18.4|2 Kgs. 18:4]]; [[Alma 33.19|Alma 33:19]]; [[Helaman 8.14|Hel. 8:14 (14-15).]]
 [^d]: [[Exodus 17.6|Ex. 17:6]]; [[Numbers 20.11|Num. 20:11]]; [[Nehemiah 9.15|Neh. 9:15]]; [[1 Nephi 17.29|1 Ne. 17:29]]; [[1 Nephi 20.21|20:21.]]
 [^e]: [[1 Nephi 14.30|1 Ne. 14:30]]; [[Mosiah 1.6|Mosiah 1:6.]]
-[^f]: [[Hosea 13.4|Hosea 13:4]]; [[Acts 4.12|Acts 4:12]]; 1 Jn. 3:23 (19-24); [[1 Nephi 10.6|1 Ne. 10:6]]; [[2 Nephi 2.6|2 Ne. 2:6 (5-8)]]; [[Mosiah 16.5|Mosiah 16:5 (4-5)]]; [[Alma 12.22|Alma 12:22 (22-25)]]. TG [Jesus Christ, Savior](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng).
+[^f]: [[Hosea 13.4|Hosea 13:4]]; [[Acts 4.12|Acts 4:12]]; 1 Jn. 3:23 (19-24); [[1 Nephi 10.6|1 Ne. 10:6]]; [[2 Nephi 2.6|2 Ne. 2:6 (5-8)]]; [[Mosiah 16.5|Mosiah 16:5 (4-5)]]; [[Alma 12.22|Alma 12:22 (22-25)]]. TG [[Jesus Christ, Savior]].

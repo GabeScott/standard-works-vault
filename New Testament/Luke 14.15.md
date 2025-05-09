@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 22.30|Luke 22:30]]; [[Revelation 19.9|Rev. 19:9.]]
-[^b]: TG [Bread.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread?lang=eng)
+[^b]: TG [[Bread]].

@@ -5,4 +5,4 @@
 [Genesis 37:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/37.18?lang=eng#p18)
 
 
-[^a]: TG [Conspiracy.](https://www.churchofjesuschrist.org/study/scriptures/tg/conspiracy?lang=eng)
+[^a]: TG [[Conspiracy]].

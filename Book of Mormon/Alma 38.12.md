@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 18.24|Alma 18:24.]]
-[^b]: TG [Priesthood, Magnifying Callings within](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng); [Self-Mastery.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
+[^b]: TG [[Priesthood, Magnifying Callings within]]; [[Self-Mastery]].

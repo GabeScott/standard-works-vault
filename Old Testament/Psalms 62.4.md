@@ -5,4 +5,4 @@
 [Psalms 62:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/62.4?lang=eng#p4)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^a]: TG [[Curse]].

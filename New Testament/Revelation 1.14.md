@@ -6,4 +6,4 @@
 
 
 [^a]: [[Revelation 2.18|Rev. 2:18]]; [[D&C 110.3|D&C 110:3.]]
-[^b]: TG [Jesus Christ, Glory of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng)
+[^b]: TG [[Jesus Christ, Glory of]].

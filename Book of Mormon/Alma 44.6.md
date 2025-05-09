@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 52.25|Alma 52:25 (25, 32).]]
-[^b]: TG [Benevolence.](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng)
+[^b]: TG [[Benevolence]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Deuteronomy 4.39|Deut. 4:39.]]
-[^b]: TG [God, Creator](https://www.churchofjesuschrist.org/study/scriptures/tg/god-creator?lang=eng); [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
-[^c]: [[Romans 11.34|Rom. 11:34 (33-36)]]; [[Jacob 4.8|Jacob 4:8 (8-13)]]. TG [God, Perfection of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng).
+[^b]: TG [[God, Creator]]; [[Jesus Christ, Creator]].
+[^c]: [[Romans 11.34|Rom. 11:34 (33-36)]]; [[Jacob 4.8|Jacob 4:8 (8-13)]]. TG [[God, Perfection of]].
 [^d]: [[Isaiah 55.9|Isa. 55:9.]]

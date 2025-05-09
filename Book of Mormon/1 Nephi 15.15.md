@@ -5,5 +5,5 @@
 [1 Nephi 15:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p15#p15)
 
 
-[^a]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
+[^a]: TG [[Rock]].
 [^b]: [[Genesis 49.11|Gen. 49:11]]; [[John 15.1|John 15:1.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Revelation 6.12|Rev. 6:12.]]
-[^b]: TG [Day of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/day-of-the-lord?lang=eng)
+[^b]: TG [[Day of the Lord]].

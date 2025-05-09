@@ -5,6 +5,6 @@
 [Isaiah 53:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.12?lang=eng#p12)
 
 
-[^a]: TG [Jesus Christ, Crucifixion of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng); [Jesus Christ, Death of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng); [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^a]: TG [[Jesus Christ, Crucifixion of]]; [[Jesus Christ, Death of]]; [[Martyrdom]].
 [^b]: [[Mark 15.28|Mark 15:28]]; [[Luke 22.37|Luke 22:37.]]
 [^c]: [[Romans 8.34|Rom. 8:34.]]

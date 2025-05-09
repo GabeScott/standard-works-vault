@@ -5,4 +5,4 @@
 [Alma 48:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p13#p13)
 
 
-[^a]: [[Alma 46.20|Alma 46:20 (20-22)]]. TG [Dependability](https://www.churchofjesuschrist.org/study/scriptures/tg/dependability?lang=eng).
+[^a]: [[Alma 46.20|Alma 46:20 (20-22)]]. TG [[Dependability]].

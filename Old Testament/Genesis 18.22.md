@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 18.23|JST Gen. 18:23 And the angels which were holy men, and were sent forth after the order of God, turned their faces …]]
-[^b]: TG [God, Access to.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-access-to?lang=eng)
+[^b]: TG [[God, Access to]].

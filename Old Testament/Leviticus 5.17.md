@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 1.31|D&C 1:31 (31-32).]]
-[^b]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
+[^b]: TG [[Accountability]].

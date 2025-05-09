@@ -6,4 +6,4 @@
 
 
 [^a]: [[Micah 6.16|Micah 6:16.]]
-[^b]: TG [Unrighteous Dominion.](https://www.churchofjesuschrist.org/study/scriptures/tg/unrighteous-dominion?lang=eng)
+[^b]: TG [[Unrighteous Dominion]].

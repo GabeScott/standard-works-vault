@@ -5,5 +5,5 @@
 [D&C 6:19](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.19?lang=eng#p19)
 
 
-[^a]: TG [Teachable.](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng)
+[^a]: TG [[Teachable]].
 [^b]: See Topical Guide entry on each of the qualities listed here.

@@ -5,4 +5,4 @@
 [Psalms 119:45](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.45?lang=eng#p45)
 
 
-[^a]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^a]: TG [[Liberty]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moses 6.31|Moses 6:31.]]
-[^b]: TG [Courage](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng); [Fearful.](https://www.churchofjesuschrist.org/study/scriptures/tg/fearful?lang=eng)
+[^b]: TG [[Courage, Courageous]]; [[Fearful]].

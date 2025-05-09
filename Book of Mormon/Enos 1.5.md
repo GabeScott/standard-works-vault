@@ -5,5 +5,5 @@
 [Enos 1:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
-[^b]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^a]: TG [[Revelation]].
+[^b]: TG [[Forgive, Forgiveness]].

@@ -5,6 +5,6 @@
 [Hebrews 1:14](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1.14?lang=eng#p14)
 
 
-[^a]: [[D&C 7.6|D&C 7:6]]. TG [Angels](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng).
+[^a]: [[D&C 7.6|D&C 7:6]]. TG [[Angels]].
 [^b]: [[Zechariah 6.5|Zech. 6:5 (4-8).]]
 [^c]: GR for service.

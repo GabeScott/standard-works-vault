@@ -5,4 +5,4 @@
 [Alma 34:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p29#p29)
 
 
-[^a]: TG [Charity](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng); [Generosity.](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng)
+[^a]: TG [[Charity]]; [[Generosity]].

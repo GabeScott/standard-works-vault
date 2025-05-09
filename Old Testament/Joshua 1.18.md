@@ -5,5 +5,5 @@
 [Joshua 1:18](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/1.18?lang=eng#p18)
 
 
-[^a]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
-[^b]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^a]: TG [[Rebellion, Rebel]].
+[^b]: TG [[Capital Punishment]].

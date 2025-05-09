@@ -5,4 +5,4 @@
 [Ecclesiastes 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.5?lang=eng#p5)
 
 
-[^a]: TG [Reproof.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproof?lang=eng)
+[^a]: TG [[Reproof, Reprove]].

@@ -5,6 +5,6 @@
 [Romans 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.1?lang=eng#p1)
 
 
-[^a]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
+[^a]: TG [[Servant]].
 [^b]: [[1 Corinthians 4.9|1 Cor. 4:9 (1-21)]]; [[D&C 18.9|D&C 18:9.]]
-[^c]: GR set apart. TG [Setting Apart](https://www.churchofjesuschrist.org/study/scriptures/tg/setting-apart?lang=eng).
+[^c]: GR set apart. TG [[Setting Apart]].

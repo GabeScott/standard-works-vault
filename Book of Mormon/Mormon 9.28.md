@@ -6,6 +6,6 @@
 
 
 [^a]: [[Matthew 10.16|Matt. 10:16]]; [[Jacob 6.12|Jacob 6:12.]]
-[^b]: TG [Probation.](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng)
-[^c]: TG [Covet](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng); [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
+[^b]: TG [[Probation, Probationary]].
+[^c]: TG [[Covet, Covetousness]]; [[Lust]].
 [^d]: [[Alma 5.13|Alma 5:13.]]

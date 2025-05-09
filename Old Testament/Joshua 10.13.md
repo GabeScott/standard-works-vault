@@ -5,5 +5,5 @@
 [Joshua 10:13](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/10.13?lang=eng#p13)
 
 
-[^a]: [[3 Nephi 1.15|3 Ne. 1:15 (13-16)]]. TG [Astronomy](https://www.churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng).
-[^b]: TG [Scriptures, Lost.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng)
+[^a]: [[3 Nephi 1.15|3 Ne. 1:15 (13-16)]]. TG [[Astronomy]].
+[^b]: TG [[Scriptures, Lost]].

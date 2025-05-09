@@ -5,6 +5,6 @@
 [1 Nephi 16:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p35#p35)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
-[^b]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
-[^c]: TG [Murmuring.](https://www.churchofjesuschrist.org/study/scriptures/tg/murmuring?lang=eng)
+[^a]: TG [[Mourning, Mourn]].
+[^b]: TG [[Affliction]].
+[^c]: TG [[Murmuring, Murmur]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Leviticus 3.1|Lev. 3:1.]]
 [^b]: [[Numbers 15.5|Num. 15:5 (5, 7, 10).]]
-[^c]: TG [Order.](https://www.churchofjesuschrist.org/study/scriptures/tg/order?lang=eng)
+[^c]: TG [[Order]].

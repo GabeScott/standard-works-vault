@@ -5,4 +5,4 @@
 [1 Nephi 21:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/21?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[Israel, Gathering of]].

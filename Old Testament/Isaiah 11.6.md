@@ -5,4 +5,4 @@
 [Isaiah 11:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.6?lang=eng#p6)
 
 
-[^a]: TG [Nature, Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/nature-earth?lang=eng)
+[^a]: TG [[Nature, Earth]].

@@ -5,4 +5,4 @@
 [D&C 3:13](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.13?lang=eng#p13)
 
 
-[^a]: [[Jacob 4.10|Jacob 4:10]]. TG [Haughtiness](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng); [Pride](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng).
+[^a]: [[Jacob 4.10|Jacob 4:10]]. TG [[Haughtiness, Haughty]]; [[Pride]].

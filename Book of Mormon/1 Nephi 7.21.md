@@ -5,5 +5,5 @@
 [1 Nephi 7:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/7?lang=eng&id=p21#p21)
 
 
-[^a]: TG [Family, Love within.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng)
-[^b]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^a]: TG [[Family, Love within]].
+[^b]: TG [[Forgive, Forgiveness]].

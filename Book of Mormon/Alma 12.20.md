@@ -5,4 +5,4 @@
 [Alma 12:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
+[^a]: TG [[Immortality, Immortal]].

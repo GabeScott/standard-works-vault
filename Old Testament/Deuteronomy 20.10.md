@@ -5,5 +5,5 @@
 [Deuteronomy 20:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/20.10?lang=eng#p10)
 
 
-[^a]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
-[^b]: TG [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)makers.
+[^a]: TG [[War]].
+[^b]: TG [[Peace of God]]; [[Peace of God]]makers.

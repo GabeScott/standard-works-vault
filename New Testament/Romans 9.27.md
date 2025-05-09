@@ -7,5 +7,5 @@
 
 [^a]: IE Isaiah.
 [^b]: [[Isaiah 10.22|Isa. 10:22.]]
-[^c]: TG [Israel, Blessings of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng)
-[^d]: TG [Israel, Remnant of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-remnant-of?lang=eng)
+[^c]: TG [[Israel, Blessings of]].
+[^d]: TG [[Israel, Remnant of]].

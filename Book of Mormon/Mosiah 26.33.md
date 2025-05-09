@@ -5,4 +5,4 @@
 [Mosiah 26:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p33#p33)
 
 
-[^a]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^a]: TG [[Scriptures, Writing of]].

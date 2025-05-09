@@ -5,8 +5,8 @@
 [Luke 6:35](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.35?lang=eng#p35)
 
 
-[^a]: TG [Charity.](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng)
-[^b]: TG [Generosity.](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng)
-[^c]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^a]: TG [[Charity]].
+[^b]: TG [[Generosity]].
+[^c]: TG [[Reward]].
 [^d]: [[D&C 76.58|D&C 76:58 (50-62).]]
-[^e]: TG [Ingratitude.](https://www.churchofjesuschrist.org/study/scriptures/tg/ingratitude?lang=eng)
+[^e]: TG [[Ingratitude]].

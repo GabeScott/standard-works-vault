@@ -6,4 +6,4 @@
 
 
 [^a]: [[Amos 4.1|Amos 4:1.]]
-[^b]: TG [Widows.](https://www.churchofjesuschrist.org/study/scriptures/tg/widows?lang=eng)
+[^b]: TG [[Widows]].

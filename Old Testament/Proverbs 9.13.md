@@ -5,4 +5,4 @@
 [Proverbs 9:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/9.13?lang=eng#p13)
 
 
-[^a]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
+[^a]: TG [[Woman, Women]].

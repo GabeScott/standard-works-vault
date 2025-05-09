@@ -5,4 +5,4 @@
 [Acts 9:40](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.40?lang=eng#p40)
 
 
-[^a]: TG [Death, Power over.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-power-over?lang=eng)
+[^a]: TG [[Death, Power over]].

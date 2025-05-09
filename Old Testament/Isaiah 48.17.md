@@ -5,4 +5,4 @@
 [Isaiah 48:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.17?lang=eng#p17)
 
 
-[^a]: TG [Leadership.](https://www.churchofjesuschrist.org/study/scriptures/tg/leadership?lang=eng)
+[^a]: TG [[Leadership]].

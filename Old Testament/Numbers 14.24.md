@@ -6,5 +6,5 @@
 
 
 [^a]: [[Numbers 13.30|Num. 13:30.]]
-[^b]: [[Joshua 14.8|Josh. 14:8 (6-8)]]. TG [Commitment](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng).
+[^b]: [[Joshua 14.8|Josh. 14:8 (6-8)]]. TG [[Commitment]].
 [^c]: [[Joshua 14.10|Josh. 14:10.]]

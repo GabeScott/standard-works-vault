@@ -5,5 +5,5 @@
 [Isaiah 63:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.4?lang=eng#p4)
 
 
-[^a]: TG [Vengeance.](https://www.churchofjesuschrist.org/study/scriptures/tg/vengeance?lang=eng)
+[^a]: TG [[Vengeance]].
 [^b]: Zeph. 3:20; [[D&C 133.52|D&C 133:52.]]

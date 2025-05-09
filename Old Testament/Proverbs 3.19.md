@@ -6,4 +6,4 @@
 
 
 [^a]: [[Abraham 4.1|Abr. 4:1.]]
-[^b]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^b]: TG [[Understanding]].

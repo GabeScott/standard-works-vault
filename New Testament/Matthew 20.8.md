@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 39.13|D&C 39:13.]]
-[^b]: TG [Wages.](https://www.churchofjesuschrist.org/study/scriptures/tg/wages?lang=eng)
+[^b]: TG [[Wages]].

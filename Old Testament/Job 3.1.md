@@ -5,4 +5,4 @@
 [Job 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/job/3.1?lang=eng#p1)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^a]: TG [[Curse]].

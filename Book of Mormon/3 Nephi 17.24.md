@@ -5,4 +5,4 @@
 [3 Nephi 17:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p24#p24)
 
 
-[^a]: [[Helaman 5.43|Hel. 5:43 (23-24, 43-45)]]; [[3 Nephi 19.14|3 Ne. 19:14]]. TG [Transfiguration](https://www.churchofjesuschrist.org/study/scriptures/tg/transfiguration?lang=eng).
+[^a]: [[Helaman 5.43|Hel. 5:43 (23-24, 43-45)]]; [[3 Nephi 19.14|3 Ne. 19:14]]. TG [[Transfiguration, Transfigured]].

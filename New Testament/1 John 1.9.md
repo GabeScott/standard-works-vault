@@ -5,7 +5,7 @@
 [1 John 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/1.9?lang=eng#p9)
 
 
-[^a]: TG [Confession](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng); [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
-[^b]: TG [God, Justice of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng); [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
-[^c]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
-[^d]: TG [Purification](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng); [Purity.](https://www.churchofjesuschrist.org/study/scriptures/tg/purity?lang=eng)
+[^a]: TG [[Confession]]; [[Repent, Repentance]].
+[^b]: TG [[God, Justice of]]; [[God, Justice of]].
+[^c]: TG [[Forgive, Forgiveness]].
+[^d]: TG [[Purification, Purify, Purifying]]; [[Purity, Pure]].

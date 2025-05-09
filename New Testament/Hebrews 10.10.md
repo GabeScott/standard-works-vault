@@ -5,8 +5,8 @@
 [Hebrews 10:10](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.10?lang=eng#p10)
 
 
-[^a]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
-[^b]: TG [Jesus Christ, Types of, in Anticipation.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng)
+[^a]: TG [[Sanctification, Sanctify]].
+[^b]: TG [[Jesus Christ, Types of, in Anticipation]].
 [^c]: JST Heb. 10:10 … once of the body of Jesus Christ.
 [^d]: [[John 6.51|John 6:51]]; [[Hebrews 9.12|Heb. 9:12.]]
 [^e]: [[Romans 6.10|Rom. 6:10.]]

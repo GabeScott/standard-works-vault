@@ -5,6 +5,6 @@
 [D&C 6:30](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.30?lang=eng#p30)
 
 
-[^a]: [[D&C 5.22|D&C 5:22]]; [[D&C 135.1|135:1 (1-7)]]. TG [Martyrdom](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng).
+[^a]: [[D&C 5.22|D&C 5:22]]; [[D&C 135.1|135:1 (1-7)]]. TG [[Martyrdom]].
 [^b]: [[Revelation 3.21|Rev. 3:21.]]
-[^c]: TG [Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng)
+[^c]: TG [[Telestial Glory]].

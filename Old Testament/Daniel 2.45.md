@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 65.2|D&C 65:2.]]
-[^b]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^b]: TG [[Revelation]].

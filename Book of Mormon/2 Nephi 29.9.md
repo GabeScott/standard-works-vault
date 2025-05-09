@@ -6,6 +6,6 @@
 
 
 [^a]: [[Hebrews 13.8|Heb. 13:8.]]
-[^b]: TG [Word of God](https://www.churchofjesuschrist.org/study/scriptures/tg/word-of-god?lang=eng); [Word of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/word-of-the-lord?lang=eng)
-[^c]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^b]: TG [[Word of God]]; [[Word of the Lord]].
+[^c]: TG [[Revelation]].
 [^d]: [[Moses 1.4|Moses 1:4.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Romans 6.5|Rom. 6:5 (2-5)]]; Col. 3:3.
-[^b]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^b]: TG [[Ordinance]].

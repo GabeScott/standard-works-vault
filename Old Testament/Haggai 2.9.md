@@ -5,4 +5,4 @@
 [Haggai 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/2.9?lang=eng#p9)
 
 
-[^a]: TG [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng) of God.
+[^a]: TG [[Peace of God]]; [[Peace of God]] of God.

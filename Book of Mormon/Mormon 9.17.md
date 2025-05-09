@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jacob 4.9|Jacob 4:9.]]
-[^b]: TG [Man, Physical Creation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)
+[^b]: TG [[Man, Physical Creation of]].
 [^c]: [[Genesis 2.7|Gen. 2:7]]; [[Mosiah 2.25|Mosiah 2:25]]; [[D&C 77.12|D&C 77:12]]; [[D&C 93.35|93:35 (33-35).]]

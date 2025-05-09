@@ -5,5 +5,5 @@
 [John 12:37](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.37?lang=eng#p37)
 
 
-[^a]: TG [Miracle](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng); [Signs.](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng)
+[^a]: TG [[Miracle]]; [[Signs]].
 [^b]: [[Mosiah 3.9|Mosiah 3:9 (9-11).]]

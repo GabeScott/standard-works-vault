@@ -5,5 +5,5 @@
 [Ether 12:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p11#p11)
 
 
-[^a]: TG [God, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
+[^a]: TG [[God, Gifts of]].
 [^b]: [[1 Corinthians 12.31|1 Cor. 12:31.]]

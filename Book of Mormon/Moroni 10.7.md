@@ -5,5 +5,5 @@
 [Moroni 10:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^a]: TG [[Testimony]].
 [^b]: [[1 Nephi 10.17|1 Ne. 10:17 (17-19)]]; [[Moroni 7.36|Moro. 7:36.]]

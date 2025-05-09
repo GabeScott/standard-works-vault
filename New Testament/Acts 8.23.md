@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 41.11|Alma 41:11]]; [[Mormon 8.31|Morm. 8:31.]]
-[^b]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^b]: TG [[Bondage, Spiritual]].

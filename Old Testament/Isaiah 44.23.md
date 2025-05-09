@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 49.13|Isa. 49:13.]]
-[^b]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
-[^c]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
+[^b]: TG [[Singing, Sing, Sang, Sung]].
+[^c]: TG [[Israel, Restoration of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mark 4.24|Mark 4:24 (23-25).]]
-[^b]: TG [Talents](https://www.churchofjesuschrist.org/study/scriptures/tg/talents?lang=eng); [Work, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng)
+[^b]: TG [[Talents]]; [[Work, Value of]].

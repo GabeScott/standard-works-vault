@@ -6,6 +6,6 @@
 
 
 [^a]: [[Alma 36.10|Alma 36:10 (10, 16).]]
-[^b]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
-[^c]: TG [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
-[^d]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^b]: TG [[Pain]].
+[^c]: TG [[Sorrow]].
+[^d]: TG [[Remission of Sins]].

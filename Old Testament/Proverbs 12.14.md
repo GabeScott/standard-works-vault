@@ -5,4 +5,4 @@
 [Proverbs 12:14](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.14?lang=eng#p14)
 
 
-[^a]: TG [Communication.](https://www.churchofjesuschrist.org/study/scriptures/tg/communication?lang=eng)
+[^a]: TG [[Communication]].

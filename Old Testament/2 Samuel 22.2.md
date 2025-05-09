@@ -5,4 +5,4 @@
 [2 Samuel 22:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.2?lang=eng#p2)
 
 
-[^a]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
+[^a]: TG [[Rock]].

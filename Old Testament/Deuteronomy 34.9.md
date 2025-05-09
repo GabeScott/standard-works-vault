@@ -6,5 +6,5 @@
 
 
 [^a]: [[Numbers 13.16|Num. 13:16]]; [[Judges 2.8|Judg. 2:8.]]
-[^b]: TG [Church Organization](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng); [Hands, Laying on of](https://www.churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng); [Priesthood, Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng); [Priesthood, Ordination.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-ordination?lang=eng)
-[^c]: TG [Sustaining Church Leaders.](https://www.churchofjesuschrist.org/study/scriptures/tg/sustaining-church-leaders?lang=eng)
+[^b]: TG [[Church Organization]]; [[Hands, Laying on of]]; [[Priesthood, Authority]]; [[Priesthood, Ordination]].
+[^c]: TG [[Sustaining Church Leaders]].

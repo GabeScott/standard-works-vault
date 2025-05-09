@@ -5,5 +5,5 @@
 [Acts 26:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.7?lang=eng#p7)
 
 
-[^a]: TG [Israel, Twelve Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-twelve-tribes-of?lang=eng)
+[^a]: TG [[Israel, Twelve Tribes of]].
 [^b]: GR earnestly, intently.

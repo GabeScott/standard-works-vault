@@ -5,4 +5,4 @@
 [Enos 1:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1?lang=eng&id=p26#p26)
 
 
-[^a]: [[1 Corinthians 9.16|1 Cor. 9:16]]; [[Ether 12.2|Ether 12:2]]. TG [Duty](https://www.churchofjesuschrist.org/study/scriptures/tg/duty?lang=eng).
+[^a]: [[1 Corinthians 9.16|1 Cor. 9:16]]; [[Ether 12.2|Ether 12:2]]. TG [[Duty]].

@@ -5,7 +5,7 @@
 [Alma 1:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^a]: TG [[Capital Punishment]].
 [^b]: [[Mosiah 29.39|Mosiah 29:39.]]
 [^c]: [[Helaman 1.8|Hel. 1:8.]]
-[^d]: TG [Citizenship.](https://www.churchofjesuschrist.org/study/scriptures/tg/citizenship?lang=eng)
+[^d]: TG [[Citizenship]].

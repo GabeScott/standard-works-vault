@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 16.63|Ezek. 16:63.]]
-[^b]: TG [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^b]: TG [[Guiltless]].

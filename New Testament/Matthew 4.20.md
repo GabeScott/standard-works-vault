@@ -5,4 +5,4 @@
 [Matthew 4:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.20?lang=eng#p20)
 
 
-[^a]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
+[^a]: TG [[Commitment]].

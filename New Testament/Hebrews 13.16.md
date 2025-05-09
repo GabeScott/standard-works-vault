@@ -5,5 +5,5 @@
 [Hebrews 13:16](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.16?lang=eng#p16)
 
 
-[^a]: TG [Communication.](https://www.churchofjesuschrist.org/study/scriptures/tg/communication?lang=eng)
+[^a]: TG [[Communication]].
 [^b]: [[2 Corinthians 9.12|2 Cor. 9:12 (7-12).]]

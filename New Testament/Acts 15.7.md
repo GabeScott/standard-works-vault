@@ -5,7 +5,7 @@
 [Acts 15:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.7?lang=eng#p7)
 
 
-[^a]: TG [Disputations.](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng)
+[^a]: TG [[Disputations, Dispute]].
 [^b]: [[D&C 7.7|D&C 7:7 (5-7)]]; JS—H 1:72.
 [^c]: [[Acts 10.20|Acts 10:20 (9-48).]]
-[^d]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^d]: TG [[Gospel]].

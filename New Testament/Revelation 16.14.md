@@ -7,5 +7,5 @@
 
 [^a]: [[D&C 50.1|D&C 50:1.]]
 [^b]: [[Matthew 24.24|Matt. 24:24]]; [[2 Nephi 9.9|2 Ne. 9:9 (8-12).]]
-[^c]: TG [Miracle.](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
+[^c]: TG [[Miracle]].
 [^d]: [[Revelation 17.14|Rev. 17:14.]]

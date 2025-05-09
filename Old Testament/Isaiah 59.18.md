@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 36.15|Alma 36:15]]; [[Alma 41.3|41:3 (2-5)]]; [[Alma 42.27|42:27]]; [[D&C 1.10|D&C 1:10 (9-10).]]
-[^b]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
-[^c]: TG [Retribution.](https://www.churchofjesuschrist.org/study/scriptures/tg/retribution?lang=eng)
+[^b]: TG [[Punish, Punishment]].
+[^c]: TG [[Retribution]].

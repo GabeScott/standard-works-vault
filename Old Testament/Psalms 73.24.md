@@ -5,6 +5,6 @@
 [Psalms 73:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.24?lang=eng#p24)
 
 
-[^a]: TG [Conscience.](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
-[^b]: TG [Counsel.](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng)
-[^c]: TG [Eternal Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng)
+[^a]: TG [[Conscience]].
+[^b]: TG [[Counsel]].
+[^c]: TG [[Eternal Life]].

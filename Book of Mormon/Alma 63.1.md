@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 38.1|Alma 38:1 (1-2)]]; [[Alma 49.30|49:30.]]
-[^b]: [[Mosiah 1.3|Mosiah 1:3]]; [[Alma 37.1|Alma 37:1 (1-12)]]. TG [Sacred](https://www.churchofjesuschrist.org/study/scriptures/tg/sacred?lang=eng).
+[^b]: [[Mosiah 1.3|Mosiah 1:3]]; [[Alma 37.1|Alma 37:1 (1-12)]]. TG [[Sacred]].

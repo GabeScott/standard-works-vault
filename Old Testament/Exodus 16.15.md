@@ -6,5 +6,5 @@
 
 
 [^a]: OR What is it? (HEB man-hu.)
-[^b]: [[1 Corinthians 10.3|1 Cor. 10:3 (1-6)]]; [[1 Nephi 17.28|1 Ne. 17:28]]; [[Mosiah 7.19|Mosiah 7:19]]. TG [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng).
-[^c]: TG [Bread.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread?lang=eng)
+[^b]: [[1 Corinthians 10.3|1 Cor. 10:3 (1-6)]]; [[1 Nephi 17.28|1 Ne. 17:28]]; [[Mosiah 7.19|Mosiah 7:19]]. TG [[Jesus Christ, Types of, in Anticipation]].
+[^c]: TG [[Bread]].

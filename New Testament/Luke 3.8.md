@@ -5,8 +5,8 @@
 [Luke 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.8?lang=eng#p8)
 
 
-[^a]: [[Alma 13.13|Alma 13:13 (10-13)]]. TG [Baptism, Qualifications for](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng).
-[^b]: TG [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
-[^c]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: [[Alma 13.13|Alma 13:13 (10-13)]]. TG [[Baptism, Qualifications for]].
+[^b]: TG [[Worthiness, Worthy]].
+[^c]: TG [[Repent, Repentance]].
 [^d]: JST Luke 3:13 … Abraham is our father; we have kept the commandments of God, and none can inherit the promises but the children of Abraham; for I say …
-[^e]: TG [Abrahamic Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng)
+[^e]: TG [[Abrahamic Covenant]].

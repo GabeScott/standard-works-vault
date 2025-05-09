@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 34.13|Ex. 34:13]]; [[Hosea 10.1|Hosea 10:1.]]
-[^b]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^b]: TG [[Hypocrisy, Hypocrite]].

@@ -5,4 +5,4 @@
 [Psalms 35:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/35.15?lang=eng#p15)
 
 
-[^a]: TG [Adversity.](https://www.churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng)
+[^a]: TG [[Adversity]].

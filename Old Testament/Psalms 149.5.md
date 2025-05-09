@@ -5,6 +5,6 @@
 [Psalms 149:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/149.5?lang=eng#p5)
 
 
-[^a]: TG [Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng)
-[^b]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^a]: TG [[Telestial Glory]].
+[^b]: TG [[Singing, Sing, Sang, Sung]].
 [^c]: [[Psalms 63.6|Ps. 63:6.]]

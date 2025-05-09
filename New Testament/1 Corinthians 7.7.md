@@ -6,4 +6,4 @@
 
 
 [^a]: GR own.
-[^b]: TG [God, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng); [Holy Ghost, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng)
+[^b]: TG [[God, Gifts of]]; [[Holy Ghost, Gifts of]].

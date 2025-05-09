@@ -6,5 +6,5 @@
 
 
 [^a]: [[Zechariah 1.4|Zech. 1:4.]]
-[^b]: TG [Stubbornness.](https://www.churchofjesuschrist.org/study/scriptures/tg/stubbornness?lang=eng)
+[^b]: TG [[Stubbornness, Stubborn]].
 [^c]: [[Jeremiah 5.23|Jer. 5:23.]]

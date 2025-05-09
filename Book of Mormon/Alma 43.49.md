@@ -7,4 +7,4 @@
 
 [^a]: [[Exodus 2.23|Ex. 2:23 (23-25)]]; [[Mosiah 29.20|Mosiah 29:20.]]
 [^b]: [[Psalms 59.1|Ps. 59:1 (1-5).]]
-[^c]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^c]: TG [[Liberty]].

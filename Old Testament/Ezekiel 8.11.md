@@ -5,5 +5,5 @@
 [Ezekiel 8:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/8.11?lang=eng#p11)
 
 
-[^a]: TG [Seventy.](https://www.churchofjesuschrist.org/study/scriptures/tg/seventy?lang=eng)
+[^a]: TG [[Seventy]].
 [^b]: HEB elders.

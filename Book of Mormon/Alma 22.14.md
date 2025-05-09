@@ -5,8 +5,8 @@
 [Alma 22:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Fall of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng)
+[^a]: TG [[Fall of Man]].
 [^b]: [[Ephesians 2.8|Eph. 2:8 (8-9)]]; [[Alma 42.14|Alma 42:14 (10-25).]]
-[^c]: TG [Jesus Christ, Death of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
+[^c]: TG [[Jesus Christ, Death of]].
 [^d]: [[2 Nephi 2.10|2 Ne. 2:10]]; [[Alma 33.22|Alma 33:22]]; [[Alma 34.9|34:9 (8-16).]]
 [^e]: [[Isaiah 25.8|Isa. 25:8]]; [[1 Corinthians 15.55|1 Cor. 15:55 (34-57).]]

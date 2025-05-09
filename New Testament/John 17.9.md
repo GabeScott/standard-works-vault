@@ -5,5 +5,5 @@
 [John 17:9](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.9?lang=eng#p9)
 
 
-[^a]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: TG [[Prayer, Pray]].
 [^b]: [[D&C 27.14|D&C 27:14]]; [[D&C 84.63|84:63.]]

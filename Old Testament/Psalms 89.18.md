@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 47.9|Ps. 47:9.]]
-[^b]: TG [Kingdom of God, in Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng)
+[^b]: TG [[Kingdom of God, in Heaven]].

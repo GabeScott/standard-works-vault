@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Chronicles 23.13|2 Chr. 23:13.]]
-[^b]: TG [Talents.](https://www.churchofjesuschrist.org/study/scriptures/tg/talents?lang=eng)
+[^b]: TG [[Talents]].

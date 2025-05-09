@@ -7,5 +7,5 @@
 
 [^a]: [[Deuteronomy 33.26|Deut. 33:26.]]
 [^b]: [[Jeremiah 5.7|Jer. 5:7 (7, 28).]]
-[^c]: TG [Ingratitude.](https://www.churchofjesuschrist.org/study/scriptures/tg/ingratitude?lang=eng)
-[^d]: TG [Cornerstone](https://www.churchofjesuschrist.org/study/scriptures/tg/cornerstone?lang=eng); [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
+[^c]: TG [[Ingratitude]].
+[^d]: TG [[Cornerstone]]; [[Rock]].

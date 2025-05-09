@@ -5,4 +5,4 @@
 [Jacob 2:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p5#p5)
 
 
-[^a]: [[Amos 4.13|Amos 4:13]]; [[Alma 12.3|Alma 12:3 (3-7)]]; [[D&C 6.16|D&C 6:16]]. TG [God, Omniscience of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng).
+[^a]: [[Amos 4.13|Amos 4:13]]; [[Alma 12.3|Alma 12:3 (3-7)]]; [[D&C 6.16|D&C 6:16]]. TG [[God, Omniscience of]].

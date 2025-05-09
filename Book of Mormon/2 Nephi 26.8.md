@@ -5,6 +5,6 @@
 [2 Nephi 26:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
-[^b]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
+[^a]: TG [[Steadfastness, Steadfast]].
+[^b]: TG [[Persecution, Persecute]].
 [^c]: [[3 Nephi 10.12|3 Ne. 10:12 (12-13).]]

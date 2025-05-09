@@ -6,6 +6,6 @@
 
 
 [^a]: Dan. 10:9; [[1 Nephi 1.7|1 Ne. 1:7]]; [[Moses 1.9|Moses 1:9.]]
-[^b]: JS—H 1:4. TG [Family, Love within](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng).
-[^c]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^b]: JS—H 1:4. TG [[Family, Love within]].
+[^c]: TG [[Devil, Church of]].
 [^d]: [[Jeremiah 11.19|Jer. 11:19]]; [[Matthew 10.22|Matt. 10:22]]; [[Moses 6.31|Moses 6:31 (31-37).]]

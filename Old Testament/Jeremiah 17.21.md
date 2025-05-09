@@ -5,4 +5,4 @@
 [Jeremiah 17:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.21?lang=eng#p21)
 
 
-[^a]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
+[^a]: TG [[Sabbath]].

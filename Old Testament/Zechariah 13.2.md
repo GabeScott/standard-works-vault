@@ -5,4 +5,4 @@
 [Zechariah 13:2](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/13.2?lang=eng#p2)
 
 
-[^a]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^a]: TG [[Idolatry, Idol]].

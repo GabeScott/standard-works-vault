@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 24.30|Alma 24:30.]]
-[^b]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^b]: TG [[Heathen]].

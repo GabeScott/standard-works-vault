@@ -8,4 +8,4 @@
 [^a]: [[Zechariah 8.22|Zech. 8:22.]]
 [^b]: [[Joel 2.1|Joel 2:1]]; [[2 Nephi 30.15|2 Ne. 30:15 (12-18)]]; [[D&C 133.13|D&C 133:13.]]
 [^c]: [[Psalms 122.1|Ps. 122:1.]]
-[^d]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^d]: TG [[Walking with God]].

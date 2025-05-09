@@ -5,6 +5,6 @@
 [1 Corinthians 12:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.13?lang=eng#p13)
 
 
-[^a]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].
 [^b]: GR Greeks. Col. 3:11.
 [^c]: GR slaves. D&C 24:11; 43:20.

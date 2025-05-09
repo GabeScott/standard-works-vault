@@ -5,6 +5,6 @@
 [Luke 16:31](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.31?lang=eng#p31)
 
 
-[^a]: TG [Scriptures, Study of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng); [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
+[^a]: TG [[Scriptures, Study of]]; [[Unbelief, Unbelievers]].
 [^b]: [[2 Nephi 33.11|2 Ne. 33:11 (10-14)]]; [[Helaman 13.26|Hel. 13:26 (24-30).]]
 [^c]: [[D&C 5.8|D&C 5:8 (7-10)]]; [[D&C 133.71|133:71.]]

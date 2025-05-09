@@ -5,5 +5,5 @@
 [1 Kings 12:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/12.20?lang=eng#p20)
 
 
-[^a]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^a]: TG [[Israel, Ten Lost Tribes of]].
 [^b]: Septuagint: Judah and Benjamin. 1 Kgs. 11:13.

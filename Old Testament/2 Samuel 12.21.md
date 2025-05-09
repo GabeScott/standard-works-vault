@@ -5,4 +5,4 @@
 [2 Samuel 12:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/12.21?lang=eng#p21)
 
 
-[^a]: TG [Fast, Fasting.](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
+[^a]: TG [[Fast, Fasting]].

@@ -5,7 +5,7 @@
 [Romans 1:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.21?lang=eng#p21)
 
 
-[^a]: TG [Ingratitude.](https://www.churchofjesuschrist.org/study/scriptures/tg/ingratitude?lang=eng)
+[^a]: TG [[Ingratitude]].
 [^b]: GR corrupt in their reasonings, deliberations. 2 Kgs. 17:15.
 [^c]: [[Isaiah 44.20|Isa. 44:20]]; [[Hosea 4.12|Hosea 4:12.]]
-[^d]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
+[^d]: TG [[Darkness, Spiritual]].

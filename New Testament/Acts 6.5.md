@@ -5,6 +5,6 @@
 [Acts 6:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/6.5?lang=eng#p5)
 
 
-[^a]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
-[^b]: TG [Holy Ghost, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng)
+[^a]: TG [[Called of God]].
+[^b]: TG [[Holy Ghost, Gifts of]].
 [^c]: [[Acts 21.8|Acts 21:8.]]

@@ -5,5 +5,5 @@
 [Hebrews 10:34](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.34?lang=eng#p34)
 
 
-[^a]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Joy]].
 [^b]: [[Matthew 6.20|Matt. 6:20.]]

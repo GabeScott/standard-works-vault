@@ -5,4 +5,4 @@
 [Luke 5:5](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/5.5?lang=eng#p5)
 
 
-[^a]: TG [Industry.](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng)
+[^a]: TG [[Industry, Industrious]].

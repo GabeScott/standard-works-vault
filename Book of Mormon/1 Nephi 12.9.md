@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 10.1|Matt. 10:1]]; [[Luke 6.13|Luke 6:13]]; [[John 6.70|John 6:70]]; [[1 Nephi 11.29|1 Ne. 11:29]]; [[1 Nephi 13.40|13:40 (24-26, 40).]]
-[^b]: [[Matthew 19.28|Matt. 19:28]]; [[D&C 29.12|D&C 29:12]]. TG [Judgment, the Last](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng).
+[^b]: [[Matthew 19.28|Matt. 19:28]]; [[D&C 29.12|D&C 29:12]]. TG [[Judgment, the Last]].

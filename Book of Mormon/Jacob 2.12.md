@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 18.25|1 Ne. 18:25]]; [[2 Nephi 5.15|2 Ne. 5:15 (14-16)]]; [[Helaman 6.9|Hel. 6:9 (9-11)]]; [[Ether 9.17|Ether 9:17]]; [[Ether 10.23|10:23 (12, 23).]]
-[^b]: [[1 Nephi 4.14|1 Ne. 4:14]]; [[1 Nephi 17.13|17:13 (13-14)]]. TG [Promised Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng).
+[^b]: [[1 Nephi 4.14|1 Ne. 4:14]]; [[1 Nephi 17.13|17:13 (13-14)]]. TG [[Promised Lands]].

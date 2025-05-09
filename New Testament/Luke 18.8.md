@@ -6,4 +6,4 @@
 
 
 [^a]: JST Luke 18:8 I tell you that he will come, and when he does come, he will avenge his saints speedily. Nevertheless …
-[^b]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^b]: TG [[God, Justice of]].

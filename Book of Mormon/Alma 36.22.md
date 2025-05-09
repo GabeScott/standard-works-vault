@@ -5,5 +5,5 @@
 [Alma 36:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p22#p22)
 
 
-[^a]: [[1 Nephi 1.8|1 Ne. 1:8]]. TG [God, Manifestations of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-manifestations-of?lang=eng).
+[^a]: [[1 Nephi 1.8|1 Ne. 1:8]]. TG [[God, Manifestations of]].
 [^b]: [[Isaiah 6.3|Isa. 6:3 (1-4).]]

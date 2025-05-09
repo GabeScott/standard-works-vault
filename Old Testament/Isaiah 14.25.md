@@ -7,4 +7,4 @@
 
 [^a]: The subject shifts to Assyria’s attack and downfall in Judah, 701 B.C. (vv. 24-27). 2 Kgs. 19:35 (32-37); [[Isaiah 37.36|Isa. 37:36 (33-38)]]; [[Zechariah 10.11|Zech. 10:11.]]
 [^b]: IE the mountains of Judah.
-[^c]: TG [Bondage, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng)
+[^c]: TG [[Bondage, Physical]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Kings 4.35|2 Kgs. 4:35 (32-35)]]; [[John 11.44|John 11:44 (43-44).]]
-[^b]: TG [Famine.](https://www.churchofjesuschrist.org/study/scriptures/tg/famine?lang=eng)
+[^b]: TG [[Famine]].

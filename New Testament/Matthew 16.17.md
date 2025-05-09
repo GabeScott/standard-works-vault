@@ -6,4 +6,4 @@
 
 
 [^a]: IE Son of Jonah.
-[^b]: TG [Revelation](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng); [Testimony](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng); [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
+[^b]: TG [[Revelation]]; [[Testimony]]; [[Witness, Witnesses]].

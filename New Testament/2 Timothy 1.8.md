@@ -5,5 +5,5 @@
 [2 Timothy 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.8?lang=eng#p8)
 
 
-[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
-[^b]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^a]: TG [[Shame]].
+[^b]: TG [[Testimony]].

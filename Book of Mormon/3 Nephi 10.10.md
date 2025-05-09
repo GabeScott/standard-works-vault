@@ -5,5 +5,5 @@
 [3 Nephi 10:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/10?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Mourning, Mourn]].
 [^b]: [[Acts 16.25|Acts 16:25.]]

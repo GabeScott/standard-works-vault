@@ -5,4 +5,4 @@
 [Exodus 10:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.3?lang=eng#p3)
 
 
-[^a]: [[Exodus 5.2|Ex. 5:2]]; [[Exodus 9.17|9:17]]. TG [Submissiveness](https://www.churchofjesuschrist.org/study/scriptures/tg/submissiveness?lang=eng).
+[^a]: [[Exodus 5.2|Ex. 5:2]]; [[Exodus 9.17|9:17]]. TG [[Submissiveness, Submit]].

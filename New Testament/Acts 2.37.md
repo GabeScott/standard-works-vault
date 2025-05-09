@@ -5,6 +5,6 @@
 [Acts 2:37](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.37?lang=eng#p37)
 
 
-[^a]: [[Alma 22.3|Alma 22:3 (3-11)]]. TG [Conscience](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng); [Holy Ghost, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng); [Holy Ghost, Source of Testimony](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-source-of-testimony?lang=eng).
-[^b]: TG [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^a]: [[Alma 22.3|Alma 22:3 (3-11)]]. TG [[Conscience]]; [[Holy Ghost, Mission of]]; [[Holy Ghost, Source of Testimony]].
+[^b]: TG [[Conversion, Convert]].
 [^c]: [[Alma 22.15|Alma 22:15.]]

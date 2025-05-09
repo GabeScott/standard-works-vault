@@ -5,6 +5,6 @@
 [Acts 8:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.7?lang=eng#p7)
 
 
-[^a]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
+[^a]: TG [[Spirits, Evil or Unclean]].
 [^b]: GR paralytic and lame.
 [^c]: [[3 Nephi 7.22|3 Ne. 7:22.]]

@@ -5,4 +5,4 @@
 [Deuteronomy 17:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/17.19?lang=eng#p19)
 
 
-[^a]: TG [Scriptures, Study of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng); [Scriptures, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng)
+[^a]: TG [[Scriptures, Study of]]; [[Scriptures, Value of]].

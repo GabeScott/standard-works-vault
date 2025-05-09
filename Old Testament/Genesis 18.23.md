@@ -7,4 +7,4 @@
 
 [^a]: [[1 Nephi 22.16|1 Ne. 22:16]]; [[Omni 1.7|Omni 1:7 (6-7)]]; [[Helaman 13.13|Hel. 13:13 (12-14)]]; [[D&C 64.24|D&C 64:24.]]
 [^b]: [[Genesis 20.4|Gen. 20:4.]]
-[^c]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^c]: TG [[Wickedness, Wicked]].

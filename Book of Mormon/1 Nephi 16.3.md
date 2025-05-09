@@ -5,4 +5,4 @@
 [1 Nephi 16:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p3#p3)
 
 
-[^a]: [[D&C 5.21|D&C 5:21]]. TG [Walking with God](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng).
+[^a]: [[D&C 5.21|D&C 5:21]]. TG [[Walking with God]].

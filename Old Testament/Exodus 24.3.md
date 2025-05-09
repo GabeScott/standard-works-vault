@@ -6,4 +6,4 @@
 
 
 [^a]: OR ordinances.
-[^b]: TG [Common Consent.](https://www.churchofjesuschrist.org/study/scriptures/tg/common-consent?lang=eng)
+[^b]: TG [[Common Consent]].

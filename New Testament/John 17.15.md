@@ -5,6 +5,6 @@
 [John 17:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.15?lang=eng#p15)
 
 
-[^a]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
-[^b]: TG [Refuge.](https://www.churchofjesuschrist.org/study/scriptures/tg/refuge?lang=eng)
-[^c]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
+[^a]: TG [[World, End of]].
+[^b]: TG [[Refuge]].
+[^c]: TG [[Evil]].

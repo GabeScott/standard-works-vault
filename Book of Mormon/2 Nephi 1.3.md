@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 19.16|Gen. 19:16.]]
-[^b]: TG [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^b]: TG [[Warn, Warnings]].

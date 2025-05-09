@@ -5,5 +5,5 @@
 [Psalms 66:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/66.6?lang=eng#p6)
 
 
-[^a]: [[Joshua 3.17|Josh. 3:17 (14-17)]]; [[Psalms 74.15|Ps. 74:15]]. TG [Israel, Deliverance of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-deliverance-of?lang=eng).
+[^a]: [[Joshua 3.17|Josh. 3:17 (14-17)]]; [[Psalms 74.15|Ps. 74:15]]. TG [[Israel, Deliverance of]].
 [^b]: HEB river.

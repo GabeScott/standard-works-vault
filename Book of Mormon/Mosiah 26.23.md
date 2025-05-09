@@ -5,5 +5,5 @@
 [Mosiah 26:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p23#p23)
 
 
-[^a]: TG [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
-[^b]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
+[^a]: TG [[Jesus Christ, Redeemer]].
+[^b]: TG [[Jesus Christ, Creator]].

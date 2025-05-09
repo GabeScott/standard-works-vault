@@ -7,4 +7,4 @@
 
 [^a]: [[Ezekiel 41.2|Ezek. 41:2 (1-2).]]
 [^b]: [[Joel 3.18|Joel 3:18]]; [[Zechariah 14.8|Zech. 14:8]]; [[Revelation 22.1|Rev. 22:1.]]
-[^c]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^c]: TG [[Genealogy and Temple Work]].

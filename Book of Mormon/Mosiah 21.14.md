@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 29.20|Mosiah 29:20.]]
-[^b]: TG [Deliver](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng); [Protection, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng)
+[^b]: TG [[Deliver, Deliverance]]; [[Protection, Divine]].

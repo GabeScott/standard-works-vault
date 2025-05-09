@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 17.55|1 Ne. 17:55.]]
-[^b]: TG [Art.](https://www.churchofjesuschrist.org/study/scriptures/tg/art?lang=eng)
+[^b]: TG [[Art]].
 [^c]: [[1 Nephi 17.49|1 Ne. 17:49 (8, 17, 49-51).]]

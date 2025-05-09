@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 19.15|Mosiah 19:15.]]
-[^b]: TG [Bondage, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng)
-[^c]: TG [Slavery.](https://www.churchofjesuschrist.org/study/scriptures/tg/slavery?lang=eng)
+[^b]: TG [[Bondage, Physical]].
+[^c]: TG [[Slavery, Slave]].

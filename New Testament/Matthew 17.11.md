@@ -6,4 +6,4 @@
 
 
 [^a]: JST Matt. 17:10-14 (Appendix).
-[^b]: [[D&C 27.6|D&C 27:6]]; [[D&C 77.14|77:14]]; 110:13-16. TG [Dispensations](https://www.churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng); [Restoration of the Gospel](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng).
+[^b]: [[D&C 27.6|D&C 27:6]]; [[D&C 77.14|77:14]]; 110:13-16. TG [[Dispensations]]; [[Restoration of the Gospel]].

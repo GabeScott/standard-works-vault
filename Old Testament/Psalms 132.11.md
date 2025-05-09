@@ -6,5 +6,5 @@
 
 
 [^a]: [[Luke 1.55|Luke 1:55 (54-55)]]; [[Galatians 3.16|Gal. 3:16.]]
-[^b]: TG [Jesus Christ, Davidic Descent of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-davidic-descent-of?lang=eng)
-[^c]: TG [Jesus Christ, Millennial Reign.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-millennial-reign?lang=eng)
+[^b]: TG [[Jesus Christ, Davidic Descent of]].
+[^c]: TG [[Jesus Christ, Millennial Reign]].

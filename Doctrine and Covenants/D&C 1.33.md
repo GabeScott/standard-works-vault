@@ -7,5 +7,5 @@
 
 [^a]: [[D&C 3.11|D&C 3:11]]; [[D&C 121.37|121:37 (34-37).]]
 [^b]: [[Matthew 25.29|Matt. 25:29 (29-30)]]; [[D&C 60.3|D&C 60:3 (2-3).]]
-[^c]: TG [God, Spirit of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng); [Holy Ghost, Loss of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-loss-of?lang=eng)
+[^c]: TG [[God, Spirit of]]; [[Holy Ghost, Loss of]].
 [^d]: [[Genesis 6.3|Gen. 6:3]]; [[1 Samuel 28.15|1 Sam. 28:15]]; [[Isaiah 57.16|Isa. 57:16]]; [[Moroni 9.4|Moro. 9:4.]]

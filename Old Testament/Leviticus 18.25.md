@@ -5,5 +5,5 @@
 [Leviticus 18:25](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/18.25?lang=eng#p25)
 
 
-[^a]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
-[^b]: [[Ezekiel 36.17|Ezek. 36:17]]. TG [Pollution](https://www.churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng).
+[^a]: TG [[Israel, Land of]].
+[^b]: [[Ezekiel 36.17|Ezek. 36:17]]. TG [[Pollution, Pollute]].

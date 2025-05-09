@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 38.10|Ps. 38:10.]]
-[^b]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
+[^b]: TG [[Affliction]].

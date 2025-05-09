@@ -5,5 +5,5 @@
 [Job 23:7](https://www.churchofjesuschrist.org/study/scriptures/ot/job/23.7?lang=eng#p7)
 
 
-[^a]: TG [Disputations.](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng)
+[^a]: TG [[Disputations, Dispute]].
 [^b]: [[2 Nephi 9.19|2 Ne. 9:19 (18-19)]]; [[D&C 108.8|D&C 108:8.]]

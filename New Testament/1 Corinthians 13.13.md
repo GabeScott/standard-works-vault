@@ -5,6 +5,6 @@
 [1 Corinthians 13:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/13.13?lang=eng#p13)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
-[^b]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
-[^c]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^a]: TG [[Faith]].
+[^b]: TG [[Hope]].
+[^c]: TG [[Love]].

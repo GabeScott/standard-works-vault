@@ -5,5 +5,5 @@
 [Mosiah 23:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Trust in God]].
 [^b]: [[1 Nephi 13.37|1 Ne. 13:37]]; [[Alma 26.7|Alma 26:7.]]

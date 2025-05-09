@@ -6,7 +6,7 @@
 
 
 [^a]: GR Since.
-[^b]: TG [Flesh and Blood.](https://www.churchofjesuschrist.org/study/scriptures/tg/flesh-and-blood?lang=eng)
+[^b]: TG [[Flesh and Blood]].
 [^c]: [[Genesis 3.15|Gen. 3:15.]]
-[^d]: 2 Tim. 1:10. TG [Redemption](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng).
-[^e]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^d]: 2 Tim. 1:10. TG [[Redemption]].
+[^e]: TG [[Devil, Church of]].

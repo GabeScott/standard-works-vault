@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 27.11|Mosiah 27:11 (11-17).]]
-[^b]: [[Jacob 7.23|Jacob 7:23]]; [[D&C 84.85|D&C 84:85]]. TG [Scriptures, Study of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng).
+[^b]: [[Jacob 7.23|Jacob 7:23]]; [[D&C 84.85|D&C 84:85]]. TG [[Scriptures, Study of]].

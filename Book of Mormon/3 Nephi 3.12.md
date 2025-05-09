@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Kings 20.3|1 Kgs. 20:3 (2-3)]]; [[Alma 54.7|Alma 54:7 (5-11).]]
-[^b]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^b]: TG [[Strength]].

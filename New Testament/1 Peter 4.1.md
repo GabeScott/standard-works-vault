@@ -7,4 +7,4 @@
 
 [^a]: GR intent, idea, thought.
 [^b]: JST 1 Pet. 4:2 For you who have suffered in the flesh should cease from sin, that you no longer the rest of your time in the flesh, should live to the lusts of men, but to the will of God.
-[^c]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^c]: TG [[Sin]].

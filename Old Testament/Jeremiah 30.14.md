@@ -8,5 +8,5 @@
 [^a]: Lam. 1:2.
 [^b]: OR caused thee to be wounded.
 [^c]: [[Hosea 5.13|Hosea 5:13.]]
-[^d]: TG [Cruelty.](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
+[^d]: TG [[Cruelty, Cruel]].
 [^e]: Lam. 1:5.

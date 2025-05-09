@@ -5,9 +5,9 @@
 [1 Timothy 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/3.16?lang=eng#p16)
 
 
-[^a]: [[D&C 19.10|D&C 19:10]]. TG [Mysteries of Godliness](https://www.churchofjesuschrist.org/study/scriptures/tg/mysteries-of-godliness?lang=eng).
-[^b]: [[Psalms 1.3|Ps. 1:3 (2-3)]]; [[John 10.33|John 10:33 (30-33)]]; [[Mosiah 3.5|Mosiah 3:5]]; [[Mosiah 15.1|15:1 (1-5)]]. TG [Jesus Christ, Jehovah](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng).
-[^c]: TG [God, Manifestations of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-manifestations-of?lang=eng)
-[^d]: TG [Jesus Christ, Condescension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-condescension-of?lang=eng)
+[^a]: [[D&C 19.10|D&C 19:10]]. TG [[Mysteries of Godliness]].
+[^b]: [[Psalms 1.3|Ps. 1:3 (2-3)]]; [[John 10.33|John 10:33 (30-33)]]; [[Mosiah 3.5|Mosiah 3:5]]; [[Mosiah 15.1|15:1 (1-5)]]. TG [[Jesus Christ, Jehovah]].
+[^c]: TG [[God, Manifestations of]].
+[^d]: TG [[Jesus Christ, Condescension of]].
 [^e]: GR approved by the.
-[^f]: TG [Jesus Christ, Ascension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-ascension-of?lang=eng)
+[^f]: TG [[Jesus Christ, Ascension of]].

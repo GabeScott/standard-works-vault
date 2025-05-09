@@ -5,4 +5,4 @@
 [Mark 10:30](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.30?lang=eng#p30)
 
 
-[^a]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^a]: TG [[Reward]].

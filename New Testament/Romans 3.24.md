@@ -7,5 +7,5 @@
 
 [^a]: JST Rom. 3:24 Therefore being justified only by his grace …
 [^b]: [[D&C 20.30|D&C 20:30.]]
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
-[^d]: TG [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
+[^c]: TG [[Grace]].
+[^d]: TG [[Jesus Christ, Redeemer]].

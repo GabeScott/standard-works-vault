@@ -5,8 +5,8 @@
 [1 Kings 14:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/14.15?lang=eng#p15)
 
 
-[^a]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^a]: TG [[Israel, Ten Lost Tribes of]].
 [^b]: [[Joshua 23.16|Josh. 23:16 (15-16).]]
 [^c]: IE the Euphrates.
 [^d]: HEB asherim; i.e., idolatrous, wooden poles, pillars, or trees. Deut. 16:21.
-[^e]: TG [Provoking.](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng)
+[^e]: TG [[Provoking, Provoke]].

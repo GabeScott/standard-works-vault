@@ -5,6 +5,6 @@
 [Ether 3:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p25#p25)
 
 
-[^a]: [[2 Nephi 27.7|2 Ne. 27:7]]. TG [God, Omniscience of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng); [Revelation](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng).
+[^a]: [[2 Nephi 27.7|2 Ne. 27:7]]. TG [[God, Omniscience of]]; [[Revelation]].
 [^b]: [[Moses 1.8|Moses 1:8.]]
 [^c]: [[Luke 24.16|Luke 24:16 (10-24)]]; [[D&C 25.4|D&C 25:4.]]

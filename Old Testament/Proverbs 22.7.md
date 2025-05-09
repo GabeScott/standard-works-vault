@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 19.35|D&C 19:35.]]
-[^b]: TG [Borrow](https://www.churchofjesuschrist.org/study/scriptures/tg/borrow?lang=eng); [Debt.](https://www.churchofjesuschrist.org/study/scriptures/tg/debt?lang=eng)
-[^c]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
+[^b]: TG [[Borrow, Borrowing]]; [[Debt]].
+[^c]: TG [[Servant]].

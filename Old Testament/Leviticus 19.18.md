@@ -5,7 +5,7 @@
 [Leviticus 19:18](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.18?lang=eng#p18)
 
 
-[^a]: TG [Forbear](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng); [Retribution.](https://www.churchofjesuschrist.org/study/scriptures/tg/retribution?lang=eng)
-[^b]: TG [Malice.](https://www.churchofjesuschrist.org/study/scriptures/tg/malice?lang=eng)
-[^c]: TG [Charity](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng); [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
-[^d]: TG [Fellowshipping](https://www.churchofjesuschrist.org/study/scriptures/tg/fellowshipping?lang=eng); [Neighbor.](https://www.churchofjesuschrist.org/study/scriptures/tg/neighbor?lang=eng)
+[^a]: TG [[Forbear, Forbearance]]; [[Retribution]].
+[^b]: TG [[Malice]].
+[^c]: TG [[Charity]]; [[Love]].
+[^d]: TG [[Fellowshipping]]; [[Neighbor]].

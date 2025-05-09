@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 20.20|3 Ne. 20:20.]]
-[^b]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^b]: TG [[God, Justice of]].

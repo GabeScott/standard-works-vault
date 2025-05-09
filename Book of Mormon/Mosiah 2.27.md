@@ -5,6 +5,6 @@
 [Mosiah 2:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p27#p27)
 
 
-[^a]: TG [Serve](https://www.churchofjesuschrist.org/study/scriptures/tg/serve?lang=eng); [Service.](https://www.churchofjesuschrist.org/study/scriptures/tg/service?lang=eng)
-[^b]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^a]: TG [[Serve]]; [[Service]].
+[^b]: TG [[Walking with God]].
 [^c]: [[Jacob 1.19|Jacob 1:19.]]

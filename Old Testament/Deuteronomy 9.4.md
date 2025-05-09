@@ -5,6 +5,6 @@
 [Deuteronomy 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.4?lang=eng#p4)
 
 
-[^a]: TG [Blessing.](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)
+[^a]: TG [[Israel, Blessings of]].
 [^b]: [[1 Nephi 17.38|1 Ne. 17:38 (32-38).]]
-[^c]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^c]: TG [[Sin]].

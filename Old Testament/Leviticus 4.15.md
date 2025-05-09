@@ -5,4 +5,4 @@
 [Leviticus 4:15](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.15?lang=eng#p15)
 
 
-[^a]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].

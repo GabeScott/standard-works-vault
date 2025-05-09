@@ -5,6 +5,6 @@
 [Alma 46:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p15#p15)
 
 
-[^a]: TG [Faithful](https://www.churchofjesuschrist.org/study/scriptures/tg/faithful?lang=eng); [Loyalty.](https://www.churchofjesuschrist.org/study/scriptures/tg/loyalty?lang=eng)
-[^b]: TG [Jesus Christ, Taking the Name of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-taking-the-name-of?lang=eng)
+[^a]: TG [[Faithful]]; [[Loyalty]].
+[^b]: TG [[Jesus Christ, Taking the Name of]].
 [^c]: [[Acts 11.26|Acts 11:26.]]

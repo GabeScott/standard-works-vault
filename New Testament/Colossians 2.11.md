@@ -5,5 +5,5 @@
 [Colossians 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/col/2.11?lang=eng#p11)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^a]: TG [[Circumcision]].
 [^b]: [[Romans 6.6|Rom. 6:6.]]

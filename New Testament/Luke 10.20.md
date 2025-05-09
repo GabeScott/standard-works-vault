@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 50.33|D&C 50:33 (30-34).]]
-[^b]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^b]: TG [[Joy]].
 [^c]: [[Exodus 32.32|Ex. 32:32]]; [[Hebrews 12.23|Heb. 12:23.]]

@@ -5,6 +5,6 @@
 [Exodus 32:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.29?lang=eng#p29)
 
 
-[^a]: TG [Dedication.](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng)
+[^a]: TG [[Dedication, Dedicate]].
 [^b]: [[Deuteronomy 13.6|Deut. 13:6 (6-11).]]
 [^c]: [[D&C 130.20|D&C 130:20]]; [[D&C 132.5|132:5.]]

@@ -5,4 +5,4 @@
 [Psalms 40:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/40.15?lang=eng#p15)
 
 
-[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^a]: TG [[Shame]].

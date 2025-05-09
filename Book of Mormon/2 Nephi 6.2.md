@@ -5,5 +5,5 @@
 [2 Nephi 6:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/6?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Priesthood, Melchizedek.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-melchizedek?lang=eng)
+[^a]: TG [[Priesthood, Melchizedek]].
 [^b]: [[2 Nephi 5.18|2 Ne. 5:18]]; [[Jacob 1.9|Jacob 1:9 (9, 11, 15)]]; [[Jarom 1.7|Jarom 1:7 (7, 14)]]; [[Mosiah 1.10|Mosiah 1:10.]]

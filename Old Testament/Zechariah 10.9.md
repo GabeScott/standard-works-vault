@@ -5,5 +5,5 @@
 [Zechariah 10:9](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/10.9?lang=eng#p9)
 
 
-[^a]: [[Zechariah 13.7|Zech. 13:7 (7-9)]]. TG [Israel, Ten Lost Tribes of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng).
+[^a]: [[Zechariah 13.7|Zech. 13:7 (7-9)]]. TG [[Israel, Ten Lost Tribes of]].
 [^b]: [[Deuteronomy 30.2|Deut. 30:2 (1-3).]]

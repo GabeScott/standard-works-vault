@@ -6,5 +6,5 @@
 
 
 [^a]: [[Abraham 2.7|Abr. 2:7.]]
-[^b]: TG [Translated Beings.](https://www.churchofjesuschrist.org/study/scriptures/tg/translated-beings?lang=eng)
+[^b]: TG [[Translated Beings]].
 [^c]: [[Ezekiel 1.4|Ezek. 1:4.]]

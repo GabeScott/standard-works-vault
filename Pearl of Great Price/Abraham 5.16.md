@@ -5,4 +5,4 @@
 [Abraham 5:16](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.16?lang=eng#p16)
 
 
-[^a]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
+[^a]: TG [[Woman, Women]].

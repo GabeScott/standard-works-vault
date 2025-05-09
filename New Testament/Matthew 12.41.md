@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jonah 3.5|Jonah 3:5.]]
-[^b]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^b]: TG [[Repent, Repentance]].

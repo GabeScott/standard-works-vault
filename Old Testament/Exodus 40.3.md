@@ -5,5 +5,5 @@
 [Exodus 40:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.3?lang=eng#p3)
 
 
-[^a]: TG [Ark of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/ark-of-the-covenant?lang=eng)
-[^b]: TG [Veil.](https://www.churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng)
+[^a]: TG [[Ark of the Covenant]].
+[^b]: TG [[Veil]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Chronicles 21.6|2 Chr. 21:6]]; [[2 Chronicles 22.3|22:3.]]
-[^b]: TG [Unrighteous Dominion.](https://www.churchofjesuschrist.org/study/scriptures/tg/unrighteous-dominion?lang=eng)
+[^b]: TG [[Unrighteous Dominion]].

@@ -5,6 +5,6 @@
 [Joshua 5:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/5.6?lang=eng#p6)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].
 [^b]: [[Numbers 14.23|Num. 14:23.]]
 [^c]: OR covenanted.

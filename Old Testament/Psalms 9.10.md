@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 4.12|Acts 4:12 (10-12).]]
-[^b]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^b]: TG [[Trust in God]].

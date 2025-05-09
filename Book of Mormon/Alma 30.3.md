@@ -5,5 +5,5 @@
 [Alma 30:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^a]: TG [[Ordinance]].
 [^b]: [[2 Nephi 25.24|2 Ne. 25:24]]; [[Jarom 1.5|Jarom 1:5]]; [[Mosiah 2.3|Mosiah 2:3]]; [[Alma 34.14|Alma 34:14 (13-14).]]

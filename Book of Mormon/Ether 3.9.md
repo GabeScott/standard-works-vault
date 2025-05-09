@@ -5,5 +5,5 @@
 [Ether 3:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Flesh and Blood](https://www.churchofjesuschrist.org/study/scriptures/tg/flesh-and-blood?lang=eng); [Jesus Christ, Condescension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-condescension-of?lang=eng)
+[^a]: TG [[Flesh and Blood]]; [[Jesus Christ, Condescension of]].
 [^b]: [[Matthew 8.10|Matt. 8:10]]; [[Alma 19.10|Alma 19:10.]]

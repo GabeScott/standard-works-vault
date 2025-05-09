@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 132.11|Ps. 132:11]]; [[Micah 7.20|Micah 7:20]]; [[Luke 1.72|Luke 1:72]]; [[Galatians 3.16|Gal. 3:16.]]
-[^b]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^b]: TG [[Seed of Abraham]].

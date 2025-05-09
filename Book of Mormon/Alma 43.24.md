@@ -5,4 +5,4 @@
 [Alma 43:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p24#p24)
 
 
-[^a]: [[Isaiah 31.5|Isa. 31:5]]; [[Alma 43.47|Alma 43:47]]; [[D&C 134.11|D&C 134:11]]. TG [Guidance, Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng).
+[^a]: [[Isaiah 31.5|Isa. 31:5]]; [[Alma 43.47|Alma 43:47]]; [[D&C 134.11|D&C 134:11]]. TG [[Guidance, Divine]].

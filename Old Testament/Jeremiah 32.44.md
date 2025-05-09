@@ -5,6 +5,6 @@
 [Jeremiah 32:44](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/32.44?lang=eng#p44)
 
 
-[^a]: TG [Seal.](https://www.churchofjesuschrist.org/study/scriptures/tg/seal?lang=eng)
+[^a]: TG [[Seal]].
 [^b]: HEB coastal plain.
-[^c]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^c]: TG [[Israel, Ten Lost Tribes of]].

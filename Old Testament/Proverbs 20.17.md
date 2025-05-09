@@ -6,4 +6,4 @@
 
 
 [^a]: IE Food gained by fraudulent means.
-[^b]: TG [Deceit.](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng)
+[^b]: TG [[Deceit, Deceive]].

@@ -5,4 +5,4 @@
 [Psalms 96:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/96.6?lang=eng#p6)
 
 
-[^a]: TG [Honor.](https://www.churchofjesuschrist.org/study/scriptures/tg/honor?lang=eng)
+[^a]: TG [[Honorable]].

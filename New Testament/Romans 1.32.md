@@ -5,6 +5,6 @@
 [Romans 1:32](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.32?lang=eng#p32)
 
 
-[^a]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^a]: TG [[Capital Punishment]].
 [^b]: GR approve of them, sympathize with them.
 [^c]: [[Jeremiah 5.31|Jer. 5:31.]]

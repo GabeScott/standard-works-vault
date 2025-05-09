@@ -5,4 +5,4 @@
 [Alma 38:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/38?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Temperance.](https://www.churchofjesuschrist.org/study/scriptures/tg/temperance?lang=eng)
+[^a]: TG [[Temperance, Temperate]].

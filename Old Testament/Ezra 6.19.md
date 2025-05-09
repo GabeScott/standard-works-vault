@@ -5,5 +5,5 @@
 [Ezra 6:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/6.19?lang=eng#p19)
 
 
-[^a]: TG [Passover.](https://www.churchofjesuschrist.org/study/scriptures/tg/passover?lang=eng)
+[^a]: TG [[Passover]].
 [^b]: [[Exodus 12.6|Ex. 12:6 (3-17).]]

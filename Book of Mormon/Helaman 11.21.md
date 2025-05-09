@@ -5,4 +5,4 @@
 [Helaman 11:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/11?lang=eng&id=p21#p21)
 
 
-[^a]: TG [Church](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng); [Peace.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]]; [[Peace of God]].

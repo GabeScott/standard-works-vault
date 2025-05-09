@@ -5,4 +5,4 @@
 [Alma 54:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/54?lang=eng&id=p21#p21)
 
 
-[^a]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
+[^a]: TG [[Unbelief, Unbelievers]].

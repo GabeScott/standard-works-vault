@@ -7,4 +7,4 @@
 
 [^a]: [[Proverbs 24.23|Prov. 24:23]]; [[James 2.9|James 2:9.]]
 [^b]: [[Ezekiel 13.19|Ezek. 13:19.]]
-[^c]: TG [Bread.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread?lang=eng)
+[^c]: TG [[Bread]].

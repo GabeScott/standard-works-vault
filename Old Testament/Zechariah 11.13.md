@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 27.7|Matt. 27:7 (3-10).]]
-[^b]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^b]: TG [[Jesus Christ, Prophecies about]].

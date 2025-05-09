@@ -5,5 +5,5 @@
 [Alma 3:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Separation.](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng)
+[^a]: TG [[Separation, Separate]].
 [^b]: [[2 Nephi 30.6|2 Ne. 30:6 (4-7).]]

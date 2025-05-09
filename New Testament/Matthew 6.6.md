@@ -7,7 +7,7 @@
 
 [^a]: [[Alma 33.7|Alma 33:7 (4-11)]]; [[Alma 34.26|34:26 (17-27).]]
 [^b]: [[2 Kings 4.33|2 Kgs. 4:33.]]
-[^c]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
-[^d]: TG [Meditation.](https://www.churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng)
-[^e]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
-[^f]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^c]: TG [[Prayer, Pray]].
+[^d]: TG [[Meditation, Meditate]].
+[^e]: TG [[God, Omniscience of]].
+[^f]: TG [[Reward]].

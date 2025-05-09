@@ -5,6 +5,6 @@
 [Matthew 4:2](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/4.2?lang=eng#p2)
 
 
-[^a]: [[Mosiah 3.7|Mosiah 3:7]]. TG [Fast, Fasting](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng).
+[^a]: [[Mosiah 3.7|Mosiah 3:7]]. TG [[Fast, Fasting]].
 [^b]: [[Exodus 24.18|Ex. 24:18.]]
 [^c]: JST Matt. 4:2 … and had communed with God, he was afterwards an hungered, and was left to be tempted of the devil.

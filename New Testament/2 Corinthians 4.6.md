@@ -7,5 +7,5 @@
 
 [^a]: [[Psalms 33.9|Ps. 33:9]]; [[Moses 2.5|Moses 2:5 (4-5).]]
 [^b]: [[D&C 45.9|D&C 45:9.]]
-[^c]: TG [Intelligence](https://www.churchofjesuschrist.org/study/scriptures/tg/intelligence?lang=eng); [Light of Christ.](https://www.churchofjesuschrist.org/study/scriptures/tg/light-of-christ?lang=eng)
-[^d]: TG [God, Glory of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-glory-of?lang=eng); [Jesus Christ, Relationships with the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
+[^c]: TG [[Intelligence]]; [[Light of Christ]].
+[^d]: TG [[God, Glory of]]; [[Jesus Christ, Relationships with the Father]].

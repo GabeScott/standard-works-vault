@@ -5,4 +5,4 @@
 [Psalms 25:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.8?lang=eng#p8)
 
 
-[^a]: TG [Education.](https://www.churchofjesuschrist.org/study/scriptures/tg/education?lang=eng)
+[^a]: TG [[Education]].

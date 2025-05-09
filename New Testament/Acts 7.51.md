@@ -5,8 +5,8 @@
 [Acts 7:51](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.51?lang=eng#p51)
 
 
-[^a]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^a]: TG [[Stiffnecked, Stiffneckedness]].
 [^b]: [[Jeremiah 6.10|Jer. 6:10]]; [[Romans 2.29|Rom. 2:29 (28-29).]]
-[^c]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^c]: TG [[Rebellion, Rebel]].
 [^d]: [[Nehemiah 9.30|Neh. 9:30.]]
 [^e]: Mal. 3:7; [[Matthew 23.32|Matt. 23:32]]; [[Helaman 13.25|Hel. 13:25 (25-29).]]

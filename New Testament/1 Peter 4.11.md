@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Thes. 2:4; [[Titus 2.1|Titus 2:1.]]
-[^b]: TG [Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng); [Teaching with the Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching-with-the-spirit?lang=eng)
+[^b]: TG [[Authority]]; [[Teaching with the Spirit]].

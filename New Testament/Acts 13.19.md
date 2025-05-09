@@ -6,4 +6,4 @@
 
 
 [^a]: [[Numbers 21.3|Num. 21:3 (1-3)]]; [[Psalms 80.8|Ps. 80:8 (8-10).]]
-[^b]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^b]: TG [[Israel, Land of]].

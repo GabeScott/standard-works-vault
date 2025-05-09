@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 24.4|Matt. 24:4 (4-5)]]; [[Mosiah 26.6|Mosiah 26:6]]; [[D&C 123.12|D&C 123:12.]]
-[^b]: TG [Humility.](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng)
+[^b]: TG [[Humility, Humble]].

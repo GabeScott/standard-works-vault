@@ -6,5 +6,5 @@
 
 
 [^a]: IE The Lord will wait until the day of restoration to bless Israel with His presence.
-[^b]: HEB Justice. TG [Judgment](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng).
+[^b]: HEB Justice. TG [[Judgment]].
 [^c]: [[D&C 98.2|D&C 98:2.]]

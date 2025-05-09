@@ -6,5 +6,5 @@
 
 
 [^a]: [[Numbers 27.21|Num. 27:21.]]
-[^b]: TG [Priesthood, Aaronic.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-aaronic?lang=eng)
+[^b]: TG [[Priesthood, Aaronic]].
 [^c]: [[2 Nephi 5.26|2 Ne. 5:26]]; [[Mosiah 23.17|Mosiah 23:17.]]

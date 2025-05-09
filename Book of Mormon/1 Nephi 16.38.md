@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 3.30|1 Ne. 3:30 (30-31)]]; [[1 Nephi 4.3|4:3.]]
-[^b]: TG [Provoking.](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng)
-[^c]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^b]: TG [[Provoking, Provoke]].
+[^c]: TG [[Anger]].

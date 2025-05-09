@@ -5,8 +5,8 @@
 [Ether 3:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Jesus Christ, Foreordained.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-foreordained?lang=eng)
-[^b]: TG [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
+[^a]: TG [[Jesus Christ, Foreordained]].
+[^b]: TG [[Jesus Christ, Redeemer]].
 [^c]: [[Mosiah 15.2|Mosiah 15:2.]]
 [^d]: [[Mosiah 16.9|Mosiah 16:9]]; [[D&C 88.13|D&C 88:13 (7-13).]]
-[^e]: TG [Sons and Daughters of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)
+[^e]: TG [[Sons and Daughters of God]].

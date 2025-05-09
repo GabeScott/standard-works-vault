@@ -9,4 +9,4 @@
 [^b]: [[Isaiah 15.2|Isa. 15:2]]; [[Ezekiel 7.18|Ezek. 7:18 (18-19)]]; [[Amos 8.10|Amos 8:10.]]
 [^c]: OR a robe.
 [^d]: OR branding (a mark of slavery).
-[^e]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
+[^e]: TG [[Beauty]].

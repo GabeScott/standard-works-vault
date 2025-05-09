@@ -5,4 +5,4 @@
 [Psalms 94:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/94.12?lang=eng#p12)
 
 
-[^a]: TG [Chastening.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng)
+[^a]: TG [[Chastening]].

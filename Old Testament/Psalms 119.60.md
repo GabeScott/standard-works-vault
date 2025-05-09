@@ -5,4 +5,4 @@
 [Psalms 119:60](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.60?lang=eng#p60)
 
 
-[^a]: TG [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
+[^a]: TG [[Procrastination, Procrastinate]].

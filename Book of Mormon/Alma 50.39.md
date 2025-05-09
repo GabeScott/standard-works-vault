@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 60.1|Alma 60:1.]]
-[^b]: TG [Oath](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng); [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^b]: TG [[Oath]]; [[Ordinance]].
 [^c]: [[Alma 4.16|Alma 4:16 (16-17)]]; [[Helaman 1.5|Hel. 1:5 (3-5, 13).]]

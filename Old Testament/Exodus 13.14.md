@@ -8,4 +8,4 @@
 [^a]: [[Exodus 12.26|Ex. 12:26 (25-27).]]
 [^b]: [[Deuteronomy 6.20|Deut. 6:20.]]
 [^c]: [[Exodus 3.10|Ex. 3:10 (2-10)]]; [[Alma 36.28|Alma 36:28]]; [[D&C 8.3|D&C 8:3 (2-3).]]
-[^d]: TG [Bondage, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng)
+[^d]: TG [[Bondage, Physical]].

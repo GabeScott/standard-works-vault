@@ -5,5 +5,5 @@
 [Isaiah 5:30](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.30?lang=eng#p30)
 
 
-[^a]: TG [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
-[^b]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
+[^a]: TG [[World, End of]].
+[^b]: TG [[Darkness, Spiritual]].

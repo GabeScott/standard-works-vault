@@ -5,4 +5,4 @@
 [Alma 31:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^a]: TG [[Apostasy of Individuals]].

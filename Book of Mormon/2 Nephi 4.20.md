@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Corinthians 4.16|2 Cor. 4:16.]]
-[^b]: [[1 Nephi 17.6|1 Ne. 17:6]]. TG [Affliction](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng); [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng).
+[^b]: [[1 Nephi 17.6|1 Ne. 17:6]]. TG [[Affliction]]; [[Holy Ghost, Comforter]].

@@ -7,5 +7,5 @@
 
 [^a]: HEB Aramean. Abraham migrated to Aram and from there to the land of promise. Gen. 28:5; [[Hosea 12.12|Hosea 12:12.]]
 [^b]: [[Genesis 47.4|Gen. 47:4.]]
-[^c]: TG [Israel, Origins of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-origins-of?lang=eng)
+[^c]: TG [[Israel, Origins of]].
 [^d]: [[Exodus 1.7|Ex. 1:7.]]

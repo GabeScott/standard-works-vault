@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 45.74|D&C 45:74.]]
 [^b]: Mal. 1:11.
-[^c]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^c]: TG [[Heathen]].

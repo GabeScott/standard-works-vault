@@ -5,4 +5,4 @@
 [Ephesians 2:9](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.9?lang=eng#p9)
 
 
-[^a]: TG [Boast.](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng)
+[^a]: TG [[Boast, Boasting]].

@@ -5,5 +5,5 @@
 [Ether 12:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p38#p38)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].
 [^b]: [[Acts 20.26|Acts 20:26]]; [[Jacob 1.19|Jacob 1:19.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: Hab. 2:6 (6-8).
-[^b]: TG [Babylon.](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng)
+[^b]: TG [[Babylon]].

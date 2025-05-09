@@ -5,6 +5,6 @@
 [Isaiah 43:25](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.25?lang=eng#p25)
 
 
-[^a]: TG [Forgive](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng); [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
-[^b]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^a]: TG [[Forgive, Forgiveness]]; [[Remission of Sins]].
+[^b]: TG [[Transgressor]].
 [^c]: [[Isaiah 48.11|Isa. 48:11.]]

@@ -5,4 +5,4 @@
 [Moses 7:16](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.16?lang=eng#p16)
 
 
-[^a]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^a]: TG [[God, Presence of]].

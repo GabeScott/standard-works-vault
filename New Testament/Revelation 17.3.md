@@ -5,4 +5,4 @@
 [Revelation 17:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/17.3?lang=eng#p3)
 
 
-[^a]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^a]: TG [[Name of the Lord]].

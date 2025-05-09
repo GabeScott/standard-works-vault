@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 18.31|Luke 18:31]]; [[2 Nephi 10.3|2 Ne. 10:3]]; [[Mosiah 3.9|Mosiah 3:9 (9-10)]]; [[3 Nephi 27.14|3 Ne. 27:14.]]
-[^b]: TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng); [Jesus Christ, Death of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
+[^b]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Death of]].

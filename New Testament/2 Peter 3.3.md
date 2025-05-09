@@ -6,5 +6,5 @@
 
 
 [^a]: JST 2 Pet. 3:3-13 (Appendix).
-[^b]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
-[^c]: TG [Lust](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng); [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
+[^b]: TG [[Last Days]].
+[^c]: TG [[Lust]]; [[Selfishness]].

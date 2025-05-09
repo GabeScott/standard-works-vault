@@ -7,4 +7,4 @@
 
 [^a]: [[Exodus 35.11|Ex. 35:11]]; [[Hebrews 9.2|Heb. 9:2.]]
 [^b]: [[Exodus 36.8|Ex. 36:8 (8-19).]]
-[^c]: TG [Cherubim.](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
+[^c]: TG [[Cherubim]].

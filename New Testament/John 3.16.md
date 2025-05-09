@@ -5,12 +5,12 @@
 [John 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.16?lang=eng#p16)
 
 
-[^a]: TG [God the Father, Elohim.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-father-elohim?lang=eng)
-[^b]: TG [God, [Love](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng) of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng); [Love](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng); [Mercy](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng); [Worth of Souls.](https://www.churchofjesuschrist.org/study/scriptures/tg/worth-of-souls?lang=eng)
-[^c]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
-[^d]: TG [God, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng); [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
+[^a]: TG [[God the Father, Elohim]].
+[^b]: TG [[God, Love of]]; [[Love]]; [[Mercy, Merciful]]; [[Worth of Souls]].
+[^c]: TG [[World, End of]].
+[^d]: TG [[God, Gifts of]]; [[Jesus Christ, Redeemer]].
 [^e]: [[Genesis 22.2|Gen. 22:2 (1-14)]]; [[Jacob 4.5|Jacob 4:5.]]
-[^f]: TG [Jesus Christ, Divine Sonship.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
-[^g]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^f]: TG [[Jesus Christ, Divine Sonship]].
+[^g]: TG [[Faith]].
 [^h]: [[D&C 45.5|D&C 45:5.]]
 [^i]: 1 Jn. 4:9.

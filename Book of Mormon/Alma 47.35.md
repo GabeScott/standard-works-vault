@@ -6,6 +6,6 @@
 
 
 [^a]: [[Proverbs 19.6|Prov. 19:6 (6-7).]]
-[^b]: TG [Conspiracy](https://www.churchofjesuschrist.org/study/scriptures/tg/conspiracy?lang=eng); [Tyranny.](https://www.churchofjesuschrist.org/study/scriptures/tg/tyranny?lang=eng)
+[^b]: TG [[Conspiracy]]; [[Tyranny]].
 [^c]: [[Alma 47.4|Alma 47:4.]]
 [^d]: [[Jacob 1.13|Jacob 1:13 (13-14).]]

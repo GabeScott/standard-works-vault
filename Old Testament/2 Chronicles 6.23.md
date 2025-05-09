@@ -5,4 +5,4 @@
 [2 Chronicles 6:23](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/6.23?lang=eng#p23)
 
 
-[^a]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]].

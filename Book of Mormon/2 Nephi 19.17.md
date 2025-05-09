@@ -5,8 +5,8 @@
 [2 Nephi 19:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/19?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
-[^b]: TG [Widows.](https://www.churchofjesuschrist.org/study/scriptures/tg/widows?lang=eng)
+[^a]: TG [[Mercy, Merciful]].
+[^b]: TG [[Widows]].
 [^c]: [[Micah 7.2|Micah 7:2 (2-3).]]
 [^d]: [[Proverbs 1.16|Prov. 1:16]]; [[D&C 64.16|D&C 64:16.]]
 [^e]: [[Ecclesiastes 10.12|Eccl. 10:12 (1-3, 12)]]; [[2 Nephi 9.28|2 Ne. 9:28 (28-29)]]; [[D&C 35.7|D&C 35:7.]]

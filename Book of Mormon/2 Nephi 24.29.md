@@ -7,4 +7,4 @@
 
 [^a]: [[2 Chronicles 26.6|2 Chr. 26:6.]]
 [^b]: [[2 Kings 18.8|2 Kgs. 18:8 (1, 8).]]
-[^c]: TG [Jesus Christ, Types of, in Anticipation.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng)
+[^c]: TG [[Jesus Christ, Types of, in Anticipation]].

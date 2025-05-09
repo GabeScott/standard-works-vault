@@ -6,7 +6,7 @@
 
 
 [^a]: HEB treated lightly or dishonored.
-[^b]: TG [Honoring Father and Mother.](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng)
+[^b]: TG [[Honoring Father and Mother]].
 [^c]: [[Zechariah 7.10|Zech. 7:10 (9-11).]]
-[^d]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^d]: TG [[Stranger]].
 [^e]: [[Amos 5.12|Amos 5:12]]; [[Helaman 6.39|Hel. 6:39 (37-40).]]

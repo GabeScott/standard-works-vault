@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 7.16|Luke 7:16]]; [[Alma 19.25|Alma 19:25 (24-27).]]
-[^b]: TG [God, Privilege of Seeing](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng); [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^b]: TG [[God, Privilege of Seeing]]; [[Walking with God]].

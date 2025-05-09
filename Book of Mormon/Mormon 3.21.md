@@ -7,6 +7,6 @@
 
 [^a]: [[D&C 3.20|D&C 3:20.]]
 [^b]: [[1 Nephi 13.23|1 Ne. 13:23 (20-29, 41).]]
-[^c]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^c]: TG [[Israel, Judah, People of]].
 [^d]: [[2 Nephi 25.18|2 Ne. 25:18.]]
 [^e]: [[2 Nephi 26.12|2 Ne. 26:12]]; [[Mosiah 7.27|Mosiah 7:27.]]

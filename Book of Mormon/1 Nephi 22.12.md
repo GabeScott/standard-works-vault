@@ -7,10 +7,10 @@
 
 [^a]: [[Psalms 80.19|Ps. 80:19 (17-19)]]; [[D&C 35.25|D&C 35:25.]]
 [^b]: [[1 Nephi 21.25|1 Ne. 21:25 (24-25).]]
-[^c]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
-[^d]: TG [Lands of Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
-[^e]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
-[^f]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
+[^c]: TG [[Israel, Gathering of]].
+[^d]: TG [[Lands of Inheritance]].
+[^e]: TG [[Israel, Restoration of]].
+[^f]: TG [[Darkness, Spiritual]].
 [^g]: [[1 Nephi 19.15|1 Ne. 19:15]]; [[2 Nephi 6.11|2 Ne. 6:11 (10-15).]]
-[^h]: TG [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng); [Jesus Christ, Savior.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng)
-[^i]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
+[^h]: TG [[Jesus Christ, Prophecies about]]; [[Jesus Christ, Savior]].
+[^i]: TG [[Jesus Christ, Jehovah]].

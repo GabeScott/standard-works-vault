@@ -5,5 +5,5 @@
 [Romans 9:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.14?lang=eng#p14)
 
 
-[^a]: [[Psalms 92.15|Ps. 92:15]]. TG [God, Perfection of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng).
+[^a]: [[Psalms 92.15|Ps. 92:15]]. TG [[God, Perfection of]].
 [^b]: GR May it not be!

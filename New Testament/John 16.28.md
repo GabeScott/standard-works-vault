@@ -7,4 +7,4 @@
 
 [^a]: [[John 8.42|John 8:42]]; [[John 17.8|17:8]]; [[Galatians 4.4|Gal. 4:4.]]
 [^b]: [[John 8.14|John 8:14.]]
-[^c]: TG [Man, Antemortal Existence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-antemortal-existence-of?lang=eng)
+[^c]: TG [[Man, Antemortal Existence of]].

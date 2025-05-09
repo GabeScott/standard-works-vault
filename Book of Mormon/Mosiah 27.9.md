@@ -5,5 +5,5 @@
 [Mosiah 27:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p9#p9)
 
 
-[^a]: [[2 Samuel 12.14|2 Sam. 12:14 (1-14)]]; [[2 Samuel 15.6|15:6 (1-6)]]. TG [Apostasy of Individuals](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng).
+[^a]: [[2 Samuel 12.14|2 Sam. 12:14 (1-14)]]; [[2 Samuel 15.6|15:6 (1-6)]]. TG [[Apostasy of Individuals]].
 [^b]: [[D&C 50.7|D&C 50:7]]; [[D&C 93.39|93:39 (37, 39).]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Kings 8.36|1 Kgs. 8:36.]]
-[^b]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^b]: TG [[Guidance, Divine]].

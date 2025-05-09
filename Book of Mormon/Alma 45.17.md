@@ -5,4 +5,4 @@
 [Alma 45:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/45?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].

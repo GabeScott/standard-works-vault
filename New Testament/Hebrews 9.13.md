@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 4.5|Lev. 4:5.]]
-[^b]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^b]: TG [[Purification, Purify, Purifying]].

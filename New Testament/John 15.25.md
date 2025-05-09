@@ -5,4 +5,4 @@
 [John 15:25](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.25?lang=eng#p25)
 
 
-[^a]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
+[^a]: TG [[Hate]].

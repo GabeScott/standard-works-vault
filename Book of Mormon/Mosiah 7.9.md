@@ -7,5 +7,5 @@
 
 [^a]: [[Mosiah 11.1|Mosiah 11:1]]; [[Mosiah 19.16|19:16.]]
 [^b]: [[Omni 1.13|Omni 1:13.]]
-[^c]: TG [Kings, Earthly.](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
+[^c]: TG [[Kings, Earthly]].
 [^d]: [[Mosiah 19.26|Mosiah 19:26.]]

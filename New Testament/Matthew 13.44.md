@@ -5,4 +5,4 @@
 [Matthew 13:44](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.44?lang=eng#p44)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^a]: TG [[Treasure]].

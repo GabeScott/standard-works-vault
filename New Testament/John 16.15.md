@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 28.10|3 Ne. 28:10]]; [[D&C 76.59|D&C 76:59]]; [[D&C 84.38|84:38 (37-38).]]
-[^b]: TG [Jesus Christ, Divine Sonship.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
+[^b]: TG [[Jesus Christ, Divine Sonship]].

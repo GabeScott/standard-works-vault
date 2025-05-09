@@ -5,5 +5,5 @@
 [2 Nephi 24:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Earth, Renewal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
+[^a]: TG [[Earth, Renewal of]].
 [^b]: [[Isaiah 55.12|Isa. 55:12 (12-13).]]

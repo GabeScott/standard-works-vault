@@ -5,5 +5,5 @@
 [Ezekiel 45:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/45.9?lang=eng#p9)
 
 
-[^a]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^a]: TG [[God, Justice of]].
 [^b]: OR expropriations; i.e., illegal taking away of property or possessions.

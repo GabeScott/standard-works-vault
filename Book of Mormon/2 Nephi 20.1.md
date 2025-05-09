@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 10.1|Isa. 10:1 (1-34).]]
-[^b]: TG [Injustice.](https://www.churchofjesuschrist.org/study/scriptures/tg/injustice?lang=eng)
+[^b]: TG [[Injustice]].

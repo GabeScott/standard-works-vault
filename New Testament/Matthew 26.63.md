@@ -8,4 +8,4 @@
 [^a]: GR was silent, “kept silent.”
 [^b]: [[Isaiah 53.7|Isa. 53:7.]]
 [^c]: GR charge (you) under oath (“cause you to swear”).
-[^d]: TG [Oath](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng); [Swearing.](https://www.churchofjesuschrist.org/study/scriptures/tg/swearing?lang=eng)
+[^d]: TG [[Oath]]; [[Swearing, Swear, Sware, Sworn]].

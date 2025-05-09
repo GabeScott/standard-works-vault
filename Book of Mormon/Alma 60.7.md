@@ -5,4 +5,4 @@
 [Alma 60:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Apathy.](https://www.churchofjesuschrist.org/study/scriptures/tg/apathy?lang=eng)
+[^a]: TG [[Apathy]].

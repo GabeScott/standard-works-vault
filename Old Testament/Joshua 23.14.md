@@ -5,5 +5,5 @@
 [Joshua 23:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/23.14?lang=eng#p14)
 
 
-[^a]: [[1 Kings 2.2|1 Kgs. 2:2]]; [[2 Nephi 1.14|2 Ne. 1:14]]. TG [Death](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng).
+[^a]: [[1 Kings 2.2|1 Kgs. 2:2]]; [[2 Nephi 1.14|2 Ne. 1:14]]. TG [[Death]].
 [^b]: [[D&C 82.10|D&C 82:10.]]

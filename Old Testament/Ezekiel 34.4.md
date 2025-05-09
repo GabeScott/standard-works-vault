@@ -5,5 +5,5 @@
 [Ezekiel 34:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.4?lang=eng#p4)
 
 
-[^a]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
-[^b]: TG [Cruelty.](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
+[^a]: TG [[Sickness, Sick]].
+[^b]: TG [[Cruelty, Cruel]].

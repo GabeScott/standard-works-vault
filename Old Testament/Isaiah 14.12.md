@@ -6,6 +6,6 @@
 
 
 [^a]: [[Revelation 8.10|Rev. 8:10.]]
-[^b]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
-[^c]: HEB morning star, son of dawn. The ruler of the wicked world (Babylon) is spoken of as Lucifer, the ruler of all wickedness. TG [Devil](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng).
-[^d]: TG [Nations.](https://www.churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng)
+[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^c]: HEB morning star, son of dawn. The ruler of the wicked world (Babylon) is spoken of as Lucifer, the ruler of all wickedness. TG [[Devil, Church of]].
+[^d]: TG [[Nations]].

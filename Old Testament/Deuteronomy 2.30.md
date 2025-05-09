@@ -6,4 +6,4 @@
 
 
 [^a]: [[Romans 9.18|Rom. 9:18.]]
-[^b]: TG [Stubbornness.](https://www.churchofjesuschrist.org/study/scriptures/tg/stubbornness?lang=eng)
+[^b]: TG [[Stubbornness, Stubborn]].

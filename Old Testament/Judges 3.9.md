@@ -5,4 +5,4 @@
 [Judges 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/3.9?lang=eng#p9)
 
 
-[^a]: [[Nehemiah 9.27|Neh. 9:27]]. TG [Deliver](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng).
+[^a]: [[Nehemiah 9.27|Neh. 9:27]]. TG [[Deliver, Deliverance]].

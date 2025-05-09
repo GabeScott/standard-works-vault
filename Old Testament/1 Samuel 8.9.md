@@ -7,4 +7,4 @@
 
 [^a]: [[Jacob 1.19|Jacob 1:19]]; [[Moroni 9.6|Moro. 9:6.]]
 [^b]: [[Mosiah 29.21|Mosiah 29:21 (21-23).]]
-[^c]: TG [Tyranny.](https://www.churchofjesuschrist.org/study/scriptures/tg/tyranny?lang=eng)
+[^c]: TG [[Tyranny]].

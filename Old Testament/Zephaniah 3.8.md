@@ -7,4 +7,4 @@
 
 [^a]: [[Joel 3.2|Joel 3:2 (1-2).]]
 [^b]: [[Isaiah 13.4|Isa. 13:4.]]
-[^c]: TG [Earth, Destiny of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-destiny-of?lang=eng); [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
+[^c]: TG [[Earth, Destiny of]]; [[World, End of]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Samuel 15.22|1 Sam. 15:22]]; [[Hebrews 10.6|Heb. 10:6 (4-6).]]
-[^b]: TG [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
-[^c]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^b]: TG [[Firstborn]].
+[^c]: TG [[Transgressor]].

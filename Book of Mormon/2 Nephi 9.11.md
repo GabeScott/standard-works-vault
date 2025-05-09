@@ -5,5 +5,5 @@
 [2 Nephi 9:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p11#p11)
 
 
-[^a]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
-[^b]: TG [Death.](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng)
+[^a]: TG [[Deliver, Deliverance]].
+[^b]: TG [[Death]].

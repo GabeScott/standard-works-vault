@@ -6,4 +6,4 @@
 
 
 [^a]: IE Zion is to arise and be a light unto the nations.
-[^b]: TG [Light [noun]](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng); [Light of Christ.](https://www.churchofjesuschrist.org/study/scriptures/tg/light-of-christ?lang=eng)
+[^b]: TG [[Light]]; [[Light of Christ]].

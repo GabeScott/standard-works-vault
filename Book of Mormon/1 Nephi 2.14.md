@@ -10,5 +10,5 @@
 
 
 [^a]: [[1 Nephi 9.1|1 Ne. 9:1]]; [[1 Nephi 16.6|16:6 (6, 12).]]
-[^b]: TG [Priesthood, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng)
+[^b]: TG [[Priesthood, Power of]].
 [^c]: [[1 Nephi 17.45|1 Ne. 17:45.]]

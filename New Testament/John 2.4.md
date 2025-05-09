@@ -5,4 +5,4 @@
 [John 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/john/2.4?lang=eng#p4)
 
 
-[^a]: JST John 2:4 … [Woman](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng), what wilt thou have me to do for thee? that will I do; for mine hour is not yet come. TG [Woman](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng).
+[^a]: JST John 2:4 … [[Woman, Women]], what wilt thou have me to do for thee? that will I do; for mine hour is not yet come. TG [[Woman, Women]].

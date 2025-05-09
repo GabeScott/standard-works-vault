@@ -5,4 +5,4 @@
 [Psalms 50:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/50.19?lang=eng#p19)
 
 
-[^a]: TG [Deceit.](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng)
+[^a]: TG [[Deceit, Deceive]].

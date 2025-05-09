@@ -5,7 +5,7 @@
 [Jeremiah 5:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.19?lang=eng#p19)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
-[^b]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
-[^c]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
-[^d]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^a]: TG [[Apostasy of Israel]].
+[^b]: TG [[Idolatry, Idol]].
+[^c]: TG [[Israel, Scattering of]].
+[^d]: TG [[Stranger]].

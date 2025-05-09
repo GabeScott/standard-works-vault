@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 44.28|Jer. 44:28]]; [[Ezekiel 6.8|Ezek. 6:8.]]
-[^b]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^b]: TG [[Mourning, Mourn]].

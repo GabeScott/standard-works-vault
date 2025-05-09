@@ -5,4 +5,4 @@
 [John 7:28](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.28?lang=eng#p28)
 
 
-[^a]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^a]: TG [[Truth]].

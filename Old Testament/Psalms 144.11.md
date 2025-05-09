@@ -5,4 +5,4 @@
 [Psalms 144:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/144.11?lang=eng#p11)
 
 
-[^a]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
+[^a]: TG [[Vanity]].

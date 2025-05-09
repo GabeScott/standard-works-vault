@@ -7,6 +7,6 @@
 
 [^a]: [[2 Kings 15.35|2 Kgs. 15:35]]; [[2 Chronicles 27.3|2 Chr. 27:3.]]
 [^b]: Dan. 12:6.
-[^c]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^c]: TG [[Scriptures, Writing of]].
 [^d]: OR inkwell.
 [^e]: [[Exodus 27.1|Ex. 27:1 (1-8).]]

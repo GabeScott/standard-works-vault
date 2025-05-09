@@ -5,4 +5,4 @@
 [2 Corinthians 10:13](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.13?lang=eng#p13)
 
 
-[^a]: TG [Boast.](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng)
+[^a]: TG [[Boast, Boasting]].

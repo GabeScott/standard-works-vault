@@ -5,4 +5,4 @@
 [Psalms 51:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.5?lang=eng#p5)
 
 
-[^a]: TG [Conceived in Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/conceived-in-sin?lang=eng)
+[^a]: TG [[Conceived in Sin]].

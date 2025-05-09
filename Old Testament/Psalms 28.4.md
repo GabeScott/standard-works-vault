@@ -5,5 +5,5 @@
 [Psalms 28:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/28.4?lang=eng#p4)
 
 
-[^a]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
+[^a]: TG [[Good Works]].
 [^b]: OR due reward.

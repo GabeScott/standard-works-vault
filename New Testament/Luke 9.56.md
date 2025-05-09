@@ -5,7 +5,7 @@
 [Luke 9:56](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.56?lang=eng#p56)
 
 
-[^a]: TG [Jesus Christ, Son of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
+[^a]: TG [[Jesus Christ, Son of Man]].
 [^b]: [[John 3.17|John 3:17 (16-17).]]
-[^c]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
-[^d]: TG [Life, Sanctity of](https://www.churchofjesuschrist.org/study/scriptures/tg/life-sanctity-of?lang=eng); [Worth of Souls.](https://www.churchofjesuschrist.org/study/scriptures/tg/worth-of-souls?lang=eng)
+[^c]: TG [[Mortality]].
+[^d]: TG [[Life, Sanctity of]]; [[Worth of Souls]].

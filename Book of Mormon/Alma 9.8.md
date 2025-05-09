@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 3.7|Matt. 3:7]]; [[Alma 10.17|Alma 10:17 (17-25).]]
-[^b]: TG [Birthright.](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng)
+[^b]: TG [[Birthright]].

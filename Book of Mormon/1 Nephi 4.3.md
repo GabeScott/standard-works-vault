@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 3.30|1 Ne. 3:30 (29-31)]]; [[1 Nephi 7.10|7:10.]]
-[^b]: TG [Doubt.](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng)
-[^c]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^b]: TG [[Doubt, Doubtful]].
+[^c]: TG [[Deliver, Deliverance]].

@@ -5,6 +5,6 @@
 [Luke 12:47](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.47?lang=eng#p47)
 
 
-[^a]: [[James 4.17|James 4:17]]. TG [Apostasy of Individuals](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng).
+[^a]: [[James 4.17|James 4:17]]. TG [[Apostasy of Individuals]].
 [^b]: [[2 Nephi 9.27|2 Ne. 9:27 (25-27).]]
-[^c]: TG [Accountability](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng); [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
+[^c]: TG [[Accountability]]; [[Procrastination, Procrastinate]].

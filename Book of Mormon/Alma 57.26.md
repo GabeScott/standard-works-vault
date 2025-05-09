@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Chronicles 5.20|1 Chr. 5:20 (18-22).]]
-[^b]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
-[^c]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^b]: TG [[God, Power of]].
+[^c]: TG [[Faith]].

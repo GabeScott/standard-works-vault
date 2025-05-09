@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 1.29|D&C 1:29]]; [[D&C 5.4|5:4 (4, 30-31).]]
-[^b]: TG [Sacred](https://www.churchofjesuschrist.org/study/scriptures/tg/sacred?lang=eng); [Sacrilege.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng)
+[^b]: TG [[Sacred]]; [[Sacrilege]].
 [^c]: [[D&C 10.6|D&C 10:6 (6-8).]]

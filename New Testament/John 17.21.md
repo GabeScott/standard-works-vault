@@ -6,5 +6,5 @@
 
 
 [^a]: 4 Ne. 1:17 (15-17); [[D&C 38.27|D&C 38:27.]]
-[^b]: TG [Godhead](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng); [God the Father, Elohim.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-father-elohim?lang=eng)
+[^b]: TG [[Godhead]]; [[God the Father, Elohim]].
 [^c]: [[D&C 35.2|D&C 35:2]]; [[Moses 6.68|Moses 6:68.]]

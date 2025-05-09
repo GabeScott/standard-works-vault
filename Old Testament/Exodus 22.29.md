@@ -7,4 +7,4 @@
 
 [^a]: [[Nehemiah 10.35|Neh. 10:35]]; [[Proverbs 3.9|Prov. 3:9]]; [[Ezekiel 44.30|Ezek. 44:30.]]
 [^b]: OR outflow of the presses.
-[^c]: TG [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
+[^c]: TG [[Firstborn]].

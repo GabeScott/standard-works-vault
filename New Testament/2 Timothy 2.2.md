@@ -5,4 +5,4 @@
 [2 Timothy 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.2?lang=eng#p2)
 
 
-[^a]: [[D&C 38.23|D&C 38:23]]. TG [Teaching](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng).
+[^a]: [[D&C 38.23|D&C 38:23]]. TG [[Teaching with the Spirit]].

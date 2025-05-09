@@ -6,4 +6,4 @@
 
 
 [^a]: HEB troubles.
-[^b]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
+[^b]: TG [[Strife]].

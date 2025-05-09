@@ -5,4 +5,4 @@
 [Job 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/job/2.6?lang=eng#p6)
 
 
-[^a]: TG [Probation.](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng)
+[^a]: TG [[Probation, Probationary]].

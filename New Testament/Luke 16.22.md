@@ -5,5 +5,5 @@
 [Luke 16:22](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.22?lang=eng#p22)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].
 [^b]: [[Alma 40.11|Alma 40:11 (11-21).]]

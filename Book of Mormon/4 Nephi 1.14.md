@@ -6,8 +6,8 @@
 
 
 [^a]: [[3 Nephi 28.3|3 Ne. 28:3]]; [[Mormon 3.19|Morm. 3:19.]]
-[^b]: TG [Paradise.](https://www.churchofjesuschrist.org/study/scriptures/tg/paradise?lang=eng)
-[^c]: [[3 Nephi 28.12|3 Ne. 28:12]]. TG [Translated Beings](https://www.churchofjesuschrist.org/study/scriptures/tg/translated-beings?lang=eng).
-[^d]: TG [Apostles.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng)
-[^e]: TG [Priesthood, History of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-history-of?lang=eng)
+[^b]: TG [[Paradise, Paradisiacal]].
+[^c]: [[3 Nephi 28.12|3 Ne. 28:12]]. TG [[Translated Beings]].
+[^d]: TG [[Apostles]].
+[^e]: TG [[Priesthood, History of]].
 [^f]: [[1 Nephi 12.12|1 Ne. 12:12.]]

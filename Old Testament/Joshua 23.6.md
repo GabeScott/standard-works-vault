@@ -5,4 +5,4 @@
 [Joshua 23:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/23.6?lang=eng#p6)
 
 
-[^a]: TG [Courage.](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng)
+[^a]: TG [[Courage, Courageous]].

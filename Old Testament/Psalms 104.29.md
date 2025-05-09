@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 30.7|Ps. 30:7.]]
-[^b]: TG [Breath of Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/breath-of-life?lang=eng)
+[^b]: TG [[Breath of Life]].
 [^c]: [[Moses 4.25|Moses 4:25.]]

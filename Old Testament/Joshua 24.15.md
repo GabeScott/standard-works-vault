@@ -5,8 +5,8 @@
 [Joshua 24:15](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.15?lang=eng#p15)
 
 
-[^a]: TG [Agency](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng); [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
-[^b]: TG [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
-[^c]: TG [Service.](https://www.churchofjesuschrist.org/study/scriptures/tg/service?lang=eng)
-[^d]: TG [Family, Children, Responsibilities toward.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng)
-[^e]: TG [Example](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng); [Loyalty](https://www.churchofjesuschrist.org/study/scriptures/tg/loyalty?lang=eng); [Objectives](https://www.churchofjesuschrist.org/study/scriptures/tg/objectives?lang=eng); [Service](https://www.churchofjesuschrist.org/study/scriptures/tg/service?lang=eng); [Sustaining Church Leaders.](https://www.churchofjesuschrist.org/study/scriptures/tg/sustaining-church-leaders?lang=eng)
+[^a]: TG [[Agency]]; [[Commitment]].
+[^b]: TG [[Procrastination, Procrastinate]].
+[^c]: TG [[Service]].
+[^d]: TG [[Family, Children, Responsibilities toward]].
+[^e]: TG [[Example, Ensample]]; [[Loyalty]]; [[Objectives]]; [[Service]]; [[Sustaining Church Leaders]].

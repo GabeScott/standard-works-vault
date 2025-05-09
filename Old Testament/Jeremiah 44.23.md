@@ -5,5 +5,5 @@
 [Jeremiah 44:23](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/44.23?lang=eng#p23)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].
 [^b]: [[Deuteronomy 31.29|Deut. 31:29]]; [[Jeremiah 40.3|Jer. 40:3.]]

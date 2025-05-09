@@ -7,5 +7,5 @@
 
 [^a]: [[Jeremiah 1.16|Jer. 1:16.]]
 [^b]: OR alienated.
-[^c]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^c]: TG [[Idolatry, Idol]].
 [^d]: [[Jeremiah 2.34|Jer. 2:34 (31-37).]]

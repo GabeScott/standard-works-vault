@@ -5,4 +5,4 @@
 [1 Nephi 15:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p3#p3)
 
 
-[^a]: [[1 Corinthians 2.11|1 Cor. 2:11 (10-12)]]. TG [Hardheartedness](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng); [Understanding](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng).
+[^a]: [[1 Corinthians 2.11|1 Cor. 2:11 (10-12)]]. TG [[Hardheartedness, Harden, Hardness]]; [[Understanding]].

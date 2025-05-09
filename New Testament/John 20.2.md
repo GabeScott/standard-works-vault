@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 13.23|John 13:23]]; [[John 19.26|19:26 (26-27)]]; [[John 21.24|21:24 (20-24)]]; [[1 Nephi 14.27|1 Ne. 14:27 (18-27)]]; [[D&C 7.1|D&C 7:1.]]
-[^b]: TG [Jesus Christ, Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lord?lang=eng)
+[^b]: TG [[Jesus Christ, Lord]].

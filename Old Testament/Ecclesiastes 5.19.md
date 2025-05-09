@@ -5,6 +5,6 @@
 [Ecclesiastes 5:19](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/5.19?lang=eng#p19)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
-[^b]: TG [Labor.](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
-[^c]: TG [God, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
+[^a]: TG [[Treasure]].
+[^b]: TG [[Labor]].
+[^c]: TG [[God, Gifts of]].

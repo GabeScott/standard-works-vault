@@ -5,5 +5,5 @@
 [Acts 26:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.19?lang=eng#p19)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
-[^b]: TG [Vision.](https://www.churchofjesuschrist.org/study/scriptures/tg/vision?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].
+[^b]: TG [[Vision]].

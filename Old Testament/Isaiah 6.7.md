@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 1.9|Jer. 1:9.]]
-[^b]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^b]: TG [[Forgive, Forgiveness]].

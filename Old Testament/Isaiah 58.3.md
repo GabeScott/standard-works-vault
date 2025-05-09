@@ -6,6 +6,6 @@
 
 
 [^a]: Mal. 3:14 (13-15); [[Alma 34.28|Alma 34:28.]]
-[^b]: TG [Fast, Fasting.](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
-[^c]: TG [Pleasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/pleasure?lang=eng)
+[^b]: TG [[Fast, Fasting]].
+[^c]: TG [[Pleasure]].
 [^d]: OR inflict travail on others.

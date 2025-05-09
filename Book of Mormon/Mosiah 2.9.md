@@ -6,8 +6,8 @@
 
 
 [^a]: [[Mosiah 8.3|Mosiah 8:3.]]
-[^b]: [[D&C 6.12|D&C 6:12]]; [[D&C 32.5|32:5]]. TG [Mocking](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng).
-[^c]: TG [Teachable.](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng)
+[^b]: [[D&C 6.12|D&C 6:12]]; [[D&C 32.5|32:5]]. TG [[Mocking, Mock, Mocker, Mockery]].
+[^c]: TG [[Teachable]].
 [^d]: [[Proverbs 8.5|Prov. 8:5]]; [[Mosiah 12.27|Mosiah 12:27]]; [[3 Nephi 19.33|3 Ne. 19:33.]]
-[^e]: TG [Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng)
-[^f]: TG [Mysteries of Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/mysteries-of-godliness?lang=eng)
+[^e]: TG [[Mind, Minded]].
+[^f]: TG [[Mysteries of Godliness]].

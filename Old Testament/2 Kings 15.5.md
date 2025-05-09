@@ -5,6 +5,6 @@
 [2 Kings 15:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/15.5?lang=eng#p5)
 
 
-[^a]: TG [Leprosy.](https://www.churchofjesuschrist.org/study/scriptures/tg/leprosy?lang=eng)
+[^a]: TG [[Leprosy, Leper, Leprous]].
 [^b]: OR separate. Lev. 13:46 (43-46).
 [^c]: [[1 Chronicles 5.17|1 Chr. 5:17 (10-17).]]

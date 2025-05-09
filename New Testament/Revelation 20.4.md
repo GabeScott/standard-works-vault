@@ -6,5 +6,5 @@
 
 
 [^a]: Dan. 7:22; [[1 Corinthians 6.2|1 Cor. 6:2]]; [[3 Nephi 27.27|3 Ne. 27:27]]; [[D&C 20.13|D&C 20:13 (5-15)]]; [[D&C 75.21|75:21 (21-22).]]
-[^b]: TG [Jesus Christ, Millennial Reign.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-millennial-reign?lang=eng)
-[^c]: TG [Millennium.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium?lang=eng)
+[^b]: TG [[Jesus Christ, Millennial Reign]].
+[^c]: TG [[Millennium, Preparing a People for]].

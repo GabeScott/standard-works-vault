@@ -5,4 +5,4 @@
 [Moroni 8:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Repent, Repentance]].

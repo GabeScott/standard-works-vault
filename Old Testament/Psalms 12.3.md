@@ -5,4 +5,4 @@
 [Psalms 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/12.3?lang=eng#p3)
 
 
-[^a]: TG [Flatter.](https://www.churchofjesuschrist.org/study/scriptures/tg/flatter?lang=eng)
+[^a]: TG [[Flatter, Flattery]].

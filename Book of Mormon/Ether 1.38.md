@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Chronicles 18.4|2 Chr. 18:4 (4-7).]]
-[^b]: [[1 Nephi 2.20|1 Ne. 2:20]]. TG [Lands of Inheritance](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng).
+[^b]: [[1 Nephi 2.20|1 Ne. 2:20]]. TG [[Lands of Inheritance]].

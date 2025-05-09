@@ -7,4 +7,4 @@
 
 [^a]: [[Mosiah 1.5|Mosiah 1:5.]]
 [^b]: [[Alma 18.36|Alma 18:36]]; [[Alma 22.12|22:12.]]
-[^c]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^c]: TG [[Gospel]].

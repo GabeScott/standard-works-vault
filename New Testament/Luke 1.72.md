@@ -5,4 +5,4 @@
 [Luke 1:72](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.72?lang=eng#p72)
 
 
-[^b]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^b]: TG [[Covenants]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[3 Nephi 16.12|3 Ne. 16:12.]]
-[^b]: TG [Jesus Christ, Good Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng)
-[^c]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^b]: TG [[Jesus Christ, Good Shepherd]].
+[^c]: TG [[Sheep]].

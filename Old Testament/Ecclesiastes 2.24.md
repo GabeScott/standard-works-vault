@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 12.19|Luke 12:19 (19-21).]]
-[^b]: TG [Labor.](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
+[^b]: TG [[Labor]].

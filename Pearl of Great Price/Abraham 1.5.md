@@ -7,4 +7,4 @@
 
 [^a]: [[Genesis 12.1|Gen. 12:1.]]
 [^b]: [[Joshua 24.14|Josh. 24:14.]]
-[^c]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^c]: TG [[Heathen]].

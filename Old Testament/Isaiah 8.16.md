@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 109.46|D&C 109:46.]]
-[^b]: TG [Seal.](https://www.churchofjesuschrist.org/study/scriptures/tg/seal?lang=eng)
+[^b]: TG [[Seal]].
 [^c]: HEB teachings or doctrine.

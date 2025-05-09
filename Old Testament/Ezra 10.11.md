@@ -5,5 +5,5 @@
 [Ezra 10:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/10.11?lang=eng#p11)
 
 
-[^a]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
-[^b]: TG [Separation.](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng)
+[^a]: TG [[Repent, Repentance]].
+[^b]: TG [[Separation, Separate]].

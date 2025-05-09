@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 9.1|Lev. 9:1.]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].

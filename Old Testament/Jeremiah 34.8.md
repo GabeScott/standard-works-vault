@@ -5,4 +5,4 @@
 [Jeremiah 34:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/34.8?lang=eng#p8)
 
 
-[^a]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^a]: TG [[Liberty]].

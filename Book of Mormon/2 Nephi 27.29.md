@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 29.18|Isa. 29:18.]]
-[^b]: TG [Deaf.](https://www.churchofjesuschrist.org/study/scriptures/tg/deaf?lang=eng)
+[^b]: TG [[Deaf]].

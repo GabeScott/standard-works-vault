@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 18.16|Jer. 18:16.]]
-[^b]: TG [Plague.](https://www.churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng)
+[^b]: TG [[Plague]].

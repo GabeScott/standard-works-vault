@@ -6,4 +6,4 @@
 
 
 [^a]: IE A supplanter. Gen. 25:26.
-[^b]: TG [Birthright.](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng)
+[^b]: TG [[Birthright]].

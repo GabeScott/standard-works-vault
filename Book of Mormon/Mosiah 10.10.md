@@ -5,4 +5,4 @@
 [Mosiah 10:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/10?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Strength](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng); [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Strength]]; [[Trust in God]].

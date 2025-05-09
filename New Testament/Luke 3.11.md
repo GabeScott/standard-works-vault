@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 4.16|Mosiah 4:16]]; [[D&C 104.18|D&C 104:18 (14-18).]]
-[^b]: [[James 2.16|James 2:16 (14-17)]]; 1 Jn. 3:17 (14-23). TG [Generosity](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng).
+[^b]: [[James 2.16|James 2:16 (14-17)]]; 1 Jn. 3:17 (14-23). TG [[Generosity]].

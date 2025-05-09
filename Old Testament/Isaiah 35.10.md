@@ -5,8 +5,8 @@
 [Isaiah 35:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/35.10?lang=eng#p10)
 
 
-[^a]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[Israel, Gathering of]].
 [^b]: [[D&C 45.66|D&C 45:66 (66-71)]]; [[D&C 109.39|109:39.]]
-[^c]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^c]: TG [[Singing, Sing, Sang, Sung]].
 [^d]: [[Isaiah 65.18|Isa. 65:18.]]
-[^e]: TG [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
+[^e]: TG [[Sorrow]].

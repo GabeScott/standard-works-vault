@@ -5,6 +5,6 @@
 [James 4:7](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.7?lang=eng#p7)
 
 
-[^a]: TG [Reconciliation](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng); [Submissiveness.](https://www.churchofjesuschrist.org/study/scriptures/tg/submissiveness?lang=eng)
-[^b]: TG [Abstain](https://www.churchofjesuschrist.org/study/scriptures/tg/abstain?lang=eng); [Self-Mastery.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
-[^c]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^a]: TG [[Reconciliation, Reconcile]]; [[Submissiveness, Submit]].
+[^b]: TG [[Abstain, Abstinence]]; [[Self-Mastery]].
+[^c]: TG [[Devil, Church of]].

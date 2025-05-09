@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 5.24|Deut. 5:24.]]
-[^b]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
+[^b]: TG [[Rock]].

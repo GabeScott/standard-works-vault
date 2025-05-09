@@ -5,7 +5,7 @@
 [Jacob 4:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/4?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Prophecy.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
-[^b]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
-[^c]: [[3 Nephi 28.20|3 Ne. 28:20 (19-22)]]. TG [God, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng).
+[^a]: TG [[Prophecy]].
+[^b]: TG [[Witness, Witnesses]].
+[^c]: [[3 Nephi 28.20|3 Ne. 28:20 (19-22)]]. TG [[God, Power of]].
 [^d]: [[Acts 3.6|Acts 3:6 (6-16)]]; [[3 Nephi 8.1|3 Ne. 8:1.]]

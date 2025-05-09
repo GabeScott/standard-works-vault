@@ -5,4 +5,4 @@
 [3 Nephi 14:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/14?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
+[^a]: TG [[Rock]].

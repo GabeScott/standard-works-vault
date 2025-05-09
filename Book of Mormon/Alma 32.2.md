@@ -5,4 +5,4 @@
 [Alma 32:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p2#p2)
 
 
-[^a]: [[Luke 6.20|Luke 6:20]]; [[Luke 7.22|7:22]]. TG [Poor](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng).
+[^a]: [[Luke 6.20|Luke 6:20]]; [[Luke 7.22|7:22]]. TG [[Poor]].

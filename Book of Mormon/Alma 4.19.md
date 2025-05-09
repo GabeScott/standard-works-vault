@@ -10,4 +10,4 @@
 [^c]: [[Alma 31.5|Alma 31:5]]; [[D&C 11.2|D&C 11:2.]]
 [^d]: [[Enos 1.23|Enos 1:23.]]
 [^e]: [[2 Chronicles 35.6|2 Chr. 35:6]]; [[Alma 16.16|Alma 16:16]]; [[D&C 108.7|D&C 108:7.]]
-[^f]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^f]: TG [[Testimony]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 33.9|Ps. 33:9.]]
-[^b]: TG [Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng)
+[^b]: TG [[Creation, Create]].

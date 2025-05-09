@@ -6,6 +6,6 @@
 
 
 [^b]: [[Ephesians 4.5|Eph. 4:5 (3-6), 13]]; [[D&C 1.30|D&C 1:30.]]
-[^c]: TG [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng) of God.
-[^d]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
-[^e]: TG [Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng)
+[^c]: TG [[Peace of God]]; [[Peace of God]] of God.
+[^d]: TG [[Apostasy of the Early Christian Church]].
+[^e]: TG [[Mission of Latter-day Saints]].

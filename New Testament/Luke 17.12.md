@@ -5,4 +5,4 @@
 [Luke 17:12](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.12?lang=eng#p12)
 
 
-[^a]: TG [Leprosy.](https://www.churchofjesuschrist.org/study/scriptures/tg/leprosy?lang=eng)
+[^a]: TG [[Leprosy, Leper, Leprous]].

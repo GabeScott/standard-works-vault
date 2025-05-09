@@ -6,6 +6,6 @@
 
 
 [^a]: [[Isaiah 9.6|Isa. 9:6]]; [[2 Nephi 26.12|2 Ne. 26:12]]; [[Mosiah 27.31|Mosiah 27:31 (30-31).]]
-[^b]: TG [God, Body of, Corporeal Nature.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
+[^b]: TG [[God, Body of, Corporeal Nature]].
 [^c]: [[Genesis 1.26|Gen. 1:26 (26-28)]]; [[Ether 3.15|Ether 3:15 (14-17)]]; [[D&C 20.18|D&C 20:18 (17-18).]]
 [^d]: [[Mosiah 13.34|Mosiah 13:34]]; [[Mosiah 15.2|15:2 (1-7)]]; [[Alma 7.9|Alma 7:9 (9-13).]]

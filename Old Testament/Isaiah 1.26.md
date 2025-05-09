@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 33.7|Jer. 33:7 (7-8).]]
-[^b]: TG [Counselor.](https://www.churchofjesuschrist.org/study/scriptures/tg/counselor?lang=eng)
-[^c]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^b]: TG [[Counselor]].
+[^c]: TG [[Jerusalem]].

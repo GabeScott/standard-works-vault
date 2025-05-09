@@ -5,5 +5,5 @@
 [Leviticus 20:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.3?lang=eng#p3)
 
 
-[^a]: TG [Sacrilege.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng)
-[^b]: TG [Profanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng)
+[^a]: TG [[Sacrilege]].
+[^b]: TG [[Profanity]].

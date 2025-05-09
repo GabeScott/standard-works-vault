@@ -6,4 +6,4 @@
 
 
 [^a]: [[Amos 6.4|Amos 6:4]]; Mal. 4:2; [[3 Nephi 25.2|3 Ne. 25:2.]]
-[^b]: TG [Jesus Christ, Glory of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng)
+[^b]: TG [[Jesus Christ, Glory of]].

@@ -5,5 +5,5 @@
 [Jeremiah 23:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.10?lang=eng#p10)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
-[^b]: OR cursing. TG [Swearing](https://www.churchofjesuschrist.org/study/scriptures/tg/swearing?lang=eng).
+[^a]: TG [[Apostasy of Israel]].
+[^b]: OR cursing. TG [[Swearing, Swear, Sware, Sworn]].

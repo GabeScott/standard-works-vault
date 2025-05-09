@@ -6,5 +6,5 @@
 
 
 [^a]: IE meek and humble.
-[^c]: TG [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
-[^d]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
+[^c]: TG [[Jesus Christ, Redeemer]].
+[^d]: TG [[Holiness]].

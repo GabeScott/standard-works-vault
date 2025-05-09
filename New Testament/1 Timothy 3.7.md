@@ -7,4 +7,4 @@
 
 [^a]: [[Acts 6.3|Acts 6:3]]; [[Acts 22.12|22:12.]]
 [^b]: GR outside the faith.
-[^c]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^c]: TG [[Bondage, Spiritual]].

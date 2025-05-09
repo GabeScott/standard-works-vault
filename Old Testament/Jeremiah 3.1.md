@@ -5,5 +5,5 @@
 [Jeremiah 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.1?lang=eng#p1)
 
 
-[^a]: TG [Divorce.](https://www.churchofjesuschrist.org/study/scriptures/tg/divorce?lang=eng)
-[^b]: TG [Pollution.](https://www.churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng)
+[^a]: TG [[Divorce, Divorcement]].
+[^b]: TG [[Pollution, Pollute]].

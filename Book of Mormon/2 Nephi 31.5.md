@@ -6,5 +6,5 @@
 
 
 [^a]: 1 Jn. 3:3.
-[^b]: [[Matthew 3.11|Matt. 3:11 (11-17)]]. TG [Jesus Christ, Baptism of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-baptism-of?lang=eng).
-[^c]: TG [Baptism, Essential.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-essential?lang=eng)
+[^b]: [[Matthew 3.11|Matt. 3:11 (11-17)]]. TG [[Jesus Christ, Baptism of]].
+[^c]: TG [[Baptism, Essential]].

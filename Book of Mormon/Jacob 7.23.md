@@ -5,5 +5,5 @@
 [Jacob 7:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p23#p23)
 
 
-[^a]: TG [God, Love of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng)
-[^b]: [[Alma 17.2|Alma 17:2]]. TG [Scriptures, Study of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng).
+[^a]: TG [[God, Love of]].
+[^b]: [[Alma 17.2|Alma 17:2]]. TG [[Scriptures, Study of]].

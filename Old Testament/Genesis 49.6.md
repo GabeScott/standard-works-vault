@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ephesians 5.11|Eph. 5:11]]; [[Alma 5.57|Alma 5:57.]]
-[^b]: TG [Retribution.](https://www.churchofjesuschrist.org/study/scriptures/tg/retribution?lang=eng)
+[^b]: TG [[Retribution]].
 [^c]: [[Genesis 34.26|Gen. 34:26 (25-31).]]

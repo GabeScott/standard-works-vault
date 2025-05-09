@@ -5,4 +5,4 @@
 [1 Samuel 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/16.3?lang=eng#p3)
 
 
-[^a]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
+[^a]: TG [[Called of God]].

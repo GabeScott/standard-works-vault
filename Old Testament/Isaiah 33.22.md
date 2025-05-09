@@ -5,5 +5,5 @@
 [Isaiah 33:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.22?lang=eng#p22)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].
 [^b]: [[D&C 38.22|D&C 38:22.]]

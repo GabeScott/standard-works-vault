@@ -5,4 +5,4 @@
 [Ezekiel 20:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.15?lang=eng#p15)
 
 
-[^a]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^a]: TG [[Israel, Land of]].

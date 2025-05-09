@@ -5,4 +5,4 @@
 [Ephesians 5:17](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.17?lang=eng#p17)
 
 
-[^a]: TG [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
+[^a]: TG [[Wisdom]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 7.3|Ezek. 7:3 (3, 8)]]; [[Ezekiel 33.20|33:20.]]
-[^b]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^b]: TG [[Transgressor]].

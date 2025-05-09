@@ -5,4 +5,4 @@
 [Exodus 8:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/8.16?lang=eng#p16)
 
 
-[^a]: TG [Plague.](https://www.churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng)
+[^a]: TG [[Plague]].

@@ -5,4 +5,4 @@
 [Leviticus 24:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.5?lang=eng#p5)
 
 
-[^a]: [[Hosea 7.8|Hosea 7:8]]. TG [Bread, Shewbread](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-shewbread?lang=eng).
+[^a]: [[Hosea 7.8|Hosea 7:8]]. TG [[Bread, Shewbread]].

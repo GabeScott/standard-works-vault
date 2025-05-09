@@ -6,7 +6,7 @@
 
 
 [^a]: [[Alma 26.7|Alma 26:7]]; [[3 Nephi 15.1|3 Ne. 15:1.]]
-[^b]: TG [Exaltation.](https://www.churchofjesuschrist.org/study/scriptures/tg/exaltation?lang=eng)
+[^b]: TG [[Exaltation]].
 [^c]: [[Ezra 3.11|Ezra 3:11 (11-13)]]; [[2 Nephi 9.49|2 Ne. 9:49.]]
 [^d]: [[Mosiah 12.34|Mosiah 12:34]]; [[D&C 103.16|D&C 103:16.]]
 [^e]: [[Exodus 14.27|Ex. 14:27 (26-27).]]

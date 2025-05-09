@@ -5,5 +5,5 @@
 [Isaiah 48:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.2?lang=eng#p2)
 
 
-[^a]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^a]: TG [[Jerusalem]].
 [^b]: IE pretend to rely upon.

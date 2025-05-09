@@ -5,4 +5,4 @@
 [Alma 60:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Reproof.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproof?lang=eng)
+[^a]: TG [[Reproof, Reprove]].

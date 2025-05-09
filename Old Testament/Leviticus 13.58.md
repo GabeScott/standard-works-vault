@@ -5,4 +5,4 @@
 [Leviticus 13:58](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/13.58?lang=eng#p58)
 
 
-[^a]: TG [Wash.](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
+[^a]: TG [[Wash, Washing]].

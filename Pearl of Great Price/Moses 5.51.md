@@ -5,4 +5,4 @@
 [Moses 5:51](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.51?lang=eng#p51)
 
 
-[^a]: TG [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
+[^a]: TG [[Secret Combinations]].

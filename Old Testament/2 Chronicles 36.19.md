@@ -5,4 +5,4 @@
 [2 Chronicles 36:19](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.19?lang=eng#p19)
 
 
-[^a]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^a]: TG [[Jerusalem]].

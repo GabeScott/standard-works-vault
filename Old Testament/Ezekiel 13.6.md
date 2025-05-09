@@ -5,4 +5,4 @@
 [Ezekiel 13:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.6?lang=eng#p6)
 
 
-[^a]: TG [Superstitions.](https://www.churchofjesuschrist.org/study/scriptures/tg/superstitions?lang=eng)
+[^a]: TG [[Superstitions]].

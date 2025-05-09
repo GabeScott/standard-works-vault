@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 10.35|Acts 10:35 (34-35)]]; [[Romans 2.11|Rom. 2:11]]; [[Galatians 3.28|Gal. 3:28 (26-29).]]
-[^b]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
-[^c]: TG [God, Access to.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-access-to?lang=eng)
+[^b]: TG [[Treasure]].
+[^c]: TG [[God, Access to]].

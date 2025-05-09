@@ -5,6 +5,6 @@
 [John 7:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.17?lang=eng#p17)
 
 
-[^a]: TG [Good Works](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng); [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
-[^b]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
-[^c]: TG [Discernment, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/discernment-spiritual?lang=eng); [Testimony](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng); [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^a]: TG [[Good Works]]; [[Obedience, Obedient, Obey]].
+[^b]: TG [[God, Will of]].
+[^c]: TG [[Discernment, Spiritual]]; [[Testimony]]; [[Truth]].

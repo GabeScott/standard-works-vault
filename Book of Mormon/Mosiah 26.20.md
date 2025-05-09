@@ -5,4 +5,4 @@
 [Mosiah 26:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Election.](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng)
+[^a]: TG [[Election, Elect]].

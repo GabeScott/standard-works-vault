@@ -6,6 +6,6 @@
 
 
 [^a]: Dan. 3:16; [[Matthew 10.19|Matt. 10:19.]]
-[^b]: [[Acts 21.13|Acts 21:13]]. TG [Martyrdom](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng).
-[^c]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
-[^d]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^b]: [[Acts 21.13|Acts 21:13]]. TG [[Martyrdom]].
+[^c]: TG [[Gospel]].
+[^d]: TG [[Grace]].

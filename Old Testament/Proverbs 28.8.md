@@ -5,5 +5,5 @@
 [Proverbs 28:8](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.8?lang=eng#p8)
 
 
-[^a]: TG [Usury.](https://www.churchofjesuschrist.org/study/scriptures/tg/usury?lang=eng)
+[^a]: TG [[Usury]].
 [^b]: [[Alma 11.20|Alma 11:20.]]

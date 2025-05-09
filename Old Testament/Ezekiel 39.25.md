@@ -6,4 +6,4 @@
 
 
 [^a]: HEB restore Jacob from exile.
-[^b]: TG [Israel, Twelve Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-twelve-tribes-of?lang=eng)
+[^b]: TG [[Israel, Twelve Tribes of]].

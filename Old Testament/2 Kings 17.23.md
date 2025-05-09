@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Kings 9.7|1 Kgs. 9:7 (1-7).]]
-[^b]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^b]: TG [[Israel, Ten Lost Tribes of]].
 [^c]: [[Hosea 1.6|Hosea 1:6.]]
-[^d]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^d]: TG [[Israel, Land of]].

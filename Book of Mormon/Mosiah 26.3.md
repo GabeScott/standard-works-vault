@@ -5,5 +5,5 @@
 [Mosiah 26:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
-[^b]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^a]: TG [[Unbelief, Unbelievers]].
+[^b]: TG [[Understanding]].

@@ -5,4 +5,4 @@
 [Isaiah 1:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.22?lang=eng#p22)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Apostasy of Israel]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 42.68|D&C 42:68]]; JS—H 1:11.
-[^b]: TG [Guidance, Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng); [Learn](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng); [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
-[^c]: TG [Benevolence](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng); [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^b]: TG [[Guidance, Divine]]; [[Learn, Learning]]; [[Wisdom]].
+[^c]: TG [[Benevolence]]; [[Revelation]].
 [^d]: GR reproaches, censures.

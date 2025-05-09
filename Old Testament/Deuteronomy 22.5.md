@@ -5,4 +5,4 @@
 [Deuteronomy 22:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/22.5?lang=eng#p5)
 
 
-[^a]: TG [Apparel](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng); [Clothing.](https://www.churchofjesuschrist.org/study/scriptures/tg/clothing?lang=eng)
+[^a]: TG [[Apparel]]; [[Clothing]].

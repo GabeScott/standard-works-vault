@@ -9,5 +9,5 @@
 [^b]: GR entrusted.
 [^c]: [[D&C 12.8|D&C 12:8]]; [[D&C 124.113|124:113.]]
 [^d]: [[Titus 2.1|Titus 2:1]]; [[1 Peter 4.11|1 Pet. 4:11.]]
-[^e]: TG [Peer Influence.](https://www.churchofjesuschrist.org/study/scriptures/tg/peer-influence?lang=eng)
-[^f]: GR examines, proves by trial. TG [Test](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng).
+[^e]: TG [[Peer Influence]].
+[^f]: GR examines, proves by trial. TG [[Testament]].

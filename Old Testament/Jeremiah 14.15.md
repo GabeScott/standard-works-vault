@@ -5,5 +5,5 @@
 [Jeremiah 14:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.15?lang=eng#p15)
 
 
-[^a]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
+[^a]: TG [[Authority]].
 [^b]: [[Jeremiah 44.12|Jer. 44:12.]]

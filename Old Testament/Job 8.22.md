@@ -5,4 +5,4 @@
 [Job 8:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/8.22?lang=eng#p22)
 
 
-[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^a]: TG [[Shame]].

@@ -5,5 +5,5 @@
 [Jeremiah 8:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/8.19?lang=eng#p19)
 
 
-[^a]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^a]: TG [[Anger]].
 [^b]: OR foreign idols.

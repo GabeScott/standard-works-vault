@@ -5,4 +5,4 @@
 [Psalms 120:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/120.2?lang=eng#p2)
 
 
-[^a]: TG [Deceit.](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng)
+[^a]: TG [[Deceit, Deceive]].

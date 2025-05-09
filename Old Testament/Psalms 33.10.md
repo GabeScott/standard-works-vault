@@ -6,4 +6,4 @@
 
 
 [^a]: [[Nehemiah 4.15|Neh. 4:15.]]
-[^b]: HEB nations, Gentiles. TG [Heathen](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng).
+[^b]: HEB nations, Gentiles. TG [[Heathen]].

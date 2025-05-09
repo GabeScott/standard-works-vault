@@ -7,4 +7,4 @@
 
 [^a]: [[3 Nephi 6.3|3 Ne. 6:3.]]
 [^b]: [[Alma 44.15|Alma 44:15]]; [[Alma 62.16|62:16 (16-17).]]
-[^c]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^c]: TG [[Liberty]].

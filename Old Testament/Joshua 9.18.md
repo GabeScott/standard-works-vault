@@ -5,4 +5,4 @@
 [Joshua 9:18](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/9.18?lang=eng#p18)
 
 
-[^a]: TG [Murmuring.](https://www.churchofjesuschrist.org/study/scriptures/tg/murmuring?lang=eng)
+[^a]: TG [[Murmuring, Murmur]].

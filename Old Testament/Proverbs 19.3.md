@@ -5,4 +5,4 @@
 [Proverbs 19:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.3?lang=eng#p3)
 
 
-[^a]: TG [Foolishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/foolishness?lang=eng)
+[^a]: TG [[Foolishness]].

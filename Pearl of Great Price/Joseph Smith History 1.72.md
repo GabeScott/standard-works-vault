@@ -7,5 +7,5 @@
 
 [^a]: [[Luke 3.4|Luke 3:4.]]
 [^b]: [[Matthew 3.1|Matt. 3:1 (1-12).]]
-[^c]: [[D&C 7.7|D&C 7:7 (5-7)]]; [[D&C 27.12|27:12]]. TG [Priesthood, Keys of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-keys-of?lang=eng); [Priesthood, Melchizedek](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-melchizedek?lang=eng).
-[^d]: TG [Elder.](https://www.churchofjesuschrist.org/study/scriptures/tg/elder?lang=eng)
+[^c]: [[D&C 7.7|D&C 7:7 (5-7)]]; [[D&C 27.12|27:12]]. TG [[Priesthood, Keys of]]; [[Priesthood, Melchizedek]].
+[^d]: TG [[Elder, Melchizedek Priesthood]].

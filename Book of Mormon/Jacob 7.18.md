@@ -6,6 +6,6 @@
 
 
 [^a]: [[Galatians 3.1|Gal. 3:1 (1-4)]]; [[Alma 30.53|Alma 30:53 (53, 60).]]
-[^b]: TG [Deceit](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng); [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
-[^c]: TG [Eternity.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternity?lang=eng)
-[^d]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^b]: TG [[Deceit, Deceive]]; [[Devil, Church of]].
+[^c]: TG [[Eternity]].
+[^d]: TG [[Punish, Punishment]].

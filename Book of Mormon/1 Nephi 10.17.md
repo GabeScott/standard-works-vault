@@ -7,9 +7,9 @@
 
 [^a]: [[Enos 1.3|Enos 1:3]]; [[Alma 36.17|Alma 36:17 (17-18).]]
 [^b]: [[1 Nephi 8.2|1 Ne. 8:2.]]
-[^c]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
+[^c]: TG [[Jesus Christ, Messiah]].
 [^d]: [[2 Nephi 4.24|2 Ne. 4:24.]]
 [^e]: 2 Pet. 1:21.
-[^f]: TG [God, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng); [Holy Ghost, Gift of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gift-of?lang=eng)
+[^f]: TG [[God, Gifts of]]; [[Holy Ghost, Gift of]].
 [^g]: [[Moroni 7.36|Moro. 7:36]]; [[Moroni 10.7|10:7 (4-5, 7, 19).]]
 [^h]: [[D&C 20.26|D&C 20:26.]]

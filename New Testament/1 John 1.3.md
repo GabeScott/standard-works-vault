@@ -5,6 +5,6 @@
 [1 John 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/1.3?lang=eng#p3)
 
 
-[^a]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
-[^b]: TG [Fellowshipping.](https://www.churchofjesuschrist.org/study/scriptures/tg/fellowshipping?lang=eng)
+[^a]: TG [[Witness, Witnesses]].
+[^b]: TG [[Fellowshipping]].
 [^c]: [[Moses 6.68|Moses 6:68.]]

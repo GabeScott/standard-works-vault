@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 52.8|Isa. 52:8 (8-10)]]; [[3 Nephi 20.32|3 Ne. 20:32.]]
-[^b]: [[Ezekiel 33.2|Ezek. 33:2 (2, 7)]]; [[D&C 101.45|D&C 101:45 (45, 53-54)]]. TG [Watchman](https://www.churchofjesuschrist.org/study/scriptures/tg/watchman?lang=eng).
+[^b]: [[Ezekiel 33.2|Ezek. 33:2 (2, 7)]]; [[D&C 101.45|D&C 101:45 (45, 53-54)]]. TG [[Watchman, Watchmen]].

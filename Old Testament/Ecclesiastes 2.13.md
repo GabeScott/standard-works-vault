@@ -5,4 +5,4 @@
 [Ecclesiastes 2:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/2.13?lang=eng#p13)
 
 
-[^a]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
+[^a]: TG [[Darkness, Spiritual]].

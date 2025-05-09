@@ -5,5 +5,5 @@
 [Joel 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.18?lang=eng#p18)
 
 
-[^a]: TG [Earth, Renewal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
+[^a]: TG [[Earth, Renewal of]].
 [^b]: [[Ezekiel 47.1|Ezek. 47:1]]; [[Zechariah 14.8|Zech. 14:8]]; [[Revelation 22.1|Rev. 22:1.]]

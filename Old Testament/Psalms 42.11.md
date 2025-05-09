@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 4.28|2 Ne. 4:28 (17-31).]]
-[^b]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
+[^b]: TG [[Hope]].

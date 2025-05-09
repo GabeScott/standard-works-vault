@@ -5,5 +5,5 @@
 [Jeremiah 28:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/28.15?lang=eng#p15)
 
 
-[^a]: TG [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
-[^b]: [[Jeremiah 29.31|Jer. 29:31]]. TG [Lying](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng).
+[^a]: TG [[False Prophets]].
+[^b]: [[Jeremiah 29.31|Jer. 29:31]]. TG [[Lying, Liar, Lie]].

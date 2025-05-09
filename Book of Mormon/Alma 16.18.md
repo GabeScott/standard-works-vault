@@ -7,6 +7,6 @@
 
 [^a]: [[Alma 15.13|Alma 15:13]]; [[Alma 30.20|30:20 (20-23, 31).]]
 [^b]: [[3 Nephi 30.2|3 Ne. 30:2.]]
-[^c]: TG [Deceit.](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng)
-[^d]: TG [Envy.](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
-[^e]: [[Alma 4.9|Alma 4:9 (8-9)]]. TG [Strife](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng).
+[^c]: TG [[Deceit, Deceive]].
+[^d]: TG [[Envy, Envious]].
+[^e]: [[Alma 4.9|Alma 4:9 (8-9)]]. TG [[Strife]].

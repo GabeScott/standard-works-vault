@@ -5,4 +5,4 @@
 [Psalms 34:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/34.19?lang=eng#p19)
 
 
-[^a]: 2 Tim. 3:12. TG [Affliction](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng).
+[^a]: 2 Tim. 3:12. TG [[Affliction]].

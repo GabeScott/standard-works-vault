@@ -5,4 +5,4 @@
 [Acts 19:4](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.4?lang=eng#p4)
 
 
-[^a]: TG [Baptism, Qualifications for.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng)
+[^a]: TG [[Baptism, Qualifications for]].

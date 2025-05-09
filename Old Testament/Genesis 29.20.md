@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hosea 12.12|Hosea 12:12.]]
-[^b]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^b]: TG [[Love]].

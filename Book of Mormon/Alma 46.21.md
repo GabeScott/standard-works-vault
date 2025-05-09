@@ -6,6 +6,6 @@
 
 
 [^a]: [[2 Samuel 20.14|2 Sam. 20:14 (11-14).]]
-[^b]: TG [Rend.](https://www.churchofjesuschrist.org/study/scriptures/tg/rend?lang=eng)
-[^c]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
+[^b]: TG [[Rend, Rent]].
+[^c]: TG [[Commitment]].
 [^d]: [[Jeremiah 17.13|Jer. 17:13]]; [[Romans 1.16|Rom. 1:16]]; 2 Tim. 1:8; [[1 Nephi 8.25|1 Ne. 8:25]]; [[Mormon 8.38|Morm. 8:38.]]

@@ -5,5 +5,5 @@
 [1 Samuel 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/5.2?lang=eng#p2)
 
 
-[^a]: TG [Sacrilege.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng)
+[^a]: TG [[Sacrilege]].
 [^b]: [[Judges 16.23|Judg. 16:23.]]

@@ -5,5 +5,5 @@
 [2 Kings 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/5.10?lang=eng#p10)
 
 
-[^a]: [[John 9.11|John 9:11 (8-11)]]. TG [Wash](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng).
-[^b]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^a]: [[John 9.11|John 9:11 (8-11)]]. TG [[Wash, Washing]].
+[^b]: TG [[Purification, Purify, Purifying]].

@@ -5,7 +5,7 @@
 [Ezekiel 34:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.27?lang=eng#p27)
 
 
-[^a]: TG [Earth, Destiny of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-destiny-of?lang=eng)
+[^a]: TG [[Earth, Destiny of]].
 [^b]: [[Psalms 119.117|Ps. 119:117.]]
-[^c]: TG [Bondage, Physical](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng); [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^c]: TG [[Bondage, Physical]]; [[Bondage, Spiritual]].
 [^d]: HEB enslaved them.

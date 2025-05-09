@@ -5,4 +5,4 @@
 [Judges 13:6](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/13.6?lang=eng#p6)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].

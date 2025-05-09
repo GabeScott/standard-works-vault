@@ -5,7 +5,7 @@
 [Alma 4:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/4?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
+[^a]: TG [[Church Organization]].
 [^b]: [[Mosiah 18.10|Mosiah 18:10 (10-17).]]
 [^c]: [[Alma 3.3|Alma 3:3]]; [[Alma 6.7|6:7.]]
-[^d]: [[Mosiah 29.42|Mosiah 29:42]]. TG [High Priest, Melchizedek Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/high-priest-melchizedek-priesthood?lang=eng).
+[^d]: [[Mosiah 29.42|Mosiah 29:42]]. TG [[High Priest, Melchizedek Priesthood]].

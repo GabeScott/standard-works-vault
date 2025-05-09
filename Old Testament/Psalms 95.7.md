@@ -5,7 +5,7 @@
 [Psalms 95:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/95.7?lang=eng#p7)
 
 
-[^a]: TG [Jesus Christ, Good Shepherd](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng); [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^a]: TG [[Jesus Christ, Good Shepherd]]; [[Sheep]].
 [^b]: [[Hebrews 3.7|Heb. 3:7 (7-11).]]
 [^c]: [[Hebrews 4.7|Heb. 4:7.]]
 [^d]: [[D&C 88.66|D&C 88:66.]]

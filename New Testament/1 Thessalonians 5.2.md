@@ -5,5 +5,5 @@
 [1 Thessalonians 5:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.2?lang=eng#p2)
 
 
-[^a]: TG [Day of the Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/day-of-the-lord?lang=eng); [Millennium, Preparing a People for.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium-preparing-a-people-for?lang=eng)
+[^a]: TG [[Day of the Lord]]; [[Millennium, Preparing a People for]].
 [^b]: [[D&C 106.4|D&C 106:4.]]

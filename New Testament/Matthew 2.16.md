@@ -7,5 +7,5 @@
 
 [^a]: GR deceived by.
 [^b]: GR became extremely angry.
-[^c]: TG [Tyranny.](https://www.churchofjesuschrist.org/study/scriptures/tg/tyranny?lang=eng)
+[^c]: TG [[Tyranny]].
 [^d]: GR surrounding regions.

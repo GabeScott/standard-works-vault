@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 26.61|Matt. 26:61]]; 27:40, 63 (62-66); [[Mark 14.58|Mark 14:58.]]
-[^b]: TG [Jesus Christ, Resurrection](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng); [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^b]: TG [[Jesus Christ, Resurrection]]; [[Jesus Christ, Resurrection]].

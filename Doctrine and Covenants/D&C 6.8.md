@@ -5,5 +5,5 @@
 [D&C 6:8](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.8?lang=eng#p8)
 
 
-[^a]: TG [Motivations](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng); [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
-[^b]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
+[^a]: TG [[Motivations]]; [[Prayer, Pray]].
+[^b]: TG [[Good Works]].

@@ -7,7 +7,7 @@
 
 [^a]: OR record.
 [^b]: HEB they that traced their genealogy.
-[^c]: TG [Book of Remembrance](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-remembrance?lang=eng); [Genealogy and Temple Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/genealogy-and-temple-work?lang=eng)
-[^d]: TG [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
+[^c]: TG [[Book of Remembrance]]; [[Genealogy and Temple Work]].
+[^d]: TG [[Worthiness, Worthy]].
 [^e]: OR excluded.
-[^f]: TG [Priesthood, Qualifying for.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-qualifying-for?lang=eng)
+[^f]: TG [[Priesthood, Qualifying for]].

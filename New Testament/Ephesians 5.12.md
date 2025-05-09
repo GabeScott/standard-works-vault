@@ -5,4 +5,4 @@
 [Ephesians 5:12](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.12?lang=eng#p12)
 
 
-[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^a]: TG [[Shame]].

@@ -5,5 +5,5 @@
 [Zechariah 7:10](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/7.10?lang=eng#p10)
 
 
-[^a]: [[Ezekiel 22.7|Ezek. 22:7 (7-14)]]. TG [Cruelty](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng).
+[^a]: [[Ezekiel 22.7|Ezek. 22:7 (7-14)]]. TG [[Cruelty, Cruel]].
 [^b]: [[Proverbs 22.22|Prov. 22:22]]; [[Mosiah 4.26|Mosiah 4:26 (16-26)]]; [[Helaman 4.12|Hel. 4:12]]; [[D&C 42.30|D&C 42:30 (30-39, 71)]]; [[D&C 83.6|83:6.]]

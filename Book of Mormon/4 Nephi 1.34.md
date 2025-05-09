@@ -5,5 +5,5 @@
 [4 Nephi 1:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p34#p34)
 
 
-[^a]: TG [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
+[^a]: TG [[False Prophets]].
 [^b]: [[3 Nephi 6.13|3 Ne. 6:13]]; [[3 Nephi 12.39|12:39]]; [[D&C 98.23|D&C 98:23 (23-27).]]

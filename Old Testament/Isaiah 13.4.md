@@ -6,4 +6,4 @@
 
 
 [^a]: Zeph. 3:8.
-[^b]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
+[^b]: TG [[War]].

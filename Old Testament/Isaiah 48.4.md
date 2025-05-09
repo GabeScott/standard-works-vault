@@ -6,5 +6,5 @@
 
 
 [^a]: IE Israel.
-[^b]: TG [Stubbornness.](https://www.churchofjesuschrist.org/study/scriptures/tg/stubbornness?lang=eng)
-[^c]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^b]: TG [[Stubbornness, Stubborn]].
+[^c]: TG [[Stiffnecked, Stiffneckedness]].

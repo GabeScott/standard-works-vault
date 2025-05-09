@@ -5,8 +5,8 @@
 [2 Nephi 9:46](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p46#p46)
 
 
-[^a]: TG [God, Justice of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
-[^b]: TG [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^a]: TG [[God, Justice of]].
+[^b]: TG [[Judgment, the Last]].
 [^c]: [[Mosiah 3.25|Mosiah 3:25.]]
 [^d]: [[Genesis 48.3|Gen. 48:3]]; [[1 Nephi 1.14|1 Ne. 1:14]]; [[3 Nephi 4.32|3 Ne. 4:32]]; [[Moses 2.1|Moses 2:1.]]
-[^e]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^e]: TG [[Apostasy of Individuals]].

@@ -8,4 +8,4 @@
 [^a]: GR abandoned, delivered.
 [^b]: GR sufferings, passions of dishonor. 2 Tim. 3:3.
 [^c]: [[Judges 19.22|Judg. 19:22.]]
-[^d]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
+[^d]: TG [[Woman, Women]].

@@ -5,5 +5,5 @@
 [John 13:34](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.34?lang=eng#p34)
 
 
-[^a]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
-[^b]: TG [Family, Love within.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng)
+[^a]: TG [[Love]].
+[^b]: TG [[Family, Love within]].

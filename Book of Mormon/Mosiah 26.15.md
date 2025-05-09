@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 18.30|Mosiah 18:30.]]
-[^b]: [[Mosiah 17.2|Mosiah 17:2]]; [[D&C 46.14|D&C 46:14]]. TG [Faith](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng).
+[^b]: [[Mosiah 17.2|Mosiah 17:2]]; [[D&C 46.14|D&C 46:14]]. TG [[Faith]].

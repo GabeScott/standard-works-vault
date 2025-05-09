@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 13.1|Isa. 13:1 (1-22).]]
-[^b]: TG [Babylon.](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng)
+[^b]: TG [[Babylon]].

@@ -5,4 +5,4 @@
 [Isaiah 48:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.18?lang=eng#p18)
 
 
-[^a]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^a]: TG [[Peace of God]].

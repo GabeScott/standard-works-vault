@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 8.1|2 Ne. 8:1 (1-25).]]
-[^b]: IE These are defined in the next verse as Abraham and Sarah. TG [Rock](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng).
+[^b]: IE These are defined in the next verse as Abraham and Sarah. TG [[Rock]].

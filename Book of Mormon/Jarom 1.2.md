@@ -7,5 +7,5 @@
 
 [^a]: [[Jacob 3.14|Jacob 3:14 (13-14)]]; [[Omni 1.1|Omni 1:1.]]
 [^b]: [[1 Nephi 6.3|1 Ne. 6:3 (1-6)]]; [[Jacob 7.27|Jacob 7:27.]]
-[^c]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^c]: TG [[Scriptures, Writing of]].
 [^d]: [[2 Nephi 27.6|2 Ne. 27:6]]; [[Mormon 5.12|Morm. 5:12 (12-13).]]

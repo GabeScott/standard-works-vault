@@ -5,10 +5,10 @@
 [Alma 1:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p32#p32)
 
 
-[^a]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
-[^b]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
-[^c]: TG [Laziness.](https://www.churchofjesuschrist.org/study/scriptures/tg/laziness?lang=eng)
-[^d]: TG [Gossip.](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng)
-[^e]: TG [Envy.](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
-[^f]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
-[^g]: [[2 Kings 14.10|2 Kgs. 14:10]]; [[Jacob 2.13|Jacob 2:13]]; [[Alma 31.25|Alma 31:25]]; [[Mormon 8.28|Morm. 8:28]]. TG [Pride](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng).
+[^a]: TG [[Sorcery]].
+[^b]: TG [[Idolatry, Idol]].
+[^c]: TG [[Laziness]].
+[^d]: TG [[Gossip]].
+[^e]: TG [[Envy, Envious]].
+[^f]: TG [[Strife]].
+[^g]: [[2 Kings 14.10|2 Kgs. 14:10]]; [[Jacob 2.13|Jacob 2:13]]; [[Alma 31.25|Alma 31:25]]; [[Mormon 8.28|Morm. 8:28]]. TG [[Pride]].

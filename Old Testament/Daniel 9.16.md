@@ -7,4 +7,4 @@
 
 [^a]: [[Psalms 31.1|Ps. 31:1]]; [[Psalms 36.6|36:6]]; [[D&C 133.47|D&C 133:47 (46-47).]]
 [^b]: Dan. 11:45; [[Zechariah 8.3|Zech. 8:3.]]
-[^c]: TG [Reproach.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproach?lang=eng)
+[^c]: TG [[Reproach]].

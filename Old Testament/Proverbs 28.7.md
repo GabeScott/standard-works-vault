@@ -5,5 +5,5 @@
 [Proverbs 28:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.7?lang=eng#p7)
 
 
-[^a]: OR gluttonous. Luke 15:13 (12-13). TG [Rioting and Reveling](https://www.churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng).
-[^b]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^a]: OR gluttonous. Luke 15:13 (12-13). TG [[Rioting and Reveling]].
+[^b]: TG [[Shame]].

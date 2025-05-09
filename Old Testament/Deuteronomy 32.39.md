@@ -7,4 +7,4 @@
 
 [^b]: OR beside me.
 [^c]: HEB I bring about death, and I bring about life. Ps. 68:20.
-[^d]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^d]: TG [[Jesus Christ, Resurrection]].

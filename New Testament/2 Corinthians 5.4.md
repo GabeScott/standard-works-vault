@@ -5,5 +5,5 @@
 [2 Corinthians 5:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/5.4?lang=eng#p4)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
-[^b]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
+[^a]: TG [[Mourning, Mourn]].
+[^b]: TG [[Mortality]].

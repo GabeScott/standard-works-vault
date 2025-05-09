@@ -5,7 +5,7 @@
 [Ether 3:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Jesus Christ, Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lord?lang=eng)
+[^a]: TG [[Jesus Christ, Lord]].
 [^b]: Dan. 5:5; [[Abraham 3.12|Abr. 3:12 (11-12).]]
 [^c]: [[Ether 12.19|Ether 12:19 (19, 21).]]
 [^d]: [[Ezekiel 1.28|Ezek. 1:28]]; [[Acts 9.4|Acts 9:4 (3-5).]]

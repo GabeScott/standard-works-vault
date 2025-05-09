@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 1.13|2 Ne. 1:13]]; [[Mosiah 23.12|Mosiah 23:12 (12-13)]]; [[Mosiah 27.29|27:29 (28-29).]]
-[^b]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^b]: TG [[Liberty]].

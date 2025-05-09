@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 4.26|Acts 4:26 (25-27).]]
-[^b]: TG [Counsel.](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng)
-[^c]: TG [Anointing.](https://www.churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng)
+[^b]: TG [[Counsel]].
+[^c]: TG [[Anointing, Anoint]].

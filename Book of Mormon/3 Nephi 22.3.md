@@ -6,4 +6,4 @@
 
 
 [^a]: Obad. 1:19 (19-21).
-[^b]: TG [Gentiles.](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng)
+[^b]: TG [[Gentiles]].

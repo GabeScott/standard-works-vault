@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Timothy 6.17|1 Tim. 6:17]]; [[Helaman 4.12|Hel. 4:12 (11-13).]]
-[^b]: TG [Ignorance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ignorance?lang=eng)
-[^c]: TG [Learn.](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng)
+[^b]: TG [[Ignorance, Ignorant]].
+[^c]: TG [[Learn, Learning]].

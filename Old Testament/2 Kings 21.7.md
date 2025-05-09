@@ -5,4 +5,4 @@
 [2 Kings 21:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/21.7?lang=eng#p7)
 
 
-[^a]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^a]: TG [[Idolatry, Idol]].

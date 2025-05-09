@@ -5,6 +5,6 @@
 [1 Nephi 19:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/19?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
-[^b]: See title page of the Book of Mormon. TG [Sacred](https://www.churchofjesuschrist.org/study/scriptures/tg/sacred?lang=eng).
+[^a]: TG [[Scriptures, Writing of]].
+[^b]: See title page of the Book of Mormon. TG [[Sacred]].
 [^c]: [[Mormon 8.17|Morm. 8:17 (13-17)]]; [[Ether 12.23|Ether 12:23 (23-28).]]

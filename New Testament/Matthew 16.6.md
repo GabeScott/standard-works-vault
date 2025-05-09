@@ -5,4 +5,4 @@
 [Matthew 16:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.6?lang=eng#p6)
 
 
-[^a]: TG [Leaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/leaven?lang=eng)
+[^a]: TG [[Leaven]].

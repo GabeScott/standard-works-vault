@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Chronicles 29.11|1 Chr. 29:11]]; Obad. 1:21; [[D&C 6.13|D&C 6:13.]]
-[^b]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^b]: TG [[Governments]].

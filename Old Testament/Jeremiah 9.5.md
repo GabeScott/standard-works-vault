@@ -5,5 +5,5 @@
 [Jeremiah 9:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/9.5?lang=eng#p5)
 
 
-[^a]: TG [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^a]: TG [[Lying, Liar, Lie]].
 [^b]: OR are impatient.

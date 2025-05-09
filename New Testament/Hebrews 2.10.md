@@ -7,5 +7,5 @@
 
 [^a]: GR it was fitting, suitable, proper for Him.
 [^b]: Col. 1:16 (13-19).
-[^c]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
-[^d]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
+[^c]: TG [[Jesus Christ, Messiah]].
+[^d]: TG [[Perfection, Perfect, Perfectly]].

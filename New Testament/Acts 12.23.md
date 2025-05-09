@@ -5,4 +5,4 @@
 [Acts 12:23](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/12.23?lang=eng#p23)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].

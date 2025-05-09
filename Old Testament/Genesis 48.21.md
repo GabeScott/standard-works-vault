@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 46.4|Gen. 46:4.]]
-[^b]: TG [Israel, Bondage of, in Egypt.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-egypt?lang=eng)
-[^c]: TG [Israel, Land of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng); [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^b]: TG [[Israel, Bondage of, in Egypt]].
+[^c]: TG [[Israel, Land of]]; [[Promised Lands]].

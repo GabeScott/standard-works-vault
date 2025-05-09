@@ -5,6 +5,6 @@
 [Jeremiah 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/1.7?lang=eng#p7)
 
 
-[^a]: TG [Priesthood, Magnifying Callings within.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng)
+[^a]: TG [[Priesthood, Magnifying Callings within]].
 [^b]: [[Matthew 28.20|Matt. 28:20]]; [[1 Nephi 3.7|1 Ne. 3:7.]]
-[^c]: TG [Prophets, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng); [Teaching with the Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching-with-the-spirit?lang=eng)
+[^c]: TG [[Prophets, Mission of]]; [[Teaching with the Spirit]].

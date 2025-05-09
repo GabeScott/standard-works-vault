@@ -7,5 +7,5 @@
 
 [^a]: 2 Tim. 3:1; [[Helaman 13.28|Hel. 13:28 (26-30).]]
 [^b]: [[1 Timothy 1.10|1 Tim. 1:10.]]
-[^c]: TG [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
-[^d]: TG [False Prophets](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng); [Teacher.](https://www.churchofjesuschrist.org/study/scriptures/tg/teacher?lang=eng)
+[^c]: TG [[Lust]].
+[^d]: TG [[False Prophets]]; [[Teacher]].

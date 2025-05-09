@@ -6,4 +6,4 @@
 
 
 [^a]: GR by means of, through.
-[^b]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^b]: TG [[Gospel]].

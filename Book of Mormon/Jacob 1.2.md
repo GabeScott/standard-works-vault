@@ -5,5 +5,5 @@
 [Jacob 1:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/1?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Scribe](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng); [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^a]: TG [[Scribe]]; [[Scriptures, Writing of]].
 [^b]: [[1 Nephi 6.6|1 Ne. 6:6.]]

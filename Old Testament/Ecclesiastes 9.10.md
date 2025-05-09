@@ -5,6 +5,6 @@
 [Ecclesiastes 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/9.10?lang=eng#p10)
 
 
-[^a]: TG [Industry.](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng)
+[^a]: TG [[Industry, Industrious]].
 [^b]: [[2 Nephi 9.13|2 Ne. 9:13 (13-14)]]; [[D&C 130.18|D&C 130:18.]]
 [^c]: [[Alma 34.33|Alma 34:33.]]

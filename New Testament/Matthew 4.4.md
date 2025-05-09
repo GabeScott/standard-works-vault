@@ -6,7 +6,7 @@
 
 
 [^a]: [[Deuteronomy 8.3|Deut. 8:3]]; [[D&C 84.44|D&C 84:44 (43-44).]]
-[^b]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
-[^c]: TG [Bread.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread?lang=eng)
-[^d]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
-[^e]: TG [God, Body of, Corporeal Nature.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
+[^b]: TG [[Mortality]].
+[^c]: TG [[Bread]].
+[^d]: TG [[Revelation]].
+[^e]: TG [[God, Body of, Corporeal Nature]].

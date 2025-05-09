@@ -5,4 +5,4 @@
 [2 Chronicles 30:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.7?lang=eng#p7)
 
 
-[^a]: TG [Traditions of Men.](https://www.churchofjesuschrist.org/study/scriptures/tg/traditions-of-men?lang=eng)
+[^a]: TG [[Traditions of Men]].

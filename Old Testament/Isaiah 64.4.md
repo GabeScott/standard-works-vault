@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Corinthians 2.9|1 Cor. 2:9]]; [[D&C 76.10|D&C 76:10.]]
-[^b]: [[D&C 133.45|D&C 133:45]]. TG [Reward](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng).
+[^b]: [[D&C 133.45|D&C 133:45]]. TG [[Reward]].

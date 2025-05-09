@@ -5,6 +5,6 @@
 [2 Nephi 8:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/8?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Jesus Christ, Savior](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng); [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
-[^b]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Savior]]; [[Salvation for the Dead]].
+[^b]: TG [[Jesus Christ, Judge]].
 [^c]: [[2 Nephi 10.20|2 Ne. 10:20.]]

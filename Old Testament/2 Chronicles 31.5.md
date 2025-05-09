@@ -5,4 +5,4 @@
 [2 Chronicles 31:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/31.5?lang=eng#p5)
 
 
-[^a]: TG [Tithing.](https://www.churchofjesuschrist.org/study/scriptures/tg/tithing?lang=eng)
+[^a]: TG [[Tithing]].

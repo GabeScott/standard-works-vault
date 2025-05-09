@@ -5,4 +5,4 @@
 [Moses 6:53](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.53?lang=eng#p53)
 
 
-[^a]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^a]: TG [[Forgive, Forgiveness]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 2.11|1 Ne. 2:11]]; [[1 Nephi 17.20|17:20.]]
-[^b]: [[1 Nephi 1.8|1 Ne. 1:8 (8-13)]]; [[1 Nephi 3.18|3:18 (17-18)]]. TG [Vision](https://www.churchofjesuschrist.org/study/scriptures/tg/vision?lang=eng).
+[^b]: [[1 Nephi 1.8|1 Ne. 1:8 (8-13)]]; [[1 Nephi 3.18|3:18 (17-18)]]. TG [[Vision]].

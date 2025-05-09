@@ -6,5 +6,5 @@
 
 
 [^a]: JST Matt. 7:4-8 (Appendix).
-[^b]: GR speck, chip, or splinter. TG [Gossip](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng).
+[^b]: GR speck, chip, or splinter. TG [[Gossip]].
 [^c]: The Greek word refers to a wooden beam used in constructing houses.

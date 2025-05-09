@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 29.40|D&C 29:40.]]
-[^b]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
-[^c]: [[Romans 6.16|Rom. 6:16]]; [[Alma 12.11|Alma 12:11 (9-11, 17)]]. TG [Servant](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng).
+[^b]: TG [[Sin]].
+[^c]: [[Romans 6.16|Rom. 6:16]]; [[Alma 12.11|Alma 12:11 (9-11, 17)]]. TG [[Servant]].

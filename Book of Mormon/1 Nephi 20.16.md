@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 45.19|Isa. 45:19.]]
-[^b]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^b]: TG [[God, Spirit of]].

@@ -7,5 +7,5 @@
 
 [^a]: [[1 Nephi 12.10|1 Ne. 12:10 (9-10)]]; [[Mormon 3.19|Morm. 3:19.]]
 [^b]: [[Revelation 20.4|Rev. 20:4 (4-6).]]
-[^c]: 2 Pet. 3:11. TG [Godliness](https://www.churchofjesuschrist.org/study/scriptures/tg/godliness?lang=eng); [Jesus Christ, Exemplar](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-exemplar?lang=eng); [Man, Potential to Become like Heavenly Father](https://www.churchofjesuschrist.org/study/scriptures/tg/man-potential-to-become-like-heavenly-father?lang=eng).
+[^c]: 2 Pet. 3:11. TG [[Mysteries of Godliness]]; [[Jesus Christ, Exemplar]]; [[Man, Potential to Become like Heavenly Father]].
 [^d]: [[Matthew 5.48|Matt. 5:48]]; [[3 Nephi 12.48|3 Ne. 12:48.]]

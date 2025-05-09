@@ -6,6 +6,6 @@
 
 
 [^a]: OR deals justly with.
-[^b]: TG [God, Love of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng)
+[^b]: TG [[God, Love of]].
 [^c]: OR alien, sojourner (also v. 19).
-[^d]: TG [Food.](https://www.churchofjesuschrist.org/study/scriptures/tg/food?lang=eng)
+[^d]: TG [[Food]].

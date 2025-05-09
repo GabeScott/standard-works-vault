@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mark 1.34|Mark 1:34 (32-34)]]; [[1 Nephi 11.31|1 Ne. 11:31.]]
-[^b]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
+[^b]: TG [[Spirits, Evil or Unclean]].

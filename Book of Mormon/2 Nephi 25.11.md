@@ -5,6 +5,6 @@
 [2 Nephi 25:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p11#p11)
 
 
-[^a]: TG [Teaching with the Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching-with-the-spirit?lang=eng)
+[^a]: TG [[Teaching with the Spirit]].
 [^b]: [[Jeremiah 24.6|Jer. 24:6 (5-7).]]
-[^c]: TG [Lands of Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
+[^c]: TG [[Lands of Inheritance]].

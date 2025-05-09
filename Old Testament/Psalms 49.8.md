@@ -5,4 +5,4 @@
 [Psalms 49:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/49.8?lang=eng#p8)
 
 
-[^a]: TG [Worth of Souls.](https://www.churchofjesuschrist.org/study/scriptures/tg/worth-of-souls?lang=eng)
+[^a]: TG [[Worth of Souls]].

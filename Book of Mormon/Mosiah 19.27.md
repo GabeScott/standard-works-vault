@@ -5,4 +5,4 @@
 [Mosiah 19:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/19?lang=eng&id=p27#p27)
 
 
-[^a]: TG [Peacemakers.](https://www.churchofjesuschrist.org/study/scriptures/tg/peacemakers?lang=eng)
+[^a]: TG [[Peacemakers]].

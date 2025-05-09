@@ -5,4 +5,4 @@
 [Isaiah 14:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.7?lang=eng#p7)
 
 
-[^a]: TG [Earth, Renewal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
+[^a]: TG [[Earth, Renewal of]].

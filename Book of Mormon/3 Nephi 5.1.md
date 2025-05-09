@@ -5,4 +5,4 @@
 [3 Nephi 5:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/5?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Doubt.](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng)
+[^a]: TG [[Doubt, Doubtful]].

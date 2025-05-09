@@ -5,5 +5,5 @@
 [Mark 3:31](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.31?lang=eng#p31)
 
 
-[^a]: TG [Jesus Christ, Family of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-family-of?lang=eng)
+[^a]: TG [[Jesus Christ, Family of]].
 [^b]: OR outside.

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 7.16|Matt. 7:16 (16-20).]]
-[^b]: TG [Work, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng)
+[^b]: TG [[Work, Value of]].

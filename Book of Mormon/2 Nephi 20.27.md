@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 14.25|Isa. 14:25.]]
-[^b]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
+[^b]: TG [[Jesus Christ, Messiah]].

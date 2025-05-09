@@ -6,4 +6,4 @@
 
 
 [^a]: [[Micah 7.8|Micah 7:8.]]
-[^b]: TG [Communication.](https://www.churchofjesuschrist.org/study/scriptures/tg/communication?lang=eng)
+[^b]: TG [[Communication]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Helaman 13.19|Hel. 13:19.]]
-[^b]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
-[^c]: TG [Industry](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng); [Labor.](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
+[^b]: TG [[Vanity]].
+[^c]: TG [[Industry, Industrious]]; [[Labor]].

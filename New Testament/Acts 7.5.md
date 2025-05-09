@@ -5,4 +5,4 @@
 [Acts 7:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.5?lang=eng#p5)
 
 
-[^a]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^a]: TG [[Promised Lands]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Kings 23.27|2 Kgs. 23:27]]; [[2 Nephi 16.12|2 Ne. 16:12.]]
-[^b]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^b]: TG [[Israel, Judah, People of]].

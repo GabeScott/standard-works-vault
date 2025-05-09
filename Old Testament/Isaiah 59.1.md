@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 50.2|Isa. 50:2.]]
 [^b]: [[D&C 35.8|D&C 35:8.]]
-[^c]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^c]: TG [[God, Omniscience of]].

@@ -9,4 +9,4 @@
 [^b]: [[Acts 8.3|Acts 8:3]]; [[Acts 22.4|22:4.]]
 [^c]: GR violent.
 [^d]: [[1 Corinthians 7.25|1 Cor. 7:25.]]
-[^e]: [[John 9.39|John 9:39 (39-41)]]. TG [Ignorance](https://www.churchofjesuschrist.org/study/scriptures/tg/ignorance?lang=eng).
+[^e]: [[John 9.39|John 9:39 (39-41)]]. TG [[Ignorance, Ignorant]].

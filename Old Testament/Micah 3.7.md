@@ -6,5 +6,5 @@
 
 
 [^a]: [[Zechariah 13.4|Zech. 13:4]]; [[2 Nephi 6.13|2 Ne. 6:13 (7, 13)]]; [[D&C 90.17|D&C 90:17.]]
-[^b]: TG [Superstitions.](https://www.churchofjesuschrist.org/study/scriptures/tg/superstitions?lang=eng)
+[^b]: TG [[Superstitions]].
 [^c]: [[Isaiah 29.10|Isa. 29:10.]]

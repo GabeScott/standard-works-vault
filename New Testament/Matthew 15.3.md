@@ -5,4 +5,4 @@
 [Matthew 15:3](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.3?lang=eng#p3)
 
 
-[^a]: TG [Traditions of Men.](https://www.churchofjesuschrist.org/study/scriptures/tg/traditions-of-men?lang=eng)
+[^a]: TG [[Traditions of Men]].

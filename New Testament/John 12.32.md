@@ -5,5 +5,5 @@
 [John 12:32](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.32?lang=eng#p32)
 
 
-[^a]: TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng); [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^a]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Crucifixion of]].
 [^b]: [[D&C 18.11|D&C 18:11.]]

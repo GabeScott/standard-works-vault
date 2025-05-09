@@ -5,4 +5,4 @@
 [Alma 29:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/29?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Joy]].

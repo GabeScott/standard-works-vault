@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Chronicles 30.2|2 Chr. 30:2 (2-27).]]
-[^b]: TG [Bread, Unleavened.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-unleavened?lang=eng)
+[^b]: TG [[Bread, Unleavened]].

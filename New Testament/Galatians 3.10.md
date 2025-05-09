@@ -5,4 +5,4 @@
 [Galatians 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.10?lang=eng#p10)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^a]: TG [[Curse]].

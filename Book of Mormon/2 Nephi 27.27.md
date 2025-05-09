@@ -6,7 +6,7 @@
 
 
 [^a]: [[Isaiah 29.15|Isa. 29:15 (15-16).]]
-[^b]: TG [Conspiracy](https://www.churchofjesuschrist.org/study/scriptures/tg/conspiracy?lang=eng); [Counsel.](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng)
-[^c]: TG [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
+[^b]: TG [[Conspiracy]]; [[Counsel]].
+[^c]: TG [[Secret Combinations]].
 [^d]: [[Jeremiah 18.6|Jer. 18:6.]]
-[^e]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^e]: TG [[God, Omniscience of]].

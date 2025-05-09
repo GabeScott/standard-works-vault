@@ -5,4 +5,4 @@
 [Genesis 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.22?lang=eng#p22)
 
 
-[^a]: TG [Man, Physical Creation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)
+[^a]: TG [[Man, Physical Creation of]].

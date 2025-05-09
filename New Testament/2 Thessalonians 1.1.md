@@ -6,4 +6,4 @@
 
 
 [^a]: JST 2 Thes. 1:1 … the servants of God the Father and our Lord Jesus Christ, unto the church of the Thessalonians;
-[^b]: TG [Jesus Christ, Head of the Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-head-of-the-church?lang=eng)
+[^b]: TG [[Jesus Christ, Head of the Church]].

@@ -5,5 +5,5 @@
 [Genesis 29:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.17?lang=eng#p17)
 
 
-[^a]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
+[^a]: TG [[Beauty]].
 [^b]: [[Genesis 39.6|Gen. 39:6.]]

@@ -5,5 +5,5 @@
 [Galatians 5:12](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.12?lang=eng#p12)
 
 
-[^a]: TG [Excommunication.](https://www.churchofjesuschrist.org/study/scriptures/tg/excommunication?lang=eng)
+[^a]: TG [[Excommunication]].
 [^b]: [[Galatians 1.8|Gal. 1:8 (8-9).]]

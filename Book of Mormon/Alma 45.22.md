@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 48.19|Alma 48:19.]]
-[^b]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
-[^c]: TG [Teacher.](https://www.churchofjesuschrist.org/study/scriptures/tg/teacher?lang=eng)
+[^b]: TG [[Church Organization]].
+[^c]: TG [[Teacher]].

@@ -5,4 +5,4 @@
 [Alma 33:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/33?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Scriptures, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng)
+[^a]: TG [[Scriptures, Value of]].

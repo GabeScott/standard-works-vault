@@ -5,4 +5,4 @@
 [Jeremiah 5:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.14?lang=eng#p14)
 
 
-[^a]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
+[^a]: TG [[Prophets, Mission of]].

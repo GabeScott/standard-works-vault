@@ -5,5 +5,5 @@
 [Hebrews 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.2?lang=eng#p2)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
-[^b]: TG [God, Justice of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].
+[^b]: TG [[God, Justice of]].

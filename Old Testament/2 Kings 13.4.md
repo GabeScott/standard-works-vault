@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 18.20|1 Ne. 18:20 (18-20).]]
-[^b]: TG [Oppression.](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng)
+[^b]: TG [[Oppression, Oppress]].

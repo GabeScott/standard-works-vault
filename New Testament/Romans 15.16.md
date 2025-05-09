@@ -7,4 +7,4 @@
 
 [^a]: GR servant at one’s own expense.
 [^b]: GR sacrifice, offering.
-[^c]: TG [Holy Ghost, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng)
+[^c]: TG [[Holy Ghost, Gifts of]].

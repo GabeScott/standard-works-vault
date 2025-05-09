@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 33.4|D&C 33:4.]]
-[^b]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^b]: TG [[Sin]].

@@ -5,5 +5,5 @@
 [Exodus 34:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.10?lang=eng#p10)
 
 
-[^a]: TG [Miracle.](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
+[^a]: TG [[Miracle]].
 [^b]: [[Deuteronomy 10.21|Deut. 10:21]]; [[Psalms 145.6|Ps. 145:6]]; [[Isaiah 64.3|Isa. 64:3.]]

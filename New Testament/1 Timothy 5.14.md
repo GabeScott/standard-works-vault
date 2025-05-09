@@ -6,6 +6,6 @@
 
 
 [^a]: GR desire.
-[^b]: TG [Marriage, Wives](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-wives?lang=eng); [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
-[^c]: TG [Children.](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng)
+[^b]: TG [[Marriage, Wives]]; [[Woman, Women]].
+[^c]: TG [[Children]].
 [^d]: [[Titus 2.5|Titus 2:5 (4-5).]]

@@ -5,5 +5,5 @@
 [2 Corinthians 8:21](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/8.21?lang=eng#p21)
 
 
-[^a]: TG [Honesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
+[^a]: TG [[Honesty]].
 [^b]: [[Romans 12.17|Rom. 12:17.]]

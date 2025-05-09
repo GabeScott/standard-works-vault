@@ -7,4 +7,4 @@
 
 [^a]: [[Ether 4.12|Ether 4:12.]]
 [^b]: [[3 Nephi 9.20|3 Ne. 9:20]]; [[3 Nephi 12.2|12:2.]]
-[^c]: TG [Holy Ghost, Baptism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-baptism-of?lang=eng)
+[^c]: TG [[Holy Ghost, Baptism of]].

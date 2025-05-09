@@ -5,4 +5,4 @@
 [1 Chronicles 23:30](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/23.30?lang=eng#p30)
 
 
-[^a]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^a]: TG [[Thanksgiving]].

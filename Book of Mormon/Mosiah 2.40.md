@@ -5,5 +5,5 @@
 [Mosiah 2:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p40#p40)
 
 
-[^a]: TG [Old Age.](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
+[^a]: TG [[Old Age]].
 [^b]: [[Alma 5.18|Alma 5:18 (7-18).]]

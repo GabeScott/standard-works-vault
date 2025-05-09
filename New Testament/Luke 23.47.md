@@ -5,4 +5,4 @@
 [Luke 23:47](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.47?lang=eng#p47)
 
 
-[^a]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]].

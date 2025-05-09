@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 11.36|Alma 11:36 (20-38).]]
-[^b]: [[Alma 62.45|Alma 62:45]]; [[D&C 6.11|D&C 6:11]]; [[D&C 18.44|18:44]]. TG [Conscience](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng).
+[^b]: [[Alma 62.45|Alma 62:45]]; [[D&C 6.11|D&C 6:11]]; [[D&C 18.44|18:44]]. TG [[Conscience]].

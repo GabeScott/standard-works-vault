@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 35.27|D&C 35:27.]]
-[^b]: [[Matthew 25.34|Matt. 25:34]]. TG [Kingdom of God, on Earth](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-on-earth?lang=eng).
+[^b]: [[Matthew 25.34|Matt. 25:34]]. TG [[Kingdom of God, on Earth]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 15.23|Prov. 15:23.]]
-[^b]: TG [Time.](https://www.churchofjesuschrist.org/study/scriptures/tg/time?lang=eng)
+[^b]: TG [[Time]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 27.21|3 Ne. 27:21.]]
-[^b]: [[3 Nephi 11.39|3 Ne. 11:39 (38-39)]]. TG [Rock](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng).
+[^b]: [[3 Nephi 11.39|3 Ne. 11:39 (38-39)]]. TG [[Rock]].

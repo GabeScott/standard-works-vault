@@ -5,5 +5,5 @@
 [Isaiah 24:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.4?lang=eng#p4)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Mourning, Mourn]].
 [^b]: OR the upper classes are despondent.

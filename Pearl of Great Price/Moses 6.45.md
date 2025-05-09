@@ -5,4 +5,4 @@
 [Moses 6:45](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.45?lang=eng#p45)
 
 
-[^a]: TG [Adam.](https://www.churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng)
+[^a]: TG [[Adam]].

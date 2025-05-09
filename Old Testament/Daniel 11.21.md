@@ -5,4 +5,4 @@
 [Daniel 11:21](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/11.21?lang=eng#p21)
 
 
-[^a]: TG [Flatter.](https://www.churchofjesuschrist.org/study/scriptures/tg/flatter?lang=eng)
+[^a]: TG [[Flatter, Flattery]].

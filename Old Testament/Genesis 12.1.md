@@ -11,4 +11,4 @@
 [^d]: [[Isaiah 51.2|Isa. 51:2]]; [[Abraham 1.16|Abr. 1:16.]]
 [^e]: [[Abraham 1.5|Abr. 1:5 (1-7).]]
 [^f]: [[Genesis 24.7|Gen. 24:7.]]
-[^g]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^g]: TG [[Promised Lands]].

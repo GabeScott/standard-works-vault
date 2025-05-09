@@ -5,4 +5,4 @@
 [Psalms 75:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/75.5?lang=eng#p5)
 
 
-[^a]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^a]: TG [[Stiffnecked, Stiffneckedness]].

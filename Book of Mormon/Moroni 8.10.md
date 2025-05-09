@@ -5,5 +5,5 @@
 [Moroni 8:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
-[^b]: TG [Family, Children, Responsibilities toward](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng); [Family, Love within.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng)
+[^a]: TG [[Accountability]].
+[^b]: TG [[Family, Children, Responsibilities toward]]; [[Family, Love within]].

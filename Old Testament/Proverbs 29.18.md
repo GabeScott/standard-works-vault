@@ -5,8 +5,8 @@
 [Proverbs 29:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/29.18?lang=eng#p18)
 
 
-[^a]: TG [Revelation](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng); [Vision.](https://www.churchofjesuschrist.org/study/scriptures/tg/vision?lang=eng)
-[^b]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^a]: TG [[Revelation]]; [[Vision]].
+[^b]: TG [[Apostasy of Individuals]].
 [^c]: [[Luke 11.28|Luke 11:28.]]
 [^d]: [[Proverbs 28.9|Prov. 28:9.]]
-[^e]: TG [Happiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng)
+[^e]: TG [[Happiness, Happy]].

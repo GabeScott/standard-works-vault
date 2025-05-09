@@ -5,4 +5,4 @@
 [3 Nephi 12:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p28#p28)
 
 
-[^a]: TG [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
+[^a]: TG [[Lust]].

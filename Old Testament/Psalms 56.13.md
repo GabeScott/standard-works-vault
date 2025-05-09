@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 116.8|Ps. 116:8.]]
-[^b]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^b]: TG [[Walking with God]].

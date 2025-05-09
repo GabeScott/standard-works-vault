@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 25.19|Gen. 25:19.]]
-[^b]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^b]: TG [[Israel, Judah, People of]].

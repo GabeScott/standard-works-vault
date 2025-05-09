@@ -6,4 +6,4 @@
 
 
 [^a]: HEB appoint them as your heads.
-[^b]: TG [Delegation of Responsibility.](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng)
+[^b]: TG [[Delegation of Responsibility]].

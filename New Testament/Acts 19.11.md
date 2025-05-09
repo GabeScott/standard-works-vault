@@ -5,4 +5,4 @@
 [Acts 19:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.11?lang=eng#p11)
 
 
-[^a]: TG [Priesthood, Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng); [Priesthood, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng)
+[^a]: TG [[Priesthood, Authority]]; [[Priesthood, Power of]].

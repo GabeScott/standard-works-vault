@@ -5,4 +5,4 @@
 [Matthew 26:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.10?lang=eng#p10)
 
 
-[^a]: TG [Benevolence.](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng)
+[^a]: TG [[Benevolence]].

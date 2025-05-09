@@ -6,4 +6,4 @@
 
 
 [^a]: [[Job 12.6|Job 12:6]]; [[Psalms 17.14|Ps. 17:14]]; [[Helaman 7.5|Hel. 7:5 (4-6).]]
-[^b]: TG [Worldliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
+[^b]: TG [[Worldliness]].

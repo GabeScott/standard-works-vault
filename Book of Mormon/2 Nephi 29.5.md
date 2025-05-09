@@ -5,5 +5,5 @@
 [2 Nephi 29:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/29?lang=eng&id=p5#p5)
 
 
-[^a]: [[Micah 6.16|Micah 6:16]]. TG [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng).
-[^b]: [[3 Nephi 29.8|3 Ne. 29:8]]. TG [Hate](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng).
+[^a]: [[Micah 6.16|Micah 6:16]]. TG [[Curse]].
+[^b]: [[3 Nephi 29.8|3 Ne. 29:8]]. TG [[Hate]].

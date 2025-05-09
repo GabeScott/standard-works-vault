@@ -7,5 +7,5 @@
 
 [^a]: IE send for.
 [^b]: [[Jeremiah 43.10|Jer. 43:10.]]
-[^c]: TG [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
+[^c]: TG [[Israel, Bondage of, in Other Lands]].
 [^d]: [[2 Kings 24.2|2 Kgs. 24:2.]]

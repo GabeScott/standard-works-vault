@@ -5,5 +5,5 @@
 [Isaiah 60:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.20?lang=eng#p20)
 
 
-[^a]: TG [Eternal Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng)
-[^b]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Eternal Life]].
+[^b]: TG [[Mourning, Mourn]].

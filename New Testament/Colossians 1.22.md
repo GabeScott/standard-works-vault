@@ -5,5 +5,5 @@
 [Colossians 1:22](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.22?lang=eng#p22)
 
 
-[^a]: TG [Jesus Christ, Death of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
+[^a]: TG [[Jesus Christ, Death of]].
 [^b]: [[Mosiah 3.21|Mosiah 3:21]]; [[D&C 4.2|D&C 4:2.]]

@@ -5,7 +5,7 @@
 [D&C 6:37](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.37?lang=eng#p37)
 
 
-[^a]: TG [Jesus Christ, Appearances, Postmortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-postmortal?lang=eng)
-[^b]: TG [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^a]: TG [[Jesus Christ, Appearances, Postmortal]].
+[^b]: TG [[Jesus Christ, Crucifixion of]].
 [^c]: [[Matthew 5.10|Matt. 5:10 (3, 10).]]
-[^d]: TG [Kingdom of God, in Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng)
+[^d]: TG [[Kingdom of God, in Heaven]].

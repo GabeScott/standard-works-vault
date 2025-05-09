@@ -6,6 +6,6 @@
 
 
 [^a]: [[Isaiah 52.1|Isa. 52:1.]]
-[^b]: [[D&C 113.8|D&C 113:8 (7-8)]]. TG [Israel, Restoration of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng).
+[^b]: [[D&C 113.8|D&C 113:8 (7-8)]]. TG [[Israel, Restoration of]].
 [^c]: [[Psalms 89.10|Ps. 89:10]]; [[Isaiah 27.1|Isa. 27:1.]]
 [^d]: [[Ezekiel 29.3|Ezek. 29:3.]]

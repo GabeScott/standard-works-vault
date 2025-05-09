@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 25.22|Ex. 25:22 (17-22).]]
-[^b]: TG [Cherubim.](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
+[^b]: TG [[Cherubim]].

@@ -5,5 +5,5 @@
 [Revelation 12:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/12.17?lang=eng#p17)
 
 
-[^a]: TG [Devil, Church of.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil-church-of?lang=eng)
+[^a]: TG [[Devil, Church of]].
 [^b]: Dan. 7:21.

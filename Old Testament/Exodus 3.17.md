@@ -5,8 +5,8 @@
 [Exodus 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.17?lang=eng#p17)
 
 
-[^a]: TG [Tribulation.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
+[^a]: TG [[Tribulation]].
 [^b]: [[Genesis 15.16|Gen. 15:16 (14-16).]]
 [^c]: [[Exodus 33.2|Ex. 33:2.]]
 [^d]: [[1 Chronicles 11.4|1 Chr. 11:4.]]
-[^e]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^e]: TG [[Israel, Land of]].

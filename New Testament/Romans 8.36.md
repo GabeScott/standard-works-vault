@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 44.22|Ps. 44:22]]; [[2 Corinthians 4.11|2 Cor. 4:11.]]
-[^b]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^b]: TG [[Sheep]].

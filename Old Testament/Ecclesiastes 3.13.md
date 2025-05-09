@@ -5,4 +5,4 @@
 [Ecclesiastes 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/3.13?lang=eng#p13)
 
 
-[^a]: TG [God, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
+[^a]: TG [[God, Gifts of]].

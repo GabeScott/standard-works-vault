@@ -5,6 +5,6 @@
 [2 Nephi 26:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
+[^a]: TG [[Secret Combinations]].
 [^b]: [[2 Nephi 28.21|2 Ne. 28:21.]]
 [^c]: [[Leviticus 19.26|Lev. 19:26.]]

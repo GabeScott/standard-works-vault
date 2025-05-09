@@ -5,4 +5,4 @@
 [Deuteronomy 30:14](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.14?lang=eng#p14)
 
 
-[^a]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^a]: TG [[Heart]].

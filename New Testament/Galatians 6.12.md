@@ -5,4 +5,4 @@
 [Galatians 6:12](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/6.12?lang=eng#p12)
 
 
-[^a]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
+[^a]: TG [[Persecution, Persecute]].

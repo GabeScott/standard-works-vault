@@ -5,4 +5,4 @@
 [Ecclesiastes 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.8?lang=eng#p8)
 
 
-[^a]: TG [Patience.](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
+[^a]: TG [[Patience, Patient, Patiently]].

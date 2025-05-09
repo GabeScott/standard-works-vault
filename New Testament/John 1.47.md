@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 41.11|D&C 41:11.]]
-[^b]: GR deceit, fraud. TG [Guile](https://www.churchofjesuschrist.org/study/scriptures/tg/guile?lang=eng).
+[^b]: GR deceit, fraud. TG [[Guile]].

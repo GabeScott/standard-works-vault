@@ -5,4 +5,4 @@
 [Leviticus 4:31](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/4.31?lang=eng#p31)
 
 
-[^a]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^a]: TG [[Jesus Christ, Atonement through]].

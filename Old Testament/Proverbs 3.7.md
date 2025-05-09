@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 15.21|2 Ne. 15:21]]; [[2 Nephi 28.15|28:15.]]
-[^b]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
+[^b]: TG [[Reverence]].

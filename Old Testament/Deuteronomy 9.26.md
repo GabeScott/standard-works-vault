@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 32.32|Ex. 32:32 (31-32).]]
-[^b]: TG [Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/inheritance?lang=eng)
+[^b]: TG [[Inheritance]].

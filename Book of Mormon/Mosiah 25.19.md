@@ -6,6 +6,6 @@
 
 
 [^a]: [[Mosiah 26.17|Mosiah 26:17.]]
-[^b]: TG [Priesthood.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood?lang=eng)
-[^c]: TG [Priest, Melchizedek Priesthood.](https://www.churchofjesuschrist.org/study/scriptures/tg/priest-melchizedek-priesthood?lang=eng)
-[^d]: TG [Teacher.](https://www.churchofjesuschrist.org/study/scriptures/tg/teacher?lang=eng)
+[^b]: TG [[Priesthood, History of]].
+[^c]: TG [[Priest, Melchizedek Priesthood]].
+[^d]: TG [[Teacher]].

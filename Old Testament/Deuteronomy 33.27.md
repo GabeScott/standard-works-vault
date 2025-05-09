@@ -5,6 +5,6 @@
 [Deuteronomy 33:27](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/33.27?lang=eng#p27)
 
 
-[^a]: TG [Eternity](https://www.churchofjesuschrist.org/study/scriptures/tg/eternity?lang=eng); [God, Eternal Nature of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-eternal-nature-of?lang=eng)
-[^b]: TG [Refuge.](https://www.churchofjesuschrist.org/study/scriptures/tg/refuge?lang=eng)
+[^a]: TG [[Eternity]]; [[God, Eternal Nature of]].
+[^b]: TG [[Refuge]].
 [^c]: [[D&C 103.6|D&C 103:6 (6, 25).]]

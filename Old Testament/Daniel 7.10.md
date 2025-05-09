@@ -6,5 +6,5 @@
 
 
 [^a]: [[Revelation 5.11|Rev. 5:11.]]
-[^b]: [[Revelation 11.18|Rev. 11:18]]. TG [Judgment, the Last](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng).
+[^b]: [[Revelation 11.18|Rev. 11:18]]. TG [[Judgment, the Last]].
 [^c]: Mal. 3:16; [[Revelation 20.12|Rev. 20:12.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 15.24|Matt. 15:24.]]
-[^b]: [[1 Nephi 10.11|1 Ne. 10:11]]. TG [Holy Ghost, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng).
+[^b]: [[1 Nephi 10.11|1 Ne. 10:11]]. TG [[Holy Ghost, Mission of]].

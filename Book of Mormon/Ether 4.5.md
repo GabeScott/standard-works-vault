@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 12:9; [[3 Nephi 26.9|3 Ne. 26:9 (7-12, 18)]]; [[Ether 5.1|Ether 5:1]]; [[D&C 17.6|D&C 17:6]]; [[D&C 35.18|35:18]]; JS—H 1:65.
-[^b]: [[Mormon 6.6|Morm. 6:6]]; [[D&C 17.1|D&C 17:1]]; JS—H 1:52. TG [Urim and Thummim](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng).
+[^b]: [[Mormon 6.6|Morm. 6:6]]; [[D&C 17.1|D&C 17:1]]; JS—H 1:52. TG [[Urim and Thummim]].

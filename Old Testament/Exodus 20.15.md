@@ -5,4 +5,4 @@
 [Exodus 20:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.15?lang=eng#p15)
 
 
-[^a]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^a]: TG [[Stealing, Stolen]].

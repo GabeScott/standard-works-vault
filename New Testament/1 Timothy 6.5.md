@@ -5,5 +5,5 @@
 [1 Timothy 6:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/6.5?lang=eng#p5)
 
 
-[^a]: TG [Disputations.](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng)
+[^a]: TG [[Disputations, Dispute]].
 [^b]: [[Titus 1.11|Titus 1:11.]]

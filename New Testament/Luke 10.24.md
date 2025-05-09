@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 25.26|2 Ne. 25:26 (24-27).]]
-[^b]: TG [Kings, Earthly.](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
+[^b]: TG [[Kings, Earthly]].

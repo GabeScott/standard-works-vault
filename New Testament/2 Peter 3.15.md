@@ -6,4 +6,4 @@
 
 
 [^a]: GR count, regard.
-[^b]: TG [Forbear.](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng)
+[^b]: TG [[Forbear, Forbearance]].

@@ -5,4 +5,4 @@
 [Habakkuk 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/2.4?lang=eng#p4)
 
 
-[^a]: HEB faithfulness, steadfastness. TG [Faith](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng); [Perseverance](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng).
+[^a]: HEB faithfulness, steadfastness. TG [[Faith]]; [[Perseverance]].

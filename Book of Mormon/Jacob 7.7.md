@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jacob 4.5|Jacob 4:5.]]
-[^b]: TG [Blaspheme.](https://www.churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng)
+[^b]: TG [[Blaspheme, Blasphemous, Blasphemy]].
 [^c]: [[Alma 30.13|Alma 30:13.]]

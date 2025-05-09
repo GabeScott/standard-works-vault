@@ -7,4 +7,4 @@
 
 [^a]: [[Mosiah 28.3|Mosiah 28:3]]; [[Alma 31.2|Alma 31:2]]; [[3 Nephi 17.14|3 Ne. 17:14]]; [[Moses 7.41|Moses 7:41.]]
 [^b]: [[1 Chronicles 29.1|1 Chr. 29:1]]; [[D&C 1.19|D&C 1:19 (19, 23).]]
-[^c]: TG [Example.](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
+[^c]: TG [[Example, Ensample]].

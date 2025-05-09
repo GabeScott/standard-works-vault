@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 6.3|Gen. 6:3]]; [[Ether 2.15|Ether 2:15]]; [[Moses 8.17|Moses 8:17.]]
-[^b]: TG [Holy Ghost, Loss of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-loss-of?lang=eng)
+[^b]: TG [[Holy Ghost, Loss of]].

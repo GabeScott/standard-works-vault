@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 11.16|Isa. 11:16]]; [[Isaiah 51.10|51:10 (10-11).]]
-[^b]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
-[^c]: TG [Chastity.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng)
+[^b]: TG [[Holiness]].
+[^c]: TG [[Chastity, Chaste]].

@@ -5,4 +5,4 @@
 [1 Samuel 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/4.4?lang=eng#p4)
 
 
-[^a]: TG [Cherubim.](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
+[^a]: TG [[Cherubim]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Job 27.4|Job 27:4 (4-5).]]
-[^b]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
+[^b]: TG [[Evil]].

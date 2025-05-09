@@ -6,5 +6,5 @@
 
 
 [^a]: GR sacred, venerated objects.
-[^c]: TG [Ignorance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ignorance?lang=eng)
-[^d]: TG [Preaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
+[^c]: TG [[Ignorance, Ignorant]].
+[^d]: TG [[Preaching, Preach]].

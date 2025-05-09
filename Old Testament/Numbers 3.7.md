@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 8.35|Lev. 8:35.]]
-[^b]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^b]: TG [[Apostasy of the Early Christian Church]].

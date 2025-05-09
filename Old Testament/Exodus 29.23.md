@@ -5,4 +5,4 @@
 [Exodus 29:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/29.23?lang=eng#p23)
 
 
-[^a]: TG [Bread, Unleavened.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-unleavened?lang=eng)
+[^a]: TG [[Bread, Unleavened]].

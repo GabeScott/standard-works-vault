@@ -5,5 +5,5 @@
 [Matthew 1:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.21?lang=eng#p21)
 
 
-[^a]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
-[^c]: TG [Forgive](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng); [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng); [Jesus Christ, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng); [Jesus Christ, Redeemer](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng); [Jesus Christ, Savior](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng); [Redemption](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng); [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^a]: TG [[Jesus Christ, Prophecies about]].
+[^c]: TG [[Forgive, Forgiveness]]; [[Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of]]; [[Jesus Christ, Redeemer]]; [[Jesus Christ, Savior]]; [[Redemption]]; [[Salvation for the Dead]].

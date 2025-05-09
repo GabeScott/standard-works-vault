@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:49](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.49?lang=eng#p49)
 
 
-[^a]: TG [Trustworthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/trustworthiness?lang=eng)
+[^a]: TG [[Trustworthiness]].

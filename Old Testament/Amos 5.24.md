@@ -6,4 +6,4 @@
 
 
 [^a]: [[Amos 6.12|Amos 6:12]]; [[2 Nephi 15.7|2 Ne. 15:7.]]
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^b]: TG [[God, the Standard of Righteousness]].

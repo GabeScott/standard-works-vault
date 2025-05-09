@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 21.11|3 Ne. 21:11 (8-11)]]; [[Ether 3.28|Ether 3:28 (21-28).]]
-[^b]: TG [Scriptures to Come Forth.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-to-come-forth?lang=eng)
+[^b]: TG [[Scriptures to Come Forth]].

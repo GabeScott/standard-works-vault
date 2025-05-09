@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 2.25|Gen. 2:25]]; [[2 Nephi 9.14|2 Ne. 9:14.]]
-[^b]: TG [Apparel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng)
+[^b]: TG [[Apparel]].

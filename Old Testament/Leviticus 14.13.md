@@ -5,4 +5,4 @@
 [Leviticus 14:13](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.13?lang=eng#p13)
 
 
-[^a]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^a]: TG [[Self-Sacrifice]].

@@ -5,4 +5,4 @@
 [Psalms 59:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/59.16?lang=eng#p16)
 
 
-[^a]: TG [Adversity.](https://www.churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng)
+[^a]: TG [[Adversity]].

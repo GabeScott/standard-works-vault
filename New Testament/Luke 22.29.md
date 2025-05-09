@@ -5,4 +5,4 @@
 [Luke 22:29](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.29?lang=eng#p29)
 
 
-[^a]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
+[^a]: TG [[Authority]].

@@ -5,5 +5,5 @@
 [Proverbs 19:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.23?lang=eng#p23)
 
 
-[^a]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
+[^a]: TG [[Reverence]].
 [^b]: [[Proverbs 10.16|Prov. 10:16]]; [[Proverbs 11.19|11:19.]]

@@ -5,5 +5,5 @@
 [Moses 7:60](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.60?lang=eng#p60)
 
 
-[^a]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
+[^a]: TG [[Last Days]].
 [^b]: [[Moses 7.51|Moses 7:51.]]

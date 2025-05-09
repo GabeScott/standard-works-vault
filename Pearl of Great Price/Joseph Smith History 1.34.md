@@ -5,5 +5,5 @@
 [Joseph Smith History 1:34](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.34?lang=eng#p34)
 
 
-[^a]: TG [Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-mormon?lang=eng); [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
-[^b]: [[Romans 15.29|Rom. 15:29]]. TG [Restoration of the Gospel](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng).
+[^a]: TG [[Book of Mormon]]; [[Scriptures, Preservation of]].
+[^b]: [[Romans 15.29|Rom. 15:29]]. TG [[Restoration of the Gospel]].

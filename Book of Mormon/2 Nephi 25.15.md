@@ -5,6 +5,6 @@
 [2 Nephi 25:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p15#p15)
 
 
-[^a]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
-[^b]: [[Nehemiah 1.8|Neh. 1:8 (7-9)]]; [[2 Nephi 10.6|2 Ne. 10:6]]; [[3 Nephi 16.8|3 Ne. 16:8]]. TG [Israel, Bondage of, in Other Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng); [Israel, Scattering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng).
-[^c]: TG [Babylon.](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng)
+[^a]: TG [[Israel, Judah, People of]].
+[^b]: [[Nehemiah 1.8|Neh. 1:8 (7-9)]]; [[2 Nephi 10.6|2 Ne. 10:6]]; [[3 Nephi 16.8|3 Ne. 16:8]]. TG [[Israel, Bondage of, in Other Lands]]; [[Israel, Scattering of]].
+[^c]: TG [[Babylon]].

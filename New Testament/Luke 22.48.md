@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 1.16|Acts 1:16.]]
-[^b]: TG [Jesus Christ, Betrayal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-betrayal-of?lang=eng)
+[^b]: TG [[Jesus Christ, Betrayal of]].
 [^c]: [[Proverbs 27.6|Prov. 27:6.]]

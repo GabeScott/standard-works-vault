@@ -6,5 +6,5 @@
 
 
 [^a]: [[Helaman 8.21|Hel. 8:21.]]
-[^b]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
-[^c]: TG [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
+[^b]: TG [[Israel, Scattering of]].
+[^c]: TG [[Israel, Bondage of, in Other Lands]].

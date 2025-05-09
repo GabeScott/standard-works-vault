@@ -5,8 +5,8 @@
 [2 Nephi 18:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p14#p14)
 
 
-[^a]: [[Romans 9.33|Rom. 9:33 (32-33)]]. TG [Cornerstone](https://www.churchofjesuschrist.org/study/scriptures/tg/cornerstone?lang=eng); [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng).
+[^a]: [[Romans 9.33|Rom. 9:33 (32-33)]]. TG [[Cornerstone]]; [[Jesus Christ, Prophecies about]].
 [^b]: [[Isaiah 8.14|Isa. 8:14 (13-15)]]; [[Luke 2.34|Luke 2:34]]; [[1 Peter 2.8|1 Pet. 2:8 (4-8)]]; [[Jacob 4.15|Jacob 4:15.]]
-[^c]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
+[^c]: TG [[Rock]].
 [^d]: [[Luke 7.23|Luke 7:23.]]
 [^e]: [[Mosiah 7.29|Mosiah 7:29.]]

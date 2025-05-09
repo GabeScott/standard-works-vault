@@ -6,4 +6,4 @@
 
 
 [^a]: JST Job 2:1 … children …
-[^b]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^b]: TG [[Devil, Church of]].

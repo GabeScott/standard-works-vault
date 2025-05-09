@@ -5,6 +5,6 @@
 [Nehemiah 10:33](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.33?lang=eng#p33)
 
 
-[^a]: TG [Bread, Shewbread.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-shewbread?lang=eng)
+[^a]: TG [[Bread, Shewbread]].
 [^b]: [[Numbers 28.8|Num. 28:8 (1-8).]]
 [^c]: [[Leviticus 1.4|Lev. 1:4]]; [[2 Nephi 9.26|2 Ne. 9:26.]]

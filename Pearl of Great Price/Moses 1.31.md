@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 5.4|Deut. 5:4]]; [[Moses 1.11|Moses 1:11.]]
-[^b]: [[Isaiah 45.18|Isa. 45:18 (17-18)]]; [[Ephesians 3.11|Eph. 3:11 (7-12)]]; [[2 Nephi 2.15|2 Ne. 2:15 (14-30)]]. TG [Earth, Purpose of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-purpose-of?lang=eng).
-[^c]: TG [God, Intelligence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-intelligence-of?lang=eng)
+[^b]: [[Isaiah 45.18|Isa. 45:18 (17-18)]]; [[Ephesians 3.11|Eph. 3:11 (7-12)]]; [[2 Nephi 2.15|2 Ne. 2:15 (14-30)]]. TG [[Earth, Purpose of]].
+[^c]: TG [[God, Intelligence of]].

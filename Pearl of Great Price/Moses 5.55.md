@@ -5,4 +5,4 @@
 [Moses 5:55](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.55?lang=eng#p55)
 
 
-[^a]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
+[^a]: TG [[Darkness, Spiritual]].

@@ -9,4 +9,4 @@
 [^b]: [[Deuteronomy 33.3|Deut. 33:3.]]
 [^c]: [[Acts 5.34|Acts 5:34.]]
 [^d]: [[Acts 26.5|Acts 26:5.]]
-[^e]: TG [Zeal.](https://www.churchofjesuschrist.org/study/scriptures/tg/zeal?lang=eng)
+[^e]: TG [[Zeal, Zealous]].

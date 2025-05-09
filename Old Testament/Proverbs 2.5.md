@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 36.7|Alma 36:7.]]
-[^b]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
+[^b]: TG [[Knowledge]].

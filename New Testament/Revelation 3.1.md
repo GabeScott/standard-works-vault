@@ -9,5 +9,5 @@
 [^b]: [[Revelation 1.20|Rev. 1:20.]]
 [^c]: [[Revelation 1.4|Rev. 1:4.]]
 [^d]: [[Revelation 1.20|Rev. 1:20 (16, 20).]]
-[^e]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^e]: TG [[God, Omniscience of]].
 [^f]: [[Ephesians 2.1|Eph. 2:1.]]

@@ -5,4 +5,4 @@
 [Helaman 12:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/12?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: TG [[Grace]].

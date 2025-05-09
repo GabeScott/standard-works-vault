@@ -6,5 +6,5 @@
 
 
 [^a]: [[Moses 7.21|Moses 7:21.]]
-[^b]: TG [God, Justice of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
+[^b]: TG [[God, Justice of]].
 [^c]: [[Moses 7.37|Moses 7:37 (37, 40).]]

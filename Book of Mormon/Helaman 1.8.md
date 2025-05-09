@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 1.14|Alma 1:14 (10-15).]]
-[^b]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^b]: TG [[Liberty]].

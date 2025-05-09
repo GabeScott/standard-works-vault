@@ -5,7 +5,7 @@
 [Isaiah 42:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.7?lang=eng#p7)
 
 
-[^a]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^a]: TG [[Jesus Christ, Prophecies about]].
 [^b]: [[Psalms 146.8|Ps. 146:8]]; [[Matthew 11.5|Matt. 11:5.]]
-[^c]: TG [Genealogy and Temple Work](https://www.churchofjesuschrist.org/study/scriptures/tg/genealogy-and-temple-work?lang=eng); [Salvation for the Dead.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-for-the-dead?lang=eng)
-[^d]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^c]: TG [[Genealogy and Temple Work]]; [[Salvation for the Dead]].
+[^d]: TG [[Hell]].

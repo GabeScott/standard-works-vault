@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:9](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.9?lang=eng#p9)
 
 
-[^a]: TG [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
+[^a]: TG [[False Prophets]].

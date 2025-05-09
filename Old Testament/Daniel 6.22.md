@@ -5,5 +5,5 @@
 [Daniel 6:22](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.22?lang=eng#p22)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].
 [^b]: [[Hebrews 11.33|Heb. 11:33.]]

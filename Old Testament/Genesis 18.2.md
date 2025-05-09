@@ -5,5 +5,5 @@
 [Genesis 18:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.2?lang=eng#p2)
 
 
-[^a]: [[Genesis 18.23|See JST Gen. 18:23 (Gen. 18:22 note a). Josh. 5:13]]. TG [Angels](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng).
-[^b]: [[3 Nephi 11.19|3 Ne. 11:19]]; [[Ether 6.12|Ether 6:12]]. TG [Courtesy](https://www.churchofjesuschrist.org/study/scriptures/tg/courtesy?lang=eng).
+[^a]: [[Genesis 18.23|See JST Gen. 18:23 (Gen. 18:22 note a). Josh. 5:13]]. TG [[Angels]].
+[^b]: [[3 Nephi 11.19|3 Ne. 11:19]]; [[Ether 6.12|Ether 6:12]]. TG [[Courtesy]].

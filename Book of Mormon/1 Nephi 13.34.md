@@ -6,9 +6,9 @@
 
 
 [^a]: [[D&C 124.8|D&C 124:8]]; [[Abraham 1.17|Abr. 1:17.]]
-[^b]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
+[^b]: TG [[Israel, Joseph, People of]].
 [^c]: [[1 Nephi 14.1|1 Ne. 14:1 (1-3)]]; [[2 Nephi 26.20|2 Ne. 26:20.]]
-[^d]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
-[^e]: TG [Millennium, Preparing a People for.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium-preparing-a-people-for?lang=eng)
-[^f]: TG [Scriptures, Lost.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng)
-[^g]: [[D&C 10.62|D&C 10:62]]. TG [Restoration of the Gospel](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng).
+[^d]: TG [[Gospel]].
+[^e]: TG [[Millennium, Preparing a People for]].
+[^f]: TG [[Scriptures, Lost]].
+[^g]: [[D&C 10.62|D&C 10:62]]. TG [[Restoration of the Gospel]].

@@ -5,6 +5,6 @@
 [Alma 56:47](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/56?lang=eng&id=p47#p47)
 
 
-[^a]: TG [Birthright](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng); [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
-[^b]: [[Alma 53.17|Alma 53:17 (15-18)]]. TG [Honoring Father and Mother](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng).
-[^c]: [[Alma 57.21|Alma 57:21]]. TG [Marriage, Motherhood](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-motherhood?lang=eng).
+[^a]: TG [[Birthright]]; [[Liberty]].
+[^b]: [[Alma 53.17|Alma 53:17 (15-18)]]. TG [[Honoring Father and Mother]].
+[^c]: [[Alma 57.21|Alma 57:21]]. TG [[Marriage, Motherhood]].

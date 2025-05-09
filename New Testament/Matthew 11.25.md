@@ -7,6 +7,6 @@
 
 [^a]: GR praise. Luke 10:21.
 [^b]: [[Matthew 13.11|Matt. 13:11]]; [[D&C 6.11|D&C 6:11 (11-12).]]
-[^c]: TG [Prudence.](https://www.churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
+[^c]: TG [[Prudence, Prudent]].
 [^d]: [[Alma 32.23|Alma 32:23]]; [[D&C 133.58|D&C 133:58.]]
 [^e]: GR innocent people. 2 Ne. 9:42 (42-43); [[Alma 32.23|Alma 32:23]]; [[3 Nephi 26.16|3 Ne. 26:16 (14-16)]]; [[D&C 128.18|D&C 128:18.]]

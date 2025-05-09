@@ -6,4 +6,4 @@
 
 
 [^a]: Col. 1:27 (26-27).
-[^b]: TG [Scriptures, Lost.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng)
+[^b]: TG [[Scriptures, Lost]].

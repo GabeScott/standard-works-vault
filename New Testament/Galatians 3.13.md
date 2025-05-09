@@ -6,6 +6,6 @@
 
 
 [^a]: [[Galatians 4.5|Gal. 4:5.]]
-[^b]: TG [Bondage, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng); [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^b]: TG [[Bondage, Spiritual]]; [[Curse]].
 [^c]: [[Alma 42.22|Alma 42:22 (1-28).]]
 [^d]: [[Deuteronomy 21.23|Deut. 21:23.]]

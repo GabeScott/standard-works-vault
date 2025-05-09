@@ -5,4 +5,4 @@
 [Nehemiah 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/5.7?lang=eng#p7)
 
 
-[^a]: TG [Usury.](https://www.churchofjesuschrist.org/study/scriptures/tg/usury?lang=eng)
+[^a]: TG [[Usury]].

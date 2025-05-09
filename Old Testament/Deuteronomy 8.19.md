@@ -5,6 +5,6 @@
 [Deuteronomy 8:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.19?lang=eng#p19)
 
 
-[^a]: TG [Walking in Darkness.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-in-darkness?lang=eng)
-[^b]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^a]: TG [[Walking in Darkness]].
+[^b]: TG [[Idolatry, Idol]].
 [^c]: [[Ezekiel 5.11|Ezek. 5:11 (5-17).]]

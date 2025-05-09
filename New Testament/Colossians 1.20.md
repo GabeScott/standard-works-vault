@@ -5,4 +5,4 @@
 [Colossians 1:20](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.20?lang=eng#p20)
 
 
-[^a]: TG [Reconciliation.](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng)
+[^a]: TG [[Reconciliation, Reconcile]].

@@ -5,4 +5,4 @@
 [Psalms 146:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/146.4?lang=eng#p4)
 
 
-[^a]: TG [Breath of Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/breath-of-life?lang=eng)
+[^a]: TG [[Breath of Life]].

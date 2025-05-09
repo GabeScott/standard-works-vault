@@ -7,4 +7,4 @@
 
 [^a]: [[Psalms 41.13|Ps. 41:13.]]
 [^b]: [[Psalms 57.7|Ps. 57:7 (7-11)]]; [[Psalms 108.1|108:1 (1-5)]]; [[2 Nephi 22.5|2 Ne. 22:5 (5-6).]]
-[^c]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^c]: TG [[Thanksgiving]].

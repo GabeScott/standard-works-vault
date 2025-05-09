@@ -5,4 +5,4 @@
 [Genesis 18:25](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.25?lang=eng#p25)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].

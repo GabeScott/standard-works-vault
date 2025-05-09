@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 64.31|D&C 64:31]]; [[D&C 66.11|66:11.]]
-[^b]: [[Jacob 6.11|Jacob 6:11 (7-11)]]. TG [Endure](https://www.churchofjesuschrist.org/study/scriptures/tg/endure?lang=eng); [Steadfastness](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng).
+[^b]: [[Jacob 6.11|Jacob 6:11 (7-11)]]. TG [[Endure]]; [[Steadfastness, Steadfast]].
 [^c]: [[Alma 5.13|Alma 5:13.]]

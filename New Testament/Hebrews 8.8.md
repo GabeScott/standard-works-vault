@@ -5,4 +5,4 @@
 [Hebrews 8:8](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/8.8?lang=eng#p8)
 
 
-[^a]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^a]: TG [[Israel, Judah, People of]].

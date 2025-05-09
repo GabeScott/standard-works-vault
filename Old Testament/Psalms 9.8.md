@@ -5,5 +5,5 @@
 [Psalms 9:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/9.8?lang=eng#p8)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].
+[^b]: TG [[God, the Standard of Righteousness]].

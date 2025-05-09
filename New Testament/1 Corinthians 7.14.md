@@ -6,6 +6,6 @@
 
 
 [^a]: D&C 74.
-[^b]: TG [Marriage, Interfaith.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng)
-[^c]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^b]: TG [[Marriage, Interfaith]].
+[^c]: TG [[Sanctification, Sanctify]].
 [^d]: GR cleansed.

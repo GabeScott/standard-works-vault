@@ -5,6 +5,6 @@
 [Alma 1:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p27#p27)
 
 
-[^a]: TG [Almsgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/almsgiving?lang=eng); [Consecration.](https://www.churchofjesuschrist.org/study/scriptures/tg/consecration?lang=eng)
+[^a]: TG [[Almsgiving]]; [[Consecration]].
 [^b]: [[Luke 18.22|Luke 18:22]]; [[Acts 20.35|Acts 20:35 (33-35)]]; [[Mosiah 4.26|Mosiah 4:26]]; [[D&C 42.30|D&C 42:30 (29-31).]]
-[^c]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
+[^c]: TG [[Vanity]].

@@ -5,7 +5,7 @@
 [Deuteronomy 5:24](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.24?lang=eng#p24)
 
 
-[^a]: TG [Jesus Christ, Appearances, Antemortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-antemortal?lang=eng)
-[^b]: TG [Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng)
-[^c]: TG [God, Manifestations of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-manifestations-of?lang=eng)
+[^a]: TG [[Jesus Christ, Appearances, Antemortal]].
+[^b]: TG [[Telestial Glory]].
+[^c]: TG [[God, Manifestations of]].
 [^d]: [[Psalms 18.46|Ps. 18:46.]]

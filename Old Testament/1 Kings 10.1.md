@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 12.42|Matt. 12:42]]; [[Luke 11.31|Luke 11:31.]]
-[^b]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^b]: TG [[Testament]].

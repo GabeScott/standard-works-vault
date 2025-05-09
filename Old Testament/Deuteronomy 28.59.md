@@ -5,6 +5,6 @@
 [Deuteronomy 28:59](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.59?lang=eng#p59)
 
 
-[^a]: TG [Plague.](https://www.churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng)
+[^a]: TG [[Plague]].
 [^b]: HEB extraordinary.
-[^c]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
+[^c]: TG [[Sickness, Sick]].

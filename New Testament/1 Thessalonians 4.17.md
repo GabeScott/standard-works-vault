@@ -9,5 +9,5 @@
 [^b]: [[1 Corinthians 15.51|1 Cor. 15:51]]; [[D&C 88.96|D&C 88:96 (96-97)]]; [[D&C 101.31|101:31]]; [[D&C 109.75|109:75.]]
 [^c]: [[Jude 1.14|Jude 1:14 (14-16).]]
 [^d]: [[Moroni 10.34|Moro. 10:34.]]
-[^e]: TG [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
+[^e]: TG [[Immortality, Immortal]].
 [^f]: [[John 14.3|John 14:3]]; [[Revelation 22.4|Rev. 22:4 (3-5).]]

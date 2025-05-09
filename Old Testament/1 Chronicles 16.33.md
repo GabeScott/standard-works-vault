@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 55.12|Isa. 55:12.]]
-[^b]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
-[^c]: TG [Earth, Destiny of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-destiny-of?lang=eng)
+[^b]: TG [[Jesus Christ, Judge]].
+[^c]: TG [[Earth, Destiny of]].

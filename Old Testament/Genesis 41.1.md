@@ -5,4 +5,4 @@
 [Genesis 41:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.1?lang=eng#p1)
 
 
-[^a]: TG [Dream.](https://www.churchofjesuschrist.org/study/scriptures/tg/dream?lang=eng)
+[^a]: TG [[Dream]].

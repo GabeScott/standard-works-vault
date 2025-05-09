@@ -7,4 +7,4 @@
 
 [^a]: [[Job 16.11|Job 16:11 (11-17)]]; [[Jeremiah 20.7|Jer. 20:7 (7-8)]]; Hab. 1:2 (1-4).
 [^b]: Mal. 3:14 (14-15).
-[^c]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^c]: TG [[Ordinance]].

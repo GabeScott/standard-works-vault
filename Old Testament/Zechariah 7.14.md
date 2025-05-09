@@ -5,4 +5,4 @@
 [Zechariah 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/7.14?lang=eng#p14)
 
 
-[^a]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^a]: TG [[Israel, Ten Lost Tribes of]].

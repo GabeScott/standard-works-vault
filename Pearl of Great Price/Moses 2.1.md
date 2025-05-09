@@ -6,11 +6,11 @@
 
 
 [^a]: [[Moses 1.30|Moses 1:30 (30, 36).]]
-[^b]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
 [^c]: [[Moses 1.8|Moses 1:8.]]
-[^d]: [[D&C 76.80|D&C 76:80]]. TG [Record Keeping](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng); [Scribe](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng); [Scriptures, Writing of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng).
+[^d]: [[D&C 76.80|D&C 76:80]]. TG [[Record Keeping]]; [[Scribe]]; [[Scriptures, Writing of]].
 [^e]: [[1 Nephi 1.14|1 Ne. 1:14.]]
 [^f]: [[Moses 1.32|Moses 1:32]]; [[Abraham 4.1|Abr. 4:1.]]
-[^g]: TG [Creation](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng); [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
-[^h]: TG [God, Creator](https://www.churchofjesuschrist.org/study/scriptures/tg/god-creator?lang=eng); [God, Works of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-works-of?lang=eng)
+[^g]: TG [[Creation, Create]]; [[Jesus Christ, Creator]].
+[^h]: TG [[God, Creator]]; [[God, Works of]].
 [^i]: [[Genesis 1.1|Gen. 1:1.]]

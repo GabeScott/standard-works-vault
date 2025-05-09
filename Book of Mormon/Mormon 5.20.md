@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 13.31|1 Ne. 13:31]]; [[3 Nephi 16.11|3 Ne. 16:11 (8-12).]]
-[^b]: TG [Abrahamic Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng)
+[^b]: TG [[Abrahamic Covenant]].

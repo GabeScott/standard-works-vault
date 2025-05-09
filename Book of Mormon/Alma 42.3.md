@@ -5,4 +5,4 @@
 [Alma 42:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Cherubim.](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
+[^a]: TG [[Cherubim]].

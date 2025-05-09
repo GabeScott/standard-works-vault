@@ -5,4 +5,4 @@
 [Alma 12:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^a]: TG [[Devil, Church of]].

@@ -5,5 +5,5 @@
 [Psalms 98:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/98.1?lang=eng#p1)
 
 
-[^a]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^a]: TG [[Singing, Sing, Sang, Sung]].
 [^b]: [[Exodus 15.6|Ex. 15:6 (1-12).]]

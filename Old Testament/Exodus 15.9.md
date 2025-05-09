@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 14.9|Ex. 14:9.]]
-[^b]: HEB soul; i.e., desire. TG [Lust](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng).
+[^b]: HEB soul; i.e., desire. TG [[Lust]].

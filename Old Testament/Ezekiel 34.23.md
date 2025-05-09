@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ezekiel 37.22|Ezek. 37:22.]]
-[^b]: [[Isaiah 55.4|Isa. 55:4]]. TG [Shepherd](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng).
-[^c]: [[Ezekiel 37.24|Ezek. 37:24]]. TG [Millennium](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium?lang=eng).
+[^b]: [[Isaiah 55.4|Isa. 55:4]]. TG [[Shepherd]].
+[^c]: [[Ezekiel 37.24|Ezek. 37:24]]. TG [[Millennium, Preparing a People for]].

@@ -5,4 +5,4 @@
 [Jeremiah 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.2?lang=eng#p2)
 
 
-[^a]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^a]: TG [[Heathen]].

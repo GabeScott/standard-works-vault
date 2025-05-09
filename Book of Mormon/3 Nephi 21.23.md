@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 16.8|3 Ne. 16:8 (8-15).]]
-[^b]: [[3 Nephi 20.22|3 Ne. 20:22 (21-22, 39)]]; [[Ether 13.3|Ether 13:3 (1-12)]]. TG [Jerusalem, New](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem-new?lang=eng).
+[^b]: [[3 Nephi 20.22|3 Ne. 20:22 (21-22, 39)]]; [[Ether 13.3|Ether 13:3 (1-12)]]. TG [[Jerusalem, New]].

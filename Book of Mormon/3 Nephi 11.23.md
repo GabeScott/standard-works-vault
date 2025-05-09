@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 26.15|Mosiah 26:15 (15-16)]]; [[3 Nephi 12.2|3 Ne. 12:2.]]
-[^b]: TG [Baptism, Qualifications for.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng)
+[^b]: TG [[Baptism, Qualifications for]].
 [^c]: [[3 Nephi 19.11|3 Ne. 19:11 (10-13).]]

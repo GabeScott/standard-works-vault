@@ -5,5 +5,5 @@
 [Exodus 36:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/36.8?lang=eng#p8)
 
 
-[^a]: TG [Skill.](https://www.churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng)
+[^a]: TG [[Skill]].
 [^b]: [[Exodus 26.1|Ex. 26:1 (1-14).]]

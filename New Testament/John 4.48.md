@@ -5,4 +5,4 @@
 [John 4:48](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.48?lang=eng#p48)
 
 
-[^a]: TG [Sign Seekers.](https://www.churchofjesuschrist.org/study/scriptures/tg/sign-seekers?lang=eng)
+[^a]: TG [[Sign Seekers]].

@@ -5,4 +5,4 @@
 [Psalms 73:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.1?lang=eng#p1)
 
 
-[^a]: TG [Purity.](https://www.churchofjesuschrist.org/study/scriptures/tg/purity?lang=eng)
+[^a]: TG [[Purity, Pure]].

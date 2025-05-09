@@ -7,4 +7,4 @@
 
 [^a]: [[2 Kings 4.41|2 Kgs. 4:41.]]
 [^b]: [[Exodus 15.25|Ex. 15:25]]; [[Ezekiel 47.8|Ezek. 47:8 (8-9).]]
-[^c]: TG [Barren.](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng)
+[^c]: TG [[Barren, Barrenness]].

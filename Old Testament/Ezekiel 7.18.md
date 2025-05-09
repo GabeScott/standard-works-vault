@@ -6,5 +6,5 @@
 
 
 [^a]: Lam. 2:10.
-[^b]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^b]: TG [[Shame]].
 [^c]: [[Isaiah 3.24|Isa. 3:24 (1-26)]]; [[Isaiah 22.12|22:12.]]

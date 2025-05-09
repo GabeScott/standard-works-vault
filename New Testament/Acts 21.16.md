@@ -5,4 +5,4 @@
 [Acts 21:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.16?lang=eng#p16)
 
 
-[^a]: TG [Old Age.](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
+[^a]: TG [[Old Age]].

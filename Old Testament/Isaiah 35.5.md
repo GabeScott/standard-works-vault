@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 32.3|Isa. 32:3.]]
-[^b]: TG [Sight.](https://www.churchofjesuschrist.org/study/scriptures/tg/sight?lang=eng)
+[^b]: TG [[Sight]].

@@ -5,4 +5,4 @@
 [Jeremiah 5:27](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.27?lang=eng#p27)
 
 
-[^a]: TG [Worldliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
+[^a]: TG [[Worldliness]].

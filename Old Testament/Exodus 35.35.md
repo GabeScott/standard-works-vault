@@ -5,6 +5,6 @@
 [Exodus 35:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/35.35?lang=eng#p35)
 
 
-[^a]: [[Exodus 36.1|Ex. 36:1 (1-2)]]; [[1 Kings 7.14|1 Kgs. 7:14]]. TG [Talents](https://www.churchofjesuschrist.org/study/scriptures/tg/talents?lang=eng).
-[^b]: TG [Art.](https://www.churchofjesuschrist.org/study/scriptures/tg/art?lang=eng)
+[^a]: [[Exodus 36.1|Ex. 36:1 (1-2)]]; [[1 Kings 7.14|1 Kgs. 7:14]]. TG [[Talents]].
+[^b]: TG [[Art]].
 [^c]: OR skilled craftsman.

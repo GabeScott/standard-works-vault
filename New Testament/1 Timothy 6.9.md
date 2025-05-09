@@ -6,7 +6,7 @@
 
 
 [^a]: GR those desiring to be rich.
-[^b]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
-[^c]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
-[^d]: TG [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
-[^e]: TG [Death, Spiritual, Second.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng)
+[^b]: TG [[Treasure]].
+[^c]: TG [[Temptation]].
+[^d]: TG [[Lust]].
+[^e]: TG [[Death, Spiritual, Second]].

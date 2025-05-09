@@ -5,5 +5,5 @@
 [Alma 32:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p13#p13)
 
 
-[^a]: TG [Objectives.](https://www.churchofjesuschrist.org/study/scriptures/tg/objectives?lang=eng)
-[^b]: [[Alma 38.2|Alma 38:2]]; [[3 Nephi 15.9|3 Ne. 15:9]]; [[3 Nephi 27.6|27:6 (6-17)]]. TG [Perseverance](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng); [Steadfastness](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng).
+[^a]: TG [[Objectives]].
+[^b]: [[Alma 38.2|Alma 38:2]]; [[3 Nephi 15.9|3 Ne. 15:9]]; [[3 Nephi 27.6|27:6 (6-17)]]. TG [[Perseverance]]; [[Steadfastness, Steadfast]].

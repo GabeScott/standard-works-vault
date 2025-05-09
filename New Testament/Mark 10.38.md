@@ -5,4 +5,4 @@
 [Mark 10:38](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.38?lang=eng#p38)
 
 
-[^a]: TG [Jesus Christ, Baptism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-baptism-of?lang=eng)
+[^a]: TG [[Jesus Christ, Baptism of]].

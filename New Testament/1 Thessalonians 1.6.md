@@ -6,5 +6,5 @@
 
 
 [^a]: GR imitators. Philip. 3:17.
-[^b]: [[Acts 17.5|Acts 17:5 (5-10)]]. TG [Affliction](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng).
+[^b]: [[Acts 17.5|Acts 17:5 (5-10)]]. TG [[Affliction]].
 [^c]: [[Acts 5.41|Acts 5:41.]]

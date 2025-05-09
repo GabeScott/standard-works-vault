@@ -5,6 +5,6 @@
 [Jacob 3:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/3?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
-[^b]: TG [Fornication.](https://www.churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng)
-[^c]: TG [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
+[^a]: TG [[Warn, Warnings]].
+[^b]: TG [[Fornication]].
+[^c]: TG [[Lust]].

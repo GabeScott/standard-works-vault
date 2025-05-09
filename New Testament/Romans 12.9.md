@@ -6,4 +6,4 @@
 
 
 [^a]: GR sincere, unfeigned, real.
-[^b]: [[Psalms 26.4|Ps. 26:4]]; [[2 Nephi 4.31|2 Ne. 4:31]]; [[Alma 13.12|Alma 13:12]]; [[D&C 38.42|D&C 38:42]]. TG [Evil](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng).
+[^b]: [[Psalms 26.4|Ps. 26:4]]; [[2 Nephi 4.31|2 Ne. 4:31]]; [[Alma 13.12|Alma 13:12]]; [[D&C 38.42|D&C 38:42]]. TG [[Evil]].

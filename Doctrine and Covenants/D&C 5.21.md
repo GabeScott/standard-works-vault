@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 3.6|D&C 3:6]]; [[D&C 20.5|20:5]]; JS—H 1:28 (28-29).
 [^b]: [[1 Nephi 16.3|1 Ne. 16:3.]]
-[^c]: TG [Peer Influence.](https://www.churchofjesuschrist.org/study/scriptures/tg/peer-influence?lang=eng)
+[^c]: TG [[Peer Influence]].

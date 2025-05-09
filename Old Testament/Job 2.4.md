@@ -5,4 +5,4 @@
 [Job 2:4](https://www.churchofjesuschrist.org/study/scriptures/ot/job/2.4?lang=eng#p4)
 
 
-[^a]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
+[^a]: TG [[Mortality]].

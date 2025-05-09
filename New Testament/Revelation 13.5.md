@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 7:8.
-[^b]: TG [Blaspheme](https://www.churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng); [False Doctrine.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng)
+[^b]: TG [[Blaspheme, Blasphemous, Blasphemy]]; [[False Doctrine]].

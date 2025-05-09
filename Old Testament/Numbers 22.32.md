@@ -5,4 +5,4 @@
 [Numbers 22:32](https://www.churchofjesuschrist.org/study/scriptures/ot/num/22.32?lang=eng#p32)
 
 
-[^a]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^a]: TG [[Stiffnecked, Stiffneckedness]].

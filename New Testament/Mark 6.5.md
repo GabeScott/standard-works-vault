@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mormon 9.18|Morm. 9:18 (18-21).]]
-[^b]: TG [Hands, Laying on of.](https://www.churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng)
-[^c]: TG [Administrations to the Sick.](https://www.churchofjesuschrist.org/study/scriptures/tg/administrations-to-the-sick?lang=eng)
+[^b]: TG [[Hands, Laying on of]].
+[^c]: TG [[Administrations to the Sick]].

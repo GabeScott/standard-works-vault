@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 23.34|Lev. 23:34 (33-34).]]
-[^b]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^b]: TG [[Apostasy of Israel]].

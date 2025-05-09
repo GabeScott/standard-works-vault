@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Kings 21.17|2 Kgs. 21:17.]]
-[^b]: TG [Seer.](https://www.churchofjesuschrist.org/study/scriptures/tg/seer?lang=eng)
+[^b]: TG [[Seer]].

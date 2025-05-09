@@ -6,6 +6,6 @@
 
 
 [^a]: [[Deuteronomy 27.24|Deut. 27:24.]]
-[^b]: TG [Murder.](https://www.churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng)
+[^b]: TG [[Murder, Murderer]].
 [^c]: [[Deuteronomy 27.25|Deut. 27:25.]]
 [^d]: IE “Mind,” “destroyer,” and “great one” are possible meanings of the roots evident in “Mahan.”

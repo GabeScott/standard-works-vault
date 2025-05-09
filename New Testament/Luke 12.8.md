@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moroni 7.44|Moro. 7:44 (44-48)]]; [[D&C 62.3|D&C 62:3.]]
-[^b]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^b]: TG [[Angels]].

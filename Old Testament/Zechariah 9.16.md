@@ -9,4 +9,4 @@
 [^b]: [[Isaiah 2.11|Isa. 2:11]]; [[Isaiah 52.6|52:6]]; [[Hosea 2.16|Hosea 2:16 (14-23).]]
 [^c]: Mal. 3:17; [[D&C 60.4|D&C 60:4.]]
 [^d]: [[Isaiah 62.3|Isa. 62:3.]]
-[^e]: TG [Ensign.](https://www.churchofjesuschrist.org/study/scriptures/tg/ensign?lang=eng)
+[^e]: TG [[Ensign]].

@@ -5,4 +5,4 @@
 [Psalms 96:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/96.9?lang=eng#p9)
 
 
-[^a]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
+[^a]: TG [[Holiness]].

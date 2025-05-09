@@ -6,5 +6,5 @@
 
 
 [^a]: [[Matthew 27.46|Matt. 27:46.]]
-[^b]: TG [Despair](https://www.churchofjesuschrist.org/study/scriptures/tg/despair?lang=eng); [Jesus Christ, Crucifixion of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng); [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^b]: TG [[Despair]]; [[Jesus Christ, Crucifixion of]]; [[Jesus Christ, Prophecies about]].
 [^c]: IE my cry of distress.

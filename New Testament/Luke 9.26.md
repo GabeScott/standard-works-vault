@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 3.7|D&C 3:7 (6-8).]]
-[^b]: TG [Jesus Christ, Son of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
+[^b]: TG [[Jesus Christ, Son of Man]].
 [^c]: JST Luke 9:26 … when he shall come in his own kingdom, clothed in the glory of his Father, with the holy angels.

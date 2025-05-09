@@ -7,5 +7,5 @@
 
 [^a]: [[2 Nephi 6.16|2 Ne. 6:16 (16-18).]]
 [^b]: [[3 Nephi 23.1|3 Ne. 23:1.]]
-[^c]: [[2 Nephi 16.1|2 Ne. 16:1]]. TG [Jesus Christ, Appearances, Antemortal](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-antemortal?lang=eng).
-[^d]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
+[^c]: [[2 Nephi 16.1|2 Ne. 16:1]]. TG [[Jesus Christ, Appearances, Antemortal]].
+[^d]: TG [[Jesus Christ, Jehovah]].

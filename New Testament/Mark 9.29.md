@@ -5,4 +5,4 @@
 [Mark 9:29](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.29?lang=eng#p29)
 
 
-[^a]: TG [Problem-Solving.](https://www.churchofjesuschrist.org/study/scriptures/tg/problem-solving?lang=eng)
+[^a]: TG [[Problem-Solving]].

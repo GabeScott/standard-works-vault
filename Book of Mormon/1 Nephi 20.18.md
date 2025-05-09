@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ecclesiastes 8.5|Eccl. 8:5.]]
-[^b]: TG [Israel, Blessings of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng); [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^b]: TG [[Israel, Blessings of]]; [[Peace of God]].

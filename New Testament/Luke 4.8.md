@@ -5,5 +5,5 @@
 [Luke 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/4.8?lang=eng#p8)
 
 
-[^a]: TG [Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/worship?lang=eng)
-[^b]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
+[^a]: TG [[Assembly for Worship]].
+[^b]: TG [[Commitment]].

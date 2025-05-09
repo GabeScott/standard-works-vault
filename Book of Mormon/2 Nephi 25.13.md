@@ -5,8 +5,8 @@
 [2 Nephi 25:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p13#p13)
 
 
-[^a]: TG [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^a]: TG [[Jesus Christ, Crucifixion of]].
 [^b]: [[Luke 23.53|Luke 23:53]]; [[John 19.41|John 19:41 (41-42)]]; [[1 Nephi 19.10|1 Ne. 19:10.]]
 [^c]: [[Mosiah 3.10|Mosiah 3:10.]]
-[^d]: Mal. 4:2. TG [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng); [Jesus Christ, [Resurrection](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng); [Resurrection](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng).
+[^d]: Mal. 4:2. TG [[Jesus Christ, Prophecies about]]; [[Jesus Christ, Resurrection]]; [[Jesus Christ, Resurrection]].
 [^e]: [[1 Nephi 11.27|1 Ne. 11:27 (13-34).]]

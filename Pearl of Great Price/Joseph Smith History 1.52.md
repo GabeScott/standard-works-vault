@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mormon 6.6|Morm. 6:6]]; [[Ether 4.5|Ether 4:5 (4-7)]]; [[D&C 17.1|D&C 17:1.]]
-[^b]: TG [Urim and Thummim.](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng)
+[^b]: TG [[Urim and Thummim]].

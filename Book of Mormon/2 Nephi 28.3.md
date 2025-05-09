@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Corinthians 1.13|1 Cor. 1:13 (10-13)]]; [[1 Nephi 22.23|1 Ne. 22:23]]; 4 Ne. 1:26 (25-29); [[Mormon 8.28|Morm. 8:28 (28, 32-38).]]
-[^b]: TG [False Doctrine.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng)
+[^b]: TG [[False Doctrine]].

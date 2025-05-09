@@ -5,6 +5,6 @@
 [Romans 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.5?lang=eng#p5)
 
 
-[^a]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: TG [[Grace]].
 [^b]: JST Rom. 1:5-6 … through obedience, and faith in his name, to preach the gospel among all nations; among whom ye also are called of Jesus Christ;
-[^c]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^c]: TG [[Obedience, Obedient, Obey]].

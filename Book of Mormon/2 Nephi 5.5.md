@@ -5,5 +5,5 @@
 [2 Nephi 5:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^a]: TG [[Guidance, Divine]].
 [^b]: [[Mosiah 10.13|Mosiah 10:13.]]

@@ -5,4 +5,4 @@
 [Romans 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.1?lang=eng#p1)
 
 
-[^a]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
+[^a]: TG [[Judgment]].

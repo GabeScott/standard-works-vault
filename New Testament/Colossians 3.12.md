@@ -5,9 +5,9 @@
 [Colossians 3:12](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.12?lang=eng#p12)
 
 
-[^a]: TG [Election.](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng)
+[^a]: TG [[Election, Elect]].
 [^b]: [[Galatians 5.22|Gal. 5:22.]]
-[^c]: TG [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
-[^d]: TG [Benevolence.](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng)
-[^e]: TG [Humility.](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng)
-[^f]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
+[^c]: TG [[Mercy, Merciful]].
+[^d]: TG [[Benevolence]].
+[^e]: TG [[Humility, Humble]].
+[^f]: TG [[Meek, Meekness]].

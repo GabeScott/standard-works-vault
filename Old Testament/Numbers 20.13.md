@@ -6,4 +6,4 @@
 
 
 [^a]: IE Quarrel, Strife, Contention. Ex. 17:7; [[Deuteronomy 33.8|Deut. 33:8]]; [[Ezekiel 47.19|Ezek. 47:19.]]
-[^b]: [[Ezekiel 48.28|Ezek. 48:28]]. TG [Strife](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng).
+[^b]: [[Ezekiel 48.28|Ezek. 48:28]]. TG [[Strife]].

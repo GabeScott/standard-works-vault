@@ -5,4 +5,4 @@
 [Jeremiah 22:30](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/22.30?lang=eng#p30)
 
 
-[^a]: TG [Record Keeping.](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng)
+[^a]: TG [[Record Keeping]].

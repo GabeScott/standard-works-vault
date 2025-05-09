@@ -5,6 +5,6 @@
 [Hosea 5:15](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/5.15?lang=eng#p15)
 
 
-[^a]: TG [Confession.](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng)
+[^a]: TG [[Confession]].
 [^b]: [[D&C 101.8|D&C 101:8.]]
-[^c]: TG [Adversity](https://www.churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng); [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
+[^c]: TG [[Adversity]]; [[Affliction]].

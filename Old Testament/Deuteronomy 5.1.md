@@ -5,5 +5,5 @@
 [Deuteronomy 5:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.1?lang=eng#p1)
 
 
-[^a]: TG [Commandments of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)
+[^a]: TG [[Commandments of God]].
 [^b]: HEB the ordinances (also v. 31).

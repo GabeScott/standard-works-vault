@@ -6,5 +6,5 @@
 
 
 [^a]: [[3 Nephi 9.19|3 Ne. 9:19.]]
-[^b]: TG [Blood, Symbolism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng)
+[^b]: TG [[Blood, Symbolism of]].
 [^c]: [[3 Nephi 1.24|3 Ne. 1:24]]; [[3 Nephi 15.5|15:5.]]

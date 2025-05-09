@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Corinthians 16.13|1 Cor. 16:13.]]
-[^b]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
+[^b]: TG [[Called of God]].
 [^c]: [[D&C 5.35|D&C 5:35]]; [[D&C 17.8|17:8.]]

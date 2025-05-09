@@ -5,7 +5,7 @@
 [Mosiah 16:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/16?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^a]: TG [[Salvation for the Dead]].
 [^b]: [[Mosiah 3.20|Mosiah 3:20 (20-21).]]
 [^c]: [[Mosiah 27.31|Mosiah 27:31]]; [[D&C 88.104|D&C 88:104.]]
-[^d]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^d]: TG [[God, Justice of]].

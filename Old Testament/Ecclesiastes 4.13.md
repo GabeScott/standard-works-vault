@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 12.3|3 Ne. 12:3.]]
-[^b]: TG [Teachable](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng); [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^b]: TG [[Teachable]]; [[Warn, Warnings]].

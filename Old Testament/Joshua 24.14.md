@@ -5,6 +5,6 @@
 [Joshua 24:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.14?lang=eng#p14)
 
 
-[^a]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
-[^b]: TG [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
+[^a]: TG [[Reverence]].
+[^b]: TG [[Sincere, Sincerity]].
 [^c]: [[Abraham 1.5|Abr. 1:5 (5-7).]]

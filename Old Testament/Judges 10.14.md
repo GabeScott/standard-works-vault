@@ -6,6 +6,6 @@
 
 
 [^a]: [[2 Kings 3.13|2 Kgs. 3:13]]; [[Proverbs 1.28|Prov. 1:28 (27-28)]]; [[Jeremiah 2.28|Jer. 2:28 (26-37).]]
-[^b]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^b]: TG [[Idolatry, Idol]].
 [^c]: [[Deuteronomy 32.37|Deut. 32:37 (37-38).]]
-[^d]: TG [Tribulation.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
+[^d]: TG [[Tribulation]].

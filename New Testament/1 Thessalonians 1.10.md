@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 1.11|Acts 1:11 (9-11).]]
-[^b]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^b]: TG [[Deliver, Deliverance]].
 [^c]: 1 Thes. 5:9.

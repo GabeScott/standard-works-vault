@@ -5,6 +5,6 @@
 [Psalms 19:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/19.8?lang=eng#p8)
 
 
-[^a]: TG [Cheerful.](https://www.churchofjesuschrist.org/study/scriptures/tg/cheerful?lang=eng)
+[^a]: TG [[Cheerful, Cheerfulness]].
 [^b]: [[Psalms 12.6|Ps. 12:6.]]
-[^c]: TG [Edification.](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng)
+[^c]: TG [[Edification, Edify]].

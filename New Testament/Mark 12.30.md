@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 6.5|Deut. 6:5.]]
-[^b]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
-[^c]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^b]: TG [[Commitment]].
+[^c]: TG [[Strength]].

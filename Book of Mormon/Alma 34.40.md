@@ -5,7 +5,7 @@
 [Alma 34:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p40#p40)
 
 
-[^a]: TG [Patience](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng); [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
-[^b]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
-[^c]: TG [Reviling.](https://www.churchofjesuschrist.org/study/scriptures/tg/reviling?lang=eng)
+[^a]: TG [[Patience, Patient, Patiently]]; [[Steadfastness, Steadfast]].
+[^b]: TG [[Affliction]].
+[^c]: TG [[Reviling, Revile]].
 [^d]: [[Alma 32.3|Alma 32:3.]]

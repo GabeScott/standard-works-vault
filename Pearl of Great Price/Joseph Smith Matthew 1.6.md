@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:6](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.6?lang=eng#p6)
 
 
-[^a]: [[Moses 1.19|Moses 1:19]]. TG [False Christs](https://www.churchofjesuschrist.org/study/scriptures/tg/false-christs?lang=eng).
+[^a]: [[Moses 1.19|Moses 1:19]]. TG [[False Christs]].

@@ -5,5 +5,5 @@
 [Alma 38:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/38?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Patience.](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
+[^a]: TG [[Patience, Patient, Patiently]].
 [^b]: [[Exodus 3.12|Ex. 3:12]]; [[1 Nephi 17.55|1 Ne. 17:55]]; [[Mosiah 24.17|Mosiah 24:17.]]

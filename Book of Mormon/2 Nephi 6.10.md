@@ -5,6 +5,6 @@
 [2 Nephi 6:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/6?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
-[^b]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^a]: TG [[Hardheartedness, Harden, Hardness]].
+[^b]: TG [[Stiffnecked, Stiffneckedness]].
 [^c]: [[Matthew 27.25|Matt. 27:25 (24-25).]]

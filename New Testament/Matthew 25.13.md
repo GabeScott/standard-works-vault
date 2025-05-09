@@ -5,4 +5,4 @@
 [Matthew 25:13](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.13?lang=eng#p13)
 
 
-[^a]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
+[^a]: TG [[Watch, Watchfulness]].

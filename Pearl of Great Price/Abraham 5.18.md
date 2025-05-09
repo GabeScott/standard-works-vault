@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 42.22|D&C 42:22]]; [[D&C 49.15|49:15 (15-16).]]
-[^b]: TG [Divorce](https://www.churchofjesuschrist.org/study/scriptures/tg/divorce?lang=eng); [Marriage, Celestial.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-celestial?lang=eng)
+[^b]: TG [[Divorce, Divorcement]]; [[Marriage, Celestial]].

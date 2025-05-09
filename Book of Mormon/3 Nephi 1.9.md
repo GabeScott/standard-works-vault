@@ -5,6 +5,6 @@
 [3 Nephi 1:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/1?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
-[^b]: [[3 Nephi 1.16|3 Ne. 1:16]]. TG [Martyrdom](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng).
+[^a]: TG [[Unbelief, Unbelievers]].
+[^b]: [[3 Nephi 1.16|3 Ne. 1:16]]. TG [[Martyrdom]].
 [^c]: [[Helaman 14.3|Hel. 14:3 (2-7).]]

@@ -5,7 +5,7 @@
 [2 Timothy 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/3.4?lang=eng#p4)
 
 
-[^a]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^a]: TG [[Rebellion, Rebel]].
 [^b]: GR rash, reckless.
 [^c]: GR puffed up, conceited.
-[^d]: TG [Pleasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/pleasure?lang=eng)
+[^d]: TG [[Pleasure]].

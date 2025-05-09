@@ -5,5 +5,5 @@
 [Matthew 18:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.14?lang=eng#p14)
 
 
-[^a]: TG [Children.](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng)
+[^a]: TG [[Children]].
 [^b]: [[Mosiah 28.3|Mosiah 28:3.]]

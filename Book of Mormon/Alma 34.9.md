@@ -7,4 +7,4 @@
 
 [^a]: [[2 Nephi 2.10|2 Ne. 2:10]]; [[2 Nephi 9.7|9:7 (7-9)]]; [[Alma 22.14|Alma 22:14]]; [[Alma 33.22|33:22.]]
 [^b]: [[Alma 12.26|Alma 12:26 (22-33)]]; [[Alma 42.8|42:8 (6-28)]]; [[Moses 6.62|Moses 6:62.]]
-[^c]: TG [Fall of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng)
+[^c]: TG [[Fall of Man]].

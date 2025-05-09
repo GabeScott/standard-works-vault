@@ -5,5 +5,5 @@
 [Micah 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/4.3?lang=eng#p3)
 
 
-[^a]: TG [Millennium.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium?lang=eng)
-[^b]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
+[^a]: TG [[Millennium, Preparing a People for]].
+[^b]: TG [[War]].

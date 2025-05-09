@@ -5,4 +5,4 @@
 [Joshua 22:17](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/22.17?lang=eng#p17)
 
 
-[^a]: TG [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
+[^a]: TG [[Sexual Immorality]].

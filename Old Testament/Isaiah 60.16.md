@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 49.23|Isa. 49:23.]]
 [^b]: [[1 Nephi 21.23|1 Ne. 21:23 (22-23)]]; [[2 Nephi 6.7|2 Ne. 6:7 (6-7).]]
-[^c]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
+[^c]: TG [[Jesus Christ, Jehovah]].

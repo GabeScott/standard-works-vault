@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 84.88|D&C 84:88 (88-92).]]
-[^b]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^b]: TG [[Stranger]].

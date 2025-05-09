@@ -7,5 +7,5 @@
 
 [^a]: [[D&C 31.5|D&C 31:5.]]
 [^b]: [[D&C 12.4|D&C 12:4.]]
-[^c]: TG [Harvest.](https://www.churchofjesuschrist.org/study/scriptures/tg/harvest?lang=eng)
+[^c]: TG [[Harvest]].
 [^d]: [[D&C 18.6|D&C 18:6.]]

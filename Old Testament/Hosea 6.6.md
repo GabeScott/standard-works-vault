@@ -7,5 +7,5 @@
 
 [^a]: [[Matthew 9.13|Matt. 9:13.]]
 [^b]: HEB charity, or lovingkindness. Matt. 12:7.
-[^c]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
-[^d]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^c]: TG [[Knowledge]].
+[^d]: TG [[Self-Sacrifice]].

@@ -5,5 +5,5 @@
 [Nehemiah 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/7.5?lang=eng#p5)
 
 
-[^a]: TG [Book of Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-life?lang=eng)
-[^b]: TG [Book of Remembrance.](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-remembrance?lang=eng)
+[^a]: TG [[Book of Life]].
+[^b]: TG [[Book of Remembrance]].

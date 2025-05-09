@@ -5,4 +5,4 @@
 [Exodus 34:33](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.33?lang=eng#p33)
 
 
-[^a]: TG [Veil.](https://www.churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng)
+[^a]: TG [[Veil]].

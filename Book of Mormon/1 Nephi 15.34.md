@@ -5,4 +5,4 @@
 [1 Nephi 15:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p34#p34)
 
 
-[^a]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^a]: TG [[Filthiness, Filthy]].

@@ -5,4 +5,4 @@
 [Joshua 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/7.14?lang=eng#p14)
 
 
-[^a]: TG [Family, Patriarchal.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-patriarchal?lang=eng)
+[^a]: TG [[Family, Patriarchal]].

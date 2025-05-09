@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 98.37|D&C 98:37]]; [[D&C 105.14|105:14.]]
 [^b]: [[Joshua 17.18|Josh. 17:18.]]
-[^c]: TG [Courage.](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng)
+[^c]: TG [[Courage, Courageous]].

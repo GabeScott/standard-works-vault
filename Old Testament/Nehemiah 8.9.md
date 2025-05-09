@@ -6,6 +6,6 @@
 
 
 [^a]: [[Nehemiah 7.65|Neh. 7:65.]]
-[^b]: TG [Preaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
-[^c]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^b]: TG [[Preaching, Preach]].
+[^c]: TG [[Mourning, Mourn]].
 [^d]: [[Mosiah 4.1|Mosiah 4:1 (1-2).]]

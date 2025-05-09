@@ -5,4 +5,4 @@
 [Acts 7:26](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.26?lang=eng#p26)
 
 
-[^a]: [[Exodus 2.13|Ex. 2:13]]. TG [Injustice](https://www.churchofjesuschrist.org/study/scriptures/tg/injustice?lang=eng).
+[^a]: [[Exodus 2.13|Ex. 2:13]]. TG [[Injustice]].

@@ -5,4 +5,4 @@
 [Alma 26:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Pollution.](https://www.churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng)
+[^a]: TG [[Pollution, Pollute]].

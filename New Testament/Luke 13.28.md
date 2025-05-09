@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 16.2|Mosiah 16:2 (1-2)]]; [[D&C 133.73|D&C 133:73 (72-73).]]
-[^b]: [[Alma 5.24|Alma 5:24 (14-24)]]. TG [Exaltation](https://www.churchofjesuschrist.org/study/scriptures/tg/exaltation?lang=eng); [Kingdom of God, in Heaven](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng).
+[^b]: [[Alma 5.24|Alma 5:24 (14-24)]]. TG [[Exaltation]]; [[Kingdom of God, in Heaven]].

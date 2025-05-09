@@ -5,7 +5,7 @@
 [Jacob 2:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Stewardship.](https://www.churchofjesuschrist.org/study/scriptures/tg/stewardship?lang=eng)
+[^a]: TG [[Stewardship, Steward]].
 [^b]: [[Romans 11.13|Rom. 11:13]]; [[Jacob 1.19|Jacob 1:19]]; [[D&C 24.3|D&C 24:3.]]
-[^c]: TG [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
+[^c]: TG [[Sincere, Sincerity]].
 [^d]: [[Mosiah 2.28|Mosiah 2:28.]]

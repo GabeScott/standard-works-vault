@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 16.5|3 Ne. 16:5 (4-5).]]
-[^b]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
+[^b]: TG [[Israel, Restoration of]].

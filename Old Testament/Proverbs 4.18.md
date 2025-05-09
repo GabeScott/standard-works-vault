@@ -6,6 +6,6 @@
 
 
 [^a]: [[2 Nephi 31.18|2 Ne. 31:18 (17-21).]]
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^c]: TG [Example](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng); [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
-[^d]: TG [Discernment, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/discernment-spiritual?lang=eng)
+[^b]: TG [[God, the Standard of Righteousness]].
+[^c]: TG [[Example, Ensample]]; [[Light]].
+[^d]: TG [[Discernment, Spiritual]].

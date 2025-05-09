@@ -5,5 +5,5 @@
 [Moses 1:19](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.19?lang=eng#p19)
 
 
-[^a]: TG [False Christs.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-christs?lang=eng)
+[^a]: TG [[False Christs]].
 [^b]: JS—M 1:6 (5-9).

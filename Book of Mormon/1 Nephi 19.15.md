@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 15.19|1 Ne. 15:19]]; [[1 Nephi 22.12|22:12 (11-12).]]
-[^b]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
-[^c]: TG [Abrahamic Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng)
+[^b]: TG [[Israel, Restoration of]].
+[^c]: TG [[Abrahamic Covenant]].

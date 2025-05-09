@@ -5,4 +5,4 @@
 [Mosiah 21:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/21?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Widows.](https://www.churchofjesuschrist.org/study/scriptures/tg/widows?lang=eng)
+[^a]: TG [[Widows]].

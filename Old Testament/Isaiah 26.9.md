@@ -5,6 +5,6 @@
 [Isaiah 26:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.9?lang=eng#p9)
 
 
-[^a]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: TG [[Prayer, Pray]].
 [^b]: [[Psalms 63.1|Ps. 63:1.]]
 [^c]: OR precepts.

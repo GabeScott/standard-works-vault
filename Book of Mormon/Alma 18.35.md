@@ -5,5 +5,5 @@
 [Alma 18:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p35#p35)
 
 
-[^a]: TG [Inspiration.](https://www.churchofjesuschrist.org/study/scriptures/tg/inspiration?lang=eng)
-[^b]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
+[^a]: TG [[Inspiration, Inspire]].
+[^b]: TG [[Knowledge]].

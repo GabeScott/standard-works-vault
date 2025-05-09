@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 4.18|Acts 4:18 (15-18).]]
-[^b]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^b]: TG [[Name of the Lord]].
 [^c]: [[Matthew 27.25|Matt. 27:25.]]

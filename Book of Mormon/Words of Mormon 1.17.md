@@ -6,5 +6,5 @@
 
 
 [^a]: [[Exodus 22.31|Ex. 22:31]]; [[Alma 13.26|Alma 13:26]]; [[D&C 49.8|D&C 49:8]]; [[D&C 107.29|107:29.]]
-[^b]: [[Alma 17.3|Alma 17:3 (2-3)]]. TG [God, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng).
+[^b]: [[Alma 17.3|Alma 17:3 (2-3)]]. TG [[God, Power of]].
 [^c]: [[Enos 1.23|Enos 1:23]]; [[Moroni 9.4|Moro. 9:4]]; [[D&C 121.43|D&C 121:43 (41-43).]]

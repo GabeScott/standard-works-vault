@@ -5,4 +5,4 @@
 [Acts 20:38](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.38?lang=eng#p38)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Mourning, Mourn]].

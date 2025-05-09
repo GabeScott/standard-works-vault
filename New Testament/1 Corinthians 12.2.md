@@ -6,4 +6,4 @@
 
 
 [^a]: GR led astray.
-[^b]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^b]: TG [[Idolatry, Idol]].

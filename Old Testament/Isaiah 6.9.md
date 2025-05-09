@@ -7,4 +7,4 @@
 
 [^a]: Matt. 13:14-15; Acts 28:26-27.
 [^b]: [[Luke 8.10|Luke 8:10]]; [[2 Nephi 16.9|2 Ne. 16:9.]]
-[^c]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
+[^c]: TG [[Unbelief, Unbelievers]].

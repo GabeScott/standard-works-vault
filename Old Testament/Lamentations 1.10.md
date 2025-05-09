@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 79.1|Ps. 79:1]]; [[Jeremiah 51.51|Jer. 51:51.]]
-[^b]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^b]: TG [[Apostasy of the Early Christian Church]].

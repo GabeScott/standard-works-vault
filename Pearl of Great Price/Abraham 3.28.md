@@ -5,5 +5,5 @@
 [Abraham 3:28](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.28?lang=eng#p28)
 
 
-[^a]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
-[^b]: TG [Sons of Perdition.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-of-perdition?lang=eng)
+[^a]: TG [[Devil, Church of]].
+[^b]: TG [[Sons of Perdition]].

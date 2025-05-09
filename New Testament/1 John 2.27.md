@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 43.15|D&C 43:15.]]
-[^b]: TG [Anointing.](https://www.churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng)
+[^b]: TG [[Anointing, Anoint]].
 [^c]: [[John 6.45|John 6:45]]; 1 Thes. 4:9.

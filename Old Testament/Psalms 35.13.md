@@ -5,5 +5,5 @@
 [Psalms 35:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/35.13?lang=eng#p13)
 
 
-[^a]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
-[^b]: TG [Fast, Fasting.](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
+[^a]: TG [[Sickness, Sick]].
+[^b]: TG [[Fast, Fasting]].

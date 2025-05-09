@@ -5,5 +5,5 @@
 [Jeremiah 20:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.12?lang=eng#p12)
 
 
-[^a]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^a]: TG [[Testament]].
 [^b]: HEB inward parts.

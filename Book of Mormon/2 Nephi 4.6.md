@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 2.23|1 Ne. 2:23.]]
-[^b]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^b]: TG [[Curse]].
 [^c]: [[D&C 68.25|D&C 68:25 (25-29).]]

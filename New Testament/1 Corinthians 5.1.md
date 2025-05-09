@@ -5,4 +5,4 @@
 [1 Corinthians 5:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/5.1?lang=eng#p1)
 
 
-[^a]: GR sexual immorality. TG [Sexual Immorality](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng).
+[^a]: GR sexual immorality. TG [[Sexual Immorality]].

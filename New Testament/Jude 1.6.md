@@ -5,7 +5,7 @@
 [Jude 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.6?lang=eng#p6)
 
 
-[^a]: TG [Angels](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng); [Death, Spiritual, First](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-first?lang=eng); [Devil](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng); [Sons of Perdition](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-of-perdition?lang=eng); [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
-[^b]: TG [Man, Antemortal Existence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-antemortal-existence-of?lang=eng)
+[^a]: TG [[Angels]]; [[Death, Spiritual, First]]; [[Devil, Church of]]; [[Sons of Perdition]]; [[Spirits, Evil or Unclean]].
+[^b]: TG [[Man, Antemortal Existence of]].
 [^c]: [[Abraham 3.26|Abr. 3:26 (24-28).]]
-[^d]: TG [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^d]: TG [[Judgment, the Last]].

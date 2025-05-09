@@ -6,7 +6,7 @@
 
 
 [^a]: JST Mark 9:10 … and prepareth all things; and teacheth you of the prophets; how …
-[^b]: TG [Dispensations.](https://www.churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng)
-[^c]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
-[^d]: TG [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^b]: TG [[Dispensations]].
+[^c]: TG [[Jesus Christ, Prophecies about]].
+[^d]: TG [[Jesus Christ, Crucifixion of]].
 [^e]: [[Isaiah 53.3|Isa. 53:3.]]

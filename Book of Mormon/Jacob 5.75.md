@@ -5,7 +5,7 @@
 [Jacob 5:75](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p75#p75)
 
 
-[^a]: TG [Jesus Christ, Millennial Reign.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-millennial-reign?lang=eng)
+[^a]: TG [[Jesus Christ, Millennial Reign]].
 [^b]: [[1 Nephi 13.37|1 Ne. 13:37]]; [[D&C 21.9|D&C 21:9.]]
-[^c]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
+[^c]: TG [[Israel, Restoration of]].
 [^d]: [[D&C 6.31|D&C 6:31]]; [[D&C 18.15|18:15 (15-16).]]

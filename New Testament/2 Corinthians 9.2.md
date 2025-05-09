@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Corinthians 7.14|2 Cor. 7:14.]]
-[^b]: TG [Provoking.](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng)
+[^b]: TG [[Provoking, Provoke]].

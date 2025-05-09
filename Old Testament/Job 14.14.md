@@ -5,4 +5,4 @@
 [Job 14:14](https://www.churchofjesuschrist.org/study/scriptures/ot/job/14.14?lang=eng#p14)
 
 
-[^a]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^a]: TG [[Jesus Christ, Resurrection]].

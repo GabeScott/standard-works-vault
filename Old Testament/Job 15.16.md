@@ -5,4 +5,4 @@
 [Job 15:16](https://www.churchofjesuschrist.org/study/scriptures/ot/job/15.16?lang=eng#p16)
 
 
-[^a]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^a]: TG [[Filthiness, Filthy]].

@@ -6,4 +6,4 @@
 
 
 [^a]: GR we have had faith and have known that.
-[^b]: TG [God, Body of, Corporeal Nature.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
+[^b]: TG [[God, Body of, Corporeal Nature]].

@@ -5,6 +5,6 @@
 [1 Nephi 13:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Lands of Inheritance](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng); [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^a]: TG [[Lands of Inheritance]]; [[Promised Lands]].
 [^b]: [[2 Nephi 29.12|2 Ne. 29:12 (12-13)]]; [[Alma 45.14|Alma 45:14 (10-14)]]; [[D&C 3.17|D&C 3:17.]]
 [^c]: [[2 Nephi 3.3|2 Ne. 3:3.]]

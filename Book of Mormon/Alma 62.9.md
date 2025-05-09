@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 51.19|Alma 51:19.]]
-[^b]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^b]: TG [[Capital Punishment]].
 [^c]: [[Alma 51.5|Alma 51:5 (5, 17, 21)]]; [[Alma 60.16|60:16.]]

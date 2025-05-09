@@ -5,8 +5,8 @@
 [Alma 34:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p33#p33)
 
 
-[^a]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
-[^b]: [[Job 27.8|Job 27:8]]; [[Helaman 13.38|Hel. 13:38]]; [[D&C 45.2|D&C 45:2]]. TG [Apathy](https://www.churchofjesuschrist.org/study/scriptures/tg/apathy?lang=eng); [Idleness](https://www.churchofjesuschrist.org/study/scriptures/tg/idleness?lang=eng); [Procrastination](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng).
-[^c]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Witness, Witnesses]].
+[^b]: [[Job 27.8|Job 27:8]]; [[Helaman 13.38|Hel. 13:38]]; [[D&C 45.2|D&C 45:2]]. TG [[Apathy]]; [[Idleness, Idle, Idler]]; [[Procrastination, Procrastinate]].
+[^c]: TG [[Repent, Repentance]].
 [^d]: [[Ecclesiastes 9.10|Eccl. 9:10]]; [[John 9.4|John 9:4.]]
-[^e]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
+[^e]: TG [[Darkness, Spiritual]].

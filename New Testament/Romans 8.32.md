@@ -5,6 +5,6 @@
 [Romans 8:32](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.32?lang=eng#p32)
 
 
-[^a]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^a]: TG [[Jesus Christ, Atonement through]].
 [^b]: [[Isaiah 50.8|Isa. 50:8.]]
 [^c]: [[D&C 84.38|D&C 84:38 (33-41).]]

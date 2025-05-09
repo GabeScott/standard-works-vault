@@ -7,5 +7,5 @@
 
 [^a]: [[2 Corinthians 7.10|2 Cor. 7:10]]; [[Alma 42.29|Alma 42:29.]]
 [^b]: [[Hosea 7.14|Hosea 7:14]]; [[Ether 8.7|Ether 8:7.]]
-[^c]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^c]: TG [[Damnation, Damned]].
 [^d]: [[Alma 41.10|Alma 41:10.]]

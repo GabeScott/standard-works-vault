@@ -5,4 +5,4 @@
 [Alma 26:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p23#p23)
 
 
-[^a]: [[2 Chronicles 30.10|2 Chr. 30:10]]; [[Nehemiah 2.19|Neh. 2:19]]; [[Luke 8.53|Luke 8:53]]. TG [Laughter](https://www.churchofjesuschrist.org/study/scriptures/tg/laughter?lang=eng).
+[^a]: [[2 Chronicles 30.10|2 Chr. 30:10]]; [[Nehemiah 2.19|Neh. 2:19]]; [[Luke 8.53|Luke 8:53]]. TG [[Laughter, Laugh]].

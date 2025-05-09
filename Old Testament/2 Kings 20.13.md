@@ -5,4 +5,4 @@
 [2 Kings 20:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/20.13?lang=eng#p13)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^a]: TG [[Treasure]].

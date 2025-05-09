@@ -7,5 +7,5 @@
 
 [^a]: [[Jacob 4.12|Jacob 4:12]]; [[Jarom 1.11|Jarom 1:11]]; [[Mosiah 3.13|Mosiah 3:13]]; [[Mosiah 16.6|16:6.]]
 [^b]: [[Luke 10.24|Luke 10:24 (23-24).]]
-[^c]: TG [Family, Children, Responsibilities toward.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng)
-[^d]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^c]: TG [[Family, Children, Responsibilities toward]].
+[^d]: TG [[Remission of Sins]].

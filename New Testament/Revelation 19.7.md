@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 54.5|Isa. 54:5]]; [[Matthew 22.2|Matt. 22:2 (2-14)]]; [[Luke 5.34|Luke 5:34]]; [[Revelation 21.2|Rev. 21:2.]]
-[^b]: TG [Jesus Christ, Lamb of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lamb-of-god?lang=eng)
+[^b]: TG [[Jesus Christ, Lamb of God]].

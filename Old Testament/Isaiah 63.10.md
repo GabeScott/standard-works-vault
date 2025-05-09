@@ -6,6 +6,6 @@
 
 
 [^a]: [[Numbers 14.11|Num. 14:11 (11-12).]]
-[^b]: TG [Holy Ghost, Loss of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-loss-of?lang=eng)
-[^c]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
+[^b]: TG [[Holy Ghost, Loss of]].
+[^c]: TG [[Holiness]].
 [^d]: Lam. 2:4 (4-5).

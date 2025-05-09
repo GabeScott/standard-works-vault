@@ -7,4 +7,4 @@
 
 [^a]: [[Luke 11.44|Luke 11:44]]; [[Acts 23.3|Acts 23:3.]]
 [^b]: [[Romans 3.13|Rom. 3:13.]]
-[^c]: TG [Flatter.](https://www.churchofjesuschrist.org/study/scriptures/tg/flatter?lang=eng)
+[^c]: TG [[Flatter, Flattery]].

@@ -5,5 +5,5 @@
 [Psalms 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/4.3?lang=eng#p3)
 
 
-[^a]: TG [Setting Apart.](https://www.churchofjesuschrist.org/study/scriptures/tg/setting-apart?lang=eng)
-[^b]: TG [Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/godliness?lang=eng)
+[^a]: TG [[Setting Apart]].
+[^b]: TG [[Mysteries of Godliness]].

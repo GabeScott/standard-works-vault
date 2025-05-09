@@ -5,4 +5,4 @@
 [Joseph Smith History 1:54](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.54?lang=eng#p54)
 
 
-[^a]: TG [Kingdom of God, on Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-on-earth?lang=eng)
+[^a]: TG [[Kingdom of God, on Earth]].

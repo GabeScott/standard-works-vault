@@ -5,5 +5,5 @@
 [Alma 31:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p31#p31)
 
 
-[^a]: [[John 16.33|John 16:33]]. TG [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng); [Peace of God](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng).
-[^b]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
+[^a]: [[John 16.33|John 16:33]]. TG [[Holy Ghost, Comforter]]; [[Peace of God]].
+[^b]: TG [[Affliction]].

@@ -5,6 +5,6 @@
 [Moses 7:8](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.8?lang=eng#p8)
 
 
-[^a]: TG [Earth, Curse of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-curse-of?lang=eng)
-[^b]: TG [Barren.](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng)
+[^a]: TG [[Earth, Curse of]].
+[^b]: TG [[Barren, Barrenness]].
 [^c]: [[2 Nephi 26.33|2 Ne. 26:33.]]

@@ -5,4 +5,4 @@
 [Alma 58:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/58?lang=eng&id=p33#p33)
 
 
-[^a]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Trust in God]].

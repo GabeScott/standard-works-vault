@@ -5,4 +5,4 @@
 [1 Nephi 10:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/10?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
+[^a]: TG [[Holy Ghost, Mission of]].

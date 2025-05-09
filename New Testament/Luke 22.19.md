@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 20.77|D&C 20:77.]]
-[^b]: [[Mark 14.22|Mark 14:22]]; JST Mark 14:20-25 (Appendix); [[John 6.53|John 6:53]]. TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng).
-[^c]: TG [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
-[^d]: TG [Jesus Christ, Types of, in Memory.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-memory?lang=eng)
+[^b]: [[Mark 14.22|Mark 14:22]]; JST Mark 14:20-25 (Appendix); [[John 6.53|John 6:53]]. TG [[Jesus Christ, Atonement through]].
+[^c]: TG [[Jesus Christ, Redeemer]].
+[^d]: TG [[Jesus Christ, Types of, in Memory]].

@@ -5,6 +5,6 @@
 [2 Nephi 18:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/18?lang=eng&id=p19#p19)
 
 
-[^a]: [[Moroni 10.30|Moro. 10:30]]. TG [Sorcery](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng).
+[^a]: [[Moroni 10.30|Moro. 10:30]]. TG [[Sorcery]].
 [^b]: [[Leviticus 20.6|Lev. 20:6.]]
 [^c]: [[1 Samuel 28.11|1 Sam. 28:11 (8-20).]]

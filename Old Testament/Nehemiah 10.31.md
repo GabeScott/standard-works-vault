@@ -7,5 +7,5 @@
 
 [^a]: OR merchandise.
 [^b]: OR grain.
-[^c]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
-[^d]: TG [Sabbatical Year.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbatical-year?lang=eng)
+[^c]: TG [[Sabbath]].
+[^d]: TG [[Sabbatical Year]].

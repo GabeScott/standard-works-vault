@@ -7,5 +7,5 @@
 
 [^a]: [[Luke 21.20|Luke 21:20 (20-24)]]; [[Revelation 16.16|Rev. 16:16.]]
 [^b]: [[Jeremiah 30.24|Jer. 30:24.]]
-[^c]: TG [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^c]: TG [[Conversion, Convert]].
 [^d]: HEB through thee.

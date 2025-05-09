@@ -5,5 +5,5 @@
 [Mosiah 15:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p9#p9)
 
 
-[^a]: [[Mosiah 14.5|Mosiah 14:5 (5-12)]]. TG [Self-Sacrifice](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng).
-[^b]: TG [Jesus Christ, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng)
+[^a]: [[Mosiah 14.5|Mosiah 14:5 (5-12)]]. TG [[Self-Sacrifice]].
+[^b]: TG [[Jesus Christ, Mission of]].

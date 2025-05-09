@@ -5,7 +5,7 @@
 [Galatians 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.8?lang=eng#p8)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].
 [^b]: [[1 Timothy 1.3|1 Tim. 1:3.]]
-[^c]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^c]: TG [[Gospel]].
 [^d]: [[Galatians 5.12|Gal. 5:12.]]

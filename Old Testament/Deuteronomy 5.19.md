@@ -5,4 +5,4 @@
 [Deuteronomy 5:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.19?lang=eng#p19)
 
 
-[^a]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^a]: TG [[Stealing, Stolen]].

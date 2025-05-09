@@ -6,4 +6,4 @@
 
 
 [^a]: IE in error or inadvertently.
-[^b]: TG [Accountability](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng); [Ignorance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ignorance?lang=eng)
+[^b]: TG [[Accountability]]; [[Ignorance, Ignorant]].

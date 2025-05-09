@@ -7,5 +7,5 @@
 
 [^b]: [[Acts 2.34|Acts 2:34.]]
 [^c]: [[Hebrews 1.13|Heb. 1:13.]]
-[^d]: TG [Celestial Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/celestial-glory?lang=eng)
-[^e]: TG [Enemies.](https://www.churchofjesuschrist.org/study/scriptures/tg/enemies?lang=eng)
+[^d]: TG [[Celestial Glory]].
+[^e]: TG [[Enemies, Enemy]].

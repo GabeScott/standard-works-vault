@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 138.32|D&C 138:32 (31-34).]]
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^b]: TG [[Faith]].

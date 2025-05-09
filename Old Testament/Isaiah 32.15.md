@@ -5,4 +5,4 @@
 [Isaiah 32:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/32.15?lang=eng#p15)
 
 
-[^a]: TG [Earth, Renewal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
+[^a]: TG [[Earth, Renewal of]].

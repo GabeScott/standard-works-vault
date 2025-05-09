@@ -5,4 +5,4 @@
 [1 Nephi 14:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p9#p9)
 
 
-[^a]: [[1 Nephi 15.35|1 Ne. 15:35]]; [[D&C 1.35|D&C 1:35]]. TG [Devil, Church of](https://www.churchofjesuschrist.org/study/scriptures/tg/devil-church-of?lang=eng).
+[^a]: [[1 Nephi 15.35|1 Ne. 15:35]]; [[D&C 1.35|D&C 1:35]]. TG [[Devil, Church of]].

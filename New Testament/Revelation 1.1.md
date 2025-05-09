@@ -6,7 +6,7 @@
 
 
 [^a]: JST Rev. 1:1-8 (Appendix).
-[^b]: [[1 Nephi 14.21|1 Ne. 14:21 (18-27)]]. TG [Revelation](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng).
-[^c]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
+[^b]: [[1 Nephi 14.21|1 Ne. 14:21 (18-27)]]. TG [[Revelation]].
+[^c]: TG [[Servant]].
 [^d]: [[Revelation 22.6|Rev. 22:6 (6-16)]]; [[D&C 88.79|D&C 88:79.]]
 [^e]: [[Revelation 19.10|Rev. 19:10 (6-10).]]

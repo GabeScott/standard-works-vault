@@ -5,5 +5,5 @@
 [Alma 12:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p33#p33)
 
 
-[^a]: TG [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
+[^a]: TG [[Salvation, Plan of]].
 [^b]: [[Moses 5.8|Moses 5:8.]]

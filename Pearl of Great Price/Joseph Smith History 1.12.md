@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 138.6|D&C 138:6.]]
-[^b]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^b]: TG [[Guidance, Divine]].
 [^c]: [[1 Corinthians 2.11|1 Cor. 2:11 (10-16).]]

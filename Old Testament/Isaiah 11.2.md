@@ -5,7 +5,7 @@
 [Isaiah 11:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.2?lang=eng#p2)
 
 
-[^a]: TG [God, Spirit of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng); [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
-[^b]: TG [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
-[^c]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
-[^d]: TG [Counsel.](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng)
+[^a]: TG [[God, Spirit of]]; [[Holy Ghost, Mission of]].
+[^b]: TG [[Wisdom]].
+[^c]: TG [[Understanding]].
+[^d]: TG [[Counsel]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 12.16|1 Ne. 12:16 (16-18).]]
-[^b]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^b]: TG [[Filthiness, Filthy]].

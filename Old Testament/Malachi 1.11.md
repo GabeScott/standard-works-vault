@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 45.6|Isa. 45:6.]]
 [^b]: [[Isaiah 59.19|Isa. 59:19]]; Zeph. 2:11; Philip. 2:9 (5-12); [[D&C 18.23|D&C 18:23 (21-25)]]; [[D&C 88.104|88:104.]]
-[^c]: [[Isaiah 56.7|Isa. 56:7]]. TG [Gentiles](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng).
+[^c]: [[Isaiah 56.7|Isa. 56:7]]. TG [[Gentiles]].

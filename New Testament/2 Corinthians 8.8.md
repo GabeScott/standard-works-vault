@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 63.22|D&C 63:22.]]
-[^b]: TG [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
+[^b]: TG [[Sincere, Sincerity]].

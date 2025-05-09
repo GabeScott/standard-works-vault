@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 19.14|Gen. 19:14.]]
-[^b]: TG [Babylon.](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng)
+[^b]: TG [[Babylon]].

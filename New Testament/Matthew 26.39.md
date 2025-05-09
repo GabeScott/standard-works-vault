@@ -5,8 +5,8 @@
 [Matthew 26:39](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.39?lang=eng#p39)
 
 
-[^a]: [[Hebrews 5.7|Heb. 5:7]]. TG [Prayer](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng).
-[^b]: TG [God the Father, Elohim.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-father-elohim?lang=eng)
+[^a]: [[Hebrews 5.7|Heb. 5:7]]. TG [[Prayer, Pray]].
+[^b]: TG [[God the Father, Elohim]].
 [^c]: [[Mark 14.36|Mark 14:36 (32-42)]]; [[Mosiah 3.7|Mosiah 3:7]]; [[D&C 19.18|D&C 19:18 (16-19).]]
-[^d]: GR wish, desire. Isa. 50:5. TG [Agency](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng).
-[^e]: TG [Godhead.](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng)
+[^d]: GR wish, desire. Isa. 50:5. TG [[Agency]].
+[^e]: TG [[Godhead]].

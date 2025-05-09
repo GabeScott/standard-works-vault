@@ -5,4 +5,4 @@
 [Acts 11:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/11.19?lang=eng#p19)
 
 
-[^a]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
+[^a]: TG [[Persecution, Persecute]].

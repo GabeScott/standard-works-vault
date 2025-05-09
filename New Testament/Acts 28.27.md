@@ -5,5 +5,5 @@
 [Acts 28:27](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/28.27?lang=eng#p27)
 
 
-[^a]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
-[^b]: TG [Spiritual Blindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng)
+[^a]: TG [[Hardheartedness, Harden, Hardness]].
+[^b]: TG [[Spiritual Blindness]].

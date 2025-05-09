@@ -6,5 +6,5 @@
 
 
 [^a]: JST Matt. 12:39 … the evil spirit, and taketh …
-[^b]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
+[^b]: TG [[Spirits, Evil or Unclean]].
 [^d]: [[Alma 24.30|Alma 24:30.]]

@@ -5,5 +5,5 @@
 [Genesis 45:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/45.5?lang=eng#p5)
 
 
-[^a]: TG [Benevolence](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng); [Family, Love within.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng)
+[^a]: TG [[Benevolence]]; [[Family, Love within]].
 [^b]: [[Genesis 50.20|Gen. 50:20]]; [[Psalms 105.17|Ps. 105:17.]]

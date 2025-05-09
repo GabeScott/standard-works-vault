@@ -6,5 +6,5 @@
 
 
 [^a]: [[Moses 6.17|Moses 6:17.]]
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^b]: TG [[God, the Standard of Righteousness]].
 [^c]: [[Moses 6.21|Moses 6:21.]]

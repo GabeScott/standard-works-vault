@@ -5,4 +5,4 @@
 [Matthew 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.1?lang=eng#p1)
 
 
-[^a]: TG [Jesus Christ, Birth of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-birth-of?lang=eng)
+[^a]: TG [[Jesus Christ, Birth of]].

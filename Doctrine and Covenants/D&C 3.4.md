@@ -5,11 +5,11 @@
 [D&C 3:4](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/3.4?lang=eng#p4)
 
 
-[^a]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^a]: TG [[Revelation]].
 [^b]: [[Alma 19.4|Alma 19:4.]]
-[^c]: [[Amos 6.13|Amos 6:13 (13-14)]]; [[Mosiah 11.19|Mosiah 11:19]]; [[D&C 84.73|D&C 84:73]]. TG [Boast](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng).
-[^d]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
-[^e]: [[Joshua 9.14|Josh. 9:14]]; [[Jacob 4.10|Jacob 4:10]]; [[Alma 37.37|Alma 37:37]]. TG [Counsel](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng).
-[^f]: TG [Carnal Mind](https://www.churchofjesuschrist.org/study/scriptures/tg/carnal-mind?lang=eng); [Chastity](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng); [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
-[^g]: TG [Vengeance.](https://www.churchofjesuschrist.org/study/scriptures/tg/vengeance?lang=eng)
+[^c]: [[Amos 6.13|Amos 6:13 (13-14)]]; [[Mosiah 11.19|Mosiah 11:19]]; [[D&C 84.73|D&C 84:73]]. TG [[Boast, Boasting]].
+[^d]: TG [[Strength]].
+[^e]: [[Joshua 9.14|Josh. 9:14]]; [[Jacob 4.10|Jacob 4:10]]; [[Alma 37.37|Alma 37:37]]. TG [[Counsel]].
+[^f]: TG [[Carnal Mind]]; [[Chastity, Chaste]]; [[Lust]].
+[^g]: TG [[Vengeance]].
 [^h]: [[2 Nephi 1.22|2 Ne. 1:22.]]

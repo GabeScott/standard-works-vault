@@ -6,4 +6,4 @@
 
 
 [^a]: [[James 2.21|James 2:21.]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 30.9|Deut. 30:9 (8-10).]]
-[^b]: TG [Birth Control.](https://www.churchofjesuschrist.org/study/scriptures/tg/birth-control?lang=eng)
+[^b]: TG [[Birth Control]].

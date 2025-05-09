@@ -5,7 +5,7 @@
 [Isaiah 24:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.6?lang=eng#p6)
 
 
-[^a]: TG [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng); Earth, [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng) of.
+[^a]: TG [[Curse]]; Earth, [[Curse]] of.
 [^b]: [[Revelation 17.2|Rev. 17:2]]; [[D&C 1.17|D&C 1:17.]]
-[^c]: TG [Day of the Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/day-of-the-lord?lang=eng); [Earth, Cleansing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng)
+[^c]: TG [[Day of the Lord]]; [[Earth, Cleansing of]].
 [^d]: [[Isaiah 13.12|Isa. 13:12.]]

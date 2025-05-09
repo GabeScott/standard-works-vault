@@ -5,9 +5,9 @@
 [1 Nephi 1:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/1?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Birthright.](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng)
+[^a]: TG [[Birthright]].
 [^b]: [[Proverbs 22.1|Prov. 22:1.]]
-[^c]: [[Mosiah 1.2|Mosiah 1:2 (2-3)]]; [[D&C 68.25|D&C 68:25 (25, 28)]]. TG [Honoring Father and Mother](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng).
-[^d]: [[Enos 1.1|Enos 1:1]]. TG [Education](https://www.churchofjesuschrist.org/study/scriptures/tg/education?lang=eng); [Family, Children, Responsibilities toward](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng); [Family, Love within](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng).
-[^e]: TG [Affliction](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng); [Blessing](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng); [God, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
-[^f]: TG [Record Keeping](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng); [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^c]: [[Mosiah 1.2|Mosiah 1:2 (2-3)]]; [[D&C 68.25|D&C 68:25 (25, 28)]]. TG [[Honoring Father and Mother]].
+[^d]: [[Enos 1.1|Enos 1:1]]. TG [[Education]]; [[Family, Children, Responsibilities toward]]; [[Family, Love within]].
+[^e]: TG [[Affliction]]; [[Israel, Blessings of]]; [[God, Gifts of]].
+[^f]: TG [[Record Keeping]]; [[Scriptures, Writing of]].

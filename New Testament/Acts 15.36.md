@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 12.25|Acts 12:25 (20-25).]]
-[^b]: TG [Brotherhood and Sisterhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
+[^b]: TG [[Brotherhood and Sisterhood]].

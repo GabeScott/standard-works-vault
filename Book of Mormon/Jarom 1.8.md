@@ -6,6 +6,6 @@
 
 
 [^a]: [[2 Nephi 5.15|2 Ne. 5:15.]]
-[^b]: TG [Art.](https://www.churchofjesuschrist.org/study/scriptures/tg/art?lang=eng)
-[^c]: TG [Skill.](https://www.churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng)
+[^b]: TG [[Art]].
+[^c]: TG [[Skill]].
 [^d]: [[2 Nephi 5.14|2 Ne. 5:14]]; [[Mosiah 10.8|Mosiah 10:8.]]

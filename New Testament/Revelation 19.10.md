@@ -6,7 +6,7 @@
 
 
 [^a]: [[Revelation 22.8|Rev. 22:8.]]
-[^b]: TG [Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/worship?lang=eng)
+[^b]: TG [[Assembly for Worship]].
 [^c]: [[Acts 10.26|Acts 10:26]]; [[Revelation 1.1|Rev. 1:1 (1-6).]]
-[^d]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
-[^e]: TG [Prophecy.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
+[^d]: TG [[Testimony]].
+[^e]: TG [[Prophecy]].

@@ -6,4 +6,4 @@
 
 
 [^a]: D&C 20:36-37, 77.
-[^b]: TG [Brotherhood and Sisterhood](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng); [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^b]: TG [[Brotherhood and Sisterhood]]; [[Conversion, Convert]].

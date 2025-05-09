@@ -5,5 +5,5 @@
 [Proverbs 10:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.4?lang=eng#p4)
 
 
-[^a]: TG [Laziness.](https://www.churchofjesuschrist.org/study/scriptures/tg/laziness?lang=eng)
-[^b]: TG [Dedication](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng); [Diligence.](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng)
+[^a]: TG [[Laziness]].
+[^b]: TG [[Dedication, Dedicate]]; [[Diligence, Diligent, Diligently]].

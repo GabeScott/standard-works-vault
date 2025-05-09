@@ -7,5 +7,5 @@
 
 [^a]: OR any.
 [^b]: OR outside.
-[^c]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
-[^d]: [[John 19.36|John 19:36]]. TG [Passover](https://www.churchofjesuschrist.org/study/scriptures/tg/passover?lang=eng).
+[^c]: TG [[Jesus Christ, Prophecies about]].
+[^d]: [[John 19.36|John 19:36]]. TG [[Passover]].

@@ -5,5 +5,5 @@
 [Daniel 9:11](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.11?lang=eng#p11)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
-[^b]: [[Jeremiah 52.30|Jer. 52:30 (1-30)]]. TG [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng).
+[^a]: TG [[Disobedience, Disobey]].
+[^b]: [[Jeremiah 52.30|Jer. 52:30 (1-30)]]. TG [[Curse]].

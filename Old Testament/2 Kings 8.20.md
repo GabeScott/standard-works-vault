@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 27.40|Gen. 27:40.]]
-[^b]: TG [Bondage, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng)
+[^b]: TG [[Bondage, Physical]].

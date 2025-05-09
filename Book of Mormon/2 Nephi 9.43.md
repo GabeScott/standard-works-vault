@@ -5,5 +5,5 @@
 [2 Nephi 9:43](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p43#p43)
 
 
-[^a]: TG [Prudence.](https://www.churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
+[^a]: TG [[Prudence, Prudent]].
 [^b]: [[1 Corinthians 2.14|1 Cor. 2:14 (9-16).]]

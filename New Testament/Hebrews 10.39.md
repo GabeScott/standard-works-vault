@@ -6,4 +6,4 @@
 
 
 [^a]: 2 Pet. 2:21 (20-21).
-[^b]: GR ruin, destruction. TG [Death, Spiritual, Second](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng); [Sons of Perdition](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-of-perdition?lang=eng).
+[^b]: GR ruin, destruction. TG [[Death, Spiritual, Second]]; [[Sons of Perdition]].

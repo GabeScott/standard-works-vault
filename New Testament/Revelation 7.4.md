@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 77.11|D&C 77:11.]]
-[^b]: TG [Israel, Twelve Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-twelve-tribes-of?lang=eng)
-[^c]: [[D&C 77.9|D&C 77:9]]. TG [Israel, Blessings of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng).
+[^b]: TG [[Israel, Twelve Tribes of]].
+[^c]: [[D&C 77.9|D&C 77:9]]. TG [[Israel, Blessings of]].

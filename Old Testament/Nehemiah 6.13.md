@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 3.7|D&C 3:7 (7-8).]]
-[^b]: TG [Slander.](https://www.churchofjesuschrist.org/study/scriptures/tg/slander?lang=eng)
+[^b]: TG [[Slander]].

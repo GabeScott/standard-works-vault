@@ -7,4 +7,4 @@
 
 [^a]: 1 Jn. 4:20 (20-21).
 [^b]: [[Luke 3.11|Luke 3:11.]]
-[^c]: GR is hardhearted, void of compassion. TG [Hardheartedness](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng).
+[^c]: GR is hardhearted, void of compassion. TG [[Hardheartedness, Harden, Hardness]].

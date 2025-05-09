@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 12.6|Gen. 12:6.]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].

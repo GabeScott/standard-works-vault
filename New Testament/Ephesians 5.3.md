@@ -5,5 +5,5 @@
 [Ephesians 5:3](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.3?lang=eng#p3)
 
 
-[^a]: TG [Chastity](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng); [Fornication](https://www.churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng); [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
-[^b]: TG [Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng)
+[^a]: TG [[Chastity, Chaste]]; [[Fornication]]; [[Sexual Immorality]].
+[^b]: TG [[Mission of Latter-day Saints]].

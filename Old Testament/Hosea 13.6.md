@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 8.16|Deut. 8:16 (12, 16)]]; [[1 Nephi 17.28|1 Ne. 17:28 (26-29).]]
-[^b]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^b]: TG [[Apostasy of Individuals]].

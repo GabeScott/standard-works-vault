@@ -5,5 +5,5 @@
 [Mosiah 13:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Honoring Father and Mother.](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng)
+[^a]: TG [[Honoring Father and Mother]].
 [^b]: [[Proverbs 20.20|Prov. 20:20.]]

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 26.22|Alma 26:22]]; [[Helaman 11.23|Hel. 11:23]]; [[D&C 107.19|D&C 107:19 (18-19).]]
-[^b]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
-[^c]: TG [Holy Ghost](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost?lang=eng); [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^b]: TG [[Stiffnecked, Stiffneckedness]].
+[^c]: TG [[Holy Ghost, Baptism of]]; [[Revelation]].

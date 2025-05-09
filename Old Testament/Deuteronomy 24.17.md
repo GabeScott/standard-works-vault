@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 27.19|Deut. 27:19.]]
-[^b]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
+[^b]: TG [[Judgment]].

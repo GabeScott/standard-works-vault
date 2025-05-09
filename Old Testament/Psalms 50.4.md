@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 4.26|Deut. 4:26.]]
-[^b]: TG [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^b]: TG [[Judgment, the Last]].

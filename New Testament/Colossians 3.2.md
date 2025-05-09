@@ -8,4 +8,4 @@
 [^a]: GR mind.
 [^b]: [[Matthew 6.33|Matt. 6:33.]]
 [^c]: [[Proverbs 15.24|Prov. 15:24.]]
-[^d]: TG [Worldliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
+[^d]: TG [[Worldliness]].

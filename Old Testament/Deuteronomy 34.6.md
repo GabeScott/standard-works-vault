@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 45.19|Alma 45:19 (18-19).]]
 [^b]: OR the place of his burial.
-[^c]: TG [Translated Beings.](https://www.churchofjesuschrist.org/study/scriptures/tg/translated-beings?lang=eng)
+[^c]: TG [[Translated Beings]].

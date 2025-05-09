@@ -7,5 +7,5 @@
 
 [^a]: [[Alma 5.53|Alma 5:53 (1-62).]]
 [^b]: [[Mosiah 29.27|Mosiah 29:27.]]
-[^c]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^c]: TG [[Stiffnecked, Stiffneckedness]].
 [^d]: [[Proverbs 1.25|Prov. 1:25.]]

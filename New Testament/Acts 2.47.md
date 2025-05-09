@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 5.14|Acts 5:14.]]
-[^b]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^b]: TG [[Apostasy of the Early Christian Church]].

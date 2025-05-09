@@ -5,5 +5,5 @@
 [Psalms 101:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/101.5?lang=eng#p5)
 
 
-[^a]: TG [Backbiting](https://www.churchofjesuschrist.org/study/scriptures/tg/backbiting?lang=eng); [Slander.](https://www.churchofjesuschrist.org/study/scriptures/tg/slander?lang=eng)
+[^a]: TG [[Backbiting]]; [[Slander]].
 [^b]: [[Isaiah 1.13|Isa. 1:13.]]

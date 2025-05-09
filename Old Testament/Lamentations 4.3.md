@@ -5,4 +5,4 @@
 [Lamentations 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/4.3?lang=eng#p3)
 
 
-[^a]: [[Job 39.16|Job 39:16 (13-16)]]. TG [Cruelty](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng).
+[^a]: [[Job 39.16|Job 39:16 (13-16)]]. TG [[Cruelty, Cruel]].

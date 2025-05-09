@@ -5,4 +5,4 @@
 [Psalms 26:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/26.2?lang=eng#p2)
 
 
-[^a]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^a]: TG [[Testament]].

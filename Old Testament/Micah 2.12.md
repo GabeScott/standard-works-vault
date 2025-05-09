@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 33.6|D&C 33:6.]]
-[^b]: TG [Israel, Remnant of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-remnant-of?lang=eng)
+[^b]: TG [[Israel, Remnant of]].
 [^c]: HEB the sheepfold.

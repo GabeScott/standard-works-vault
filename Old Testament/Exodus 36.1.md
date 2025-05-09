@@ -7,5 +7,5 @@
 
 [^a]: [[Exodus 31.2|Ex. 31:2 (1-6).]]
 [^b]: OR all the able men (see also v. 4).
-[^c]: [[Exodus 35.35|Ex. 35:35]]; [[1 Kings 7.14|1 Kgs. 7:14]]. TG [Holy Ghost, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng).
+[^c]: [[Exodus 35.35|Ex. 35:35]]; [[1 Kings 7.14|1 Kgs. 7:14]]. TG [[Holy Ghost, Gifts of]].
 [^d]: IE in the construction of (see also vv. 2, 8).

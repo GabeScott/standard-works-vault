@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 32.11|Alma 32:11.]]
-[^b]: TG [Meetings.](https://www.churchofjesuschrist.org/study/scriptures/tg/meetings?lang=eng)
-[^c]: TG [Assembly for Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/assembly-for-worship?lang=eng)
+[^b]: TG [[Meetings]].
+[^c]: TG [[Assembly for Worship]].

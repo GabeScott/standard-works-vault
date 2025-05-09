@@ -5,4 +5,4 @@
 [Psalms 29:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/29.3?lang=eng#p3)
 
 
-[^a]: TG [Nature, Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/nature-earth?lang=eng)
+[^a]: TG [[Nature, Earth]].

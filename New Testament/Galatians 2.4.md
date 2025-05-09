@@ -6,5 +6,5 @@
 
 
 [^a]: JST Gal. 2:4 Notwithstanding, there were some brought in by false brethren unawares, who …
-[^b]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
-[^c]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^b]: TG [[Liberty]].
+[^c]: TG [[Bondage, Spiritual]].

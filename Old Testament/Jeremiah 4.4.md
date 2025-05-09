@@ -5,4 +5,4 @@
 [Jeremiah 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.4?lang=eng#p4)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^a]: TG [[Circumcision]].

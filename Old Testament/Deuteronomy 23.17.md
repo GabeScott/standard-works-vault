@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 19.29|Lev. 19:29.]]
-[^b]: HEB a professional male or female prostitute or cultist. 2 Kgs. 23:7. TG [Homosexual Behavior](https://www.churchofjesuschrist.org/study/scriptures/tg/homosexual-behavior?lang=eng).
+[^b]: HEB a professional male or female prostitute or cultist. 2 Kgs. 23:7. TG [[Homosexual Behavior]].

@@ -6,5 +6,5 @@
 
 
 [^a]: Philip. 2:2 (1-4).
-[^b]: TG [Brotherhood and Sisterhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
-[^c]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^b]: TG [[Brotherhood and Sisterhood]].
+[^c]: TG [[Love]].

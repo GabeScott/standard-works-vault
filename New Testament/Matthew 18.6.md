@@ -5,4 +5,4 @@
 [Matthew 18:6](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.6?lang=eng#p6)
 
 
-[^a]: GR cause to stumble. D&C 121:19 (19-22). TG [Offense](https://www.churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng).
+[^a]: GR cause to stumble. D&C 121:19 (19-22). TG [[Offense, Offend, Offender]].

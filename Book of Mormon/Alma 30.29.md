@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 4.17|Alma 4:17.]]
-[^b]: TG [Reviling.](https://www.churchofjesuschrist.org/study/scriptures/tg/reviling?lang=eng)
+[^b]: TG [[Reviling, Revile]].

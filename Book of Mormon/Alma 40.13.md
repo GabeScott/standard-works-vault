@@ -5,7 +5,7 @@
 [Alma 40:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p13#p13)
 
 
-[^a]: TG [Spirits in Prison.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-in-prison?lang=eng)
-[^b]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
-[^c]: TG [Damnation](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng); [Darkness, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng); [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^a]: TG [[Spirits in Prison]].
+[^b]: TG [[Bondage, Spiritual]].
+[^c]: TG [[Damnation, Damned]]; [[Darkness, Spiritual]]; [[Hell]].
 [^d]: [[Matthew 8.12|Matt. 8:12]]; [[Mosiah 16.2|Mosiah 16:2.]]

@@ -5,7 +5,7 @@
 [Matthew 13:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.15?lang=eng#p15)
 
 
-[^a]: TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng); [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
-[^b]: TG [Spiritual Blindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng)
-[^c]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
+[^a]: TG [[Apostasy of Israel]]; [[Hardheartedness, Harden, Hardness]].
+[^b]: TG [[Spiritual Blindness]].
+[^c]: TG [[Unbelief, Unbelievers]].
 [^d]: [[3 Nephi 9.13|3 Ne. 9:13]]; [[3 Nephi 18.32|18:32.]]

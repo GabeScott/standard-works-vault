@@ -7,4 +7,4 @@
 
 [^a]: OR oath; i.e., the covenant is a blessing to those who keep it, but a curse to those who don’t.
 [^b]: [[Psalms 49.18|Ps. 49:18 (16-20).]]
-[^c]: TG [Drunkenness.](https://www.churchofjesuschrist.org/study/scriptures/tg/drunkenness?lang=eng)
+[^c]: TG [[Drunkenness]].

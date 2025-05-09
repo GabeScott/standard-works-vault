@@ -6,4 +6,4 @@
 
 
 [^a]: OR Thou shalt not follow the crowd to do evil, neither speak up in a lawsuit, being influenced by the majority, to subvert justice.
-[^b]: TG [Peer Influence.](https://www.churchofjesuschrist.org/study/scriptures/tg/peer-influence?lang=eng)
+[^b]: TG [[Peer Influence]].

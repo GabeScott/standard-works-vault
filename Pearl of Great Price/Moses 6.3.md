@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 138.40|D&C 138:40.]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].

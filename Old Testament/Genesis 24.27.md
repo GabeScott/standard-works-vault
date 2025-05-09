@@ -7,4 +7,4 @@
 
 [^a]: [[Genesis 24.12|Gen. 24:12.]]
 [^b]: [[Genesis 32.10|Gen. 32:10]]; [[Psalms 98.3|Ps. 98:3.]]
-[^c]: [[Alma 13.28|Alma 13:28]]; [[Alma 22.1|22:1]]; [[Mormon 5.17|Morm. 5:17]]. TG [Guidance, Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng).
+[^c]: [[Alma 13.28|Alma 13:28]]; [[Alma 22.1|22:1]]; [[Mormon 5.17|Morm. 5:17]]. TG [[Guidance, Divine]].

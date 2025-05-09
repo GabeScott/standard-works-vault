@@ -7,5 +7,5 @@
 
 [^a]: GR appointed, decreed, set forth.
 [^b]: [[D&C 10.57|D&C 10:57]]; [[D&C 11.28|11:28]]; [[D&C 14.9|14:9]]; [[D&C 45.52|45:52.]]
-[^c]: TG [Jesus Christ, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng)
+[^c]: TG [[Jesus Christ, Power of]].
 [^d]: GR from the dead of Jesus Christ our Lord.

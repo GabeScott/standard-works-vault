@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 89.21|D&C 89:21.]]
-[^b]: TG [Passover.](https://www.churchofjesuschrist.org/study/scriptures/tg/passover?lang=eng)
+[^b]: TG [[Passover]].
 [^c]: OR allow.
-[^d]: TG [Protection, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng)
+[^d]: TG [[Protection, Divine]].

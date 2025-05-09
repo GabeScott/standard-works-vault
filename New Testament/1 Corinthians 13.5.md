@@ -6,5 +6,5 @@
 
 
 [^a]: GR indecently, unbecomingly.
-[^b]: TG [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
-[^c]: TG [Anger](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng); [Provoking](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng); [Self-Mastery.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
+[^b]: TG [[Selfishness]].
+[^c]: TG [[Anger]]; [[Provoking, Provoke]]; [[Self-Mastery]].

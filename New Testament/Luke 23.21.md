@@ -5,4 +5,4 @@
 [Luke 23:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.21?lang=eng#p21)
 
 
-[^a]: TG [Jesus Christ, Trials of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-trials-of?lang=eng)
+[^a]: TG [[Jesus Christ, Trials of]].

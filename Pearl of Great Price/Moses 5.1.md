@@ -7,4 +7,4 @@
 
 [^a]: [[Moses 2.26|Moses 2:26.]]
 [^b]: [[Moses 4.25|Moses 4:25.]]
-[^c]: TG [Labor.](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
+[^c]: TG [[Labor]].

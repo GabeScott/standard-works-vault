@@ -5,4 +5,4 @@
 [Ezekiel 22:28](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.28?lang=eng#p28)
 
 
-[^b]: TG [Superstitions.](https://www.churchofjesuschrist.org/study/scriptures/tg/superstitions?lang=eng)
+[^b]: TG [[Superstitions]].

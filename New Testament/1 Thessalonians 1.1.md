@@ -8,5 +8,5 @@
 [^a]: [[Acts 15.34|Acts 15:34 (32-34)]]; [[2 Corinthians 1.19|2 Cor. 1:19]]; [[1 Peter 5.12|1 Pet. 5:12.]]
 [^b]: [[Acts 16.1|Acts 16:1 (1-2)]]; [[Acts 18.5|18:5 (1, 5)]]; 1 Thes. 3:2 (2, 6).
 [^c]: JST 1 Thes. 1:1 … servants of God the Father and the Lord Jesus Christ, unto the church of the Thessalonians; grace unto you …
-[^d]: TG [Jesus Christ, Head of the Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-head-of-the-church?lang=eng)
+[^d]: TG [[Jesus Christ, Head of the Church]].
 [^e]: [[Acts 17.1|Acts 17:1 (1, 11).]]

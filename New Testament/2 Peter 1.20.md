@@ -6,6 +6,6 @@
 
 
 [^a]: JST 2 Pet. 1:20 … no prophecy of the scriptures is given of any private will of man.
-[^b]: TG [Prophecy.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
-[^c]: TG [Scriptures, Study of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
+[^b]: TG [[Prophecy]].
+[^c]: TG [[Scriptures, Study of]].
 [^d]: [[Genesis 40.8|Gen. 40:8.]]

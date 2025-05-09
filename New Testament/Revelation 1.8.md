@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 35.1|D&C 35:1.]]
 [^b]: [[D&C 38.1|D&C 38:1.]]
-[^c]: [[Mosiah 3.5|Mosiah 3:5]]. TG [God, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng).
+[^c]: [[Mosiah 3.5|Mosiah 3:5]]. TG [[God, Power of]].

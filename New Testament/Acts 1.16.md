@@ -5,5 +5,5 @@
 [Acts 1:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.16?lang=eng#p16)
 
 
-[^a]: TG [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
+[^a]: TG [[Holy Ghost, Mission of]].
 [^b]: [[Psalms 41.9|Ps. 41:9]]; [[Luke 22.48|Luke 22:48 (47-48).]]

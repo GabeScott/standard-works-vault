@@ -5,4 +5,4 @@
 [Mosiah 4:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p21#p21)
 
 
-[^a]: Dan. 4:27. TG [Generosity](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng); [Welfare](https://www.churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng).
+[^a]: Dan. 4:27. TG [[Generosity]]; [[Welfare]].

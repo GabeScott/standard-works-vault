@@ -6,4 +6,4 @@
 
 
 [^a]: [[Joel 2.1|Joel 2:1.]]
-[^b]: TG [God, Knowledge about.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng)
+[^b]: TG [[God, Knowledge about]].

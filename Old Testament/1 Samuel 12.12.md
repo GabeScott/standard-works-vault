@@ -5,4 +5,4 @@
 [1 Samuel 12:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/12.12?lang=eng#p12)
 
 
-[^a]: [[Hosea 13.10|Hosea 13:10 (4-11)]]; [[D&C 38.21|D&C 38:21]]. TG [Governments](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng).
+[^a]: [[Hosea 13.10|Hosea 13:10 (4-11)]]; [[D&C 38.21|D&C 38:21]]. TG [[Governments]].

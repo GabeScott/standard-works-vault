@@ -6,5 +6,5 @@
 
 
 [^a]: 2 Pet. 1:21 (19-21).
-[^b]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
-[^c]: TG [Prophecy.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
+[^b]: TG [[God, Spirit of]].
+[^c]: TG [[Prophecy]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 29.14|Alma 29:14.]]
-[^b]: TG [Missionary Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng)
+[^b]: TG [[Missionary Work]].
 [^c]: [[Numbers 5.7|Num. 5:7 (6-10)]]; [[Mosiah 26.29|Mosiah 26:29 (29, 35)]]; [[3 Nephi 1.25|3 Ne. 1:25.]]

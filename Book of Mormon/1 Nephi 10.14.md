@@ -5,11 +5,11 @@
 [1 Nephi 10:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/10?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
-[^b]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[Israel, Ten Lost Tribes of]].
+[^b]: TG [[Israel, Gathering of]].
 [^c]: [[1 Nephi 13.42|1 Ne. 13:42]]; [[D&C 14.10|D&C 14:10.]]
-[^d]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^d]: TG [[Gospel]].
 [^e]: [[1 Nephi 15.7|1 Ne. 15:7.]]
-[^f]: TG [Israel, Remnant of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-remnant-of?lang=eng)
-[^g]: TG [Israel, Twelve Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-twelve-tribes-of?lang=eng)
+[^f]: TG [[Israel, Remnant of]].
+[^g]: TG [[Israel, Twelve Tribes of]].
 [^h]: [[1 Nephi 19.15|1 Ne. 19:15 (14-17).]]

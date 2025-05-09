@@ -8,6 +8,6 @@
 [^a]: [[Moses 5.58|Moses 5:58.]]
 [^b]: [[D&C 29.36|D&C 29:36 (36-39)]]; [[D&C 76.25|76:25 (25-26)]]; [[Abraham 3.27|Abr. 3:27.]]
 [^c]: [[Moses 5.24|Moses 5:24.]]
-[^d]: TG [Redemption.](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
+[^d]: TG [[Redemption]].
 [^e]: [[Isaiah 14.13|Isa. 14:13 (12-15).]]
-[^f]: TG [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
+[^f]: TG [[Selfishness]].

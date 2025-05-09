@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 4.33|Deut. 4:33.]]
-[^b]: TG [God, Privilege of Seeing.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng)
+[^b]: TG [[God, Privilege of Seeing]].
 [^c]: [[Deuteronomy 5.5|Deut. 5:5.]]

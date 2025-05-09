@@ -5,4 +5,4 @@
 [Mark 11:23](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/11.23?lang=eng#p23)
 
 
-[^a]: TG [Doubt.](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng)
+[^a]: TG [[Doubt, Doubtful]].

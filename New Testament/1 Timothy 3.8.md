@@ -5,6 +5,6 @@
 [1 Timothy 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/3.8?lang=eng#p8)
 
 
-[^a]: TG [Deacon.](https://www.churchofjesuschrist.org/study/scriptures/tg/deacon?lang=eng)
-[^b]: GR honorable, dignified. TG [Levity](https://www.churchofjesuschrist.org/study/scriptures/tg/levity?lang=eng).
+[^a]: TG [[Deacon]].
+[^b]: GR honorable, dignified. TG [[Levity]].
 [^c]: GR deceitful.

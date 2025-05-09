@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Timothy 6.1|1 Tim. 6:1 (1-2)]]; [[Titus 2.9|Titus 2:9 (9-10)]]; [[1 Peter 2.18|1 Pet. 2:18.]]
-[^b]: TG [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
-[^c]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
+[^b]: TG [[Sincere, Sincerity]].
+[^c]: TG [[Reverence]].

@@ -5,7 +5,7 @@
 [Moses 5:7](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.7?lang=eng#p7)
 
 
-[^a]: TG [Jesus Christ, Types of, in Anticipation.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng)
-[^b]: [[Genesis 4.5|Gen. 4:5 (3-7)]]; [[1 Chronicles 6.49|1 Chr. 6:49]]; [[Alma 34.10|Alma 34:10 (10-15)]]; [[Moses 5.21|Moses 5:21 (20-26)]]. TG [Blood, Symbolism of](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng); [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng).
-[^c]: [[Moses 1.32|Moses 1:32]]. TG [Grace](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng).
+[^a]: TG [[Jesus Christ, Types of, in Anticipation]].
+[^b]: [[Genesis 4.5|Gen. 4:5 (3-7)]]; [[1 Chronicles 6.49|1 Chr. 6:49]]; [[Alma 34.10|Alma 34:10 (10-15)]]; [[Moses 5.21|Moses 5:21 (20-26)]]. TG [[Blood, Symbolism of]]; [[Jesus Christ, Atonement through]].
+[^c]: [[Moses 1.32|Moses 1:32]]. TG [[Grace]].
 [^d]: [[Moses 1.6|Moses 1:6.]]

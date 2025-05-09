@@ -5,5 +5,5 @@
 [Ezekiel 16:36](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.36?lang=eng#p36)
 
 
-[^a]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^a]: TG [[Filthiness, Filthy]].
 [^b]: [[Ezekiel 36.18|Ezek. 36:18 (16-20).]]

@@ -5,5 +5,5 @@
 [Genesis 19:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.15?lang=eng#p15)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].
 [^b]: 2 Pet. 2:7.

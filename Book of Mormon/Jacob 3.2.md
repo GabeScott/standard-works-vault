@@ -5,6 +5,6 @@
 [Jacob 3:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/3?lang=eng&id=p2#p2)
 
 
-[^a]: TG [God, Love of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng)
-[^b]: TG [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
+[^a]: TG [[God, Love of]].
+[^b]: TG [[Steadfastness, Steadfast]].
 [^c]: [[Alma 57.27|Alma 57:27.]]

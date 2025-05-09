@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 11.13|1 Ne. 11:13.]]
-[^b]: TG [Scriptures, Lost.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng)
+[^b]: TG [[Scriptures, Lost]].
 [^c]: JST Matt. 3:24-26 (Appendix).

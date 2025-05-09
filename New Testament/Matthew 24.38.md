@@ -5,4 +5,4 @@
 [Matthew 24:38](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.38?lang=eng#p38)
 
 
-[^a]: TG [Worldliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
+[^a]: TG [[Worldliness]].

@@ -5,4 +5,4 @@
 [Numbers 15:3](https://www.churchofjesuschrist.org/study/scriptures/ot/num/15.3?lang=eng#p3)
 
 
-[^a]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^a]: TG [[Self-Sacrifice]].

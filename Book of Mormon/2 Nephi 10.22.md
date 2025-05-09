@@ -5,4 +5,4 @@
 [2 Nephi 10:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/10?lang=eng&id=p22#p22)
 
 
-[^a]: [[1 Nephi 22.4|1 Ne. 22:4 (4-5)]]; [[2 Nephi 1.6|2 Ne. 1:6]]. TG [Israel, Scattering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng); [Israel, Ten Lost Tribes of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng).
+[^a]: [[1 Nephi 22.4|1 Ne. 22:4 (4-5)]]; [[2 Nephi 1.6|2 Ne. 1:6]]. TG [[Israel, Scattering of]]; [[Israel, Ten Lost Tribes of]].

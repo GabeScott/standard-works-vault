@@ -5,4 +5,4 @@
 [Ezekiel 43:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/43.24?lang=eng#p24)
 
 
-[^a]: TG [Salt.](https://www.churchofjesuschrist.org/study/scriptures/tg/salt?lang=eng)
+[^a]: TG [[Salt]].

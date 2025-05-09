@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 12.17|Acts 12:17.]]
-[^b]: TG [Silence.](https://www.churchofjesuschrist.org/study/scriptures/tg/silence?lang=eng)
+[^b]: TG [[Silence, Silent]].

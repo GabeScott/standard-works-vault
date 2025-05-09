@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 27.1|Isa. 27:1.]]
-[^b]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^b]: TG [[Devil, Church of]].
 [^c]: [[D&C 84.100|D&C 84:100.]]

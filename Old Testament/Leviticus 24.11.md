@@ -5,4 +5,4 @@
 [Leviticus 24:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.11?lang=eng#p11)
 
 
-[^a]: TG [Profanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng)
+[^a]: TG [[Profanity]].

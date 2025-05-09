@@ -5,9 +5,9 @@
 [Isaiah 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.3?lang=eng#p3)
 
 
-[^a]: TG [Millennium, Preparing a People for.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium-preparing-a-people-for?lang=eng)
+[^a]: TG [[Millennium, Preparing a People for]].
 [^b]: [[Psalms 48.1|Ps. 48:1]]; [[Isaiah 30.29|Isa. 30:29]]; [[3 Nephi 20.22|3 Ne. 20:22]]; [[D&C 84.2|D&C 84:2 (2-4).]]
-[^c]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
-[^d]: TG [Missionary Work](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng); [Teaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng)
-[^e]: [[Isaiah 33.20|Isa. 33:20]]. TG [Kingdom of God, on Earth](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-on-earth?lang=eng); [Zion](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng).
-[^f]: HEB teaching, or doctrine. TG [God, Law of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-law-of?lang=eng); [Mission of Latter-day Saints](https://www.churchofjesuschrist.org/study/scriptures/tg/mission-of-latter-day-saints?lang=eng).
+[^c]: TG [[Genealogy and Temple Work]].
+[^d]: TG [[Missionary Work]]; [[Teaching with the Spirit]].
+[^e]: [[Isaiah 33.20|Isa. 33:20]]. TG [[Kingdom of God, on Earth]]; [[Zion, Sion]].
+[^f]: HEB teaching, or doctrine. TG [[God, Law of]]; [[Mission of Latter-day Saints]].

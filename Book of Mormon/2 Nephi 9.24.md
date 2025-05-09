@@ -5,6 +5,6 @@
 [2 Nephi 9:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Jesus Christ, Taking the Name of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-taking-the-name-of?lang=eng)
-[^b]: TG [Perseverance.](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng)
-[^c]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^a]: TG [[Jesus Christ, Taking the Name of]].
+[^b]: TG [[Perseverance]].
+[^c]: TG [[Damnation, Damned]].

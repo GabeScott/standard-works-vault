@@ -6,6 +6,6 @@
 
 
 [^a]: [[2 Nephi 9.19|2 Ne. 9:19]]; [[Mosiah 26.27|Mosiah 26:27.]]
-[^b]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^b]: TG [[Hell]].
 [^c]: [[1 Nephi 14.9|1 Ne. 14:9]]; [[D&C 1.35|D&C 1:35.]]
-[^d]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^d]: TG [[God, Justice of]].

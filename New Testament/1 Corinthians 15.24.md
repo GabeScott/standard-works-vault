@@ -7,5 +7,5 @@
 
 [^a]: GR brought to an end, abolished.
 [^b]: [[Isaiah 60.12|Isa. 60:12]]; Dan. 2:44; 7:9.
-[^c]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
-[^d]: TG [Jesus Christ, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng)
+[^c]: TG [[Authority]].
+[^d]: TG [[Jesus Christ, Power of]].

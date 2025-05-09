@@ -5,4 +5,4 @@
 [2 Corinthians 8:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/8.5?lang=eng#p5)
 
 
-[^a]: TG [Self-Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng)
+[^a]: TG [[Self-Sacrifice]].

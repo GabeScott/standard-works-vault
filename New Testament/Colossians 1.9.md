@@ -5,6 +5,6 @@
 [Colossians 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.9?lang=eng#p9)
 
 
-[^a]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
-[^b]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
-[^c]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^a]: TG [[Knowledge]].
+[^b]: TG [[God, Will of]].
+[^c]: TG [[Understanding]].

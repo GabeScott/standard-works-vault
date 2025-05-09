@@ -6,7 +6,7 @@
 
 
 [^a]: [[Ether 9.35|Ether 9:35.]]
-[^b]: [[Alma 22.17|Alma 22:17]]. TG [Reverence](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng).
-[^c]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
-[^d]: TG [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
+[^b]: [[Alma 22.17|Alma 22:17]]. TG [[Reverence]].
+[^c]: TG [[Prayer, Pray]].
+[^d]: TG [[Sincere, Sincerity]].
 [^e]: [[D&C 17.1|D&C 17:1. See also “The Testimony of Three Witnesses” in the preliminary pages of the Book of Mormon.]]

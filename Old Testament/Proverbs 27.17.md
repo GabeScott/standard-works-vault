@@ -5,4 +5,4 @@
 [Proverbs 27:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/27.17?lang=eng#p17)
 
 
-[^a]: TG [Friendship.](https://www.churchofjesuschrist.org/study/scriptures/tg/friendship?lang=eng)
+[^a]: TG [[Friendship, Friend]].

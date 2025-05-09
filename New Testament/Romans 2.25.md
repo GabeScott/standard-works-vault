@@ -5,4 +5,4 @@
 [Romans 2:25](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.25?lang=eng#p25)
 
 
-[^a]: [[Galatians 5.3|Gal. 5:3]]. TG [Circumcision](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng).
+[^a]: [[Galatians 5.3|Gal. 5:3]]. TG [[Circumcision]].

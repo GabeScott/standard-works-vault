@@ -5,4 +5,4 @@
 [Ruth 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/1.14?lang=eng#p14)
 
 
-[^a]: IE held fast to. TG [Example](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng).
+[^a]: IE held fast to. TG [[Example, Ensample]].

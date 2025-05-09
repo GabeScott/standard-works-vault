@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 4.20|1 Ne. 4:20 (20, 35).]]
-[^b]: TG [Friendship.](https://www.churchofjesuschrist.org/study/scriptures/tg/friendship?lang=eng)
+[^b]: TG [[Friendship, Friend]].

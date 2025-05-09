@@ -5,4 +5,4 @@
 [James 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.11?lang=eng#p11)
 
 
-[^a]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^a]: TG [[Adulterer, Adultery]].

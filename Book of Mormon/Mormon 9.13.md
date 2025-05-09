@@ -5,7 +5,7 @@
 [Mormon 9:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p13#p13)
 
 
-[^a]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^a]: TG [[God, Presence of]].
 [^b]: [[Helaman 14.15|Hel. 14:15 (15-18).]]
 [^c]: Dan. 12:2; [[D&C 43.18|D&C 43:18.]]
 [^d]: [[Alma 36.18|Alma 36:18]]; [[D&C 138.16|D&C 138:16.]]

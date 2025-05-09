@@ -7,4 +7,4 @@
 
 [^a]: [[Ezekiel 2.5|Ezek. 2:5]]; [[Ezekiel 44.6|44:6.]]
 [^b]: [[D&C 76.116|D&C 76:116 (116-18).]]
-[^c]: TG [Spiritual Blindness](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng); [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
+[^c]: TG [[Spiritual Blindness]]; [[Watch, Watchfulness]].

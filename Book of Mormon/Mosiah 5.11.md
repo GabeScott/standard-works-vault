@@ -5,4 +5,4 @@
 [Mosiah 5:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/5?lang=eng&id=p11#p11)
 
 
-[^a]: [[Mosiah 1.11|Mosiah 1:11 (11-12)]]. TG [Jesus Christ, Taking the Name of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-taking-the-name-of?lang=eng).
+[^a]: [[Mosiah 1.11|Mosiah 1:11 (11-12)]]. TG [[Jesus Christ, Taking the Name of]].

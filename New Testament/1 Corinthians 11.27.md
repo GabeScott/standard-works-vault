@@ -5,7 +5,7 @@
 [1 Corinthians 11:27](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/11.27?lang=eng#p27)
 
 
-[^a]: TG [Bread of Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-of-life?lang=eng)
+[^a]: TG [[Bread of Life]].
 [^b]: [[3 Nephi 18.29|3 Ne. 18:29 (28-32)]]; [[Mormon 9.29|Morm. 9:29.]]
 [^c]: GR offend against.
-[^d]: TG [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^d]: TG [[Guiltless]].

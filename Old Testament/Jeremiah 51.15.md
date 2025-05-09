@@ -5,6 +5,6 @@
 [Jeremiah 51:15](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.15?lang=eng#p15)
 
 
-[^a]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
-[^b]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
-[^c]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^a]: TG [[Jesus Christ, Creator]].
+[^b]: TG [[God, Power of]].
+[^c]: TG [[Understanding]].

@@ -5,4 +5,4 @@
 [Ezekiel 33:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.16?lang=eng#p16)
 
 
-[^a]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^a]: TG [[Forgive, Forgiveness]].

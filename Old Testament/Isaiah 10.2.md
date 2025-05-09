@@ -5,5 +5,5 @@
 [Isaiah 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.2?lang=eng#p2)
 
 
-[^a]: OR justice. TG [Judgment](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng).
+[^a]: OR justice. TG [[Judgment]].
 [^b]: [[Mosiah 4.16|Mosiah 4:16 (16-18)]]; [[D&C 38.16|D&C 38:16.]]

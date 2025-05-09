@@ -5,4 +5,4 @@
 [Romans 12:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.19?lang=eng#p19)
 
 
-[^a]: TG [Forbear](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng); [Retribution.](https://www.churchofjesuschrist.org/study/scriptures/tg/retribution?lang=eng)
+[^a]: TG [[Forbear, Forbearance]]; [[Retribution]].

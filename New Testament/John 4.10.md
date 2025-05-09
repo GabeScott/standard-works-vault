@@ -5,5 +5,5 @@
 [John 4:10](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.10?lang=eng#p10)
 
 
-[^a]: TG [God, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
-[^b]: TG [Living Water.](https://www.churchofjesuschrist.org/study/scriptures/tg/living-water?lang=eng)
+[^a]: TG [[God, Gifts of]].
+[^b]: TG [[Living Water]].

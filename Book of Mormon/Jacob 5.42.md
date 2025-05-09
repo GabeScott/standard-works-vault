@@ -5,5 +5,5 @@
 [Jacob 5:42](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p42#p42)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Apostasy of Israel]].
 [^b]: [[Matthew 3.10|Matt. 3:10.]]

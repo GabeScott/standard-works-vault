@@ -5,6 +5,6 @@
 [1 Peter 2:24](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.24?lang=eng#p24)
 
 
-[^a]: TG [Accountability](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng); [Self-Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng)
-[^b]: TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng); [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
+[^a]: TG [[Accountability]]; [[Self-Sacrifice]].
+[^b]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer]].
 [^c]: [[Isaiah 53.5|Isa. 53:5.]]

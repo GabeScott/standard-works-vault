@@ -5,9 +5,9 @@
 [Romans 15:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.4?lang=eng#p4)
 
 
-[^a]: [[1 Corinthians 10.11|1 Cor. 10:11]]. TG [Scriptures, Writing of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng).
+[^a]: [[1 Corinthians 10.11|1 Cor. 10:11]]. TG [[Scriptures, Writing of]].
 [^b]: [[1 Corinthians 9.10|1 Cor. 9:10.]]
-[^c]: TG [Scriptures, Value of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng); [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
-[^d]: TG [Patience.](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
-[^e]: TG [Scriptures, Study of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
-[^f]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
+[^c]: TG [[Scriptures, Value of]]; [[Understanding]].
+[^d]: TG [[Patience, Patient, Patiently]].
+[^e]: TG [[Scriptures, Study of]].
+[^f]: TG [[Hope]].

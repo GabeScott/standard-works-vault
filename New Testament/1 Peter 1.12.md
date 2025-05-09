@@ -5,5 +5,5 @@
 [1 Peter 1:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.12?lang=eng#p12)
 
 
-[^a]: TG [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
-[^b]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Holy Ghost, Mission of]].
+[^b]: TG [[Angels]].

@@ -6,4 +6,4 @@
 
 
 [^a]: JST Luke 12:41-57 (Appendix).
-[^b]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
+[^b]: TG [[Watch, Watchfulness]].

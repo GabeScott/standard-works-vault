@@ -5,4 +5,4 @@
 [Numbers 6:21](https://www.churchofjesuschrist.org/study/scriptures/ot/num/6.21?lang=eng#p21)
 
 
-[^a]: TG [Setting Apart.](https://www.churchofjesuschrist.org/study/scriptures/tg/setting-apart?lang=eng)
+[^a]: TG [[Setting Apart]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 2.25|John 2:25.]]
-[^b]: TG [Offense.](https://www.churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng)
+[^b]: TG [[Offense, Offend, Offender]].

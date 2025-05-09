@@ -7,4 +7,4 @@
 
 [^a]: [[Matthew 15.13|Matt. 15:13 (13-14).]]
 [^b]: [[Matthew 7.19|Matt. 7:19 (15-20)]]; [[Luke 3.9|Luke 3:9.]]
-[^c]: GR purifies. TG [Test](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng).
+[^c]: GR purifies. TG [[Testament]].

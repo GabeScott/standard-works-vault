@@ -5,5 +5,5 @@
 [Moses 7:33](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.33?lang=eng#p33)
 
 
-[^a]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
-[^b]: [[Genesis 6.11|Gen. 6:11]]. TG [Hate](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng).
+[^a]: TG [[Love]].
+[^b]: [[Genesis 6.11|Gen. 6:11]]. TG [[Hate]].

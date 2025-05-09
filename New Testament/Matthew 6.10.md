@@ -5,6 +5,6 @@
 [Matthew 6:10](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.10?lang=eng#p10)
 
 
-[^a]: TG [Kingdom of God, on Earth](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-on-earth?lang=eng); [Millennium.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium?lang=eng)
-[^b]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
+[^a]: TG [[Kingdom of God, on Earth]]; [[Millennium, Preparing a People for]].
+[^b]: TG [[God, Will of]].
 [^c]: GR on earth.

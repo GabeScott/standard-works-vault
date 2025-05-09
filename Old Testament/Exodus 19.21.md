@@ -5,5 +5,5 @@
 [Exodus 19:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/19.21?lang=eng#p21)
 
 
-[^a]: [[Exodus 33.20|See JST Ex. 33:20 (Appendix). 1 Sam. 6:19]]. TG [God, Privilege of Seeing](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng).
+[^a]: [[Exodus 33.20|See JST Ex. 33:20 (Appendix). 1 Sam. 6:19]]. TG [[God, Privilege of Seeing]].
 [^b]: [[D&C 67.11|D&C 67:11 (11-13)]]; [[Moses 1.11|Moses 1:11 (11, 14).]]

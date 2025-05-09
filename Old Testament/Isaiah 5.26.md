@@ -5,7 +5,7 @@
 [Isaiah 5:26](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.26?lang=eng#p26)
 
 
-[^a]: TG [Ensign](https://www.churchofjesuschrist.org/study/scriptures/tg/ensign?lang=eng); [Millennium, Preparing a People for.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium-preparing-a-people-for?lang=eng)
+[^a]: TG [[Ensign]]; [[Millennium, Preparing a People for]].
 [^b]: OR whistle; i.e., signal for the gathering. Isa. 7:18; [[2 Nephi 29.2|2 Ne. 29:2 (1-3).]]
 [^c]: [[Deuteronomy 28.49|Deut. 28:49.]]
-[^d]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^d]: TG [[Israel, Gathering of]].

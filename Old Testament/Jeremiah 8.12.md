@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 47.36|Alma 47:36.]]
-[^b]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^b]: TG [[Punish, Punishment]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 49.6|Gen. 49:6]]; [[Psalms 1.1|Ps. 1:1 (1-2)]]; [[Proverbs 1.10|Prov. 1:10 (10-19).]]
-[^b]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
-[^c]: TG [Reproof.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproof?lang=eng)
+[^b]: TG [[Darkness, Spiritual]].
+[^c]: TG [[Reproof, Reprove]].

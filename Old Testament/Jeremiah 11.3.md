@@ -5,6 +5,6 @@
 [Jeremiah 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.3?lang=eng#p3)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Curse]].
+[^b]: TG [[Disobedience, Disobey]].
 [^c]: [[Exodus 20.20|Ex. 20:20 (1-26).]]

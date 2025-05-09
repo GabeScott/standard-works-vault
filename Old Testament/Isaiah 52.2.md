@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 51.23|Isa. 51:23.]]
 [^b]: IE Arise from the dust and sit down in dignity, being redeemed at last.
-[^c]: [[D&C 113.10|D&C 113:10]]. TG [Bondage, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng).
+[^c]: [[D&C 113.10|D&C 113:10]]. TG [[Bondage, Spiritual]].

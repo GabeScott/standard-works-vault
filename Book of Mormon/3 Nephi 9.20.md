@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 51.17|Ps. 51:17]]; [[Omni 1.26|Omni 1:26]]; [[3 Nephi 12.19|3 Ne. 12:19]]; [[D&C 64.34|D&C 64:34.]]
-[^b]: TG [Holy Ghost, Baptism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-baptism-of?lang=eng)
+[^b]: TG [[Holy Ghost, Baptism of]].

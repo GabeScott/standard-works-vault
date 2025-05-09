@@ -5,5 +5,5 @@
 [Psalms 19:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/19.11?lang=eng#p11)
 
 
-[^a]: TG [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^a]: TG [[Warn, Warnings]].
 [^b]: [[Mosiah 2.22|Mosiah 2:22]]; [[D&C 14.7|D&C 14:7]]; [[D&C 58.2|58:2.]]

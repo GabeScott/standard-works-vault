@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 32.49|Deut. 32:49 (48-52).]]
-[^b]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^b]: TG [[Promised Lands]].

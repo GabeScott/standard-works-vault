@@ -5,4 +5,4 @@
 [1 Samuel 21:11](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/21.11?lang=eng#p11)
 
 
-[^a]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^a]: TG [[Singing, Sing, Sang, Sung]].

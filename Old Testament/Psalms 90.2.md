@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 38.1|D&C 38:1.]]
-[^b]: TG [Eternity](https://www.churchofjesuschrist.org/study/scriptures/tg/eternity?lang=eng); [God, Eternal Nature of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-eternal-nature-of?lang=eng)
+[^b]: TG [[Eternity]]; [[God, Eternal Nature of]].

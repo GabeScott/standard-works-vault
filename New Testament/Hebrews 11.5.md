@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jude 1.14|Jude 1:14 (14-16).]]
-[^b]: TG [Translated Beings](https://www.churchofjesuschrist.org/study/scriptures/tg/translated-beings?lang=eng); [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
-[^c]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^b]: TG [[Translated Beings]]; [[Zion, Sion]].
+[^c]: TG [[Testimony]].

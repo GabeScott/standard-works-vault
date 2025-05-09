@@ -5,5 +5,5 @@
 [Mormon 9:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p11#p11)
 
 
-[^a]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
+[^a]: TG [[God, Power of]].
 [^b]: [[Genesis 1.1|Gen. 1:1]]; [[Mosiah 4.2|Mosiah 4:2]]; [[D&C 76.24|D&C 76:24 (20-24).]]

@@ -5,4 +5,4 @@
 [2 Corinthians 5:18](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/5.18?lang=eng#p18)
 
 
-[^a]: TG [Reconciliation.](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng)
+[^a]: TG [[Reconciliation, Reconcile]].

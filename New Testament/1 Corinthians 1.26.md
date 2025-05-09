@@ -5,4 +5,4 @@
 [1 Corinthians 1:26](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.26?lang=eng#p26)
 
 
-[^a]: TG [Man, Natural, Not Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-natural-not-spiritually-reborn?lang=eng)
+[^a]: TG [[Man, Natural, Not Spiritually Reborn]].

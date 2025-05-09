@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Samuel 15.28|1 Sam. 15:28 (23-29).]]
-[^b]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
+[^b]: TG [[Called of God]].
 [^c]: [[1 Chronicles 10.14|1 Chr. 10:14.]]
-[^d]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^d]: TG [[Heart]].

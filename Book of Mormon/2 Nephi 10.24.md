@@ -5,7 +5,7 @@
 [2 Nephi 10:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/10?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Reconciliation.](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng)
-[^b]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
-[^d]: TG [Salvation](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng); [Salvation](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng), Plan of.
+[^a]: TG [[Reconciliation, Reconcile]].
+[^b]: TG [[God, Will of]].
+[^c]: TG [[Grace]].
+[^d]: TG [[Salvation for the Dead]]; [[Salvation for the Dead]], Plan of.

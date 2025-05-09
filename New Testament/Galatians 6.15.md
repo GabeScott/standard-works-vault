@@ -5,4 +5,4 @@
 [Galatians 6:15](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/6.15?lang=eng#p15)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^a]: TG [[Circumcision]].

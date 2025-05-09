@@ -6,6 +6,6 @@
 
 
 [^a]: [[Romans 11.26|Rom. 11:26.]]
-[^b]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
-[^c]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^b]: TG [[Jesus Christ, Prophecies about]].
+[^c]: TG [[Zion, Sion]].
 [^d]: [[D&C 100.15|D&C 100:15 (15-17).]]

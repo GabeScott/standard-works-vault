@@ -5,4 +5,4 @@
 [Acts 7:52](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.52?lang=eng#p52)
 
 
-[^a]: TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng); [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^a]: TG [[Apostasy of Israel]]; [[Prophets, Rejection of]].

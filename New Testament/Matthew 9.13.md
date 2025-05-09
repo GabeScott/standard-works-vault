@@ -7,7 +7,7 @@
 
 [^a]: [[Hosea 6.6|Hosea 6:6.]]
 [^b]: GR desire.
-[^c]: TG [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
+[^c]: TG [[Mercy, Merciful]].
 [^d]: [[1 Timothy 1.15|1 Tim. 1:15.]]
-[^e]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^f]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^e]: TG [[God, the Standard of Righteousness]].
+[^f]: TG [[Repent, Repentance]].

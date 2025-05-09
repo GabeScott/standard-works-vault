@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moses 1.12|Moses 1:12.]]
-[^b]: [[Matthew 10.1|Matt. 10:1]]. TG [Spirits, Evil or Unclean](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng).
+[^b]: [[Matthew 10.1|Matt. 10:1]]. TG [[Spirits, Evil or Unclean]].

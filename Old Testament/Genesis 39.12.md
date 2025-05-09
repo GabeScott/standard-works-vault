@@ -5,4 +5,4 @@
 [Genesis 39:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.12?lang=eng#p12)
 
 
-[^a]: TG [Chastity.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng)
+[^a]: TG [[Chastity, Chaste]].

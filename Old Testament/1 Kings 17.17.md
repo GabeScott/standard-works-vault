@@ -5,4 +5,4 @@
 [1 Kings 17:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/17.17?lang=eng#p17)
 
 
-[^a]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
+[^a]: TG [[Sickness, Sick]].

@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Thes. 1:3.
-[^b]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^b]: TG [[Obedience, Obedient, Obey]].

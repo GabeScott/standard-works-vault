@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 63.9|Isa. 63:9 (8-9).]]
-[^b]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^b]: TG [[Restoration of the Gospel]].

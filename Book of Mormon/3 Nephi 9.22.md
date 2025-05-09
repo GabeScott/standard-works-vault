@@ -5,7 +5,7 @@
 [3 Nephi 9:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/9?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Repent, Repentance]].
 [^b]: [[Mark 10.15|Mark 10:15.]]
 [^c]: [[Mosiah 3.19|Mosiah 3:19]]; [[3 Nephi 11.37|3 Ne. 11:37 (37-38).]]
-[^d]: [[John 10.15|John 10:15 (15-18)]]. TG [Jesus Christ, Death of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng); [Self-Sacrifice](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng).
+[^d]: [[John 10.15|John 10:15 (15-18)]]. TG [[Jesus Christ, Death of]]; [[Self-Sacrifice]].

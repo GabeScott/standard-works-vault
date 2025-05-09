@@ -5,5 +5,5 @@
 [Deuteronomy 7:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.19?lang=eng#p19)
 
 
-[^a]: HEB trials. TG [Test](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng).
+[^a]: HEB trials. TG [[Testament]].
 [^b]: [[Deuteronomy 29.3|Deut. 29:3.]]

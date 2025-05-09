@@ -7,4 +7,4 @@
 
 [^a]: [[Ezekiel 5.11|Ezek. 5:11.]]
 [^b]: [[Ezekiel 9.10|Ezek. 9:10]]; [[Ezekiel 11.21|11:21]]; [[Ezekiel 16.43|16:43]]; [[Ezekiel 22.31|22:31]]; [[D&C 1.10|D&C 1:10.]]
-[^c]: TG [God, Knowledge about.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng)
+[^c]: TG [[God, Knowledge about]].

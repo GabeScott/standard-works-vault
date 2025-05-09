@@ -6,7 +6,7 @@
 
 
 [^a]: [[Ezekiel 33.14|Ezek. 33:14.]]
-[^b]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
-[^c]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
-[^d]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
-[^e]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
+[^b]: TG [[Watch, Watchfulness]].
+[^c]: TG [[God, Justice of]].
+[^d]: TG [[Sin]].
+[^e]: TG [[Accountability]].

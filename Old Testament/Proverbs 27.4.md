@@ -5,5 +5,5 @@
 [Proverbs 27:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/27.4?lang=eng#p4)
 
 
-[^a]: TG [Cruelty.](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
-[^b]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^a]: TG [[Cruelty, Cruel]].
+[^b]: TG [[Anger]].

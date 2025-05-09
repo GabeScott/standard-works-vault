@@ -7,4 +7,4 @@
 
 [^a]: [[Romans 15.12|Rom. 15:12]]; [[D&C 113.5|D&C 113:5 (5-6).]]
 [^b]: [[D&C 45.9|D&C 45:9 (9-10).]]
-[^c]: [[D&C 19.9|D&C 19:9]]. TG [Earth, Renewal of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng).
+[^c]: [[D&C 19.9|D&C 19:9]]. TG [[Earth, Renewal of]].

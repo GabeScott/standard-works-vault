@@ -5,5 +5,5 @@
 [Jeremiah 7:25](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.25?lang=eng#p25)
 
 
-[^a]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
-[^b]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
+[^a]: TG [[Authority]].
+[^b]: TG [[Prophets, Mission of]].

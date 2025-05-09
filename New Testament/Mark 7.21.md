@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Jn. 2:16.
-[^b]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^b]: TG [[Adulterer, Adultery]].

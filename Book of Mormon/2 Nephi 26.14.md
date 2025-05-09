@@ -5,5 +5,5 @@
 [2 Nephi 26:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
-[^b]: TG [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
+[^a]: TG [[Last Days]].
+[^b]: TG [[Restoration of the Gospel]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Exodus 12.14|Ex. 12:14 (14-17).]]
-[^b]: TG [Leaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/leaven?lang=eng)
-[^c]: TG [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
+[^b]: TG [[Leaven]].
+[^c]: TG [[Sincere, Sincerity]].

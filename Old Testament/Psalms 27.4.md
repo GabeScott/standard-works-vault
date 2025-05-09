@@ -7,5 +7,5 @@
 
 [^a]: [[1 Nephi 10.21|1 Ne. 10:21]]; [[Mormon 7.7|Morm. 7:7]]; [[D&C 76.62|D&C 76:62 (50-62)]]; [[Moses 6.57|Moses 6:57.]]
 [^b]: [[Psalms 65.4|Ps. 65:4]]; [[Matthew 21.13|Matt. 21:13.]]
-[^c]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
+[^c]: TG [[Beauty]].
 [^d]: OR contemplate.

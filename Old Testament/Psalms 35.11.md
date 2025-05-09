@@ -5,4 +5,4 @@
 [Psalms 35:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/35.11?lang=eng#p11)
 
 
-[^a]: TG [Slander.](https://www.churchofjesuschrist.org/study/scriptures/tg/slander?lang=eng)
+[^a]: TG [[Slander]].

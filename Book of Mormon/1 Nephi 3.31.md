@@ -5,4 +5,4 @@
 [1 Nephi 3:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/3?lang=eng&id=p31#p31)
 
 
-[^a]: TG [Murmuring.](https://www.churchofjesuschrist.org/study/scriptures/tg/murmuring?lang=eng)
+[^a]: TG [[Murmuring, Murmur]].

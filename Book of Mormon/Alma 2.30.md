@@ -5,5 +5,5 @@
 [Alma 2:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/2?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Faith]].
 [^b]: [[Alma 3.22|Alma 3:22.]]

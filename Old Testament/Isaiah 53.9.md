@@ -6,7 +6,7 @@
 
 
 [^a]: [[Luke 23.32|Luke 23:32 (32-33).]]
-[^b]: TG [Jesus Christ, Death of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
+[^b]: TG [[Jesus Christ, Death of]].
 [^c]: OR although.
 [^d]: [[1 Peter 2.22|1 Pet. 2:22.]]
-[^e]: TG [Deceit](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng); [Guile](https://www.churchofjesuschrist.org/study/scriptures/tg/guile?lang=eng); [Honesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
+[^e]: TG [[Deceit, Deceive]]; [[Guile]]; [[Honesty]].

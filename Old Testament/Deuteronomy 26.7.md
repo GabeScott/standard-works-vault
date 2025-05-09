@@ -7,4 +7,4 @@
 
 [^a]: [[Exodus 2.23|Ex. 2:23 (23-25).]]
 [^b]: [[Alma 9.26|Alma 9:26.]]
-[^c]: TG [Oppression.](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng)
+[^c]: TG [[Oppression, Oppress]].

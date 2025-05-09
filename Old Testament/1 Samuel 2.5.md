@@ -5,4 +5,4 @@
 [1 Samuel 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.5?lang=eng#p5)
 
 
-[^a]: TG [Barren.](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng)
+[^a]: TG [[Barren, Barrenness]].

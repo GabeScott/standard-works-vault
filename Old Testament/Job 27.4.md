@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 5.4|Ps. 5:4 (4-12).]]
-[^b]: TG [Deceit](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng); [Honesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
+[^b]: TG [[Deceit, Deceive]]; [[Honesty]].

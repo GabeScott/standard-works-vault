@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 5.33|2 Ne. 5:33 (29-33)]]; [[Jacob 3.13|Jacob 3:13 (13-14).]]
-[^b]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^b]: TG [[Scriptures, Preservation of]].

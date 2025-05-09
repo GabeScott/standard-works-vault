@@ -6,6 +6,6 @@
 
 
 [^a]: [[Luke 23.43|Luke 23:43 (39-43).]]
-[^b]: TG [Paradise.](https://www.churchofjesuschrist.org/study/scriptures/tg/paradise?lang=eng)
-[^c]: TG [Spirits in Prison.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-in-prison?lang=eng)
+[^b]: TG [[Paradise, Paradisiacal]].
+[^c]: TG [[Spirits in Prison]].
 [^d]: [[Alma 42.23|Alma 42:23.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 28.1|Deut. 28:1.]]
-[^b]: TG [Israel, Blessings of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng)
+[^b]: TG [[Israel, Blessings of]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 19.23|1 Ne. 19:23.]]
-[^b]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^b]: TG [[Israel, Judah, People of]].
 [^c]: [[Matthew 13.11|Matt. 13:11 (10-17).]]

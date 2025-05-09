@@ -5,5 +5,5 @@
 [Matthew 26:36](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.36?lang=eng#p36)
 
 
-[^a]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^a]: TG [[Jesus Christ, Atonement through]].
 [^b]: [[Matthew 14.23|Matt. 14:23]]; [[Luke 6.12|Luke 6:12]]; [[Luke 9.28|9:28.]]

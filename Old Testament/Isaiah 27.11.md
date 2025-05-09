@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jacob 5.58|Jacob 5:58 (58, 77).]]
-[^b]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^b]: TG [[Understanding]].
 [^c]: [[Deuteronomy 32.6|Deut. 32:6.]]

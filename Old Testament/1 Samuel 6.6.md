@@ -5,5 +5,5 @@
 [1 Samuel 6:6](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/6.6?lang=eng#p6)
 
 
-[^a]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^a]: TG [[Hardheartedness, Harden, Hardness]].
 [^b]: [[Exodus 8.15|Ex. 8:15.]]

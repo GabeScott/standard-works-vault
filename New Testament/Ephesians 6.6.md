@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Corinthians 7.22|1 Cor. 7:22 (21-24).]]
-[^b]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
+[^b]: TG [[God, Will of]].

@@ -7,4 +7,4 @@
 
 [^a]: [[2 Kings 12.3|2 Kgs. 12:3.]]
 [^b]: HEB dispossess.
-[^c]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^c]: TG [[Idolatry, Idol]].

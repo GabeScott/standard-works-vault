@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ether 12.4|Ether 12:4.]]
-[^b]: TG [Veil.](https://www.churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng)
+[^b]: TG [[Veil]].

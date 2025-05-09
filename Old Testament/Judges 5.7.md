@@ -5,4 +5,4 @@
 [Judges 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/5.7?lang=eng#p7)
 
 
-[^a]: TG [Marriage, Motherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-motherhood?lang=eng)
+[^a]: TG [[Marriage, Motherhood]].

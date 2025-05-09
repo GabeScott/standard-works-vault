@@ -5,5 +5,5 @@
 [Alma 3:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Marriage, Interfaith](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng); [Separation.](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng)
+[^a]: TG [[Marriage, Interfaith]]; [[Separation, Separate]].
 [^b]: [[Mosiah 10.12|Mosiah 10:12 (11-18)]]; [[Alma 9.16|Alma 9:16.]]

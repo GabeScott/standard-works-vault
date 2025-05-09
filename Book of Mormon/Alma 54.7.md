@@ -5,5 +5,5 @@
 [Alma 54:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/54?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
-[^b]: [[Alma 47.18|Alma 47:18 (18, 22-34)]]. TG [Murder](https://www.churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng).
+[^a]: TG [[Hell]].
+[^b]: [[Alma 47.18|Alma 47:18 (18, 22-34)]]. TG [[Murder, Murderer]].

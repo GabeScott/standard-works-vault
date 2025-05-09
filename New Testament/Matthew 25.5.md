@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 35.21|D&C 35:21.]]
-[^b]: TG [Sleep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sleep?lang=eng)
+[^b]: TG [[Sleep, Slept]].

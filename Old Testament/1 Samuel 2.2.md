@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 4.35|Deut. 4:35]]; [[1 Kings 8.23|1 Kgs. 8:23]]; [[2 Nephi 2.7|2 Ne. 2:7.]]
-[^b]: TG [Cornerstone](https://www.churchofjesuschrist.org/study/scriptures/tg/cornerstone?lang=eng); [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
+[^b]: TG [[Cornerstone]]; [[Rock]].

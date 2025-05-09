@@ -5,5 +5,5 @@
 [Isaiah 40:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.14?lang=eng#p14)
 
 
-[^a]: TG [Counsel.](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng)
+[^a]: TG [[Counsel]].
 [^b]: [[1 Nephi 22.21|1 Ne. 22:21 (20-22).]]

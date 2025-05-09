@@ -6,6 +6,6 @@
 
 
 [^a]: [[Genesis 3.3|Gen. 3:3]]; [[2 Nephi 2.15|2 Ne. 2:15.]]
-[^b]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
+[^b]: TG [[Knowledge]].
 [^c]: [[Abraham 5.13|Abr. 5:13.]]
-[^d]: [[Moses 3.17|Moses 3:17]]. TG [Death](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng); [Death](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng), Spiritual, First; [Fall of Man](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng); [Man, Natural, Not Spiritually Reborn](https://www.churchofjesuschrist.org/study/scriptures/tg/man-natural-not-spiritually-reborn?lang=eng); [Mortality](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng).
+[^d]: [[Moses 3.17|Moses 3:17]]. TG [[Death]]; [[Death]], Spiritual, First; [[Fall of Man]]; [[Man, Natural, Not Spiritually Reborn]]; [[Mortality]].

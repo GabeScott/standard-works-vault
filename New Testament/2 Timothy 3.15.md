@@ -6,6 +6,6 @@
 
 
 [^a]: [[Deuteronomy 4.9|Deut. 4:9 (6-9).]]
-[^b]: TG [Scriptures, Study of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
-[^c]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
-[^d]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^b]: TG [[Scriptures, Study of]].
+[^c]: TG [[Understanding]].
+[^d]: TG [[Salvation for the Dead]].

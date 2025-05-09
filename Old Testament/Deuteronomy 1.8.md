@@ -6,4 +6,4 @@
 
 
 [^a]: [[Nehemiah 9.15|Neh. 9:15]]; [[1 Nephi 17.36|1 Ne. 17:36 (35-38)]]; [[D&C 69.8|D&C 69:8 (6-8).]]
-[^b]: TG [Israel, Land of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng); [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^b]: TG [[Israel, Land of]]; [[Promised Lands]].

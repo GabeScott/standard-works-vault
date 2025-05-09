@@ -5,4 +5,4 @@
 [Mormon 5:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/5?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Jesus Christ, Good Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng)
+[^a]: TG [[Jesus Christ, Good Shepherd]].

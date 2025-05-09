@@ -5,7 +5,7 @@
 [Revelation 15:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/15.3?lang=eng#p3)
 
 
-[^a]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^a]: TG [[Singing, Sing, Sang, Sung]].
 [^b]: [[D&C 76.114|D&C 76:114.]]
-[^c]: TG [God, Justice of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng); [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
-[^d]: TG [Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng)
+[^c]: TG [[God, Justice of]]; [[God, Justice of]].
+[^d]: TG [[Mission of Latter-day Saints]].

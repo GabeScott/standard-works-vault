@@ -5,6 +5,6 @@
 [Romans 5:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.1?lang=eng#p1)
 
 
-[^a]: TG [Justification.](https://www.churchofjesuschrist.org/study/scriptures/tg/justification?lang=eng)
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
-[^c]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^a]: TG [[Justification, Justify]].
+[^b]: TG [[Faith]].
+[^c]: TG [[Peace of God]].

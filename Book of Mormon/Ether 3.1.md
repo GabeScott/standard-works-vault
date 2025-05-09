@@ -7,5 +7,5 @@
 
 [^a]: [[Exodus 24.13|Ex. 24:13 (12-13)]]; [[Deuteronomy 10.1|Deut. 10:1]]; [[1 Nephi 11.1|1 Ne. 11:1.]]
 [^b]: [[Ether 4.1|Ether 4:1.]]
-[^c]: TG [Skill.](https://www.churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng)
+[^c]: TG [[Skill]].
 [^d]: [[Revelation 21.21|Rev. 21:21.]]

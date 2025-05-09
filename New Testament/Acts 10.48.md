@@ -5,4 +5,4 @@
 [Acts 10:48](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.48?lang=eng#p48)
 
 
-[^a]: TG [Baptism, Essential.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-essential?lang=eng)
+[^a]: TG [[Baptism, Essential]].

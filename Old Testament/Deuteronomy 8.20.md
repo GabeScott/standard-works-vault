@@ -5,4 +5,4 @@
 [Deuteronomy 8:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.20?lang=eng#p20)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].

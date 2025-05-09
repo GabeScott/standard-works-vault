@@ -5,4 +5,4 @@
 [Psalms 105:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.11?lang=eng#p11)
 
 
-[^a]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^a]: TG [[Promised Lands]].

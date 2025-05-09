@@ -7,4 +7,4 @@
 
 [^a]: [[Acts 3.13|Acts 3:13 (13-15).]]
 [^b]: [[Galatians 5.5|Gal. 5:5 (5-6)]]; [[1 Peter 1.5|1 Pet. 1:5 (3-8).]]
-[^c]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
+[^c]: TG [[Hope]].

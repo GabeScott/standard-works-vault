@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jacob 5.27|Jacob 5:27.]]
-[^b]: [[Alma 34.32|Alma 34:32]]. TG [Earth, Purpose of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-purpose-of?lang=eng); [Probation](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng).
+[^b]: [[Alma 34.32|Alma 34:32]]. TG [[Earth, Purpose of]]; [[Probation, Probationary]].

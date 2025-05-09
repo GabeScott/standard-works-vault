@@ -6,5 +6,5 @@
 
 
 [^b]: [[2 Kings 23.10|2 Kgs. 23:10.]]
-[^c]: TG [Swearing.](https://www.churchofjesuschrist.org/study/scriptures/tg/swearing?lang=eng)
+[^c]: TG [[Swearing, Swear, Sware, Sworn]].
 [^d]: [[Exodus 20.7|Ex. 20:7.]]

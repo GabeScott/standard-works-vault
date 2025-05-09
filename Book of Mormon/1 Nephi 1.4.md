@@ -8,6 +8,6 @@
 [^a]: [[1 Nephi 2.4|1 Ne. 2:4]]; [[Mosiah 6.4|Mosiah 6:4.]]
 [^b]: [[2 Kings 24.18|2 Kgs. 24:18]]; [[2 Chronicles 36.10|2 Chr. 36:10]]; [[Jeremiah 37.1|Jer. 37:1]]; [[Jeremiah 44.30|44:30]]; [[Jeremiah 49.34|49:34]]; [[Jeremiah 52.3|52:3 (3-5)]]; [[Omni 1.15|Omni 1:15.]]
 [^c]: [[1 Chronicles 9.3|1 Chr. 9:3]]; [[2 Chronicles 15.9|2 Chr. 15:9]]; [[Alma 7.10|Alma 7:10.]]
-[^d]: [[2 Kings 17.13|2 Kgs. 17:13 (13-15)]]; [[2 Chronicles 36.15|2 Chr. 36:15 (15-16)]]; [[Jeremiah 7.25|Jer. 7:25]]; [[Jeremiah 26.20|26:20]]. TG [Prophets, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng).
-[^e]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
-[^f]: [[Jeremiah 26.18|Jer. 26:18 (17-19)]]; [[2 Nephi 1.4|2 Ne. 1:4]]; [[Helaman 8.20|Hel. 8:20]]. TG [Israel, Bondage of, in Other Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng); [Jerusalem](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng).
+[^d]: [[2 Kings 17.13|2 Kgs. 17:13 (13-15)]]; [[2 Chronicles 36.15|2 Chr. 36:15 (15-16)]]; [[Jeremiah 7.25|Jer. 7:25]]; [[Jeremiah 26.20|26:20]]. TG [[Prophets, Mission of]].
+[^e]: TG [[Repent, Repentance]].
+[^f]: [[Jeremiah 26.18|Jer. 26:18 (17-19)]]; [[2 Nephi 1.4|2 Ne. 1:4]]; [[Helaman 8.20|Hel. 8:20]]. TG [[Israel, Bondage of, in Other Lands]]; [[Jerusalem]].

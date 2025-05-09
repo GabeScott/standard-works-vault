@@ -6,4 +6,4 @@
 
 
 [^a]: HEB ordinances (also v. 17).
-[^b]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
+[^b]: TG [[Commitment]].

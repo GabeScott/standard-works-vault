@@ -6,4 +6,4 @@
 
 
 [^a]: JST 1 Jn. 3:18 … neither in tongue only …
-[^b]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
+[^b]: TG [[Good Works]].

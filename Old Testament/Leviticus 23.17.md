@@ -6,4 +6,4 @@
 
 
 [^a]: [[Nehemiah 10.37|Neh. 10:37.]]
-[^b]: TG [Leaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/leaven?lang=eng)
+[^b]: TG [[Leaven]].

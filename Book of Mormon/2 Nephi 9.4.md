@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 6.3|Gen. 6:3]]; [[Moses 8.17|Moses 8:17.]]
-[^b]: [[Job 19.26|Job 19:26]]; [[Alma 11.41|Alma 11:41 (41-45)]]; [[Alma 42.23|42:23]]; [[Helaman 14.15|Hel. 14:15 (15-18)]]; [[Mormon 9.13|Morm. 9:13]]. TG [Body, Sanctity of](https://www.churchofjesuschrist.org/study/scriptures/tg/body-sanctity-of?lang=eng).
+[^b]: [[Job 19.26|Job 19:26]]; [[Alma 11.41|Alma 11:41 (41-45)]]; [[Alma 42.23|42:23]]; [[Helaman 14.15|Hel. 14:15 (15-18)]]; [[Mormon 9.13|Morm. 9:13]]. TG [[Body, Sanctity of]].

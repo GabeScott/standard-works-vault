@@ -5,5 +5,5 @@
 [Ruth 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/4.6?lang=eng#p6)
 
 
-[^a]: TG [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
+[^a]: TG [[Selfishness]].
 [^b]: [[Deuteronomy 25.6|Deut. 25:6 (5-6).]]

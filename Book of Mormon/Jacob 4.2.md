@@ -5,4 +5,4 @@
 [Jacob 4:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/4?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^a]: TG [[Scriptures, Preservation of]].

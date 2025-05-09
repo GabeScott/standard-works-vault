@@ -6,5 +6,5 @@
 
 
 [^a]: [[Moses 6.57|Moses 6:57.]]
-[^b]: TG [God, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
-[^c]: [[D&C 138.2|D&C 138:2 (2-4)]]. TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng); [Jesus Christ, Redeemer](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng); [Redemption](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng).
+[^b]: TG [[God, Gifts of]].
+[^c]: [[D&C 138.2|D&C 138:2 (2-4)]]. TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer]]; [[Redemption]].

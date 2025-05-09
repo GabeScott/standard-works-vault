@@ -5,4 +5,4 @@
 [Exodus 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/1.14?lang=eng#p14)
 
 
-[^a]: HEB labor (same word). TG [Bondage, Physical](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng); [Israel, Bondage of, in Egypt](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-egypt?lang=eng).
+[^a]: HEB labor (same word). TG [[Bondage, Physical]]; [[Israel, Bondage of, in Egypt]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 8.10|1 Ne. 8:10.]]
-[^b]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
+[^b]: TG [[Beauty]].
 [^c]: [[1 Nephi 8.11|1 Ne. 8:11.]]

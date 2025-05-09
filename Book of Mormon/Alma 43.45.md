@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 44.1|Alma 44:1.]]
 [^b]: [[Mosiah 20.11|Mosiah 20:11]]; [[Alma 44.5|Alma 44:5.]]
-[^c]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^c]: TG [[Liberty]].

@@ -5,4 +5,4 @@
 [Mark 15:42](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.42?lang=eng#p42)
 
 
-[^a]: TG [Passover.](https://www.churchofjesuschrist.org/study/scriptures/tg/passover?lang=eng)
+[^a]: TG [[Passover]].

@@ -5,5 +5,5 @@
 [Isaiah 55:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.4?lang=eng#p4)
 
 
-[^a]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^a]: TG [[Jesus Christ, Prophecies about]].
 [^b]: [[Ezekiel 34.23|Ezek. 34:23]]; [[John 10.3|John 10:3 (1-16)]]; [[John 18.37|18:37.]]

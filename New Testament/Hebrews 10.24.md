@@ -6,4 +6,4 @@
 
 
 [^a]: GR understand.
-[^b]: TG [Provoking.](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng)
+[^b]: TG [[Provoking, Provoke]].

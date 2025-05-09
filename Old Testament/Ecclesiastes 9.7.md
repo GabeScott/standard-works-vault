@@ -5,4 +5,4 @@
 [Ecclesiastes 9:7](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/9.7?lang=eng#p7)
 
 
-[^a]: TG [Cheerful.](https://www.churchofjesuschrist.org/study/scriptures/tg/cheerful?lang=eng)
+[^a]: TG [[Cheerful, Cheerfulness]].

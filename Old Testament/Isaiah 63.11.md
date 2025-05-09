@@ -6,7 +6,7 @@
 
 
 [^a]: IE His people remembered.
-[^b]: TG [Israel, Deliverance of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-deliverance-of?lang=eng)
+[^b]: TG [[Israel, Deliverance of]].
 [^c]: OR shepherds.
-[^d]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^d]: TG [[Apostasy of the Early Christian Church]].
 [^e]: OR them.

@@ -5,4 +5,4 @@
 [Jeremiah 5:28](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.28?lang=eng#p28)
 
 
-[^a]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
+[^a]: TG [[Judgment]].

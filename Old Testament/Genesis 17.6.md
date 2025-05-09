@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 26.22|Gen. 26:22.]]
-[^b]: TG [Israel, Blessings of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng)
-[^c]: TG [Kings, Earthly.](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
+[^b]: TG [[Israel, Blessings of]].
+[^c]: TG [[Kings, Earthly]].

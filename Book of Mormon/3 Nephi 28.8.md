@@ -5,5 +5,5 @@
 [3 Nephi 28:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p8#p8)
 
 
-[^a]: [[3 Nephi 28.36|3 Ne. 28:36 (36-40)]]. TG [Mortality](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng).
-[^b]: TG [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
+[^a]: [[3 Nephi 28.36|3 Ne. 28:36 (36-40)]]. TG [[Mortality]].
+[^b]: TG [[Immortality, Immortal]].

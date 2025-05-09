@@ -5,4 +5,4 @@
 [Psalms 103:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/103.4?lang=eng#p4)
 
 
-[^a]: TG [Redemption.](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
+[^a]: TG [[Redemption]].

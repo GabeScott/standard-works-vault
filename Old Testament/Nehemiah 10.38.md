@@ -5,4 +5,4 @@
 [Nehemiah 10:38](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/10.38?lang=eng#p38)
 
 
-[^a]: TG [Tithing.](https://www.churchofjesuschrist.org/study/scriptures/tg/tithing?lang=eng)
+[^a]: TG [[Tithing]].

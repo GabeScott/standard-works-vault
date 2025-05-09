@@ -5,5 +5,5 @@
 [3 Nephi 14:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/14?lang=eng&id=p26#p26)
 
 
-[^a]: TG [Foolishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/foolishness?lang=eng)
+[^a]: TG [[Foolishness]].
 [^b]: [[3 Nephi 11.40|3 Ne. 11:40.]]

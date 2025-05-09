@@ -5,5 +5,5 @@
 [Alma 20:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/20?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^a]: TG [[Stiffnecked, Stiffneckedness]].
 [^b]: [[Alma 26.29|Alma 26:29.]]

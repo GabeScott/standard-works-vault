@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 10.34|Acts 10:34 (34-35)]]; [[Acts 17.26|17:26 (25-26).]]
-[^b]: TG [Purification](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng); [Purity.](https://www.churchofjesuschrist.org/study/scriptures/tg/purity?lang=eng)
+[^b]: TG [[Purification, Purify, Purifying]]; [[Purity, Pure]].

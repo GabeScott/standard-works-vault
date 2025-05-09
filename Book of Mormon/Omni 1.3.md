@@ -7,5 +7,5 @@
 
 [^a]: [[Jarom 1.13|Jarom 1:13.]]
 [^b]: [[Jacob 1.1|Jacob 1:1 (1-4)]]; [[Jacob 7.27|7:27]]; [[Jarom 1.15|Jarom 1:15 (1-2, 15).]]
-[^c]: TG [Patriarch.](https://www.churchofjesuschrist.org/study/scriptures/tg/patriarch?lang=eng)
-[^d]: TG [Delegation of Responsibility.](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng)
+[^c]: TG [[Family, Patriarchal]].
+[^d]: TG [[Delegation of Responsibility]].

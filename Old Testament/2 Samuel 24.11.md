@@ -6,4 +6,4 @@
 
 
 [^a]: [[Amos 3.7|Amos 3:7.]]
-[^b]: TG [Seer.](https://www.churchofjesuschrist.org/study/scriptures/tg/seer?lang=eng)
+[^b]: TG [[Seer]].

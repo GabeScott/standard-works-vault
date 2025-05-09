@@ -5,4 +5,4 @@
 [Acts 9:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.32?lang=eng#p32)
 
 
-[^a]: TG [Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng)
+[^a]: TG [[Mission of Latter-day Saints]].

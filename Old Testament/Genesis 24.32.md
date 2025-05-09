@@ -6,4 +6,4 @@
 
 
 [^a]: [[Judges 19.21|Judg. 19:21.]]
-[^b]: TG [Wash.](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
+[^b]: TG [[Wash, Washing]].

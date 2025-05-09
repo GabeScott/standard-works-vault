@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 14.9|Prov. 14:9]]; [[Proverbs 20.3|20:3.]]
-[^b]: [[Galatians 6.7|Gal. 6:7]]; [[D&C 124.71|D&C 124:71]]. TG [Mocking](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng); [Offense](https://www.churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng).
+[^b]: [[Galatians 6.7|Gal. 6:7]]; [[D&C 124.71|D&C 124:71]]. TG [[Mocking, Mock, Mocker, Mockery]]; [[Offense, Offend, Offender]].

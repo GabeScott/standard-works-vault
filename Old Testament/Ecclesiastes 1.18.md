@@ -5,5 +5,5 @@
 [Ecclesiastes 1:18](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/1.18?lang=eng#p18)
 
 
-[^a]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
-[^b]: TG [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
+[^a]: TG [[Knowledge]].
+[^b]: TG [[Sorrow]].

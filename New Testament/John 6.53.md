@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mark 14.22|Mark 14:22]]; [[Luke 22.19|Luke 22:19.]]
-[^b]: TG [Jesus Christ, Son of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
+[^b]: TG [[Jesus Christ, Son of Man]].

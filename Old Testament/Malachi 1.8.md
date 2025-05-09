@@ -6,5 +6,5 @@
 
 
 [^a]: [[Leviticus 22.22|Lev. 22:22.]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].
 [^c]: IE lame or sick animals.

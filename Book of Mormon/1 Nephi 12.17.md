@@ -6,5 +6,5 @@
 
 
 [^a]: 2 Pet. 2:17; [[1 Nephi 8.23|1 Ne. 8:23]]; [[1 Nephi 15.24|15:24 (23-24).]]
-[^b]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^b]: TG [[Apostasy of Individuals]].
 [^c]: [[Proverbs 4.14|Prov. 4:14]]; [[Luke 13.24|Luke 13:24.]]

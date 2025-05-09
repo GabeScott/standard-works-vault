@@ -5,6 +5,6 @@
 [Isaiah 8:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/8.20?lang=eng#p20)
 
 
-[^a]: TG [Scriptures, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng)
+[^a]: TG [[Scriptures, Value of]].
 [^b]: IE the spiritualist mediums (also in vv. 21-22).
-[^c]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^c]: TG [[Light]].

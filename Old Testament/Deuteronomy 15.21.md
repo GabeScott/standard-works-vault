@@ -7,4 +7,4 @@
 
 [^a]: [[Leviticus 22.20|Lev. 22:20]]; [[1 Peter 1.19|1 Pet. 1:19 (18-20).]]
 [^b]: OR serious.
-[^c]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^c]: TG [[Self-Sacrifice]].

@@ -5,5 +5,5 @@
 [2 Corinthians 10:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.6?lang=eng#p6)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].
 [^b]: [[2 Corinthians 7.15|2 Cor. 7:15.]]

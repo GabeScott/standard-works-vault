@@ -5,4 +5,4 @@
 [Alma 52:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/52?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Trustworthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/trustworthiness?lang=eng)
+[^a]: TG [[Trustworthiness]].

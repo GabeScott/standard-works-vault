@@ -5,5 +5,5 @@
 [Colossians 3:6](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.6?lang=eng#p6)
 
 
-[^a]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[God, Indignation of]].
+[^b]: TG [[Disobedience, Disobey]].

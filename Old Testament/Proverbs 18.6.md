@@ -5,4 +5,4 @@
 [Proverbs 18:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.6?lang=eng#p6)
 
 
-[^a]: TG [Contention.](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
+[^a]: TG [[Contention]].

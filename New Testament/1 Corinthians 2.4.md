@@ -7,5 +7,5 @@
 
 [^a]: 1 Thes. 1:5.
 [^b]: GR persuasive.
-[^c]: TG [Teaching with the Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching-with-the-spirit?lang=eng)
-[^d]: [[2 Nephi 28.4|2 Ne. 28:4 (3-5)]]. TG [Priesthood, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng).
+[^c]: TG [[Teaching with the Spirit]].
+[^d]: [[2 Nephi 28.4|2 Ne. 28:4 (3-5)]]. TG [[Priesthood, Power of]].

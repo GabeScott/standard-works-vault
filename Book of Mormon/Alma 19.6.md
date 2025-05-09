@@ -5,7 +5,7 @@
 [Alma 19:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p6#p6)
 
 
-[^a]: [[2 Corinthians 4.4|2 Cor. 4:4 (3-4)]]. TG [Veil](https://www.churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng).
-[^b]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
-[^c]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^a]: [[2 Corinthians 4.4|2 Cor. 4:4 (3-4)]]. TG [[Veil]].
+[^b]: TG [[Unbelief, Unbelievers]].
+[^c]: TG [[Light]].
 [^d]: [[Jacob 7.21|Jacob 7:21]]; [[Mosiah 3.19|Mosiah 3:19.]]

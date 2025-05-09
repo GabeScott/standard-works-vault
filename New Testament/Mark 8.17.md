@@ -6,4 +6,4 @@
 
 
 [^a]: GR do you still have hardened hearts?
-[^b]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^b]: TG [[Hardheartedness, Harden, Hardness]].

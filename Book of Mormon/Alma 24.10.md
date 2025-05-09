@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 9:9.
-[^b]: TG [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^b]: TG [[Guiltless]].

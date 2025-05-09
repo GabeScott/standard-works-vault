@@ -5,4 +5,4 @@
 [Mark 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.15?lang=eng#p15)
 
 
-[^a]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^a]: TG [[Devil, Church of]].

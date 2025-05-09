@@ -8,4 +8,4 @@
 [^a]: OR hunted deer.
 [^b]: HEB none gathers in.
 [^c]: [[Jeremiah 50.16|Jer. 50:16.]]
-[^d]: TG [Lands of Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
+[^d]: TG [[Lands of Inheritance]].

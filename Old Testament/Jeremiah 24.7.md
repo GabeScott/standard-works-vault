@@ -5,4 +5,4 @@
 [Jeremiah 24:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/24.7?lang=eng#p7)
 
 
-[^a]: TG [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
+[^a]: TG [[Man, New, Spiritually Reborn]].

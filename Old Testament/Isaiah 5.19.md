@@ -8,4 +8,4 @@
 [^a]: IE They will not believe in the Messiah until they see Him.
 [^b]: [[Amos 5.18|Amos 5:18.]]
 [^c]: 2 Pet. 3:4 (3-4).
-[^d]: TG [Sign Seekers.](https://www.churchofjesuschrist.org/study/scriptures/tg/sign-seekers?lang=eng)
+[^d]: TG [[Sign Seekers]].

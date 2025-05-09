@@ -5,4 +5,4 @@
 [Matthew 8:3](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.3?lang=eng#p3)
 
 
-[^a]: TG [Miracle.](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
+[^a]: TG [[Miracle]].

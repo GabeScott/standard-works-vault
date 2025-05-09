@@ -5,5 +5,5 @@
 [Acts 4:31](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.31?lang=eng#p31)
 
 
-[^a]: TG [Assembly for Worship](https://www.churchofjesuschrist.org/study/scriptures/tg/assembly-for-worship?lang=eng); [Meetings.](https://www.churchofjesuschrist.org/study/scriptures/tg/meetings?lang=eng)
+[^a]: TG [[Assembly for Worship]]; [[Meetings]].
 [^b]: [[Acts 2.4|Acts 2:4 (2-4)]]; [[D&C 68.4|D&C 68:4 (3-4).]]

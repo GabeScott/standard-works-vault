@@ -5,5 +5,5 @@
 [Habakkuk 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/3.13?lang=eng#p13)
 
 
-[^a]: TG [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng); [Jesus Christ, Redeemer](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng); [Jesus Christ, Savior](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng); [Remission of Sins](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng); [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^a]: TG [[Jesus Christ, Prophecies about]]; [[Jesus Christ, Redeemer]]; [[Jesus Christ, Savior]]; [[Remission of Sins]]; [[Salvation for the Dead]].
 [^b]: [[Psalms 68.21|Ps. 68:21.]]

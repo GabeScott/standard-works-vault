@@ -6,7 +6,7 @@
 
 
 [^a]: [[2 Corinthians 8.14|2 Cor. 8:14]]; [[Jacob 2.19|Jacob 2:19 (17-19).]]
-[^b]: TG [Poor.](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng)
-[^c]: [[Job 31.25|Job 31:25]]. TG [Wealth](https://www.churchofjesuschrist.org/study/scriptures/tg/wealth?lang=eng).
-[^d]: TG [Generosity.](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng)
+[^b]: TG [[Poor]].
+[^c]: [[Job 31.25|Job 31:25]]. TG [[Wealth]].
+[^d]: TG [[Generosity]].
 [^e]: [[Deuteronomy 10.17|Deut. 10:17]]; [[Alma 16.14|Alma 16:14]]; [[D&C 1.35|D&C 1:35.]]

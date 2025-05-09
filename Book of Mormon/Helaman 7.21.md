@@ -5,7 +5,7 @@
 [Helaman 7:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p21#p21)
 
 
-[^a]: TG [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
-[^b]: TG [Peer Influence.](https://www.churchofjesuschrist.org/study/scriptures/tg/peer-influence?lang=eng)
-[^c]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
-[^d]: [[Matthew 15.19|Matt. 15:19 (19-20)]]. TG [Slander](https://www.churchofjesuschrist.org/study/scriptures/tg/slander?lang=eng).
+[^a]: TG [[Selfishness]].
+[^b]: TG [[Peer Influence]].
+[^c]: TG [[Treasure]].
+[^d]: [[Matthew 15.19|Matt. 15:19 (19-20)]]. TG [[Slander]].

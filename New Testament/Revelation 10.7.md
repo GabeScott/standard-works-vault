@@ -5,4 +5,4 @@
 [Revelation 10:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/10.7?lang=eng#p7)
 
 
-[^a]: TG [Mysteries of Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/mysteries-of-godliness?lang=eng)
+[^a]: TG [[Mysteries of Godliness]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Proverbs 14.29|Prov. 14:29.]]
-[^b]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
-[^c]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
-[^d]: TG [Contention.](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
+[^b]: TG [[Strife]].
+[^c]: TG [[Anger]].
+[^d]: TG [[Contention]].

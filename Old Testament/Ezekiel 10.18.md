@@ -5,5 +5,5 @@
 [Ezekiel 10:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/10.18?lang=eng#p18)
 
 
-[^a]: TG [God, Manifestations of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-manifestations-of?lang=eng)
+[^a]: TG [[God, Manifestations of]].
 [^b]: [[Hosea 9.12|Hosea 9:12.]]

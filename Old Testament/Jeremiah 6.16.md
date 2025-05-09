@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 18.15|Jer. 18:15.]]
-[^b]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
-[^c]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^b]: TG [[Walking with God]].
+[^c]: TG [[Restoration of the Gospel]].

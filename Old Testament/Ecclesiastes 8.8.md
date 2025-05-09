@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 9.6|2 Ne. 9:6.]]
-[^b]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^b]: TG [[Deliver, Deliverance]].

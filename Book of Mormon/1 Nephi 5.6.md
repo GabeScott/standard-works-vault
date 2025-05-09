@@ -5,4 +5,4 @@
 [1 Nephi 5:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/5?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng); [Family, Love within.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng)
+[^a]: TG [[Holy Ghost, Comforter]]; [[Family, Love within]].

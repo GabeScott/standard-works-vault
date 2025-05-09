@@ -7,4 +7,4 @@
 
 [^a]: GR from a man.
 [^b]: GR through a revelation.
-[^c]: [[1 Corinthians 9.1|1 Cor. 9:1]]; [[D&C 84.1|D&C 84:1]]. TG [Testimony](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng).
+[^c]: [[1 Corinthians 9.1|1 Cor. 9:1]]; [[D&C 84.1|D&C 84:1]]. TG [[Testimony]].

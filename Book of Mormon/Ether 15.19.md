@@ -5,6 +5,6 @@
 [Ether 15:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/15?lang=eng&id=p19#p19)
 
 
-[^a]: TG [God, Spirit of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng); [Holy Ghost, Loss of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-loss-of?lang=eng)
-[^b]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
-[^c]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^a]: TG [[God, Spirit of]]; [[Holy Ghost, Loss of]].
+[^b]: TG [[Devil, Church of]].
+[^c]: TG [[Hardheartedness, Harden, Hardness]].

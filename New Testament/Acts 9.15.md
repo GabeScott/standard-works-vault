@@ -7,6 +7,6 @@
 
 [^a]: 1 Thes. 3:3.
 [^b]: [[Acts 22.15|Acts 22:15]]; [[Acts 26.16|26:16.]]
-[^c]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^c]: TG [[Name of the Lord]].
 [^d]: [[Romans 15.10|Rom. 15:10 (8-21)]]; [[1 Timothy 2.7|1 Tim. 2:7.]]
-[^e]: [[Psalms 119.46|Ps. 119:46]]; [[Matthew 10.18|Matt. 10:18]]; [[D&C 1.23|D&C 1:23]]; [[D&C 124.3|124:3 (3, 16, 107)]]. TG [Kings, Earthly](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng).
+[^e]: [[Psalms 119.46|Ps. 119:46]]; [[Matthew 10.18|Matt. 10:18]]; [[D&C 1.23|D&C 1:23]]; [[D&C 124.3|124:3 (3, 16, 107)]]. TG [[Kings, Earthly]].

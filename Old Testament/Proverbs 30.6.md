@@ -5,4 +5,4 @@
 [Proverbs 30:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/30.6?lang=eng#p6)
 
 
-[^a]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^a]: TG [[Scriptures, Preservation of]].

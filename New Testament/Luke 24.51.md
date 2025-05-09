@@ -5,4 +5,4 @@
 [Luke 24:51](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.51?lang=eng#p51)
 
 
-[^a]: TG [Jesus Christ, Ascension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-ascension-of?lang=eng)
+[^a]: TG [[Jesus Christ, Ascension of]].

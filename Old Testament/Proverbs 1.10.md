@@ -5,5 +5,5 @@
 [Proverbs 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.10?lang=eng#p10)
 
 
-[^a]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
+[^a]: TG [[Temptation]].
 [^b]: [[Psalms 1.1|Ps. 1:1 (1-2)]]; [[Ephesians 5.11|Eph. 5:11 (8-13).]]

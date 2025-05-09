@@ -5,4 +5,4 @@
 [Psalms 51:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.13?lang=eng#p13)
 
 
-[^a]: TG [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^a]: TG [[Conversion, Convert]].

@@ -7,4 +7,4 @@
 
 [^a]: OR ceased.
 [^b]: OR redeemers; one of those having the right to redeem.
-[^c]: [[Ruth 3.9|Ruth 3:9 (9, 12-13)]]; [[Ruth 4.1|4:1 (1, 3, 6, 8)]]. TG [Redemption](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng).
+[^c]: [[Ruth 3.9|Ruth 3:9 (9, 12-13)]]; [[Ruth 4.1|4:1 (1, 3, 6, 8)]]. TG [[Redemption]].

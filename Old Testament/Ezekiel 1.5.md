@@ -5,4 +5,4 @@
 [Ezekiel 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/1.5?lang=eng#p5)
 
 
-[^a]: TG [Symbolism.](https://www.churchofjesuschrist.org/study/scriptures/tg/symbolism?lang=eng)
+[^a]: TG [[Blood, Symbolism of]].

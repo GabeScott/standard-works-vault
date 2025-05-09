@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 5.41|Acts 5:41.]]
-[^b]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
-[^c]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^b]: TG [[Joy]].
+[^c]: TG [[Reward]].

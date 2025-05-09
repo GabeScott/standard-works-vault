@@ -5,4 +5,4 @@
 [Acts 8:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.2?lang=eng#p2)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Mourning, Mourn]].

@@ -6,7 +6,7 @@
 
 
 [^a]: [[Luke 9.2|Luke 9:2]]; [[D&C 84.68|D&C 84:68.]]
-[^b]: TG [Leprosy.](https://www.churchofjesuschrist.org/study/scriptures/tg/leprosy?lang=eng)
+[^b]: TG [[Leprosy, Leper, Leprous]].
 [^c]: [[D&C 84.67|D&C 84:67.]]
 [^d]: GR without payment. Isa. 55:1.
-[^e]: TG [Generosity.](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng)
+[^e]: TG [[Generosity]].

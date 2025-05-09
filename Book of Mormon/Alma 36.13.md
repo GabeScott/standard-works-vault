@@ -5,6 +5,6 @@
 [Alma 36:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p13#p13)
 
 
-[^a]: TG [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^a]: TG [[Guiltless]].
 [^b]: [[Moses 1.20|Moses 1:20.]]
-[^c]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^c]: TG [[Disobedience, Disobey]].

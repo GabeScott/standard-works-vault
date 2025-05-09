@@ -5,6 +5,6 @@
 [Exodus 22:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/22.1?lang=eng#p1)
 
 
-[^a]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
-[^b]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Stealing, Stolen]].
+[^b]: TG [[Repent, Repentance]].
 [^c]: [[2 Samuel 12.6|2 Sam. 12:6.]]

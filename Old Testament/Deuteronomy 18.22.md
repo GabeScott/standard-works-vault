@@ -5,5 +5,5 @@
 [Deuteronomy 18:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/18.22?lang=eng#p22)
 
 
-[^a]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
+[^a]: TG [[Prophets, Mission of]].
 [^b]: [[Jeremiah 28.9|Jer. 28:9.]]

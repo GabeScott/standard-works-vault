@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 26.12|Alma 26:12.]]
-[^b]: TG [Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng)
+[^b]: TG [[Telestial Glory]].

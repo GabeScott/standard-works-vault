@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 16.29|1 Ne. 16:29]]; [[Alma 37.7|Alma 37:7 (6-8).]]
-[^b]: TG [Apathy](https://www.churchofjesuschrist.org/study/scriptures/tg/apathy?lang=eng); [Laziness.](https://www.churchofjesuschrist.org/study/scriptures/tg/laziness?lang=eng)
+[^b]: TG [[Apathy]]; [[Laziness]].

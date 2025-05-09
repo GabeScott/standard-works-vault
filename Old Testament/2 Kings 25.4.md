@@ -5,5 +5,5 @@
 [2 Kings 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/25.4?lang=eng#p4)
 
 
-[^a]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^a]: TG [[Jerusalem]].
 [^b]: HEB penetrated, opened up.

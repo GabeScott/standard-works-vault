@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 49.8|Isa. 49:8.]]
 [^b]: [[Alma 34.32|Alma 34:32 (31-34).]]
-[^c]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^c]: TG [[Salvation for the Dead]].

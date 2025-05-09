@@ -5,7 +5,7 @@
 [1 Nephi 16:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p2#p2)
 
 
-[^a]: [[Acts 7.54|Acts 7:54]]; [[2 Nephi 33.5|2 Ne. 33:5]]; [[Enos 1.23|Enos 1:23]]; W of M 1:17. TG [Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng).
+[^a]: [[Acts 7.54|Acts 7:54]]; [[2 Nephi 33.5|2 Ne. 33:5]]; [[Enos 1.23|Enos 1:23]]; W of M 1:17. TG [[Chastening]].
 [^b]: [[John 3.20|John 3:20 (19-21)]]; [[John 7.7|7:7]]; [[Helaman 13.24|Hel. 13:24 (24-27).]]
 [^c]: [[Proverbs 15.10|Prov. 15:10]]; [[2 Nephi 1.26|2 Ne. 1:26]]; [[2 Nephi 9.40|9:40.]]
 [^d]: [[Acts 5.33|Acts 5:33]]; [[Mosiah 13.7|Mosiah 13:7]]; [[Moses 6.37|Moses 6:37.]]

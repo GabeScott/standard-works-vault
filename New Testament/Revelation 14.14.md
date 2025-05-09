@@ -5,4 +5,4 @@
 [Revelation 14:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.14?lang=eng#p14)
 
 
-[^a]: TG [Jesus Christ, Son of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
+[^a]: TG [[Jesus Christ, Son of Man]].

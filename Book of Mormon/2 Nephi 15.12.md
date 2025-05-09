@@ -6,4 +6,4 @@
 
 
 [^a]: [[Amos 6.5|Amos 6:5 (5-6).]]
-[^b]: [[Psalms 28.5|Ps. 28:5]]. TG [Rebellion](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng).
+[^b]: [[Psalms 28.5|Ps. 28:5]]. TG [[Rebellion, Rebel]].

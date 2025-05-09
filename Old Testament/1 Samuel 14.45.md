@@ -5,4 +5,4 @@
 [1 Samuel 14:45](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.45?lang=eng#p45)
 
 
-[^a]: TG [Common Consent.](https://www.churchofjesuschrist.org/study/scriptures/tg/common-consent?lang=eng)
+[^a]: TG [[Common Consent]].

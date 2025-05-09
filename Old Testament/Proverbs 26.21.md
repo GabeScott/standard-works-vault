@@ -5,4 +5,4 @@
 [Proverbs 26:21](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/26.21?lang=eng#p21)
 
 
-[^a]: TG [Contention.](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
+[^a]: TG [[Contention]].

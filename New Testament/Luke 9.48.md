@@ -5,6 +5,6 @@
 [Luke 9:48](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.48?lang=eng#p48)
 
 
-[^a]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^a]: TG [[Name of the Lord]].
 [^b]: [[Matthew 10.40|Matt. 10:40.]]
 [^c]: [[Ether 12.27|Ether 12:27 (26-27).]]

@@ -5,5 +5,5 @@
 [1 Nephi 19:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/19?lang=eng&id=p21#p21)
 
 
-[^a]: [[2 Kings 17.13|2 Kgs. 17:13]]; [[Amos 3.7|Amos 3:7]]. TG [Prophets, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng).
+[^a]: [[2 Kings 17.13|2 Kgs. 17:13]]; [[Amos 3.7|Amos 3:7]]. TG [[Prophets, Mission of]].
 [^b]: [[3 Nephi 10.16|3 Ne. 10:16 (16-17).]]

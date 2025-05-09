@@ -5,4 +5,4 @@
 [2 Nephi 1:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p28#p28)
 
 
-[^a]: TG [Birthright.](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng)
+[^a]: TG [[Birthright]].

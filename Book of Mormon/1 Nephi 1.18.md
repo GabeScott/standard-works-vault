@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 25.9|2 Ne. 25:9]]; [[D&C 5.20|D&C 5:20.]]
-[^b]: TG [Prophets, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng); [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^b]: TG [[Prophets, Mission of]]; [[Prophets, Rejection of]].

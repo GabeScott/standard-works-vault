@@ -6,5 +6,5 @@
 
 
 [^a]: GR break your oath, or perjure yourself. Ps. 139:20.
-[^b]: TG [Dedication.](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng)
-[^c]: [[Deuteronomy 23.21|Deut. 23:21]]. TG [Oath](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng).
+[^b]: TG [[Dedication, Dedicate]].
+[^c]: [[Deuteronomy 23.21|Deut. 23:21]]. TG [[Oath]].

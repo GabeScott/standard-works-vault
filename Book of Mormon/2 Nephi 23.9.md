@@ -5,4 +5,4 @@
 [2 Nephi 23:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/23?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Earth, Cleansing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng)
+[^a]: TG [[Earth, Cleansing of]].

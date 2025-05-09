@@ -6,7 +6,7 @@
 
 
 [^a]: [[Genesis 2.7|Gen. 2:7]]; [[Moses 4.25|Moses 4:25 (25-29)]]; [[Moses 6.59|6:59]]; [[Abraham 5.7|Abr. 5:7.]]
-[^b]: TG [Breath of Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/breath-of-life?lang=eng)
-[^c]: TG [Adam.](https://www.churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng)
-[^d]: [[Isaiah 57.16|Isa. 57:16]]. TG [Soul](https://www.churchofjesuschrist.org/study/scriptures/tg/soul?lang=eng).
+[^b]: TG [[Breath of Life]].
+[^c]: TG [[Adam]].
+[^d]: [[Isaiah 57.16|Isa. 57:16]]. TG [[Soul]].
 [^e]: [[Moses 1.34|Moses 1:34.]]

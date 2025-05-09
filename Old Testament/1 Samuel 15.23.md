@@ -5,7 +5,7 @@
 [1 Samuel 15:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/15.23?lang=eng#p23)
 
 
-[^a]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
-[^b]: TG [Stubbornness.](https://www.churchofjesuschrist.org/study/scriptures/tg/stubbornness?lang=eng)
-[^c]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Rebellion, Rebel]].
+[^b]: TG [[Stubbornness, Stubborn]].
+[^c]: TG [[Disobedience, Disobey]].
 [^d]: [[Hosea 13.11|Hosea 13:11 (9-14).]]

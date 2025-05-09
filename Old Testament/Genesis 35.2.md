@@ -5,5 +5,5 @@
 [Genesis 35:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/35.2?lang=eng#p2)
 
 
-[^a]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
-[^b]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^a]: TG [[Idolatry, Idol]].
+[^b]: TG [[Purification, Purify, Purifying]].

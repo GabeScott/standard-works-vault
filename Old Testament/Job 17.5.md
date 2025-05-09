@@ -5,4 +5,4 @@
 [Job 17:5](https://www.churchofjesuschrist.org/study/scriptures/ot/job/17.5?lang=eng#p5)
 
 
-[^a]: TG [Flatter.](https://www.churchofjesuschrist.org/study/scriptures/tg/flatter?lang=eng)
+[^a]: TG [[Flatter, Flattery]].

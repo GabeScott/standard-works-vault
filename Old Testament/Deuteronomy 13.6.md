@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 32.29|Ex. 32:29.]]
-[^b]: TG [Peer Influence](https://www.churchofjesuschrist.org/study/scriptures/tg/peer-influence?lang=eng); [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
+[^b]: TG [[Peer Influence]]; [[Temptation]].

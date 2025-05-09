@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 31.16|Deut. 31:16.]]
-[^b]: TG [Abrahamic Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng); [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^b]: TG [[Abrahamic Covenant]]; [[Covenants]].

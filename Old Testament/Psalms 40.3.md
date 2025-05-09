@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 33.3|Ps. 33:3.]]
-[^b]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^b]: TG [[Singing, Sing, Sang, Sung]].

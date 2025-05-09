@@ -5,4 +5,4 @@
 [Deuteronomy 31:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.20?lang=eng#p20)
 
 
-[^a]: TG [Provoking.](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng)
+[^a]: TG [[Provoking, Provoke]].

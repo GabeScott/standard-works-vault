@@ -5,4 +5,4 @@
 [John 8:49](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.49?lang=eng#p49)
 
 
-[^a]: TG [God, the Standard of Righteousness](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-standard-of-righteousness?lang=eng); [Honoring Father and Mother](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng); [Respect.](https://www.churchofjesuschrist.org/study/scriptures/tg/respect?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]]; [[Honoring Father and Mother]]; [[Respecter]].

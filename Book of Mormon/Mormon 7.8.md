@@ -5,6 +5,6 @@
 [Mormon 7:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/7?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^a]: TG [[Gospel]].
 [^b]: [[2 Nephi 29.4|2 Ne. 29:4 (4-13).]]
 [^c]: [[1 Nephi 13.38|1 Ne. 13:38 (20-29, 38)]]; [[Mormon 5.15|Morm. 5:15.]]

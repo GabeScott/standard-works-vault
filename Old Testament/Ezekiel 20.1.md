@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 33.21|Ezek. 33:21.]]
-[^b]: TG [Elder.](https://www.churchofjesuschrist.org/study/scriptures/tg/elder?lang=eng)
+[^b]: TG [[Elder, Melchizedek Priesthood]].

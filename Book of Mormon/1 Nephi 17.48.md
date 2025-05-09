@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 13.3|Mosiah 13:3.]]
-[^b]: [[2 Nephi 1.27|2 Ne. 1:27 (26-27)]]. TG [God, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng); [Priesthood, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng).
+[^b]: [[2 Nephi 1.27|2 Ne. 1:27 (26-27)]]. TG [[God, Power of]]; [[Priesthood, Power of]].
 [^c]: [[1 Kings 13.4|1 Kgs. 13:4 (4-7)]]; [[Moses 1.11|Moses 1:11]]; [[Moses 6.47|6:47.]]

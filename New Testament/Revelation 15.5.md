@@ -5,4 +5,4 @@
 [Revelation 15:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/15.5?lang=eng#p5)
 
 
-[^a]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^a]: TG [[Testimony]].

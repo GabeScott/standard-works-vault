@@ -6,6 +6,6 @@
 
 
 [^a]: 1 Jn. 2:12; [[Mosiah 15.2|Mosiah 15:2]]; [[Mosiah 27.25|27:25 (24-26)]]; [[Moses 6.68|Moses 6:68 (64-68).]]
-[^b]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
-[^c]: [[John 1.13|John 1:13 (12-13)]]; [[Mosiah 15.10|Mosiah 15:10]]. TG [Man, New, Spiritually Reborn](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng).
+[^b]: TG [[Sanctification, Sanctify]].
+[^c]: [[John 1.13|John 1:13 (12-13)]]; [[Mosiah 15.10|Mosiah 15:10]]. TG [[Man, New, Spiritually Reborn]].
 [^d]: [[Matthew 12.49|Matt. 12:49 (49-50)]]; [[D&C 11.30|D&C 11:30.]]

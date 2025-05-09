@@ -6,5 +6,5 @@
 
 
 [^a]: GR for extortion.
-[^b]: TG [Contentment.](https://www.churchofjesuschrist.org/study/scriptures/tg/contentment?lang=eng)
-[^c]: TG [Wages.](https://www.churchofjesuschrist.org/study/scriptures/tg/wages?lang=eng)
+[^b]: TG [[Contentment]].
+[^c]: TG [[Wages]].

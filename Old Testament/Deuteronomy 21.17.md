@@ -8,4 +8,4 @@
 [^a]: [[2 Kings 2.9|2 Kgs. 2:9.]]
 [^b]: OR his first issue.
 [^c]: [[Genesis 49.3|Gen. 49:3.]]
-[^d]: TG [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
+[^d]: TG [[Firstborn]].

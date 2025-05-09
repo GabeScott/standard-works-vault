@@ -6,5 +6,5 @@
 
 
 [^a]: [[Exodus 8.19|Ex. 8:19]]; [[1 Nephi 19.22|1 Ne. 19:22]]; [[D&C 84.3|D&C 84:3]]; [[D&C 121.12|121:12.]]
-[^b]: TG [Commitment](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng); [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^b]: TG [[Commitment]]; [[Conversion, Convert]].
 [^c]: [[Alma 27.27|Alma 27:27.]]

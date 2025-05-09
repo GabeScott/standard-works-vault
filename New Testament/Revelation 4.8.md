@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 6.3|Isa. 6:3 (2-3)]]; [[Ezekiel 1.28|Ezek. 1:28 (9-11, 28).]]
-[^b]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
+[^b]: TG [[God, Power of]].

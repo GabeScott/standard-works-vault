@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 99.7|Ps. 99:7]]; [[D&C 103.20|D&C 103:20 (19-20).]]
-[^b]: TG [Israel, Deliverance of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-deliverance-of?lang=eng)
+[^b]: TG [[Israel, Deliverance of]].

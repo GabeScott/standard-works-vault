@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 18.15|Matt. 18:15 (15-17).]]
-[^b]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^b]: TG [[Forgive, Forgiveness]].

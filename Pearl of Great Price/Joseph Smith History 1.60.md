@@ -5,5 +5,5 @@
 [Joseph Smith History 1:60](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.60?lang=eng#p60)
 
 
-[^a]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^a]: TG [[Stealing, Stolen]].
 [^b]: JS—H 1:2.

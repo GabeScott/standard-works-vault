@@ -5,9 +5,9 @@
 [Abraham 1:2](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.2?lang=eng#p2)
 
 
-[^a]: TG [Happiness](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng); [Priesthood, Qualifying for](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-qualifying-for?lang=eng); [Rest](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng); [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^b]: TG [God, the Standard of Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-standard-of-righteousness?lang=eng)
+[^a]: TG [[Happiness, Happy]]; [[Priesthood, Qualifying for]]; [[Restoration of the Gospel]]; [[God, the Standard of Righteousness]].
+[^b]: TG [[God, the Standard of Righteousness]].
 [^c]: [[Proverbs 19.2|Prov. 19:2]]; [[D&C 42.61|D&C 42:61.]]
 [^d]: [[Genesis 12.2|Gen. 12:2]]; [[Genesis 17.6|17:6]]; [[Genesis 18.18|18:18.]]
 [^e]: [[Genesis 13.4|Gen. 13:4.]]
-[^f]: TG [High Priest, Melchizedek Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/high-priest-melchizedek-priesthood?lang=eng); [Priesthood, History of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-history-of?lang=eng); [Priesthood, Melchizedek.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-melchizedek?lang=eng)
+[^f]: TG [[High Priest, Melchizedek Priesthood]]; [[Priesthood, History of]]; [[Priesthood, Melchizedek]].

@@ -5,6 +5,6 @@
 [3 Nephi 21:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p9#p9)
 
 
-[^a]: TG [God, Works of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-works-of?lang=eng)
-[^b]: [[1 Nephi 22.8|1 Ne. 22:8]]. TG [Restoration of the Gospel](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng).
+[^a]: TG [[God, Works of]].
+[^b]: [[1 Nephi 22.8|1 Ne. 22:8]]. TG [[Restoration of the Gospel]].
 [^c]: [[Acts 13.41|Acts 13:41 (40-41).]]

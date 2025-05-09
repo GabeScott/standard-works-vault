@@ -6,6 +6,6 @@
 
 
 [^a]: [[Ezekiel 20.7|Ezek. 20:7.]]
-[^b]: TG [Conversion](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng); [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
-[^c]: TG [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
+[^b]: TG [[Conversion, Convert]]; [[Heart]].
+[^c]: TG [[Man, New, Spiritually Reborn]].
 [^d]: [[Ezekiel 33.11|Ezek. 33:11.]]

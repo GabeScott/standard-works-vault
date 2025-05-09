@@ -5,5 +5,5 @@
 [Acts 20:16](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.16?lang=eng#p16)
 
 
-[^a]: TG [Haste.](https://www.churchofjesuschrist.org/study/scriptures/tg/haste?lang=eng)
+[^a]: TG [[Haste, Hasten, Hasty]].
 [^b]: [[Acts 2.1|Acts 2:1.]]

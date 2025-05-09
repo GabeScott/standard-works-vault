@@ -6,7 +6,7 @@
 
 
 [^a]: [[Mosiah 1.10|Mosiah 1:10]]; [[Mosiah 2.30|2:30.]]
-[^b]: TG [Priesthood, Ordination.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-ordination?lang=eng)
+[^b]: TG [[Priesthood, Ordination]].
 [^c]: [[Mosiah 29.42|Mosiah 29:42.]]
 [^d]: [[Alma 4.7|Alma 4:7.]]
 [^e]: [[Mosiah 5.5|Mosiah 5:5 (5-7).]]

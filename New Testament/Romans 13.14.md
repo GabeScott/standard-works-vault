@@ -6,4 +6,4 @@
 
 
 [^a]: [[Galatians 3.27|Gal. 3:27 (24-29).]]
-[^b]: TG [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
+[^b]: TG [[Lust]].

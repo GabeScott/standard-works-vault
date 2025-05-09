@@ -5,5 +5,5 @@
 [Moroni 6:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/6?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Poor in Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/poor-in-spirit?lang=eng)
-[^b]: TG [Contrite Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/contrite-heart?lang=eng)
+[^a]: TG [[Poor in Spirit]].
+[^b]: TG [[Contrite Heart]].

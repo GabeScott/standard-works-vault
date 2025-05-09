@@ -5,4 +5,4 @@
 [Deuteronomy 19:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/19.16?lang=eng#p16)
 
 
-[^a]: TG [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^a]: TG [[Lying, Liar, Lie]].

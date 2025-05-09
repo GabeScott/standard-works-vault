@@ -5,5 +5,5 @@
 [1 Peter 3:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.6?lang=eng#p6)
 
 
-[^a]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^a]: TG [[Seed of Abraham]].
 [^b]: GR dismay, consternation.

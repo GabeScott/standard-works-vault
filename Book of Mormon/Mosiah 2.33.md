@@ -5,8 +5,8 @@
 [Mosiah 2:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p33#p33)
 
 
-[^a]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
-[^b]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
-[^c]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^a]: TG [[Agency]].
+[^b]: TG [[Accountability]].
+[^c]: TG [[Damnation, Damned]].
 [^d]: [[Jacob 6.10|Jacob 6:10]]; [[D&C 19.11|D&C 19:11 (10-12).]]
-[^e]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^e]: TG [[Punish, Punishment]].

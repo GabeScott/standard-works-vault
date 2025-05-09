@@ -5,4 +5,4 @@
 [Psalms 96:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/96.10?lang=eng#p10)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].

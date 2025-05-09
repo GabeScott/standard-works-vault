@@ -5,6 +5,6 @@
 [Matthew 26:66](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.66?lang=eng#p66)
 
 
-[^a]: TG [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^a]: TG [[Guiltless]].
 [^b]: JST Matt. 26:67 … and worthy of death.
-[^c]: TG [Jesus Christ, Death of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
+[^c]: TG [[Jesus Christ, Death of]].

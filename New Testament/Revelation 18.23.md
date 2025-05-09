@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 7.34|Jer. 7:34.]]
-[^b]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^b]: TG [[Sorcery]].

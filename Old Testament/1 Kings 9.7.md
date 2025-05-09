@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Kings 17.23|2 Kgs. 17:23.]]
-[^b]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^b]: TG [[Israel, Land of]].
 [^c]: [[1 Nephi 19.14|1 Ne. 19:14 (13-14).]]

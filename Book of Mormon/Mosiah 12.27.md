@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 8.5|Prov. 8:5]]; [[Mosiah 2.9|Mosiah 2:9.]]
-[^b]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^b]: TG [[Understanding]].

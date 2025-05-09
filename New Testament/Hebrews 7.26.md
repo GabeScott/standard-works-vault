@@ -6,8 +6,8 @@
 
 
 [^a]: [[Hebrews 7.25|JST Heb. 7:25-26 (Appendix).]]
-[^b]: TG [High Priest, Melchizedek Priesthood.](https://www.churchofjesuschrist.org/study/scriptures/tg/high-priest-melchizedek-priesthood?lang=eng)
-[^c]: [[Leviticus 3.6|Lev. 3:6]]. TG [Separation](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng).
+[^b]: TG [[High Priest, Melchizedek Priesthood]].
+[^c]: [[Leviticus 3.6|Lev. 3:6]]. TG [[Separation, Separate]].
 [^d]: [[Hebrews 4.15|Heb. 4:15]]; [[D&C 45.4|D&C 45:4.]]
-[^e]: TG [Priesthood, Magnifying Callings within.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng)
+[^e]: TG [[Priesthood, Magnifying Callings within]].
 [^f]: [[Ephesians 1.20|Eph. 1:20.]]

@@ -5,5 +5,5 @@
 [Jeremiah 50:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/50.8?lang=eng#p8)
 
 
-[^a]: TG [Separation.](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng)
-[^b]: TG [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
+[^a]: TG [[Separation, Separate]].
+[^b]: TG [[Israel, Bondage of, in Other Lands]].

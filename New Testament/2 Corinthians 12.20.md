@@ -5,6 +5,6 @@
 [2 Corinthians 12:20](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/12.20?lang=eng#p20)
 
 
-[^a]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
-[^b]: TG [Backbiting.](https://www.churchofjesuschrist.org/study/scriptures/tg/backbiting?lang=eng)
-[^c]: TG [Rioting and Reveling.](https://www.churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng)
+[^a]: TG [[Strife]].
+[^b]: TG [[Backbiting]].
+[^c]: TG [[Rioting and Reveling]].

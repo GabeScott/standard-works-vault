@@ -6,6 +6,6 @@
 
 
 [^a]: [[3 Nephi 7.19|3 Ne. 7:19.]]
-[^b]: TG [Death, Power over.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-power-over?lang=eng)
+[^b]: TG [[Death, Power over]].
 [^c]: [[3 Nephi 28.25|3 Ne. 28:25.]]
 [^d]: [[3 Nephi 18.36|3 Ne. 18:36 (36-37)]]; [[3 Nephi 26.17|26:17.]]

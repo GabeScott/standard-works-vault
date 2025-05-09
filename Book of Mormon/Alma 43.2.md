@@ -6,4 +6,4 @@
 
 
 [^a]: W of M 1:9 (1-9).
-[^b]: [[Alma 30.20|Alma 30:20 (20-23, 31)]]; [[Alma 46.38|46:38]]. TG [Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood?lang=eng).
+[^b]: [[Alma 30.20|Alma 30:20 (20-23, 31)]]; [[Alma 46.38|46:38]]. TG [[Priesthood, History of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: See accounts of Abinadi in Mosiah 11-17.
-[^b]: TG [Punish](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng); [Reproof.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproof?lang=eng)
+[^b]: TG [[Punish, Punishment]]; [[Reproof, Reprove]].

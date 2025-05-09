@@ -6,4 +6,4 @@
 
 
 [^a]: GR power. Mark 5:30 (25-34); [[Luke 8.46|Luke 8:46 (41-48).]]
-[^b]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^b]: TG [[Health]].

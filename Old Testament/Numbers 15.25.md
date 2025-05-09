@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 1.4|Lev. 1:4]]; [[Leviticus 4.20|4:20 (20-26)]]; [[2 Chronicles 29.24|2 Chr. 29:24 (23-24).]]
-[^b]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^b]: TG [[Forgive, Forgiveness]].

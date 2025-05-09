@@ -5,4 +5,4 @@
 [Alma 48:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Welfare.](https://www.churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng)
+[^a]: TG [[Welfare]].

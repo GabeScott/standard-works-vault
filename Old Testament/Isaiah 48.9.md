@@ -6,4 +6,4 @@
 
 
 [^a]: [[Joshua 7.9|Josh. 7:9.]]
-[^b]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^b]: TG [[Anger]].

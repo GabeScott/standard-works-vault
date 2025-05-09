@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 30.9|D&C 30:9.]]
-[^b]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
-[^c]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
+[^b]: TG [[Israel, Ten Lost Tribes of]].
+[^c]: TG [[Israel, Restoration of]].

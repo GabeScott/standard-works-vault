@@ -6,6 +6,6 @@
 
 
 [^a]: 2 Pet. 2:20 (19-22).
-[^b]: [[Mark 4.17|Mark 4:17 (14-20)]]; [[Mark 8.38|8:38]]; [[Luke 8.13|Luke 8:13 (11-15)]]; [[John 12.43|John 12:43 (42-43)]]; [[Romans 3.3|Rom. 3:3]]. TG [Courage](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng); [Fearful](https://www.churchofjesuschrist.org/study/scriptures/tg/fearful?lang=eng).
-[^c]: TG [Peer Influence.](https://www.churchofjesuschrist.org/study/scriptures/tg/peer-influence?lang=eng)
-[^d]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^b]: [[Mark 4.17|Mark 4:17 (14-20)]]; [[Mark 8.38|8:38]]; [[Luke 8.13|Luke 8:13 (11-15)]]; [[John 12.43|John 12:43 (42-43)]]; [[Romans 3.3|Rom. 3:3]]. TG [[Courage, Courageous]]; [[Fearful]].
+[^c]: TG [[Peer Influence]].
+[^d]: TG [[Apostasy of Individuals]].

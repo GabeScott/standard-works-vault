@@ -5,7 +5,7 @@
 [Isaiah 42:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.5?lang=eng#p5)
 
 
-[^a]: TG [Creation](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng); [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
-[^b]: TG [Breath of Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/breath-of-life?lang=eng)
-[^c]: TG [Man, a Spirit Child of Heavenly Father](https://www.churchofjesuschrist.org/study/scriptures/tg/man-a-spirit-child-of-heavenly-father?lang=eng); [Spirit Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirit-creation?lang=eng)
-[^d]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
+[^a]: TG [[Creation, Create]]; [[Jesus Christ, Creator]].
+[^b]: TG [[Breath of Life]].
+[^c]: TG [[Man, a Spirit Child of Heavenly Father]]; [[Spirit Creation]].
+[^d]: TG [[Mortality]].

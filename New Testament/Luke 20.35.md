@@ -6,5 +6,5 @@
 
 
 [^a]: JST Luke 20:35 … that world, through resurrection from …
-[^b]: TG [Objectives](https://www.churchofjesuschrist.org/study/scriptures/tg/objectives?lang=eng); [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^b]: TG [[Objectives]]; [[Jesus Christ, Resurrection]].
 [^c]: [[D&C 132.16|D&C 132:16 (7-39).]]

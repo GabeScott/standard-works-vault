@@ -5,4 +5,4 @@
 [Zechariah 1:9](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/1.9?lang=eng#p9)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].

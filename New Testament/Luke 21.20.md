@@ -7,4 +7,4 @@
 
 [^a]: [[Luke 19.43|Luke 19:43.]]
 [^b]: [[Ezekiel 38.16|Ezek. 38:16 (15-16)]]; [[Revelation 16.16|Rev. 16:16.]]
-[^c]: [[D&C 45.19|D&C 45:19 (18-21)]]. TG [Abomination of Desolation](https://www.churchofjesuschrist.org/study/scriptures/tg/abomination-of-desolation?lang=eng).
+[^c]: [[D&C 45.19|D&C 45:19 (18-21)]]. TG [[Abomination of Desolation]].

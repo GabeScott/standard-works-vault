@@ -5,5 +5,5 @@
 [James 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.13?lang=eng#p13)
 
 
-[^a]: TG [God, Perfection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng)
-[^b]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
+[^a]: TG [[God, Perfection of]].
+[^b]: TG [[Evil]].

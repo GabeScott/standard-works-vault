@@ -6,6 +6,6 @@
 
 
 [^a]: HEB cut off; i.e., he was overwhelmed by his consciousness of the sins of himself and his people.
-[^b]: TG [Uncleanness.](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng)
-[^c]: TG [God, Privilege of Seeing](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng); [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^b]: TG [[Uncleanness, Unclean]].
+[^c]: TG [[God, Privilege of Seeing]]; [[Testimony]].
 [^d]: [[Matthew 2.2|Matt. 2:2]]; JST Matt. 3:2 ([[Matthew 2.2|Matt. 2:2]] note a).

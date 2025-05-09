@@ -5,4 +5,4 @@
 [Mosiah 4:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Fall of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng)
+[^a]: TG [[Fall of Man]].

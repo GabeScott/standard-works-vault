@@ -5,4 +5,4 @@
 [Exodus 16:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.22?lang=eng#p22)
 
 
-[^a]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 12.15|1 Ne. 12:15.]]
-[^b]: TG [Fearful.](https://www.churchofjesuschrist.org/study/scriptures/tg/fearful?lang=eng)
+[^b]: TG [[Fearful]].

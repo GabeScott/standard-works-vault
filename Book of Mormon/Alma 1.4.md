@@ -6,7 +6,7 @@
 
 
 [^a]: [[Alma 15.15|Alma 15:15]]; [[Alma 21.6|21:6]]; [[Alma 30.17|30:17]]; [[Mormon 8.31|Morm. 8:31.]]
-[^b]: TG [Humility](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng); [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
-[^c]: TG [Jesus Christ, Creator](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng); [Man, Physical Creation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)
-[^d]: TG [Jesus Christ, Redeemer](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng); [Redemption.](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
+[^b]: TG [[Humility, Humble]]; [[Meek, Meekness]].
+[^c]: TG [[Jesus Christ, Creator]]; [[Man, Physical Creation of]].
+[^d]: TG [[Jesus Christ, Redeemer]]; [[Redemption]].
 [^e]: [[Moses 4.1|Moses 4:1 (1-4).]]

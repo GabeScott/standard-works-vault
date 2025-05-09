@@ -5,8 +5,8 @@
 [Ezekiel 22:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.26?lang=eng#p26)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Apostasy of Israel]].
 [^b]: Mal. 2:8.
 [^c]: [[Leviticus 10.10|Lev. 10:10]]; [[Ezekiel 44.23|Ezek. 44:23.]]
 [^d]: [[Jeremiah 17.27|Jer. 17:27 (22, 24, 27)]]; [[Ezekiel 44.24|Ezek. 44:24.]]
-[^e]: TG [Profanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng)
+[^e]: TG [[Profanity]].

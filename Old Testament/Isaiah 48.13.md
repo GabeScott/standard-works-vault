@@ -5,4 +5,4 @@
 [Isaiah 48:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/48.13?lang=eng#p13)
 
 
-[^a]: TG [Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng)
+[^a]: TG [[Creation, Create]].

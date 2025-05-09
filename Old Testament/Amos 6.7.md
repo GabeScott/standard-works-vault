@@ -5,5 +5,5 @@
 [Amos 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/6.7?lang=eng#p7)
 
 
-[^a]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^a]: TG [[Israel, Scattering of]].
 [^b]: OR revelry.

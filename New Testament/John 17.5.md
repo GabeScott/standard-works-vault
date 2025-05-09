@@ -5,5 +5,5 @@
 [John 17:5](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.5?lang=eng#p5)
 
 
-[^a]: TG [Celestial Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/celestial-glory?lang=eng); [Jesus Christ, Glory of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng)
-[^b]: TG [Jesus Christ, Foreordained](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-foreordained?lang=eng); [Man, Antemortal Existence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-antemortal-existence-of?lang=eng)
+[^a]: TG [[Celestial Glory]]; [[Jesus Christ, Glory of]].
+[^b]: TG [[Jesus Christ, Foreordained]]; [[Man, Antemortal Existence of]].

@@ -5,4 +5,4 @@
 [Matthew 6:14](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.14?lang=eng#p14)
 
 
-[^a]: TG [Forbear.](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng)
+[^a]: TG [[Forbear, Forbearance]].

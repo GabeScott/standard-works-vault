@@ -5,4 +5,4 @@
 [Psalms 35:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/35.16?lang=eng#p16)
 
 
-[^a]: TG [Mocking.](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng)
+[^a]: TG [[Mocking, Mock, Mocker, Mockery]].

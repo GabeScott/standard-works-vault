@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 7.19|Gen. 7:19 (11-24)]]; [[Genesis 8.3|8:3.]]
-[^b]: TG [Earth, Dividing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-dividing-of?lang=eng)
+[^b]: TG [[Earth, Dividing of]].
 [^c]: [[Ether 2.8|Ether 2:8.]]

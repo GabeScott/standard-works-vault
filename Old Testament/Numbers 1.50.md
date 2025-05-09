@@ -5,5 +5,5 @@
 [Numbers 1:50](https://www.churchofjesuschrist.org/study/scriptures/ot/num/1.50?lang=eng#p50)
 
 
-[^a]: [[Exodus 38.21|Ex. 38:21 (21-26)]]; [[Numbers 3.41|Num. 3:41 (7-41)]]. TG [Priesthood, Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng).
+[^a]: [[Exodus 38.21|Ex. 38:21 (21-26)]]; [[Numbers 3.41|Num. 3:41 (7-41)]]. TG [[Priesthood, Authority]].
 [^b]: [[Numbers 3.8|Num. 3:8 (6-8)]]; [[1 Chronicles 23.32|1 Chr. 23:32.]]

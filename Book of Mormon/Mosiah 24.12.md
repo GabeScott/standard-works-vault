@@ -5,5 +5,5 @@
 [Mosiah 24:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/24?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: TG [[Prayer, Pray]].
 [^b]: [[Psalms 139.2|Ps. 139:2]]; [[Matthew 12.25|Matt. 12:25.]]

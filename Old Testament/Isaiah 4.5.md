@@ -5,6 +5,6 @@
 [Isaiah 4:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/4.5?lang=eng#p5)
 
 
-[^a]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
-[^b]: [[Deuteronomy 1.33|Deut. 1:33]]. TG [Protection, Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng).
-[^c]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^a]: TG [[Zion, Sion]].
+[^b]: [[Deuteronomy 1.33|Deut. 1:33]]. TG [[Protection, Divine]].
+[^c]: TG [[God, Presence of]].

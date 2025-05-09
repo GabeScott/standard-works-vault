@@ -5,5 +5,5 @@
 [John 5:23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.23?lang=eng#p23)
 
 
-[^a]: TG [Honor](https://www.churchofjesuschrist.org/study/scriptures/tg/honor?lang=eng); [Respect.](https://www.churchofjesuschrist.org/study/scriptures/tg/respect?lang=eng)
+[^a]: TG [[Honorable]]; [[Respecter]].
 [^b]: [[Luke 10.16|Luke 10:16.]]

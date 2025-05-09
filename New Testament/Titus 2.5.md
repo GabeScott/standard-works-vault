@@ -5,6 +5,6 @@
 [Titus 2:5](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.5?lang=eng#p5)
 
 
-[^a]: TG [Chastity](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng); [Modesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/modesty?lang=eng)
+[^a]: TG [[Chastity, Chaste]]; [[Modesty]].
 [^b]: GR housekeepers, guards.
 [^c]: [[1 Timothy 5.14|1 Tim. 5:14.]]

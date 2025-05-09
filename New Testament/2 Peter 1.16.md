@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Timothy 1.4|1 Tim. 1:4.]]
-[^b]: [[Matthew 17.2|Matt. 17:2 (1-9)]]; [[John 1.14|John 1:14]]. TG [Witness](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng).
+[^b]: [[Matthew 17.2|Matt. 17:2 (1-9)]]; [[John 1.14|John 1:14]]. TG [[Witness, Witnesses]].

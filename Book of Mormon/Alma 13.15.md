@@ -5,4 +5,4 @@
 [Alma 13:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p15#p15)
 
 
-[^a]: [[Genesis 14.20|Gen. 14:20 (18-20)]]; Mal. 3:10 (8-10). TG [Tithing](https://www.churchofjesuschrist.org/study/scriptures/tg/tithing?lang=eng).
+[^a]: [[Genesis 14.20|Gen. 14:20 (18-20)]]; Mal. 3:10 (8-10). TG [[Tithing]].

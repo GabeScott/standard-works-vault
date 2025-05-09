@@ -5,4 +5,4 @@
 [Ephesians 5:28](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.28?lang=eng#p28)
 
 
-[^a]: TG [Marriage, Wives.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-wives?lang=eng)
+[^a]: TG [[Marriage, Wives]].

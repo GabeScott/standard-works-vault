@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 3.17|Mosiah 3:17.]]
-[^b]: [[1 Nephi 8.20|1 Ne. 8:20 (19-24)]]; [[2 Nephi 33.9|2 Ne. 33:9]]. TG [Baptism, Essential](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-essential?lang=eng).
+[^b]: [[1 Nephi 8.20|1 Ne. 8:20 (19-24)]]; [[2 Nephi 33.9|2 Ne. 33:9]]. TG [[Baptism, Essential]].
 [^c]: [[Jeremiah 21.8|Jer. 21:8.]]

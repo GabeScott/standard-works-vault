@@ -7,6 +7,6 @@
 
 [^a]: HEB From these.
 [^b]: OR coasts, continents.
-[^c]: TG [Gentiles.](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng)
-[^d]: TG [Nations.](https://www.churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng)
-[^e]: TG [Family.](https://www.churchofjesuschrist.org/study/scriptures/tg/family?lang=eng)
+[^c]: TG [[Gentiles]].
+[^d]: TG [[Nations]].
+[^e]: TG [[Family]].

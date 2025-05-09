@@ -6,4 +6,4 @@
 
 
 [^a]: [[Romans 16.24|Rom. 16:24 (20-24).]]
-[^b]: TG [Jesus Christ, Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lord?lang=eng)
+[^b]: TG [[Jesus Christ, Lord]].

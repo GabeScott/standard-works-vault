@@ -5,4 +5,4 @@
 [2 Samuel 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/7.5?lang=eng#p5)
 
 
-[^a]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^a]: TG [[Genealogy and Temple Work]].

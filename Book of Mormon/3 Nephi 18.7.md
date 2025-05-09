@@ -5,5 +5,5 @@
 [3 Nephi 18:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p7#p7)
 
 
-[^a]: [[3 Nephi 20.8|3 Ne. 20:8]]; [[Moroni 4.3|Moro. 4:3]]. TG [Sacrament](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrament?lang=eng).
-[^b]: TG [Bread of Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-of-life?lang=eng)
+[^a]: [[3 Nephi 20.8|3 Ne. 20:8]]; [[Moroni 4.3|Moro. 4:3]]. TG [[Sacrament]].
+[^b]: TG [[Bread of Life]].

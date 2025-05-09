@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 10.16|John 10:16 (14-16).]]
-[^b]: TG [Jesus Christ, Good Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng)
+[^b]: TG [[Jesus Christ, Good Shepherd]].

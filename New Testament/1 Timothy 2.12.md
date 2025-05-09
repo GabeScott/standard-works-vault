@@ -5,6 +5,6 @@
 [1 Timothy 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/2.12?lang=eng#p12)
 
 
-[^a]: TG [Teaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng)
+[^a]: TG [[Teaching with the Spirit]].
 [^b]: GR exercise dominion, be autocratic, domineer.
 [^c]: GR quietness, tranquillity.

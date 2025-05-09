@@ -5,5 +5,5 @@
 [Romans 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.13?lang=eng#p13)
 
 
-[^a]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
+[^a]: TG [[Good Works]].
 [^b]: [[Acts 13.39|Acts 13:39 (26-41).]]

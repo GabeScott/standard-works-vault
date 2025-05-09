@@ -7,4 +7,4 @@
 
 [^a]: GR compete in a contest.
 [^b]: [[1 Corinthians 9.25|1 Cor. 9:25.]]
-[^c]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^c]: TG [[Reward]].

@@ -8,4 +8,4 @@
 [^a]: [[2 Kings 21.3|2 Kgs. 21:3.]]
 [^b]: [[Isaiah 26.13|Isa. 26:13.]]
 [^c]: [[Judges 6.25|Judg. 6:25]]; [[2 Kings 23.14|2 Kgs. 23:14.]]
-[^d]: [[2 Nephi 25.20|2 Ne. 25:20]]. TG [Symbolism](https://www.churchofjesuschrist.org/study/scriptures/tg/symbolism?lang=eng).
+[^d]: [[2 Nephi 25.20|2 Ne. 25:20]]. TG [[Blood, Symbolism of]].

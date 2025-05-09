@@ -5,5 +5,5 @@
 [Alma 5:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p29#p29)
 
 
-[^a]: TG [Envy.](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
-[^b]: TG [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
+[^a]: TG [[Envy, Envious]].
+[^b]: TG [[Procrastination, Procrastinate]].

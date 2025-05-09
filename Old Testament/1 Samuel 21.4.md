@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moroni 4.3|Moro. 4:3.]]
-[^b]: TG [Bread, Shewbread.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-shewbread?lang=eng)
+[^b]: TG [[Bread, Shewbread]].

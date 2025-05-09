@@ -5,4 +5,4 @@
 [Proverbs 15:8](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/15.8?lang=eng#p8)
 
 
-[^a]: [[Genesis 4.5|Gen. 4:5]]; [[Moroni 7.8|Moro. 7:8 (5-11)]]. TG [Sacrifice](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng).
+[^a]: [[Genesis 4.5|Gen. 4:5]]; [[Moroni 7.8|Moro. 7:8 (5-11)]]. TG [[Self-Sacrifice]].

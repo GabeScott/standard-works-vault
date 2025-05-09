@@ -5,6 +5,6 @@
 [John 10:25](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.25?lang=eng#p25)
 
 
-[^a]: TG [Faith](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng); [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
-[^b]: [[John 5.36|John 5:36]]. TG [Miracle](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng).
-[^c]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^a]: TG [[Faith]]; [[Unbelief, Unbelievers]].
+[^b]: [[John 5.36|John 5:36]]. TG [[Miracle]].
+[^c]: TG [[Name of the Lord]].

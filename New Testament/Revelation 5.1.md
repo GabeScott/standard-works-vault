@@ -7,4 +7,4 @@
 
 [^a]: [[Ezekiel 2.9|Ezek. 2:9 (9-10).]]
 [^b]: [[D&C 77.6|D&C 77:6.]]
-[^c]: TG [Seal.](https://www.churchofjesuschrist.org/study/scriptures/tg/seal?lang=eng)
+[^c]: TG [[Seal]].

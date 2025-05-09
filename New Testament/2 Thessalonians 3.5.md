@@ -5,5 +5,5 @@
 [2 Thessalonians 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.5?lang=eng#p5)
 
 
-[^a]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^a]: TG [[Guidance, Divine]].
 [^b]: [[Deuteronomy 11.13|Deut. 11:13.]]

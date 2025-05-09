@@ -5,6 +5,6 @@
 [Helaman 5:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p41#p41)
 
 
-[^a]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Repent, Repentance]].
+[^b]: TG [[Faith]].
 [^c]: [[Alma 31.6|Alma 31:6 (5-38).]]

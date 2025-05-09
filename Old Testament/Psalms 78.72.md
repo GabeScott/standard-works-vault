@@ -5,4 +5,4 @@
 [Psalms 78:72](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.72?lang=eng#p72)
 
 
-[^a]: TG [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
+[^a]: TG [[Sincere, Sincerity]].

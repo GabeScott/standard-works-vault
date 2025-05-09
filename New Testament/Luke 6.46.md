@@ -7,4 +7,4 @@
 
 [^a]: [[1 Nephi 17.41|1 Ne. 17:41 (40-41)]]; [[Alma 37.46|Alma 37:46 (44-47).]]
 [^b]: [[Ezekiel 33.31|Ezek. 33:31 (30-33)]]; [[Hosea 8.2|Hosea 8:2 (1-4)]]; [[Matthew 7.21|Matt. 7:21 (21-23)]]; [[D&C 112.26|D&C 112:26]]; JS—H 1:19.
-[^c]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^c]: TG [[Disobedience, Disobey]].

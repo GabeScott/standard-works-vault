@@ -5,4 +5,4 @@
 [3 Nephi 3:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/3?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^a]: TG [[Governments]].

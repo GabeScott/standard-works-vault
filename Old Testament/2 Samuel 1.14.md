@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Samuel 4.10|2 Sam. 4:10.]]
-[^b]: TG [Anointing.](https://www.churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng)
+[^b]: TG [[Anointing, Anoint]].

@@ -5,5 +5,5 @@
 [Leviticus 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/3.2?lang=eng#p2)
 
 
-[^a]: TG [Priesthood, Aaronic.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-aaronic?lang=eng)
+[^a]: TG [[Priesthood, Aaronic]].
 [^b]: [[Numbers 18.17|Num. 18:17.]]

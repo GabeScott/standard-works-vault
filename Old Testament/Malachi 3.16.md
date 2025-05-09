@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 7:10.
-[^b]: TG [Book of Remembrance.](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-remembrance?lang=eng)
+[^b]: TG [[Book of Remembrance]].

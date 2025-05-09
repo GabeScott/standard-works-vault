@@ -5,4 +5,4 @@
 [Psalms 116:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/116.1?lang=eng#p1)
 
 
-[^a]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^a]: TG [[Love]].

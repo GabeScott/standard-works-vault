@@ -5,4 +5,4 @@
 [John 10:5](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.5?lang=eng#p5)
 
 
-[^a]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^a]: TG [[Stranger]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Ecclesiastes 6.3|Eccl. 6:3.]]
 [^b]: [[Psalms 109.13|Ps. 109:13.]]
-[^c]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^c]: TG [[Wickedness, Wicked]].

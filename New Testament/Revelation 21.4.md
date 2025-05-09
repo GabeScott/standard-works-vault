@@ -6,5 +6,5 @@
 
 
 [^a]: [[Revelation 7.17|Rev. 7:17.]]
-[^b]: TG [Mourning](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng); [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
-[^c]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
+[^b]: TG [[Mourning, Mourn]]; [[Sorrow]].
+[^c]: TG [[Pain]].

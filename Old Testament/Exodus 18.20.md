@@ -5,8 +5,8 @@
 [Exodus 18:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.20?lang=eng#p20)
 
 
-[^a]: [[Ezra 7.25|Ezra 7:25]]; [[D&C 88.81|D&C 88:81]]. TG [Teacher](https://www.churchofjesuschrist.org/study/scriptures/tg/teacher?lang=eng).
-[^b]: OR laws and doctrine. TG [Ordinance](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng).
-[^c]: TG [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
+[^a]: [[Ezra 7.25|Ezra 7:25]]; [[D&C 88.81|D&C 88:81]]. TG [[Teacher]].
+[^b]: OR laws and doctrine. TG [[Ordinance]].
+[^c]: TG [[Law of Moses]].
 [^d]: [[John 14.6|John 14:6.]]
-[^e]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^e]: TG [[Walking with God]].

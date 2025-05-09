@@ -5,6 +5,6 @@
 [Acts 6:1](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/6.1?lang=eng#p1)
 
 
-[^a]: TG [Widows.](https://www.churchofjesuschrist.org/study/scriptures/tg/widows?lang=eng)
-[^b]: TG [Apathy](https://www.churchofjesuschrist.org/study/scriptures/tg/apathy?lang=eng); [Welfare.](https://www.churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng)
+[^a]: TG [[Widows]].
+[^b]: TG [[Apathy]]; [[Welfare]].
 [^c]: [[Acts 4.35|Acts 4:35.]]

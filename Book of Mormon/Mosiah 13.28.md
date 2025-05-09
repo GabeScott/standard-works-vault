@@ -5,6 +5,6 @@
 [Mosiah 13:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p28#p28)
 
 
-[^a]: [[Galatians 2.16|Gal. 2:16]]; [[Mosiah 12.31|Mosiah 12:31]]; [[Alma 25.16|Alma 25:16]]. TG [Redemption](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng); [Salvation, Plan of](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng).
+[^a]: [[Galatians 2.16|Gal. 2:16]]; [[Mosiah 12.31|Mosiah 12:31]]; [[Alma 25.16|Alma 25:16]]. TG [[Redemption]]; [[Salvation, Plan of]].
 [^b]: [[Romans 7.4|Rom. 7:4 (4-25)]]; [[Galatians 2.21|Gal. 2:21]]; [[Galatians 3.2|3:2]]; [[Hebrews 10.1|Heb. 10:1]]; [[2 Nephi 2.5|2 Ne. 2:5]]; [[Mosiah 3.15|Mosiah 3:15 (14-15).]]
-[^c]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^c]: TG [[Jesus Christ, Atonement through]].

@@ -5,4 +5,4 @@
 [Alma 13:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p21#p21)
 
 
-[^a]: TG [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
+[^a]: TG [[Procrastination, Procrastinate]].

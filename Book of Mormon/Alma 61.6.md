@@ -7,5 +7,5 @@
 
 [^a]: [[Alma 62.5|Alma 62:5.]]
 [^b]: [[Acts 2.47|Acts 2:47.]]
-[^c]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
-[^d]: TG [Injustice.](https://www.churchofjesuschrist.org/study/scriptures/tg/injustice?lang=eng)
+[^c]: TG [[Liberty]].
+[^d]: TG [[Injustice]].

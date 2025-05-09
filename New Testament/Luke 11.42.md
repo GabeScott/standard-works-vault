@@ -5,4 +5,4 @@
 [Luke 11:42](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.42?lang=eng#p42)
 
 
-[^a]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^a]: TG [[Love]].

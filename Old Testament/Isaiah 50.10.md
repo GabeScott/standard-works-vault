@@ -6,8 +6,8 @@
 
 
 [^a]: [[D&C 1.38|D&C 1:38.]]
-[^b]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
-[^c]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
-[^d]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^b]: TG [[Servant]].
+[^c]: TG [[Darkness, Spiritual]].
+[^d]: TG [[Light]].
 [^e]: [[D&C 84.116|D&C 84:116.]]
 [^f]: HEB be supported by.

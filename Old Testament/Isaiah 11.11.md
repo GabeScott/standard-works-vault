@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 137.6|D&C 137:6.]]
-[^b]: TG [Israel, Gathering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng); [Israel, Restoration of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng); [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
-[^c]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^b]: TG [[Israel, Gathering of]]; [[Israel, Restoration of]]; [[Restoration of the Gospel]].
+[^c]: TG [[Israel, Ten Lost Tribes of]].
 [^d]: [[2 Nephi 10.20|2 Ne. 10:20 (19-22)]]; [[D&C 133.8|D&C 133:8.]]

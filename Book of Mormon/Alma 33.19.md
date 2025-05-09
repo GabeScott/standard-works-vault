@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 18.15|Deut. 18:15 (15, 18)]]; [[Alma 34.7|Alma 34:7.]]
-[^b]: [[Numbers 21.9|Num. 21:9]]; [[1 Nephi 17.41|1 Ne. 17:41]]; [[2 Nephi 25.20|2 Ne. 25:20]]. TG [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng); [Symbolism](https://www.churchofjesuschrist.org/study/scriptures/tg/symbolism?lang=eng).
+[^b]: [[Numbers 21.9|Num. 21:9]]; [[1 Nephi 17.41|1 Ne. 17:41]]; [[2 Nephi 25.20|2 Ne. 25:20]]. TG [[Jesus Christ, Types of, in Anticipation]]; [[Blood, Symbolism of]].
 [^c]: [[John 3.14|John 3:14]]; [[Helaman 8.14|Hel. 8:14.]]

@@ -6,6 +6,6 @@
 
 
 [^a]: JST Matt. 26:22, 24-25 (Appendix).
-[^b]: TG [Bread](https://www.churchofjesuschrist.org/study/scriptures/tg/bread?lang=eng); [Bread](https://www.churchofjesuschrist.org/study/scriptures/tg/bread?lang=eng) of Life; [Jesus Christ, Types of, in Memory.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-memory?lang=eng)
+[^b]: TG [[Bread]]; [[Bread]] of Life; [[Jesus Christ, Types of, in Memory]].
 [^c]: JST Matt. 26:22 … and brake it, and blessed it, and gave to his disciples, and said, Take, eat; this is in remembrance of my body which I give a ransom for you.
-[^d]: TG [Sacrament.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrament?lang=eng)
+[^d]: TG [[Sacrament]].

@@ -5,4 +5,4 @@
 [Genesis 27:46](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.46?lang=eng#p46)
 
 
-[^a]: TG [Marriage, Interfaith.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng)
+[^a]: TG [[Marriage, Interfaith]].

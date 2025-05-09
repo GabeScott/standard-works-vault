@@ -5,5 +5,5 @@
 [Jeremiah 32:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/32.19?lang=eng#p19)
 
 
-[^a]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
-[^b]: TG [Good Works](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng); [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^a]: TG [[Reward]].
+[^b]: TG [[Good Works]]; [[God, Justice of]].

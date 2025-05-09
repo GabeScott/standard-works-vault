@@ -5,4 +5,4 @@
 [Matthew 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.20?lang=eng#p20)
 
 
-[^a]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^a]: TG [[Israel, Land of]].

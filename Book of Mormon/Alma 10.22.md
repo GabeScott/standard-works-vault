@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Samuel 7.9|1 Sam. 7:9 (7-10)]]; [[Mosiah 27.14|Mosiah 27:14 (14-16).]]
-[^b]: [[Genesis 8.21|Gen. 8:21]]; [[3 Nephi 22.9|3 Ne. 22:9 (8-10)]]. TG [Flood](https://www.churchofjesuschrist.org/study/scriptures/tg/flood?lang=eng).
-[^c]: TG [Earth, Cleansing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng)
+[^b]: [[Genesis 8.21|Gen. 8:21]]; [[3 Nephi 22.9|3 Ne. 22:9 (8-10)]]. TG [[Flood, Noah’s]].
+[^c]: TG [[Earth, Cleansing of]].
 [^d]: [[Deuteronomy 32.25|Deut. 32:25]]; JS—H 1:45.

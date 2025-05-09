@@ -7,5 +7,5 @@
 
 [^a]: [[1 Nephi 19.23|1 Ne. 19:23.]]
 [^b]: [[Isaiah 40.9|Isa. 40:9.]]
-[^c]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
+[^c]: TG [[Israel, Restoration of]].
 [^d]: [[1 Nephi 16.5|1 Ne. 16:5 (5, 24, 39).]]

@@ -5,4 +5,4 @@
 [Revelation 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.7?lang=eng#p7)
 
 
-[^a]: TG [Priesthood, Keys of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-keys-of?lang=eng); [Sealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/sealing?lang=eng)
+[^a]: TG [[Priesthood, Keys of]]; [[Sealing, Sealed]].

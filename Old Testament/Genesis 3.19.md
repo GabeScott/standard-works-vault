@@ -5,7 +5,7 @@
 [Genesis 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.19?lang=eng#p19)
 
 
-[^a]: [[Moses 4.25|Moses 4:25 (23-25)]]. TG [Industry](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng); [Work, Value of](https://www.churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng).
-[^b]: TG [Bread.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread?lang=eng)
-[^c]: [[Genesis 18.27|Gen. 18:27]]; [[Ecclesiastes 3.20|Eccl. 3:20]]. TG [Man, Physical Creation of](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng); [Mortality](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng).
+[^a]: [[Moses 4.25|Moses 4:25 (23-25)]]. TG [[Industry, Industrious]]; [[Work, Value of]].
+[^b]: TG [[Bread]].
+[^c]: [[Genesis 18.27|Gen. 18:27]]; [[Ecclesiastes 3.20|Eccl. 3:20]]. TG [[Man, Physical Creation of]]; [[Mortality]].
 [^d]: [[Job 10.9|Job 10:9.]]

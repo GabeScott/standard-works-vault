@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 13.19|Alma 13:19]]; [[D&C 84.14|D&C 84:14 (6-16)]]; [[D&C 136.37|136:37.]]
-[^b]: TG [Priesthood.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood?lang=eng)
+[^b]: TG [[Priesthood, History of]].

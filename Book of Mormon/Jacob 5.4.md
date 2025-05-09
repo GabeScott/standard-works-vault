@@ -5,4 +5,4 @@
 [Jacob 5:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
+[^a]: TG [[Prophets, Mission of]].

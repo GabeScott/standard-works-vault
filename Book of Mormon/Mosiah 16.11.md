@@ -6,5 +6,5 @@
 
 
 [^a]: Dan. 12:2 (2-3); [[John 5.29|John 5:29 (28-29).]]
-[^b]: TG [Happiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng)
-[^c]: [[Alma 9.11|Alma 9:11]]. TG [Damnation](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng).
+[^b]: TG [[Happiness, Happy]].
+[^c]: [[Alma 9.11|Alma 9:11]]. TG [[Damnation, Damned]].

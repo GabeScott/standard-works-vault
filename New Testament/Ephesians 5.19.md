@@ -5,5 +5,5 @@
 [Ephesians 5:19](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.19?lang=eng#p19)
 
 
-[^a]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^a]: TG [[Singing, Sing, Sang, Sung]].
 [^b]: [[2 Kings 3.15|2 Kgs. 3:15.]]

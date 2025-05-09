@@ -5,5 +5,5 @@
 [1 Kings 8:43](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.43?lang=eng#p43)
 
 
-[^a]: [[Joshua 4.24|Josh. 4:24]]. TG [Israel, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng); [Name](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng).
+[^a]: [[Joshua 4.24|Josh. 4:24]]. TG [[Israel, Mission of]]; [[Name of the Lord]].
 [^b]: [[D&C 64.43|D&C 64:43.]]

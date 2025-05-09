@@ -5,4 +5,4 @@
 [Exodus 39:29](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/39.29?lang=eng#p29)
 
 
-[^a]: TG [Art.](https://www.churchofjesuschrist.org/study/scriptures/tg/art?lang=eng)
+[^a]: TG [[Art]].

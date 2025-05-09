@@ -9,4 +9,4 @@
 [^b]: IE in extreme remorse.
 [^c]: [[Jonah 2.2|Jonah 2:2]]; [[Acts 8.23|Acts 8:23.]]
 [^d]: [[Proverbs 5.22|Prov. 5:22]]; [[2 Nephi 9.45|2 Ne. 9:45]]; [[2 Nephi 28.22|28:22]]; [[Alma 12.11|Alma 12:11 (10-11)]]; [[Moses 7.26|Moses 7:26.]]
-[^e]: TG [Death, Spiritual, First.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-first?lang=eng)
+[^e]: TG [[Death, Spiritual, First]].

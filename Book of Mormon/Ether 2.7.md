@@ -5,5 +5,5 @@
 [Ether 2:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/2?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^a]: TG [[Promised Lands]].
 [^b]: [[1 Nephi 4.14|1 Ne. 4:14.]]

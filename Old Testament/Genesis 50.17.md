@@ -5,5 +5,5 @@
 [Genesis 50:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.17?lang=eng#p17)
 
 
-[^a]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^a]: TG [[Forgive, Forgiveness]].
 [^b]: [[Mormon 2.12|Morm. 2:12]]; [[D&C 18.16|D&C 18:16 (14-16).]]

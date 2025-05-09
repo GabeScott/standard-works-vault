@@ -6,5 +6,5 @@
 
 
 [^a]: Mal. 3:3 (2-3); [[D&C 128.24|D&C 128:24.]]
-[^b]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^b]: TG [[Testament]].
 [^c]: [[Jeremiah 17.10|Jer. 17:10.]]

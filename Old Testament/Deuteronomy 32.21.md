@@ -6,6 +6,6 @@
 
 
 [^a]: [[Mosiah 11.22|Mosiah 11:22]]; [[Mosiah 13.13|13:13.]]
-[^b]: TG [Provoking.](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng)
+[^b]: TG [[Provoking, Provoke]].
 [^c]: [[2 Nephi 15.25|2 Ne. 15:25]]; [[D&C 63.32|D&C 63:32]]; [[Moses 6.27|Moses 6:27.]]
 [^d]: [[Romans 10.19|Rom. 10:19 (17-21).]]

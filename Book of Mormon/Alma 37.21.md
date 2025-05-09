@@ -6,6 +6,6 @@
 
 
 [^a]: [[Mosiah 8.9|Mosiah 8:9]]; [[Mosiah 21.27|21:27]]; [[Mosiah 28.11|28:11]]; [[Ether 1.2|Ether 1:2 (1-5)]]; [[Ether 15.33|15:33.]]
-[^b]: TG [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
+[^b]: TG [[Secret Combinations]].
 [^c]: [[Proverbs 26.26|Prov. 26:26]]; [[Alma 14.3|Alma 14:3 (2-3).]]
-[^d]: TG [Urim and Thummim.](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng)
+[^d]: TG [[Urim and Thummim]].

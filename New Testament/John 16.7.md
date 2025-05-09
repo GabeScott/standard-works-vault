@@ -6,4 +6,4 @@
 
 
 [^a]: GR beneficial, profitable, advantageous.
-[^b]: TG [Holy Ghost, Comforter.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-comforter?lang=eng)
+[^b]: TG [[Holy Ghost, Comforter]].

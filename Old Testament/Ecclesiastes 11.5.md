@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 3.8|John 3:8 (5-8).]]
-[^b]: TG [Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng)
+[^b]: TG [[Creation, Create]].

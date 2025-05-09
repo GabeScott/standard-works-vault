@@ -6,4 +6,4 @@
 
 
 [^a]: GR associate.
-[^b]: TG [Book of Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-life?lang=eng)
+[^b]: TG [[Book of Life]].

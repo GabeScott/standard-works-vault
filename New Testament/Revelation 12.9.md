@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 9.9|2 Ne. 9:9 (8-9).]]
-[^b]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^b]: TG [[Devil, Church of]].

@@ -5,6 +5,6 @@
 [Proverbs 30:8](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/30.8?lang=eng#p8)
 
 
-[^a]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
-[^b]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^a]: TG [[Vanity]].
+[^b]: TG [[Treasure]].
 [^c]: HEB bread of my portion; i.e., allotted food.

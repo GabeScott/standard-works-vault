@@ -5,5 +5,5 @@
 [1 Samuel 16:23](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/16.23?lang=eng#p23)
 
 
-[^a]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
+[^a]: TG [[Spirits, Evil or Unclean]].
 [^b]: JST 1 Sam. 16:23 … which was not of God …

@@ -6,8 +6,8 @@
 
 
 [^a]: GR Tend, Superintend. John 21:16 (15-16).
-[^b]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^b]: TG [[Apostasy of the Early Christian Church]].
 [^c]: GR overseeing, guarding, watching.
-[^d]: TG [Initiative.](https://www.churchofjesuschrist.org/study/scriptures/tg/initiative?lang=eng)
-[^e]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
-[^f]: TG [Priestcraft.](https://www.churchofjesuschrist.org/study/scriptures/tg/priestcraft?lang=eng)
+[^d]: TG [[Initiative]].
+[^e]: TG [[Filthiness, Filthy]].
+[^f]: TG [[Priestcraft]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 47.29|Gen. 47:29 (28-29)]]; [[2 Nephi 1.14|2 Ne. 1:14.]]
-[^b]: TG [Anointing.](https://www.churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng)
+[^b]: TG [[Anointing, Anoint]].
 [^c]: [[2 Nephi 6.2|2 Ne. 6:2]]; [[Jarom 1.7|Jarom 1:7 (7, 14).]]

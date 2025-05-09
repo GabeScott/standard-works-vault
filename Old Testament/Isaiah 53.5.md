@@ -5,7 +5,7 @@
 [Isaiah 53:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/53.5?lang=eng#p5)
 
 
-[^a]: TG [Jesus Christ, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng); [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng); [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
-[^b]: [[Romans 4.25|Rom. 4:25]]. TG [Redemption](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng); [Transgress](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng).
+[^a]: TG [[Jesus Christ, Mission of]]; [[Jesus Christ, Prophecies about]]; [[Salvation, Plan of]].
+[^b]: [[Romans 4.25|Rom. 4:25]]. TG [[Redemption]]; [[Transgressor]].
 [^c]: [[1 Peter 2.24|1 Pet. 2:24 (24-25).]]
-[^d]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^d]: TG [[Remission of Sins]].

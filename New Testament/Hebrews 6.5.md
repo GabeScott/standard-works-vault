@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Peter 2.3|1 Pet. 2:3 (1-3).]]
-[^b]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
+[^b]: TG [[World, End of]].

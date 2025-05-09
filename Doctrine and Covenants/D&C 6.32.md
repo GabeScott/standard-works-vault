@@ -6,6 +6,6 @@
 
 
 [^a]: [[Matthew 18.19|Matt. 18:19 (19-20)]]; [[D&C 29.6|D&C 29:6]]; [[D&C 84.1|84:1.]]
-[^b]: TG [Unity.](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng)
+[^b]: TG [[Unity]].
 [^c]: [[D&C 32.3|D&C 32:3]]; [[D&C 38.7|38:7.]]
 [^d]: [[D&C 29.5|D&C 29:5]]; [[D&C 88.63|88:63 (62-63).]]

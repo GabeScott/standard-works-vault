@@ -5,5 +5,5 @@
 [Jeremiah 2:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.22?lang=eng#p22)
 
 
-[^a]: TG [Wash.](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
+[^a]: TG [[Wash, Washing]].
 [^b]: IE alkali; carbonate of soda.

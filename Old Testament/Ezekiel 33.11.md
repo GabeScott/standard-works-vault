@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ezekiel 18.23|Ezek. 18:23]]; [[Mosiah 26.30|Mosiah 26:30]]; [[Mosiah 29.20|29:20]]; [[Moses 7.39|Moses 7:39.]]
-[^b]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^b]: TG [[God, Mercy of]].
 [^c]: [[Ezekiel 18.31|Ezek. 18:31.]]

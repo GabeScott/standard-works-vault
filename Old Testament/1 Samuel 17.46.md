@@ -5,5 +5,5 @@
 [1 Samuel 17:46](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.46?lang=eng#p46)
 
 
-[^a]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
+[^a]: TG [[God, Power of]].
 [^b]: [[D&C 20.17|D&C 20:17.]]

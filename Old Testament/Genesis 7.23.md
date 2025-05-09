@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 6.7|Gen. 6:7]]; [[Alma 10.22|Alma 10:22 (22-23)]]; [[Moses 8.30|Moses 8:30 (26-30).]]
-[^b]: TG [Earth, Cleansing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng)
+[^b]: TG [[Earth, Cleansing of]].

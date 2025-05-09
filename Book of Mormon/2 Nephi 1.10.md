@@ -5,6 +5,6 @@
 [2 Nephi 1:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
-[^b]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
-[^c]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^a]: TG [[Unbelief, Unbelievers]].
+[^b]: TG [[Jesus Christ, Messiah]].
+[^c]: TG [[God, Justice of]].

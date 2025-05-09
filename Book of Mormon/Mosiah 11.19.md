@@ -5,4 +5,4 @@
 [Mosiah 11:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p19#p19)
 
 
-[^a]: [[Amos 6.13|Amos 6:13]]; [[D&C 3.4|D&C 3:4]]. TG [Boast](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng).
+[^a]: [[Amos 6.13|Amos 6:13]]; [[D&C 3.4|D&C 3:4]]. TG [[Boast, Boasting]].

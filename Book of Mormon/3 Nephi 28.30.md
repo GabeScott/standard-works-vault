@@ -5,4 +5,4 @@
 [3 Nephi 28:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Genesis 25.23|Gen. 25:23.]]
 [^b]: [[2 Kings 8.20|2 Kgs. 8:20 (20-22).]]
-[^c]: TG [Bondage, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng)
+[^c]: TG [[Bondage, Physical]].

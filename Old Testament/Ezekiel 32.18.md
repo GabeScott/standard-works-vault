@@ -5,4 +5,4 @@
 [Ezekiel 32:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/32.18?lang=eng#p18)
 
 
-[^a]: TG [Spirits in Prison.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-in-prison?lang=eng)
+[^a]: TG [[Spirits in Prison]].

@@ -5,6 +5,6 @@
 [Romans 2:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.8?lang=eng#p8)
 
 
-[^a]: TG [Contention.](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
-[^c]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^a]: TG [[Contention]].
+[^b]: TG [[Disobedience, Disobey]].
+[^c]: TG [[God, Indignation of]].

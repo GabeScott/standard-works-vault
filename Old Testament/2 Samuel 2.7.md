@@ -5,4 +5,4 @@
 [2 Samuel 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/2.7?lang=eng#p7)
 
 
-[^a]: TG [Courage.](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng)
+[^a]: TG [[Courage, Courageous]].

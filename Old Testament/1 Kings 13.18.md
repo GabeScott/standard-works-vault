@@ -5,5 +5,5 @@
 [1 Kings 13:18](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/13.18?lang=eng#p18)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].
 [^b]: JST 1 Kgs. 13:18 … drink water, that I may prove him; and he lied not unto him.

@@ -6,6 +6,6 @@
 
 
 [^a]: GR once, formerly.
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
-[^c]: TG [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
-[^d]: TG [Malice.](https://www.churchofjesuschrist.org/study/scriptures/tg/malice?lang=eng)
+[^b]: TG [[Disobedience, Disobey]].
+[^c]: TG [[Lust]].
+[^d]: TG [[Malice]].

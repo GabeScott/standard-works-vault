@@ -5,5 +5,5 @@
 [Jeremiah 31:30](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.30?lang=eng#p30)
 
 
-[^a]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
-[^b]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
+[^a]: TG [[God, Justice of]].
+[^b]: TG [[Accountability]].

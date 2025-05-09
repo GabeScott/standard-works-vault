@@ -5,4 +5,4 @@
 [Judges 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/12.6?lang=eng#p6)
 
 
-[^a]: TG [Language.](https://www.churchofjesuschrist.org/study/scriptures/tg/language?lang=eng)
+[^a]: TG [[Language]].

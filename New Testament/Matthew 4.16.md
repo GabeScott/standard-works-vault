@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 57.10|D&C 57:10.]]
-[^b]: TG [Jesus Christ, Light of the World](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-light-of-the-world?lang=eng); [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^b]: TG [[Jesus Christ, Light of the World]]; [[Jesus Christ, Prophecies about]].

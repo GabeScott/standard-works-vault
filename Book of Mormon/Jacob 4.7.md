@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ether 12.27|Ether 12:27]]; [[D&C 66.3|D&C 66:3.]]
-[^b]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^b]: TG [[Grace]].

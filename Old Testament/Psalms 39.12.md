@@ -5,5 +5,5 @@
 [Psalms 39:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/39.12?lang=eng#p12)
 
 
-[^a]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^a]: TG [[Stranger]].
 [^b]: [[Genesis 26.3|Gen. 26:3.]]

@@ -5,5 +5,5 @@
 [2 Kings 22:13](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/22.13?lang=eng#p13)
 
 
-[^a]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
-[^b]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^a]: TG [[God, Indignation of]].
+[^b]: TG [[Obedience, Obedient, Obey]].

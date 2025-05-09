@@ -6,7 +6,7 @@
 
 
 [^a]: [[Moses 5.9|Moses 5:9 (4-9).]]
-[^b]: TG [Death, Spiritual, Second.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng)
-[^c]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^b]: TG [[Death, Spiritual, Second]].
+[^c]: TG [[Damnation, Damned]].
 [^d]: [[Mosiah 15.27|Mosiah 15:27]]; [[Alma 34.16|Alma 34:16 (15-16)]]; [[Alma 42.15|42:15.]]
-[^e]: TG [Goodness.](https://www.churchofjesuschrist.org/study/scriptures/tg/goodness?lang=eng)
+[^e]: TG [[Goodness]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Romans 1.8|Rom. 1:8.]]
-[^b]: TG [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
+[^b]: TG [[Wisdom]].
 [^c]: GR blameless, innocent.

@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 97.15|D&C 97:15 (13-15).]]
-[^b]: TG [Bread, Shewbread.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-shewbread?lang=eng)
+[^b]: TG [[Bread, Shewbread]].

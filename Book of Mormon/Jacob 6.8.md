@@ -6,6 +6,6 @@
 
 
 [^a]: [[Jeremiah 26.5|Jer. 26:5.]]
-[^b]: TG [Holy Ghost, Loss of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-loss-of?lang=eng)
-[^c]: TG [Holy Ghost, Gift of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gift-of?lang=eng)
-[^d]: TG [Sacrilege.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng)
+[^b]: TG [[Holy Ghost, Loss of]].
+[^c]: TG [[Holy Ghost, Gift of]].
+[^d]: TG [[Sacrilege]].

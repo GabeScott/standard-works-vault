@@ -6,5 +6,5 @@
 
 
 [^a]: [[Romans 4.24|Rom. 4:24 (23-24).]]
-[^b]: TG [Abrahamic Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng)
-[^c]: [[Genesis 12.3|Gen. 12:3 (1-3)]]; [[Genesis 22.18|22:18 (9, 18)]]. TG [Seed of Abraham](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng).
+[^b]: TG [[Abrahamic Covenant]].
+[^c]: [[Genesis 12.3|Gen. 12:3 (1-3)]]; [[Genesis 22.18|22:18 (9, 18)]]. TG [[Seed of Abraham]].

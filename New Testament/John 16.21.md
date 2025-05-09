@@ -5,4 +5,4 @@
 [John 16:21](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.21?lang=eng#p21)
 
 
-[^a]: TG [Marriage, Motherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-motherhood?lang=eng)
+[^a]: TG [[Marriage, Motherhood]].

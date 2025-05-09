@@ -6,6 +6,6 @@
 
 
 [^a]: [[Exodus 3.16|Ex. 3:16]]; [[Alma 9.21|Alma 9:21]]; [[Words of Mormon 1.15|Morm. 1:15.]]
-[^b]: TG [Compassion](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng); [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^b]: TG [[Compassion]]; [[God, Mercy of]].
 [^c]: [[Psalms 43.5|Ps. 43:5.]]
-[^d]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^d]: TG [[Heart]].

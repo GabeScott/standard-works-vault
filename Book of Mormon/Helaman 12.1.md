@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Chronicles 26.5|2 Chr. 26:5]]; [[Psalms 1.3|Ps. 1:3 (2-3).]]
-[^b]: [[Psalms 36.7|Ps. 36:7 (7-8)]]; [[2 Nephi 22.2|2 Ne. 22:2]]; [[Mosiah 4.6|Mosiah 4:6]]. TG [Trust in God](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng).
+[^b]: [[Psalms 36.7|Ps. 36:7 (7-8)]]; [[2 Nephi 22.2|2 Ne. 22:2]]; [[Mosiah 4.6|Mosiah 4:6]]. TG [[Trust in God]].

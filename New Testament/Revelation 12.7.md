@@ -5,7 +5,7 @@
 [Revelation 12:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/12.7?lang=eng#p7)
 
 
-[^a]: TG [Council in Heaven](https://www.churchofjesuschrist.org/study/scriptures/tg/council-in-heaven?lang=eng); [Rebellion](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng); [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
-[^b]: TG [Adam](https://www.churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng); [Man, Antemortal Existence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-antemortal-existence-of?lang=eng)
-[^c]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
-[^d]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^a]: TG [[Council in Heaven]]; [[Rebellion, Rebel]]; [[War]].
+[^b]: TG [[Adam]]; [[Man, Antemortal Existence of]].
+[^c]: TG [[Angels]].
+[^d]: TG [[Devil, Church of]].

@@ -5,4 +5,4 @@
 [Proverbs 1:5](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.5?lang=eng#p5)
 
 
-[^a]: TG [Education](https://www.churchofjesuschrist.org/study/scriptures/tg/education?lang=eng); [Learn.](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng)
+[^a]: TG [[Education]]; [[Learn, Learning]].

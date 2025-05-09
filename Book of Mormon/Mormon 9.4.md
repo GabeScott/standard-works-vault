@@ -5,6 +5,6 @@
 [Mormon 9:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
-[^b]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
-[^c]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^a]: TG [[Filthiness, Filthy]].
+[^b]: TG [[Damnation, Damned]].
+[^c]: TG [[Hell]].

@@ -5,6 +5,6 @@
 [D&C 8:2](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/8.2?lang=eng#p2)
 
 
-[^a]: [[D&C 9.8|D&C 9:8 (7-9)]]. TG [Guidance, Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng).
-[^b]: [[Ezekiel 40.4|Ezek. 40:4]]. TG [Heart](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng); [Inspiration](https://www.churchofjesuschrist.org/study/scriptures/tg/inspiration?lang=eng).
-[^c]: [[Romans 8.9|Rom. 8:9]]. TG [Holy Ghost, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng).
+[^a]: [[D&C 9.8|D&C 9:8 (7-9)]]. TG [[Guidance, Divine]].
+[^b]: [[Ezekiel 40.4|Ezek. 40:4]]. TG [[Heart]]; [[Inspiration, Inspire]].
+[^c]: [[Romans 8.9|Rom. 8:9]]. TG [[Holy Ghost, Mission of]].

@@ -8,4 +8,4 @@
 [^a]: IE Other nations shall help Israel.
 [^b]: [[Isaiah 60.9|Isa. 60:9.]]
 [^c]: [[Ezekiel 39.10|Ezek. 39:10.]]
-[^d]: TG [Kingdom of God, on Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-on-earth?lang=eng)
+[^d]: TG [[Kingdom of God, on Earth]].

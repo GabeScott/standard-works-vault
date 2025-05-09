@@ -6,5 +6,5 @@
 
 
 [^a]: Col. 2:14.
-[^b]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
-[^c]: TG [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
+[^b]: TG [[Ordinance]].
+[^c]: TG [[Man, New, Spiritually Reborn]].

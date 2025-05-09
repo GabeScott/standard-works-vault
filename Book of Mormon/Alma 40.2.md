@@ -5,6 +5,6 @@
 [Alma 40:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p2#p2)
 
 
-[^a]: [[Mosiah 16.10|Mosiah 16:10 (10-13)]]. TG [Immortality](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng).
+[^a]: [[Mosiah 16.10|Mosiah 16:10 (10-13)]]. TG [[Immortality, Immortal]].
 [^b]: [[1 Corinthians 15.53|1 Cor. 15:53 (42-54).]]
 [^c]: [[1 Corinthians 15.20|1 Cor. 15:20 (20-23).]]

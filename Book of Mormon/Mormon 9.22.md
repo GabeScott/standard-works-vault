@@ -5,4 +5,4 @@
 [Mormon 9:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p22#p22)
 
 
-[^a]: [[Mark 16.15|Mark 16:15]]. TG [Missionary Work](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng); [World](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng).
+[^a]: [[Mark 16.15|Mark 16:15]]. TG [[Missionary Work]]; [[World, End of]].

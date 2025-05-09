@@ -5,4 +5,4 @@
 [3 Nephi 18:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p23#p23)
 
 
-[^a]: [[3 Nephi 18.30|3 Ne. 18:30]]. TG [Missionary Work](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng).
+[^a]: [[3 Nephi 18.30|3 Ne. 18:30]]. TG [[Missionary Work]].

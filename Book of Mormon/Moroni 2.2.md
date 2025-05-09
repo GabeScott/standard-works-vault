@@ -6,6 +6,6 @@
 
 
 [^a]: [[Genesis 4.26|Gen. 4:26]]; [[Ether 4.15|Ether 4:15.]]
-[^b]: [[Matthew 10.1|Matt. 10:1]]. TG [Priesthood, Melchizedek](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-melchizedek?lang=eng).
-[^c]: TG [Hands, Laying on of.](https://www.churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng)
+[^b]: [[Matthew 10.1|Matt. 10:1]]. TG [[Priesthood, Melchizedek]].
+[^c]: TG [[Hands, Laying on of]].
 [^d]: [[3 Nephi 18.37|3 Ne. 18:37.]]

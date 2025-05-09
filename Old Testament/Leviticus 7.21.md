@@ -5,4 +5,4 @@
 [Leviticus 7:21](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.21?lang=eng#p21)
 
 
-[^a]: TG [Excommunication.](https://www.churchofjesuschrist.org/study/scriptures/tg/excommunication?lang=eng)
+[^a]: TG [[Excommunication]].

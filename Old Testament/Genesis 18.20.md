@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 19.13|Gen. 19:13]]; [[Mosiah 19.7|Mosiah 19:7 (1-9)]]; [[Mormon 2.13|Morm. 2:13 (10-15).]]
-[^b]: TG [Homosexual Behavior.](https://www.churchofjesuschrist.org/study/scriptures/tg/homosexual-behavior?lang=eng)
+[^b]: TG [[Homosexual Behavior]].

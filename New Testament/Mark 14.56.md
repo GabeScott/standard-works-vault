@@ -5,4 +5,4 @@
 [Mark 14:56](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.56?lang=eng#p56)
 
 
-[^a]: TG [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^a]: TG [[Lying, Liar, Lie]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Mosiah 29.46|Mosiah 29:46.]]
 [^b]: [[Jarom 1.5|Jarom 1:5]]; [[Alma 4.16|Alma 4:16]]; [[Alma 8.17|8:17]]; [[Helaman 4.22|Hel. 4:22.]]
-[^c]: TG [Citizenship.](https://www.churchofjesuschrist.org/study/scriptures/tg/citizenship?lang=eng)
+[^c]: TG [[Citizenship]].

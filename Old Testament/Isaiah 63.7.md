@@ -5,5 +5,5 @@
 [Isaiah 63:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.7?lang=eng#p7)
 
 
-[^a]: TG [Kindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
+[^a]: TG [[Kindness]].
 [^b]: [[D&C 133.52|D&C 133:52.]]

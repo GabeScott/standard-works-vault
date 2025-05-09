@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Corinthians 13.12|1 Cor. 13:12.]]
-[^b]: TG [Celestial Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/celestial-glory?lang=eng)
+[^b]: TG [[Celestial Glory]].
 [^c]: [[Romans 8.29|Rom. 8:29.]]
-[^d]: TG [Man, Potential to Become like Heavenly Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-potential-to-become-like-heavenly-father?lang=eng)
+[^d]: TG [[Man, Potential to Become like Heavenly Father]].

@@ -5,6 +5,6 @@
 [Alma 13:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
-[^b]: TG [Damnation](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng); [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
-[^c]: TG [Death, Spiritual, Second.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng)
+[^a]: TG [[Bondage, Spiritual]].
+[^b]: TG [[Damnation, Damned]]; [[Hell]].
+[^c]: TG [[Death, Spiritual, Second]].

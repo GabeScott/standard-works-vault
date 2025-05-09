@@ -5,5 +5,5 @@
 [Luke 23:36](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.36?lang=eng#p36)
 
 
-[^a]: TG [Mocking.](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng)
+[^a]: TG [[Mocking, Mock, Mocker, Mockery]].
 [^b]: GR sour wine. Ps. 69:21.

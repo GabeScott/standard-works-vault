@@ -5,6 +5,6 @@
 [Moses 6:46](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.46?lang=eng#p46)
 
 
-[^a]: TG [Book of Remembrance](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-remembrance?lang=eng); [Genealogy and Temple Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/genealogy-and-temple-work?lang=eng)
-[^b]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^a]: TG [[Book of Remembrance]]; [[Genealogy and Temple Work]].
+[^b]: TG [[Scriptures, Writing of]].
 [^c]: [[Moses 6.5|Moses 6:5.]]

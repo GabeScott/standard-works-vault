@@ -5,6 +5,6 @@
 [Alma 43:46](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p46#p46)
 
 
-[^a]: TG [Duty.](https://www.churchofjesuschrist.org/study/scriptures/tg/duty?lang=eng)
+[^a]: TG [[Duty]].
 [^b]: [[Alma 48.14|Alma 48:14 (14-16)]]; [[D&C 98.33|D&C 98:33 (23-36).]]
 [^c]: [[Luke 6.29|Luke 6:29]]; [[3 Nephi 3.21|3 Ne. 3:21 (20-21)]]; [[Mormon 3.10|Morm. 3:10 (10-11)]]; [[D&C 98.23|D&C 98:23 (22-48).]]

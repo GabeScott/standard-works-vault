@@ -5,4 +5,4 @@
 [2 Corinthians 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.7?lang=eng#p7)
 
 
-[^a]: TG [Persecution](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng); [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
+[^a]: TG [[Persecution, Persecute]]; [[Suffering]].

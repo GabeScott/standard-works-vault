@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 27.16|D&C 27:16 (15-18)]]; JS—H 1:35.
-[^b]: TG [Urim and Thummim.](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng)
+[^b]: TG [[Urim and Thummim]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ephesians 3.4|Eph. 3:4]]; [[D&C 107.19|D&C 107:19.]]
-[^b]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
+[^b]: TG [[God, Will of]].

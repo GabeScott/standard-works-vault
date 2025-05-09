@@ -6,5 +6,5 @@
 
 
 [^a]: OR wanton.
-[^b]: TG [Sacrilege.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng)
+[^b]: TG [[Sacrilege]].
 [^c]: HEB torah.

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 22.3|Jer. 22:3.]]
-[^b]: TG [Charity.](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng)
+[^b]: TG [[Charity]].

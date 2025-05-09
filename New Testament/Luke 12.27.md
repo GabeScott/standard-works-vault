@@ -5,4 +5,4 @@
 [Luke 12:27](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.27?lang=eng#p27)
 
 
-[^a]: TG [Nature, Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/nature-earth?lang=eng)
+[^a]: TG [[Nature, Earth]].

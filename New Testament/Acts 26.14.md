@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 9.4|Acts 9:4 (1-9)]]; [[Acts 22.7|22:7 (6-16).]]
-[^b]: TG [Opposition.](https://www.churchofjesuschrist.org/study/scriptures/tg/opposition?lang=eng)
+[^b]: TG [[Opposition]].

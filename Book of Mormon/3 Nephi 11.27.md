@@ -5,5 +5,5 @@
 [3 Nephi 11:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p27#p27)
 
 
-[^a]: TG [Baptism.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng)
+[^a]: TG [[Holy Ghost, Baptism of]].
 [^b]: [[Alma 11.44|Alma 11:44]]; [[3 Nephi 28.10|3 Ne. 28:10]]; [[Mormon 7.7|Morm. 7:7]]; [[D&C 20.28|D&C 20:28.]]

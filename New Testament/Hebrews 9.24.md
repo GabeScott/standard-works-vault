@@ -7,4 +7,4 @@
 
 [^a]: [[Hebrews 8.2|Heb. 8:2.]]
 [^b]: [[Hebrews 4.14|Heb. 4:14.]]
-[^c]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^c]: TG [[Jesus Christ, Atonement through]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 9.4|Isa. 9:4.]]
-[^b]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^b]: TG [[Wickedness, Wicked]].

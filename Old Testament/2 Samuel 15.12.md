@@ -6,6 +6,6 @@
 
 
 [^a]: [[2 Samuel 16.23|2 Sam. 16:23]]; [[1 Chronicles 27.33|1 Chr. 27:33.]]
-[^b]: TG [Counselor.](https://www.churchofjesuschrist.org/study/scriptures/tg/counselor?lang=eng)
+[^b]: TG [[Counselor]].
 [^c]: [[2 Samuel 17.23|2 Sam. 17:23.]]
-[^d]: TG [Conspiracy.](https://www.churchofjesuschrist.org/study/scriptures/tg/conspiracy?lang=eng)
+[^d]: TG [[Conspiracy]].

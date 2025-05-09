@@ -7,4 +7,4 @@
 
 [^a]: [[Matthew 11.28|Matt. 11:28 (28-30).]]
 [^b]: [[Alma 31.38|Alma 31:38]]; [[Alma 33.23|33:23.]]
-[^c]: [[2 Corinthians 4.16|2 Cor. 4:16]]; [[D&C 54.10|D&C 54:10]]. TG [Patience](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng).
+[^c]: [[2 Corinthians 4.16|2 Cor. 4:16]]; [[D&C 54.10|D&C 54:10]]. TG [[Patience, Patient, Patiently]].

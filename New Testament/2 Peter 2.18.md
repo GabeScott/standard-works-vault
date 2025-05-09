@@ -6,7 +6,7 @@
 
 
 [^a]: [[Psalms 73.8|Ps. 73:8]]; [[Jude 1.16|Jude 1:16.]]
-[^b]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
+[^b]: TG [[Vanity]].
 [^c]: GR entice, entrap.
 [^d]: [[Jude 1.11|Jude 1:11 (7-21).]]
 [^e]: 2 Pet. 1:4.

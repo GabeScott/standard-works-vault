@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 10.1|Ezek. 10:1.]]
-[^b]: TG [Jesus Christ, Appearances, Antemortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-antemortal?lang=eng)
+[^b]: TG [[Jesus Christ, Appearances, Antemortal]].

@@ -5,4 +5,4 @@
 [Matthew 20:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/20.1?lang=eng#p1)
 
 
-[^a]: TG [Labor.](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
+[^a]: TG [[Labor]].

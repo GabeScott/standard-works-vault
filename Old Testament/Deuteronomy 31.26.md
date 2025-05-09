@@ -5,7 +5,7 @@
 [Deuteronomy 31:26](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.26?lang=eng#p26)
 
 
-[^a]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^a]: TG [[Scriptures, Preservation of]].
 [^b]: [[1 Kings 8.21|1 Kgs. 8:21.]]
-[^c]: TG [Ark of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/ark-of-the-covenant?lang=eng)
+[^c]: TG [[Ark of the Covenant]].
 [^d]: [[Exodus 25.21|Ex. 25:21.]]

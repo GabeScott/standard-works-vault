@@ -5,4 +5,4 @@
 [D&C 4:3](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/4.3?lang=eng#p3)
 
 
-[^a]: [[Matthew 8.19|Matt. 8:19 (19-22)]]; D&C 11:4, 15; [[D&C 36.5|36:5]]; [[D&C 63.57|63:57]]. TG [Called of God](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng); [Service](https://www.churchofjesuschrist.org/study/scriptures/tg/service?lang=eng).
+[^a]: [[Matthew 8.19|Matt. 8:19 (19-22)]]; D&C 11:4, 15; [[D&C 36.5|36:5]]; [[D&C 63.57|63:57]]. TG [[Called of God]]; [[Service]].

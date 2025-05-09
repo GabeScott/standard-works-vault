@@ -6,4 +6,4 @@
 
 
 [^a]: GR fit, qualified.
-[^b]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^b]: TG [[Health]].

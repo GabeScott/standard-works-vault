@@ -5,5 +5,5 @@
 [Mark 9:25](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.25?lang=eng#p25)
 
 
-[^a]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
-[^b]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
+[^a]: TG [[Health]].
+[^b]: TG [[Spirits, Evil or Unclean]].

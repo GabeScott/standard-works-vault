@@ -6,6 +6,6 @@
 
 
 [^a]: [[Ephesians 3.16|Eph. 3:16.]]
-[^b]: TG [Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng)
-[^c]: TG [Jesus Christ, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng)
-[^d]: [[Acts 5.41|Acts 5:41 (40-41)]]. TG [Joy](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng).
+[^b]: TG [[Telestial Glory]].
+[^c]: TG [[Jesus Christ, Power of]].
+[^d]: [[Acts 5.41|Acts 5:41 (40-41)]]. TG [[Joy]].

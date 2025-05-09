@@ -9,4 +9,4 @@
 [^b]: [[Psalms 96.12|Ps. 96:12.]]
 [^c]: IE the righteous who return.
 [^d]: [[Ezekiel 36.34|Ezek. 36:34.]]
-[^e]: TG [Earth, Renewal of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng); [Israel, Blessings of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng)
+[^e]: TG [[Earth, Renewal of]]; [[Israel, Blessings of]].

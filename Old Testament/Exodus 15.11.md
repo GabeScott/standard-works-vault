@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Samuel 7.22|2 Sam. 7:22]]; [[D&C 76.2|D&C 76:2 (1-4).]]
-[^c]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
+[^c]: TG [[Holiness]].
 [^d]: OR to be praised with awe.

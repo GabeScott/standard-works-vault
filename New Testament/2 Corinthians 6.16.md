@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Corinthians 10.21|1 Cor. 10:21 (19-22).]]
-[^b]: TG [Body, Sanctity of](https://www.churchofjesuschrist.org/study/scriptures/tg/body-sanctity-of?lang=eng); [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
-[^c]: [[Leviticus 26.12|Lev. 26:12]]. TG [God, Presence of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng).
+[^b]: TG [[Body, Sanctity of]]; [[Genealogy and Temple Work]].
+[^c]: [[Leviticus 26.12|Lev. 26:12]]. TG [[God, Presence of]].

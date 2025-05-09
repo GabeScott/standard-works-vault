@@ -5,6 +5,6 @@
 [Numbers 30:2](https://www.churchofjesuschrist.org/study/scriptures/ot/num/30.2?lang=eng#p2)
 
 
-[^a]: TG [Vow.](https://www.churchofjesuschrist.org/study/scriptures/tg/vow?lang=eng)
-[^b]: TG [Oath.](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng)
-[^c]: TG [Integrity.](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng)
+[^a]: TG [[Vow]].
+[^b]: TG [[Oath]].
+[^c]: TG [[Integrity]].

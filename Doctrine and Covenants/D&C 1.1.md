@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 32.1|Deut. 32:1]]; [[Isaiah 1.2|Isa. 1:2]]; [[Isaiah 49.1|49:1.]]
-[^b]: [[3 Nephi 27.3|3 Ne. 27:3 (1-8)]]; [[D&C 20.1|D&C 20:1]]; [[D&C 21.3|21:3]]. TG [Jesus Christ, Head of the Church](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-head-of-the-church?lang=eng).
-[^c]: [[Psalms 33.18|Ps. 33:18]]; [[Amos 9.8|Amos 9:8]]; [[D&C 38.7|D&C 38:7 (7-8)]]. TG [God, Omniscience of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng).
+[^b]: [[3 Nephi 27.3|3 Ne. 27:3 (1-8)]]; [[D&C 20.1|D&C 20:1]]; [[D&C 21.3|21:3]]. TG [[Jesus Christ, Head of the Church]].
+[^c]: [[Psalms 33.18|Ps. 33:18]]; [[Amos 9.8|Amos 9:8]]; [[D&C 38.7|D&C 38:7 (7-8)]]. TG [[God, Omniscience of]].

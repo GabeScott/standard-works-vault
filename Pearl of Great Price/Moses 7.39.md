@@ -8,4 +8,4 @@
 [^a]: IE the Savior.
 [^b]: [[Ezekiel 33.11|Ezek. 33:11.]]
 [^c]: [[Moses 4.2|Moses 4:2]]; [[Abraham 3.27|Abr. 3:27.]]
-[^d]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^d]: TG [[Damnation, Damned]].

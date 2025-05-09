@@ -5,4 +5,4 @@
 [Revelation 18:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.21?lang=eng#p21)
 
 
-[^a]: TG [Babylon](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng); [Devil, Church of.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil-church-of?lang=eng)
+[^a]: TG [[Babylon]]; [[Devil, Church of]].

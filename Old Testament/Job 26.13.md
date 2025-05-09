@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Nephi 19.12|1 Ne. 19:12.]]
-[^b]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
-[^c]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^b]: TG [[Jesus Christ, Creator]].
+[^c]: TG [[Man, a Spirit Child of Heavenly Father]].
 [^d]: [[Isaiah 27.1|Isa. 27:1.]]

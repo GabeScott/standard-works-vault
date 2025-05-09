@@ -6,4 +6,4 @@
 
 
 [^a]: [[Galatians 3.13|Gal. 3:13.]]
-[^b]: TG [Election.](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng)
+[^b]: TG [[Election, Elect]].

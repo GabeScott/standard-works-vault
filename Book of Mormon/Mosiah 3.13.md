@@ -5,6 +5,6 @@
 [Mosiah 3:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/3?lang=eng&id=p13#p13)
 
 
-[^a]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
-[^b]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^a]: TG [[Prophets, Mission of]].
+[^b]: TG [[Remission of Sins]].
 [^c]: [[2 Nephi 25.26|2 Ne. 25:26 (24-27)]]; [[Jarom 1.11|Jarom 1:11]]; [[Mosiah 16.6|Mosiah 16:6.]]

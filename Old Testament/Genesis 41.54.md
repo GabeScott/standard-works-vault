@@ -5,4 +5,4 @@
 [Genesis 41:54](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.54?lang=eng#p54)
 
 
-[^a]: TG [Drought](https://www.churchofjesuschrist.org/study/scriptures/tg/drought?lang=eng); [Famine.](https://www.churchofjesuschrist.org/study/scriptures/tg/famine?lang=eng)
+[^a]: TG [[Drought]]; [[Famine]].

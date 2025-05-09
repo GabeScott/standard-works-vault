@@ -6,5 +6,5 @@
 
 
 [^a]: 1 Thes. 2:19; 3:13; [[Revelation 1.7|Rev. 1:7.]]
-[^b]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^b]: TG [[Reward]].
 [^c]: [[Alma 41.13|Alma 41:13.]]

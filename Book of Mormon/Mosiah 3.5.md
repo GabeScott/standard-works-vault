@@ -5,10 +5,10 @@
 [Mosiah 3:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/3?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
-[^b]: [[Revelation 1.8|Rev. 1:8 (7-8)]]. TG [Jesus Christ, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng).
-[^c]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
+[^a]: TG [[Jesus Christ, Jehovah]].
+[^b]: [[Revelation 1.8|Rev. 1:8 (7-8)]]. TG [[Jesus Christ, Power of]].
+[^c]: TG [[Jesus Christ, Authority of]].
 [^d]: [[2 Nephi 26.12|2 Ne. 26:12]]; [[Mosiah 16.15|Mosiah 16:15.]]
 [^e]: [[Mosiah 7.27|Mosiah 7:27]]; [[Mosiah 15.2|15:2 (1-7)]]; [[Alma 7.9|Alma 7:9 (9-13).]]
-[^f]: [[Matthew 4.24|Matt. 4:24 (23-24)]]; [[Matthew 9.35|9:35]]; [[Acts 2.22|Acts 2:22]]; [[1 Nephi 11.31|1 Ne. 11:31]]. TG [Death, Power over](https://www.churchofjesuschrist.org/study/scriptures/tg/death-power-over?lang=eng); [Heal](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng); [Miracle](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng).
+[^f]: [[Matthew 4.24|Matt. 4:24 (23-24)]]; [[Matthew 9.35|9:35]]; [[Acts 2.22|Acts 2:22]]; [[1 Nephi 11.31|1 Ne. 11:31]]. TG [[Death, Power over]]; [[Health]]; [[Miracle]].
 [^g]: [[Matthew 9.28|Matt. 9:28 (28-31)]]; [[Matthew 20.30|20:30 (30-34)]]; [[John 9.1|John 9:1 (1-4)]]; [[3 Nephi 17.9|3 Ne. 17:9 (7-10)]]; [[D&C 84.69|D&C 84:69.]]

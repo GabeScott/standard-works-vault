@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 32.10|Ps. 32:10.]]
-[^b]: TG [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
+[^b]: TG [[Sorrow]].
 [^c]: GR Greek.

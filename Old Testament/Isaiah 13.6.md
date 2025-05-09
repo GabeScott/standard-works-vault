@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 14.31|Isa. 14:31.]]
-[^b]: TG [Day of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/day-of-the-lord?lang=eng)
+[^b]: TG [[Day of the Lord]].

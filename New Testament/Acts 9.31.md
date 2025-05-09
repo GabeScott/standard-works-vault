@@ -5,5 +5,5 @@
 [Acts 9:31](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.31?lang=eng#p31)
 
 
-[^a]: TG [Edification.](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng)
-[^b]: TG [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng); Holy Ghost, [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng)er; [Holy Ghost, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng)
+[^a]: TG [[Edification, Edify]].
+[^b]: TG [[Holy Ghost, Comforter]]; Holy Ghost, [[Holy Ghost, Comforter]]er; [[Holy Ghost, Gifts of]].

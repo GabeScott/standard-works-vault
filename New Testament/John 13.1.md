@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 16.1|Deut. 16:1.]]
-[^b]: TG [God, Love of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng)
+[^b]: TG [[God, Love of]].

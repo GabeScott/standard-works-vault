@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 52.11|Isa. 52:11 (11-15).]]
-[^b]: TG [Uncleanness.](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng)
-[^c]: [[D&C 133.5|D&C 133:5]]. TG [Cleanliness](https://www.churchofjesuschrist.org/study/scriptures/tg/cleanliness?lang=eng).
+[^b]: TG [[Uncleanness, Unclean]].
+[^c]: [[D&C 133.5|D&C 133:5]]. TG [[Cleanliness]].

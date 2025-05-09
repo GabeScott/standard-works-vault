@@ -5,6 +5,6 @@
 [Ezekiel 11:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.20?lang=eng#p20)
 
 
-[^a]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
-[^b]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
-[^c]: TG [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^a]: TG [[Walking with God]].
+[^b]: TG [[Ordinance]].
+[^c]: TG [[Israel, Mission of]].

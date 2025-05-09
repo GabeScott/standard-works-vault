@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Kings 8.56|1 Kgs. 8:56]]; [[D&C 1.38|D&C 1:38]]; [[D&C 101.64|101:64.]]
-[^b]: TG [Promise.](https://www.churchofjesuschrist.org/study/scriptures/tg/promise?lang=eng)
+[^b]: TG [[Promise]].

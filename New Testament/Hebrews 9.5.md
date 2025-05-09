@@ -5,5 +5,5 @@
 [Hebrews 9:5](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.5?lang=eng#p5)
 
 
-[^a]: TG [Cherubim.](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
+[^a]: TG [[Cherubim]].
 [^b]: [[Exodus 25.17|Ex. 25:17.]]

@@ -7,4 +7,4 @@
 
 [^a]: [[Micah 3.6|Micah 3:6.]]
 [^b]: [[Amos 4.13|Amos 4:13]]; [[Amos 5.8|5:8]]; [[Luke 23.44|Luke 23:44 (44-45).]]
-[^c]: TG [Earth, Destiny of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-destiny-of?lang=eng)
+[^c]: TG [[Earth, Destiny of]].

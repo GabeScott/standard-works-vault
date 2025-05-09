@@ -8,4 +8,4 @@
 [^a]: Mal. 3:1 (1-18).
 [^b]: [[D&C 45.9|D&C 45:9.]]
 [^c]: [[Isaiah 59.20|Isa. 59:20 (20-21)]]; [[3 Nephi 20.22|3 Ne. 20:22]]; [[3 Nephi 21.25|21:25.]]
-[^d]: TG [Jesus Christ, Messenger of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messenger-of-the-covenant?lang=eng)
+[^d]: TG [[Jesus Christ, Messenger of the Covenant]].

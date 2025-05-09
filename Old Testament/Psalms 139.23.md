@@ -5,4 +5,4 @@
 [Psalms 139:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/139.23?lang=eng#p23)
 
 
-[^a]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^a]: TG [[Testament]].

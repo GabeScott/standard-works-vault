@@ -5,4 +5,4 @@
 [Genesis 26:34](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.34?lang=eng#p34)
 
 
-[^a]: TG [Marriage, Interfaith.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng)
+[^a]: TG [[Marriage, Interfaith]].

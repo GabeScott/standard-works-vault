@@ -5,5 +5,5 @@
 [Jeremiah 51:37](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.37?lang=eng#p37)
 
 
-[^a]: TG [Babylon.](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng)
+[^a]: TG [[Babylon]].
 [^b]: HEB jackals.

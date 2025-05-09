@@ -5,4 +5,4 @@
 [Luke 10:17](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.17?lang=eng#p17)
 
 
-[^a]: TG [Seventy.](https://www.churchofjesuschrist.org/study/scriptures/tg/seventy?lang=eng)
+[^a]: TG [[Seventy]].

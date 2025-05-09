@@ -5,5 +5,5 @@
 [Luke 15:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.21?lang=eng#p21)
 
 
-[^a]: TG [Contrite Heart](https://www.churchofjesuschrist.org/study/scriptures/tg/contrite-heart?lang=eng); [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
-[^b]: TG [Family, Patriarchal.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-patriarchal?lang=eng)
+[^a]: TG [[Contrite Heart]]; [[Worthiness, Worthy]].
+[^b]: TG [[Family, Patriarchal]].

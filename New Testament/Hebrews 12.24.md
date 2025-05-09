@@ -6,7 +6,7 @@
 
 
 [^a]: [[1 Timothy 2.5|1 Tim. 2:5.]]
-[^b]: TG [New and Everlasting Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/new-and-everlasting-covenant?lang=eng)
-[^c]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^b]: TG [[New and Everlasting Covenant]].
+[^c]: TG [[Covenants]].
 [^d]: [[Leviticus 1.5|Lev. 1:5]]; [[1 Peter 1.2|1 Pet. 1:2.]]
 [^e]: [[Hebrews 7.19|Heb. 7:19.]]

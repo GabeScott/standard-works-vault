@@ -6,4 +6,4 @@
 
 
 [^a]: IE ashamed, overawed.
-[^b]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^b]: TG [[God, Spirit of]].

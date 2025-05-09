@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 1.9|Prov. 1:9.]]
-[^b]: TG [Chastening.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng)
+[^b]: TG [[Chastening]].

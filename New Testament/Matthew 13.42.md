@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 8.12|Matt. 8:12]]; [[Revelation 19.20|Rev. 19:20]]; [[D&C 19.5|D&C 19:5]]; [[D&C 29.15|29:15]]; [[D&C 112.24|112:24.]]
-[^b]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
+[^b]: TG [[Pain]].

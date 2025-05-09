@@ -5,4 +5,4 @@
 [John 3:32](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.32?lang=eng#p32)
 
 
-[^a]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^a]: TG [[Testimony]].

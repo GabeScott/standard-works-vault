@@ -6,6 +6,6 @@
 
 
 [^a]: [[Revelation 20.12|Rev. 20:12 (12-15).]]
-[^b]: TG [Godhead.](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng)
-[^c]: [[3 Nephi 11.27|3 Ne. 11:27 (27-28, 36)]]. TG [God, Eternal Nature of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-eternal-nature-of?lang=eng).
-[^d]: 2 Pet. 2:9. TG [Jesus Christ, Judge](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng).
+[^b]: TG [[Godhead]].
+[^c]: [[3 Nephi 11.27|3 Ne. 11:27 (27-28, 36)]]. TG [[God, Eternal Nature of]].
+[^d]: 2 Pet. 2:9. TG [[Jesus Christ, Judge]].

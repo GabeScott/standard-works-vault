@@ -5,7 +5,7 @@
 [Jeremiah 17:5](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.5?lang=eng#p5)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
-[^b]: TG [Trust Not in the Arm of Flesh.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-not-in-the-arm-of-flesh?lang=eng)
+[^a]: TG [[Curse]].
+[^b]: TG [[Trust Not in the Arm of Flesh]].
 [^c]: [[D&C 1.19|D&C 1:19.]]
-[^d]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^d]: TG [[Apostasy of Individuals]].

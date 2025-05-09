@@ -6,4 +6,4 @@
 
 
 [^a]: JST Matt. 6:1 And it came to pass that, as Jesus taught his disciples, he said unto them, Take heed … 3 Ne. 13:1 (1-34).
-[^b]: GR righteousness, acts of religious devotion. TG [Almsgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/almsgiving?lang=eng); [Generosity](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng); [Motivations](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng); [Poor](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng).
+[^b]: GR righteousness, acts of religious devotion. TG [[Almsgiving]]; [[Generosity]]; [[Motivations]]; [[Poor]].

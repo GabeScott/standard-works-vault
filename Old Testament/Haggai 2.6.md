@@ -5,4 +5,4 @@
 [Haggai 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/2.6?lang=eng#p6)
 
 
-[^a]: [[Isaiah 13.13|Isa. 13:13]]; [[Ezekiel 38.19|Ezek. 38:19 (19-20)]]. TG [Last Days](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng).
+[^a]: [[Isaiah 13.13|Isa. 13:13]]; [[Ezekiel 38.19|Ezek. 38:19 (19-20)]]. TG [[Last Days]].

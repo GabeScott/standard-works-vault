@@ -5,6 +5,6 @@
 [Mosiah 15:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p4#p4)
 
 
-[^a]: [[Deuteronomy 6.4|Deut. 6:4]]. TG [Godhead](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng).
+[^a]: [[Deuteronomy 6.4|Deut. 6:4]]. TG [[Godhead]].
 [^b]: [[Alma 11.39|Alma 11:39.]]
 [^c]: [[Mosiah 3.8|Mosiah 3:8]]; [[Helaman 14.12|Hel. 14:12]]; [[3 Nephi 9.15|3 Ne. 9:15]]; [[Ether 4.7|Ether 4:7.]]

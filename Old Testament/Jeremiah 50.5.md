@@ -6,4 +6,4 @@
 
 
 [^a]: OR everlasting.
-[^b]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^b]: TG [[Covenants]].

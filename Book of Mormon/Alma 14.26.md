@@ -7,4 +7,4 @@
 
 [^a]: [[James 5.10|James 5:10 (10-11)]]; [[Mosiah 17.13|Mosiah 17:13 (10-20)]]; JS—H 1:22.
 [^b]: [[Psalms 69.14|Ps. 69:14 (1-2, 14)]]; [[D&C 121.3|D&C 121:3.]]
-[^c]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^c]: TG [[Deliver, Deliverance]].

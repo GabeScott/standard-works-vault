@@ -5,4 +5,4 @@
 [Helaman 8:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^a]: TG [[Testimony]].

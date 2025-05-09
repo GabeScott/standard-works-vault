@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Samuel 4.10|2 Sam. 4:10.]]
-[^b]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
-[^c]: TG [Spirits, Evil or Unclean](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng); [Superstitions.](https://www.churchofjesuschrist.org/study/scriptures/tg/superstitions?lang=eng)
+[^b]: TG [[Transgressor]].
+[^c]: TG [[Spirits, Evil or Unclean]]; [[Superstitions]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Esther 8.10|Esth. 8:10 (8-10).]]
-[^b]: TG [Seal.](https://www.churchofjesuschrist.org/study/scriptures/tg/seal?lang=eng)
+[^b]: TG [[Seal]].

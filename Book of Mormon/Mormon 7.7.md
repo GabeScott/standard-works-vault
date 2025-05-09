@@ -5,10 +5,10 @@
 [Mormon 7:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/7?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Redemption.](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
-[^b]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
-[^c]: [[Mosiah 13.15|Mosiah 13:15]]; [[D&C 58.30|D&C 58:30]]. TG [Justification](https://www.churchofjesuschrist.org/study/scriptures/tg/justification?lang=eng).
+[^a]: TG [[Redemption]].
+[^b]: TG [[World, End of]].
+[^c]: [[Mosiah 13.15|Mosiah 13:15]]; [[D&C 58.30|D&C 58:30]]. TG [[Justification, Justify]].
 [^d]: [[Psalms 27.4|Ps. 27:4]]; [[1 Nephi 10.21|1 Ne. 10:21]]; [[D&C 76.62|D&C 76:62 (50-62)]]; [[Moses 6.57|Moses 6:57.]]
 [^e]: [[Mosiah 2.28|Mosiah 2:28.]]
 [^f]: [[Deuteronomy 6.4|Deut. 6:4]]; [[Galatians 3.20|Gal. 3:20]]; [[D&C 20.28|D&C 20:28.]]
-[^g]: TG [Happiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng)
+[^g]: TG [[Happiness, Happy]].

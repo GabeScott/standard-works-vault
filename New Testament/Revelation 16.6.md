@@ -5,6 +5,6 @@
 [Revelation 16:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.6?lang=eng#p6)
 
 
-[^a]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
-[^b]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^a]: TG [[Prophets, Rejection of]].
+[^b]: TG [[Martyrdom]].
 [^c]: GR deserving.

@@ -5,8 +5,8 @@
 [Joseph Smith History 1:68](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.68?lang=eng#p68)
 
 
-[^a]: TG [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng); [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng), Essential; [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng), Immersion.
-[^b]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^a]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential; [[Holy Ghost, Baptism of]], Immersion.
+[^b]: TG [[Remission of Sins]].
 [^c]: [[Numbers 11.25|Num. 11:25]]; [[Ether 2.4|Ether 2:4 (4-5, 14)]]; [[D&C 34.7|D&C 34:7 (7-9).]]
-[^d]: A of F 1:5. TG [Hands, Laying on of](https://www.churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng).
-[^e]: TG [Priesthood, Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng); [Priesthood, History of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-history-of?lang=eng)
+[^d]: A of F 1:5. TG [[Hands, Laying on of]].
+[^e]: TG [[Priesthood, Authority]]; [[Priesthood, History of]].

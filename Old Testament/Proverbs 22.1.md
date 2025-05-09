@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ecclesiastes 7.1|Eccl. 7:1]]; [[1 Nephi 1.1|1 Ne. 1:1.]]
-[^b]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^b]: TG [[Treasure]].

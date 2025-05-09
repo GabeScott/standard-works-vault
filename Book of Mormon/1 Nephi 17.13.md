@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 5.37|Alma 5:37 (37-38)]]; [[D&C 88.66|D&C 88:66.]]
 [^b]: [[1 Nephi 2.20|1 Ne. 2:20]]; [[1 Nephi 4.14|4:14]]; [[Jacob 2.12|Jacob 2:12.]]
-[^c]: [[Exodus 6.7|Ex. 6:7]]; [[Exodus 13.21|13:21]]. TG [Guidance, Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng).
+[^c]: [[Exodus 6.7|Ex. 6:7]]; [[Exodus 13.21|13:21]]. TG [[Guidance, Divine]].

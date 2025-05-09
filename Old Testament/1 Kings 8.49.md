@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 21.15|Mosiah 21:15.]]
-[^b]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^b]: TG [[Man, a Spirit Child of Heavenly Father]].

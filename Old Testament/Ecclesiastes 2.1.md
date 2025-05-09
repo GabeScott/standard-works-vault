@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 14.13|Prov. 14:13]]; [[D&C 88.121|D&C 88:121.]]
-[^b]: TG [Pleasure](https://www.churchofjesuschrist.org/study/scriptures/tg/pleasure?lang=eng); [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
+[^b]: TG [[Pleasure]]; [[Selfishness]].

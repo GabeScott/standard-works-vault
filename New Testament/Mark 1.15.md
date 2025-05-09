@@ -5,8 +5,8 @@
 [Mark 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.15?lang=eng#p15)
 
 
-[^a]: TG [Time.](https://www.churchofjesuschrist.org/study/scriptures/tg/time?lang=eng)
-[^b]: [[D&C 33.10|D&C 33:10 (1-18)]]. TG [Kingdom of God, in Heaven](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng).
+[^a]: TG [[Time]].
+[^b]: [[D&C 33.10|D&C 33:10 (1-18)]]. TG [[Kingdom of God, in Heaven]].
 [^c]: GR has arrived.
-[^d]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
-[^e]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^d]: TG [[Repent, Repentance]].
+[^e]: TG [[Faith]].

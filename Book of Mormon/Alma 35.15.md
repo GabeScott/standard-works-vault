@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 31.1|Alma 31:1.]]
-[^b]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^b]: TG [[Prophets, Rejection of]].

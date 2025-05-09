@@ -7,4 +7,4 @@
 
 [^a]: [[Jeremiah 39.7|Jer. 39:7]]; [[Ezekiel 12.13|Ezek. 12:13.]]
 [^b]: [[Omni 1.15|Omni 1:15.]]
-[^c]: TG [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
+[^c]: TG [[Israel, Bondage of, in Other Lands]].

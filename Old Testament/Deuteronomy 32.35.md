@@ -5,6 +5,6 @@
 [Deuteronomy 32:35](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.35?lang=eng#p35)
 
 
-[^a]: TG [Retribution](https://www.churchofjesuschrist.org/study/scriptures/tg/retribution?lang=eng); [Vengeance.](https://www.churchofjesuschrist.org/study/scriptures/tg/vengeance?lang=eng)
+[^a]: TG [[Retribution]]; [[Vengeance]].
 [^b]: [[Joel 3.4|Joel 3:4.]]
 [^c]: 2 Pet. 2:3 (3-4).

@@ -5,9 +5,9 @@
 [1 Peter 1:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.2?lang=eng#p2)
 
 
-[^a]: [[John 6.44|John 6:44 (44, 63-65)]]. TG [Election](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng).
-[^b]: TG [Foreordination](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng); [God, Foreknowledge of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-foreknowledge-of?lang=eng)
-[^c]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
-[^d]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^a]: [[John 6.44|John 6:44 (44, 63-65)]]. TG [[Election, Elect]].
+[^b]: TG [[Foreordination]]; [[God, Foreknowledge of]].
+[^c]: TG [[Sanctification, Sanctify]].
+[^d]: TG [[Obedience, Obedient, Obey]].
 [^e]: [[Isaiah 52.15|Isa. 52:15.]]
 [^f]: [[Exodus 24.8|Ex. 24:8 (5-8)]]; [[Hebrews 12.24|Heb. 12:24.]]

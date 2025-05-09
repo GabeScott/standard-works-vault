@@ -5,7 +5,7 @@
 [Moroni 10:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p33#p33)
 
 
-[^a]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
-[^b]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^a]: TG [[Sanctification, Sanctify]].
+[^b]: TG [[Jesus Christ, Atonement through]].
 [^c]: [[Exodus 34.7|Ex. 34:7.]]
-[^d]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
+[^d]: TG [[Holiness]].

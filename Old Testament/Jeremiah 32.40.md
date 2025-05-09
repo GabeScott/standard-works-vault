@@ -5,5 +5,5 @@
 [Jeremiah 32:40](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/32.40?lang=eng#p40)
 
 
-[^a]: TG [New and Everlasting Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/new-and-everlasting-covenant?lang=eng)
-[^b]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^a]: TG [[New and Everlasting Covenant]].
+[^b]: TG [[Covenants]].

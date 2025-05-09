@@ -5,4 +5,4 @@
 [Luke 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/5.10?lang=eng#p10)
 
 
-[^a]: GR capture, take alive. TG [Missionary Work](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng).
+[^a]: GR capture, take alive. TG [[Missionary Work]].

@@ -5,4 +5,4 @@
 [Ezekiel 33:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.3?lang=eng#p3)
 
 
-[^a]: TG [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^a]: TG [[Warn, Warnings]].

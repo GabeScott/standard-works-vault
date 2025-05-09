@@ -5,4 +5,4 @@
 [Deuteronomy 30:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.1?lang=eng#p1)
 
 
-[^a]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^a]: TG [[Agency]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 18.17|Prov. 18:17.]]
-[^b]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
+[^b]: TG [[Meek, Meekness]].

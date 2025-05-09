@@ -5,6 +5,6 @@
 [Zechariah 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/3.7?lang=eng#p7)
 
 
-[^a]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^a]: TG [[Walking with God]].
 [^b]: [[Deuteronomy 11.1|Deut. 11:1.]]
 [^c]: IE the heavenly messengers.

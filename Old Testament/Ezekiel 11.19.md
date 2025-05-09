@@ -5,8 +5,8 @@
 [Ezekiel 11:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.19?lang=eng#p19)
 
 
-[^a]: TG [God, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
-[^b]: TG [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
-[^c]: TG [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
-[^d]: TG [Spirituality.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirituality?lang=eng)
+[^a]: TG [[God, Gifts of]].
+[^b]: TG [[Conversion, Convert]].
+[^c]: TG [[Man, New, Spiritually Reborn]].
+[^d]: TG [[Spirituality]].
 [^e]: [[2 Corinthians 3.3|2 Cor. 3:3 (2-3).]]

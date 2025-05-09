@@ -5,4 +5,4 @@
 [1 Nephi 2:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/2?lang=eng&id=p22#p22)
 
 
-[^a]: [[Genesis 37.8|Gen. 37:8 (8-11)]]; [[1 Nephi 3.29|1 Ne. 3:29]]. TG [Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng).
+[^a]: [[Genesis 37.8|Gen. 37:8 (8-11)]]; [[1 Nephi 3.29|1 Ne. 3:29]]. TG [[Authority]].

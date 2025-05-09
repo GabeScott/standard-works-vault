@@ -5,7 +5,7 @@
 [Moses 6:61](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.61?lang=eng#p61)
 
 
-[^a]: TG [Holy Ghost, Source of Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-source-of-testimony?lang=eng)
-[^b]: TG [Holy Ghost, Comforter.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-comforter?lang=eng)
-[^c]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
-[^d]: TG [Jesus Christ, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng)
+[^a]: TG [[Holy Ghost, Source of Testimony]].
+[^b]: TG [[Holy Ghost, Comforter]].
+[^c]: TG [[Peace of God]].
+[^d]: TG [[Jesus Christ, Power of]].

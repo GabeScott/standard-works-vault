@@ -5,5 +5,5 @@
 [Mark 10:33](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.33?lang=eng#p33)
 
 
-[^a]: TG [Jesus Christ, Son of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
-[^b]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Jesus Christ, Son of Man]].
+[^b]: TG [[Scribe]].

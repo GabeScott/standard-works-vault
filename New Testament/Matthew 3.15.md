@@ -8,5 +8,5 @@
 [^a]: JST Matt. 3:43-46 (Appendix).
 [^b]: GR Permit it now.
 [^c]: GR is fitting for us.
-[^d]: TG [Baptism, Essential.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-essential?lang=eng)
-[^e]: TG [Jesus Christ, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng); [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^d]: TG [[Baptism, Essential]].
+[^e]: TG [[Jesus Christ, Mission of]]; [[God, the Standard of Righteousness]].

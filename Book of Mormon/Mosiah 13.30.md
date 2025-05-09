@@ -6,5 +6,5 @@
 
 
 [^a]: [[Romans 7.1|Rom. 7:1 (1-3).]]
-[^b]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^b]: TG [[Ordinance]].
 [^c]: [[2 Nephi 25.24|2 Ne. 25:24]]; [[Jacob 4.5|Jacob 4:5.]]

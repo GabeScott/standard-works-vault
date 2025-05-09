@@ -6,5 +6,5 @@
 
 
 [^a]: [[Job 31.33|Job 31:33]]; [[Luke 12.2|Luke 12:2 (1-3)]]; 1 Jn. 1:10; [[D&C 1.3|D&C 1:3]]; [[D&C 121.37|121:37 (36-38).]]
-[^b]: TG [Confession.](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng)
-[^c]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^b]: TG [[Confession]].
+[^c]: TG [[Repent, Repentance]].

@@ -5,6 +5,6 @@
 [Alma 31:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p27#p27)
 
 
-[^a]: [[Isaiah 29.13|Isa. 29:13]]. TG [Hypocrisy](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng).
-[^b]: TG [Pride](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng); [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
-[^c]: TG [Worldliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
+[^a]: [[Isaiah 29.13|Isa. 29:13]]. TG [[Hypocrisy, Hypocrite]].
+[^b]: TG [[Pride]]; [[Selfishness]].
+[^c]: TG [[Worldliness]].

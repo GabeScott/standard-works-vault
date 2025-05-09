@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ecclesiastes 12.1|Eccl. 12:1.]]
-[^b]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
+[^b]: TG [[Vanity]].

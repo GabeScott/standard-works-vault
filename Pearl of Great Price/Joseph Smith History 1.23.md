@@ -6,6 +6,6 @@
 
 
 [^a]: [[Amos 7.14|Amos 7:14 (14-15)]]; [[Acts 5.38|Acts 5:38 (38-39).]]
-[^b]: TG [Industry.](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng)
-[^c]: [[Jeremiah 1.19|Jer. 1:19 (6-19)]]. TG [Malice](https://www.churchofjesuschrist.org/study/scriptures/tg/malice?lang=eng); [Persecution](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng).
-[^d]: TG [Reviling.](https://www.churchofjesuschrist.org/study/scriptures/tg/reviling?lang=eng)
+[^b]: TG [[Industry, Industrious]].
+[^c]: [[Jeremiah 1.19|Jer. 1:19 (6-19)]]. TG [[Malice]]; [[Persecution, Persecute]].
+[^d]: TG [[Reviling, Revile]].

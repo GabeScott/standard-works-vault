@@ -5,5 +5,5 @@
 [Mosiah 13:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
-[^b]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^a]: TG [[Adulterer, Adultery]].
+[^b]: TG [[Stealing, Stolen]].

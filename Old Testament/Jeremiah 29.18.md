@@ -6,4 +6,4 @@
 
 
 [^a]: HEB pursue after.
-[^b]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^b]: TG [[Israel, Scattering of]].

@@ -5,5 +5,5 @@
 [1 Samuel 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/12.3?lang=eng#p3)
 
 
-[^a]: TG [Fraud.](https://www.churchofjesuschrist.org/study/scriptures/tg/fraud?lang=eng)
-[^b]: TG [Bribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/bribe?lang=eng)
+[^a]: TG [[Fraud]].
+[^b]: TG [[Bribe, Bribery]].

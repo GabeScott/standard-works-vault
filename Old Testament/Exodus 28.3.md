@@ -6,4 +6,4 @@
 
 
 [^a]: Ex. 35:10, 25.
-[^b]: TG [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
+[^b]: TG [[Wisdom]].

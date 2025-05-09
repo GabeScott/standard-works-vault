@@ -5,5 +5,5 @@
 [2 Timothy 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.9?lang=eng#p9)
 
 
-[^a]: TG [Foreordination.](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng)
-[^b]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: TG [[Foreordination]].
+[^b]: TG [[Grace]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 12.21|1 Ne. 12:21 (20-23).]]
-[^b]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
+[^b]: TG [[Hate]].
 [^c]: [[Alma 45.14|Alma 45:14.]]

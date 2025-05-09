@@ -5,4 +5,4 @@
 [Isaiah 22:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.21?lang=eng#p21)
 
 
-[^a]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^a]: TG [[Governments]].

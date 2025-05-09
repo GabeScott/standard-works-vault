@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Chronicles 5.2|1 Chr. 5:2]]; [[Matthew 2.6|Matt. 2:6.]]
-[^b]: TG [Jesus Christ, Davidic Descent of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-davidic-descent-of?lang=eng)
-[^c]: [[1 Samuel 16.1|1 Sam. 16:1]]; [[Micah 5.2|Micah 5:2]]; [[Luke 2.4|Luke 2:4]]. TG [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng).
+[^b]: TG [[Jesus Christ, Davidic Descent of]].
+[^c]: [[1 Samuel 16.1|1 Sam. 16:1]]; [[Micah 5.2|Micah 5:2]]; [[Luke 2.4|Luke 2:4]]. TG [[Jesus Christ, Prophecies about]].

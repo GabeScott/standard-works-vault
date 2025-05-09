@@ -5,5 +5,5 @@
 [Daniel 2:31](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.31?lang=eng#p31)
 
 
-[^a]: TG [Symbolism.](https://www.churchofjesuschrist.org/study/scriptures/tg/symbolism?lang=eng)
+[^a]: TG [[Blood, Symbolism of]].
 [^b]: Aramaic: its appearance was frightening.

@@ -5,5 +5,5 @@
 [Alma 16:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/16?lang=eng&id=p17#p17)
 
 
-[^a]: [[Jacob 5.24|Jacob 5:24]]. TG [Vineyard of the Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng).
+[^a]: [[Jacob 5.24|Jacob 5:24]]. TG [[Vineyard of the Lord]].
 [^b]: [[Alma 12.37|Alma 12:37]]; [[Alma 13.6|13:6 (6-29).]]

@@ -5,4 +5,4 @@
 [Luke 16:1](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.1?lang=eng#p1)
 
 
-[^a]: TG [Waste.](https://www.churchofjesuschrist.org/study/scriptures/tg/waste?lang=eng)
+[^a]: TG [[Waste]].

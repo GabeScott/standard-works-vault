@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 84.28|D&C 84:28 (27-28).]]
-[^b]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^b]: TG [[Circumcision]].

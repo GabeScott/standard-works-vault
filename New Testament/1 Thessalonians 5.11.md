@@ -6,4 +6,4 @@
 
 
 [^a]: GR exhort, console, encourage.
-[^b]: TG [Edification.](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng)
+[^b]: TG [[Edification, Edify]].

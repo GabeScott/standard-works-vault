@@ -5,8 +5,8 @@
 [Moses 7:56](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.56?lang=eng#p56)
 
 
-[^a]: TG [Veil.](https://www.churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng)
+[^a]: TG [[Veil]].
 [^b]: [[Matthew 27.51|Matt. 27:51 (45, 50-51).]]
-[^c]: TG [Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng)
-[^d]: TG [Exaltation.](https://www.churchofjesuschrist.org/study/scriptures/tg/exaltation?lang=eng)
+[^c]: TG [[Mission of Latter-day Saints]].
+[^d]: TG [[Exaltation]].
 [^e]: [[Matthew 25.34|Matt. 25:34.]]

@@ -5,5 +5,5 @@
 [2 Peter 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.10?lang=eng#p10)
 
 
-[^a]: TG [Election.](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng)
+[^a]: TG [[Election, Elect]].
 [^b]: [[D&C 50.44|D&C 50:44.]]

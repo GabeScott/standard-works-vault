@@ -5,4 +5,4 @@
 [Psalms 73:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.3?lang=eng#p3)
 
 
-[^a]: TG [Envy.](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
+[^a]: TG [[Envy, Envious]].

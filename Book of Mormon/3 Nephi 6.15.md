@@ -7,4 +7,4 @@
 
 [^a]: [[Moses 6.15|Moses 6:15.]]
 [^b]: [[1 Nephi 22.26|1 Ne. 22:26]]; [[Alma 48.17|Alma 48:17.]]
-[^c]: TG [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
+[^c]: TG [[Selfishness]].

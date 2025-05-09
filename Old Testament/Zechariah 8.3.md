@@ -5,5 +5,5 @@
 [Zechariah 8:3](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/8.3?lang=eng#p3)
 
 
-[^a]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^a]: TG [[Jerusalem]].
 [^b]: Dan. 9:16; [[Joel 3.17|Joel 3:17.]]

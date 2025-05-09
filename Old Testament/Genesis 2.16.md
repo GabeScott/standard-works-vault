@@ -5,5 +5,5 @@
 [Genesis 2:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.16?lang=eng#p16)
 
 
-[^a]: TG [Commandments of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)
-[^b]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^a]: TG [[Commandments of God]].
+[^b]: TG [[Agency]].

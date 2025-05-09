@@ -5,4 +5,4 @@
 [Zechariah 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/12.7?lang=eng#p7)
 
 
-[^a]: TG [Jesus Christ, Davidic Descent of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-davidic-descent-of?lang=eng)
+[^a]: TG [[Jesus Christ, Davidic Descent of]].

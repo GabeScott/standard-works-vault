@@ -6,7 +6,7 @@
 
 
 [^a]: [[2 Nephi 9.13|2 Ne. 9:13]]; [[Alma 40.23|Alma 40:23.]]
-[^b]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
+[^b]: TG [[Perfection, Perfect, Perfectly]].
 [^c]: [[D&C 130.18|D&C 130:18.]]
 [^d]: [[2 Nephi 9.14|2 Ne. 9:14]]; [[Mosiah 3.25|Mosiah 3:25]]; [[Alma 5.18|Alma 5:18.]]
-[^e]: [[Matthew 12.36|Matt. 12:36 (36-37)]]. TG [Guilt](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng).
+[^e]: [[Matthew 12.36|Matt. 12:36 (36-37)]]. TG [[Guiltless]].

@@ -5,5 +5,5 @@
 [Exodus 28:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.2?lang=eng#p2)
 
 
-[^a]: Ex. 29:5, 29; [[Exodus 39.1|39:1 (1-2)]]. TG [Clothing](https://www.churchofjesuschrist.org/study/scriptures/tg/clothing?lang=eng).
-[^b]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
+[^a]: Ex. 29:5, 29; [[Exodus 39.1|39:1 (1-2)]]. TG [[Clothing]].
+[^b]: TG [[Beauty]].

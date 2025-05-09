@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 22.18|Ezek. 22:18 (18-22).]]
-[^b]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
+[^b]: TG [[Affliction]].

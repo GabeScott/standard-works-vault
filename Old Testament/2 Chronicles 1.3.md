@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Chronicles 16.39|1 Chr. 16:39.]]
-[^b]: HEB tent of meeting (also v. 13). TG [Temple](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng).
+[^b]: HEB tent of meeting (also v. 13). TG [[Genealogy and Temple Work]].

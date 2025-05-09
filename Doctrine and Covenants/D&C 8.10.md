@@ -5,5 +5,5 @@
 [D&C 8:10](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/8.10?lang=eng#p10)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Faith]].
 [^b]: [[D&C 88.65|D&C 88:65 (63-65).]]

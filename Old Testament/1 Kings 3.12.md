@@ -5,5 +5,5 @@
 [1 Kings 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/3.12?lang=eng#p12)
 
 
-[^a]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^a]: TG [[Guidance, Divine]].
 [^b]: [[1 Kings 4.29|1 Kgs. 4:29 (29-31)]]; [[1 Kings 5.12|5:12]]; [[2 Nephi 28.15|2 Ne. 28:15]]; [[Jacob 6.12|Jacob 6:12]]; [[Mosiah 29.11|Mosiah 29:11]]; [[Mormon 9.28|Morm. 9:28]]; JS—H 1:11 (11-13).

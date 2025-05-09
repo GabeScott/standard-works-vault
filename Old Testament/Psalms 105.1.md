@@ -5,5 +5,5 @@
 [Psalms 105:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/105.1?lang=eng#p1)
 
 
-[^a]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
-[^b]: TG [Preaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
+[^a]: TG [[Thanksgiving]].
+[^b]: TG [[Preaching, Preach]].

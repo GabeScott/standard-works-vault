@@ -5,4 +5,4 @@
 [Proverbs 10:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.22?lang=eng#p22)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^a]: TG [[Treasure]].

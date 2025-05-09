@@ -5,4 +5,4 @@
 [Psalms 45:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/45.4?lang=eng#p4)
 
 
-[^a]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]].

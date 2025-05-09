@@ -5,4 +5,4 @@
 [Matthew 2:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/2.15?lang=eng#p15)
 
 
-[^a]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^a]: TG [[Jesus Christ, Prophecies about]].

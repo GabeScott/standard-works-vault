@@ -5,4 +5,4 @@
 [Hebrews 12:16](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.16?lang=eng#p16)
 
 
-[^a]: TG [Birthright.](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng)
+[^a]: TG [[Birthright]].

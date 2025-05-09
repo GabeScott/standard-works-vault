@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hosea 14.2|Hosea 14:2 (1-3)]]; [[3 Nephi 9.20|3 Ne. 9:20 (19-20).]]
-[^b]: TG [Contrite Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/contrite-heart?lang=eng)
+[^b]: TG [[Contrite Heart]].

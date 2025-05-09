@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 88.81|D&C 88:81 (81-82).]]
-[^b]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
+[^b]: TG [[Accountability]].

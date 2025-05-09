@@ -5,7 +5,7 @@
 [Moroni 8:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Salvation of Little Children.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-of-little-children?lang=eng)
+[^a]: TG [[Salvation of Little Children]].
 [^b]: [[Acts 17.30|Acts 17:30.]]
-[^c]: TG [Redemption.](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
-[^d]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
+[^c]: TG [[Redemption]].
+[^d]: TG [[Accountability]].

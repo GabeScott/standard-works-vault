@@ -5,4 +5,4 @@
 [1 Chronicles 22:13](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/22.13?lang=eng#p13)
 
 
-[^a]: TG [Courage.](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng)
+[^a]: TG [[Courage, Courageous]].

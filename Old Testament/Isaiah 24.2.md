@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 7.12|Ezek. 7:12.]]
-[^b]: OR him who exacts payment, so with him who makes payment. TG [Usury](https://www.churchofjesuschrist.org/study/scriptures/tg/usury?lang=eng).
+[^b]: OR him who exacts payment, so with him who makes payment. TG [[Usury]].

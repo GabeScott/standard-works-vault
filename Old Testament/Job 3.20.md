@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 88.67|D&C 88:67.]]
-[^b]: [[D&C 122.7|D&C 122:7 (1-7)]]. TG [Suffering](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng).
+[^b]: [[D&C 122.7|D&C 122:7 (1-7)]]. TG [[Suffering]].

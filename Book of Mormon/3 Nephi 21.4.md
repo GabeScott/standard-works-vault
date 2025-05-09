@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 8.32|John 8:32 (32-36)]]; [[1 Nephi 13.19|1 Ne. 13:19 (17-19)]]; [[D&C 101.77|D&C 101:77 (77-80).]]
-[^b]: [[Psalms 89.35|Ps. 89:35]]; [[3 Nephi 16.11|3 Ne. 16:11 (8-12)]]; [[Mormon 5.20|Morm. 5:20]]. TG [Abrahamic Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng).
+[^b]: [[Psalms 89.35|Ps. 89:35]]; [[3 Nephi 16.11|3 Ne. 16:11 (8-12)]]; [[Mormon 5.20|Morm. 5:20]]. TG [[Abrahamic Covenant]].

@@ -5,6 +5,6 @@
 [Matthew 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.19?lang=eng#p19)
 
 
-[^a]: TG [Example.](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
+[^a]: TG [[Example, Ensample]].
 [^b]: IE desired to release or divorce her secretly.
 [^c]: [[Deuteronomy 24.1|Deut. 24:1.]]

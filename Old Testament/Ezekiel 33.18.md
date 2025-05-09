@@ -5,5 +5,5 @@
 [Ezekiel 33:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.18?lang=eng#p18)
 
 
-[^a]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^a]: TG [[Apostasy of Individuals]].
+[^b]: TG [[God, the Standard of Righteousness]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 104.17|D&C 104:17 (15-18)]]; [[Moses 2.29|Moses 2:29 (28-30).]]
-[^b]: TG [Flesh and Blood.](https://www.churchofjesuschrist.org/study/scriptures/tg/flesh-and-blood?lang=eng)
+[^b]: TG [[Flesh and Blood]].

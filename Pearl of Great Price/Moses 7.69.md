@@ -5,4 +5,4 @@
 [Moses 7:69](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.69?lang=eng#p69)
 
 
-[^a]: [[Genesis 5.24|Gen. 5:24]]; [[Moses 6.34|Moses 6:34]]. TG [Walking with God](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng).
+[^a]: [[Genesis 5.24|Gen. 5:24]]; [[Moses 6.34|Moses 6:34]]. TG [[Walking with God]].

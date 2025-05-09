@@ -5,4 +5,4 @@
 [Ephesians 4:4](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.4?lang=eng#p4)
 
 
-[^a]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].

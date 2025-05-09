@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 2.5|2 Ne. 2:5]]; [[2 Nephi 9.6|9:6 (6-15)]]; [[Helaman 14.16|Hel. 14:16 (15-18).]]
-[^b]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
-[^c]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^b]: TG [[God, Presence of]].
+[^c]: TG [[Agency]].

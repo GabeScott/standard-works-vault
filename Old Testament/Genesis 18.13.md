@@ -5,5 +5,5 @@
 [Genesis 18:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.13?lang=eng#p13)
 
 
-[^a]: TG [Laughter.](https://www.churchofjesuschrist.org/study/scriptures/tg/laughter?lang=eng)
+[^a]: TG [[Laughter, Laugh]].
 [^b]: [[Luke 1.18|Luke 1:18.]]

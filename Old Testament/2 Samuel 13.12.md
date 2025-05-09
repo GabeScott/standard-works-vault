@@ -5,5 +5,5 @@
 [2 Samuel 13:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/13.12?lang=eng#p12)
 
 
-[^a]: TG [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
+[^a]: TG [[Sexual Immorality]].
 [^b]: [[Leviticus 18.9|Lev. 18:9 (6-22).]]

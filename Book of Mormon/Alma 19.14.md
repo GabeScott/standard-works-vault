@@ -7,5 +7,5 @@
 
 [^a]: [[D&C 42.14|D&C 42:14.]]
 [^b]: [[Mosiah 1.5|Mosiah 1:5.]]
-[^c]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^c]: TG [[Joy]].
 [^d]: [[Alma 27.17|Alma 27:17.]]

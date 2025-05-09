@@ -7,6 +7,6 @@
 
 [^a]: [[Exodus 6.20|Ex. 6:20.]]
 [^b]: [[Exodus 28.1|Ex. 28:1.]]
-[^c]: TG [Setting Apart.](https://www.churchofjesuschrist.org/study/scriptures/tg/setting-apart?lang=eng)
+[^c]: TG [[Setting Apart]].
 [^d]: [[Revelation 5.8|Rev. 5:8.]]
 [^e]: [[Numbers 6.23|Num. 6:23.]]

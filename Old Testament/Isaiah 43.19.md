@@ -5,5 +5,5 @@
 [Isaiah 43:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/43.19?lang=eng#p19)
 
 
-[^a]: TG [Earth, Renewal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
+[^a]: TG [[Earth, Renewal of]].
 [^b]: [[Isaiah 41.18|Isa. 41:18.]]

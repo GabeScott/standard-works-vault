@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Thes. 4:16; [[Mosiah 26.25|Mosiah 26:25 (24-25)]]; [[D&C 43.18|D&C 43:18]]; [[D&C 76.85|76:85.]]
-[^b]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^b]: TG [[God, Omniscience of]].

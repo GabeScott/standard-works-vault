@@ -7,4 +7,4 @@
 
 [^a]: [[Deuteronomy 32.5|Deut. 32:5]]; [[Psalms 95.10|Ps. 95:10]]; [[Hebrews 3.10|Heb. 3:10.]]
 [^b]: [[Proverbs 16.2|Prov. 16:2.]]
-[^c]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^c]: TG [[Filthiness, Filthy]].

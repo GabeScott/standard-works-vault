@@ -5,6 +5,6 @@
 [Deuteronomy 16:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.3?lang=eng#p3)
 
 
-[^a]: TG [Leaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/leaven?lang=eng)
-[^b]: TG [Bread, Unleavened.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-unleavened?lang=eng)
+[^a]: TG [[Leaven]].
+[^b]: TG [[Bread, Unleavened]].
 [^c]: [[Exodus 12.11|Ex. 12:11.]]

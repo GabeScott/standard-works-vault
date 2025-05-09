@@ -6,7 +6,7 @@
 
 
 [^a]: [[Proverbs 18.23|Prov. 18:23.]]
-[^b]: TG [Oppression.](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng)
+[^b]: TG [[Oppression, Oppress]].
 [^c]: [[Alma 33.10|Alma 33:10.]]
 [^d]: [[Alma 33.2|Alma 33:2.]]
 [^e]: [[Acts 2.37|Acts 2:37 (37-38)]]; [[Alma 34.3|Alma 34:3.]]

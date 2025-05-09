@@ -7,4 +7,4 @@
 
 [^a]: [[Psalms 35.10|Ps. 35:10]]; [[D&C 56.18|D&C 56:18 (18-19).]]
 [^b]: [[Psalms 4.1|Ps. 4:1.]]
-[^c]: TG [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng); [Refuge.](https://www.churchofjesuschrist.org/study/scriptures/tg/refuge?lang=eng)
+[^c]: TG [[Holy Ghost, Comforter]]; [[Refuge]].

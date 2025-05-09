@@ -5,7 +5,7 @@
 [Jude 1:16](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.16?lang=eng#p16)
 
 
-[^a]: TG [Murmuring.](https://www.churchofjesuschrist.org/study/scriptures/tg/murmuring?lang=eng)
-[^b]: TG [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
+[^a]: TG [[Murmuring, Murmur]].
+[^b]: TG [[Lust]].
 [^c]: 2 Pet. 2:18 (10-19).
 [^d]: GR profit, gain.

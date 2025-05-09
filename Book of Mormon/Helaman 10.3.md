@@ -5,4 +5,4 @@
 [Helaman 10:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/10?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^a]: TG [[Guidance, Divine]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 75.7|Ps. 75:7.]]
-[^b]: TG [Poor.](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng)
+[^b]: TG [[Poor]].
 [^c]: [[Genesis 14.23|Gen. 14:23]]; [[D&C 38.16|D&C 38:16.]]

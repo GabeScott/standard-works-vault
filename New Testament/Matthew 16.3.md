@@ -6,6 +6,6 @@
 
 
 [^a]: GR dark, gloomy.
-[^b]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^b]: TG [[Hypocrisy, Hypocrite]].
 [^c]: 2 Pet. 3:4 (3-10).
 [^d]: [[Esther 1.13|Esth. 1:13.]]

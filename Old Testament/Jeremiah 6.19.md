@@ -5,5 +5,5 @@
 [Jeremiah 6:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.19?lang=eng#p19)
 
 
-[^a]: OR calamity. TG [Evil](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng).
+[^a]: OR calamity. TG [[Evil]].
 [^b]: [[Proverbs 1.31|Prov. 1:31.]]

@@ -5,5 +5,5 @@
 [3 Nephi 17:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Jesus Christ, Teaching Mode of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-teaching-mode-of?lang=eng)
+[^a]: TG [[Jesus Christ, Teaching Mode of]].
 [^b]: [[John 16.12|John 16:12]]; [[D&C 50.40|D&C 50:40]]; [[D&C 78.18|78:18 (17-18).]]

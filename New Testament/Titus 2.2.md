@@ -5,6 +5,6 @@
 [Titus 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.2?lang=eng#p2)
 
 
-[^a]: TG [Old Age.](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
+[^a]: TG [[Old Age]].
 [^b]: GR circumspect.
-[^c]: TG [Temperance.](https://www.churchofjesuschrist.org/study/scriptures/tg/temperance?lang=eng)
+[^c]: TG [[Temperance, Temperate]].

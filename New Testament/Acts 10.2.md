@@ -5,4 +5,4 @@
 [Acts 10:2](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.2?lang=eng#p2)
 
 
-[^a]: TG [Almsgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/almsgiving?lang=eng)
+[^a]: TG [[Almsgiving]].

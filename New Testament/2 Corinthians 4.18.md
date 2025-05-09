@@ -7,4 +7,4 @@
 
 [^a]: [[Romans 8.24|Rom. 8:24.]]
 [^b]: [[Ether 12.6|Ether 12:6.]]
-[^c]: TG [Eternity.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternity?lang=eng)
+[^c]: TG [[Eternity]].

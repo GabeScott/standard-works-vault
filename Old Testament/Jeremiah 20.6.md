@@ -5,4 +5,4 @@
 [Jeremiah 20:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.6?lang=eng#p6)
 
 
-[^a]: TG [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^a]: TG [[Lying, Liar, Lie]].

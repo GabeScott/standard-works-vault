@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 5.10|Ps. 5:10]]; [[Mosiah 2.37|Mosiah 2:37 (36-38)]]; [[Mosiah 3.12|3:12.]]
-[^b]: [[Helaman 5.8|Hel. 5:8]]; [[3 Nephi 13.20|3 Ne. 13:20 (19-21)]]. TG [Treasure](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng).
+[^b]: [[Helaman 5.8|Hel. 5:8]]; [[3 Nephi 13.20|3 Ne. 13:20 (19-21)]]. TG [[Treasure]].
 [^c]: [[Psalms 109.7|Ps. 109:7 (3-7)]]; [[D&C 10.23|D&C 10:23 (20-23)]]; [[D&C 121.24|121:24 (23-25).]]

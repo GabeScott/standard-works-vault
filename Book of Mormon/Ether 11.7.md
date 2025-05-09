@@ -5,4 +5,4 @@
 [Ether 11:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Contention.](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
+[^a]: TG [[Contention]].

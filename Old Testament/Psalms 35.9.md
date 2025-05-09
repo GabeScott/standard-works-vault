@@ -5,5 +5,5 @@
 [Psalms 35:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/35.9?lang=eng#p9)
 
 
-[^a]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
-[^b]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^a]: TG [[Joy]].
+[^b]: TG [[Salvation for the Dead]].

@@ -5,4 +5,4 @@
 [Psalms 14:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/14.6?lang=eng#p6)
 
 
-[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^a]: TG [[Shame]].

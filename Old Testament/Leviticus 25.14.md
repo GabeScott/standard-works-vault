@@ -5,5 +5,5 @@
 [Leviticus 25:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.14?lang=eng#p14)
 
 
-[^a]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^a]: TG [[Love]].
 [^b]: [[Leviticus 25.17|Lev. 25:17.]]

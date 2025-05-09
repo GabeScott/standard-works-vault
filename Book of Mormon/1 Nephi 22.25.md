@@ -5,6 +5,6 @@
 [1 Nephi 22:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p25#p25)
 
 
-[^a]: [[Isaiah 43.6|Isa. 43:6 (5-7)]]; [[Ephesians 1.10|Eph. 1:10]]. TG [Israel, Gathering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng).
-[^b]: TG [Jesus Christ, Good Shepherd](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng); [Sheep](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng); [Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)
+[^a]: [[Isaiah 43.6|Isa. 43:6 (5-7)]]; [[Ephesians 1.10|Eph. 1:10]]. TG [[Israel, Gathering of]].
+[^b]: TG [[Jesus Christ, Good Shepherd]]; [[Sheep]]; [[Shepherd]].
 [^c]: [[1 Nephi 21.9|1 Ne. 21:9.]]

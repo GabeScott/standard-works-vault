@@ -5,4 +5,4 @@
 [Matthew 12:4](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.4?lang=eng#p4)
 
 
-[^a]: TG [Bread, Shewbread.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-shewbread?lang=eng)
+[^a]: TG [[Bread, Shewbread]].

@@ -5,5 +5,5 @@
 [John 15:19](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.19?lang=eng#p19)
 
 
-[^a]: TG [World](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng); [World](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)liness.
+[^a]: TG [[World, End of]]; [[World, End of]]liness.
 [^b]: [[Luke 6.26|Luke 6:26.]]

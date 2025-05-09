@@ -5,4 +5,4 @@
 [2 Chronicles 2:1](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/2.1?lang=eng#p1)
 
 
-[^a]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^a]: TG [[Genealogy and Temple Work]].

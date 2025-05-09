@@ -5,5 +5,5 @@
 [1 Nephi 11:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Signs.](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng)
-[^b]: TG [Testimony](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng); [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
+[^a]: TG [[Signs]].
+[^b]: TG [[Testimony]]; [[Witness, Witnesses]].

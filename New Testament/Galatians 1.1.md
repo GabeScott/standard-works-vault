@@ -5,4 +5,4 @@
 [Galatians 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.1?lang=eng#p1)
 
 
-[^a]: TG [Apostles](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng); [Priesthood, Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng)
+[^a]: TG [[Apostles]]; [[Priesthood, Authority]].

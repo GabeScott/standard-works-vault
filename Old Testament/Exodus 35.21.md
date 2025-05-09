@@ -6,7 +6,7 @@
 
 
 [^a]: [[Exodus 36.2|Ex. 36:2.]]
-[^b]: TG [Initiative.](https://www.churchofjesuschrist.org/study/scriptures/tg/initiative?lang=eng)
-[^c]: TG [Generosity.](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng)
+[^b]: TG [[Initiative]].
+[^c]: TG [[Generosity]].
 [^d]: OR for use in.
 [^e]: HEB tent of meeting.

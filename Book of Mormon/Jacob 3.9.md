@@ -5,4 +5,4 @@
 [Jacob 3:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/3?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Reviling.](https://www.churchofjesuschrist.org/study/scriptures/tg/reviling?lang=eng)
+[^a]: TG [[Reviling, Revile]].

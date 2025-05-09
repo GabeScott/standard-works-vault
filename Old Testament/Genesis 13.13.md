@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 16.49|Ezek. 16:49.]]
-[^b]: TG [Homosexual Behavior.](https://www.churchofjesuschrist.org/study/scriptures/tg/homosexual-behavior?lang=eng)
+[^b]: TG [[Homosexual Behavior]].

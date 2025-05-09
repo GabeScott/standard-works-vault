@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 10.19|Matt. 10:19 (19-20).]]
-[^b]: TG [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
+[^b]: TG [[Holy Ghost, Mission of]].

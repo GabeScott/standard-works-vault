@@ -5,8 +5,8 @@
 [Hebrews 12:23](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.23?lang=eng#p23)
 
 
-[^a]: TG [Firstborn](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng); Jesus Christ, [Firstborn](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng).
+[^a]: TG [[Firstborn]]; Jesus Christ, [[Firstborn]].
 [^b]: [[Luke 10.20|Luke 10:20]]; [[D&C 128.6|D&C 128:6 (6-7).]]
-[^c]: TG [Jesus Christ, Judge](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng); [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
-[^d]: TG [Spirits, Disembodied.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-disembodied?lang=eng)
+[^c]: TG [[Jesus Christ, Judge]]; [[Judgment]].
+[^d]: TG [[Spirits, Disembodied]].
 [^e]: [[Ezekiel 18.5|Ezek. 18:5 (5-9)]]; [[D&C 76.69|D&C 76:69 (66-69).]]

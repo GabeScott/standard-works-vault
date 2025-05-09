@@ -5,4 +5,4 @@
 [Psalms 49:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/49.4?lang=eng#p4)
 
 
-[^a]: TG [Problem-Solving.](https://www.churchofjesuschrist.org/study/scriptures/tg/problem-solving?lang=eng)
+[^a]: TG [[Problem-Solving]].

@@ -5,5 +5,5 @@
 [Jacob 5:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
+[^a]: TG [[Servant]].
 [^b]: [[Romans 11.17|Rom. 11:17 (17, 24).]]

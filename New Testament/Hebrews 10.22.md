@@ -5,8 +5,8 @@
 [Hebrews 10:22](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/10.22?lang=eng#p22)
 
 
-[^a]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
-[^b]: TG [God, Access to.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-access-to?lang=eng)
+[^a]: TG [[God, Presence of]].
+[^b]: TG [[God, Access to]].
 [^c]: [[Hebrews 6.12|Heb. 6:12 (10-12)]]; [[1 Peter 1.5|1 Pet. 1:5 (3-8).]]
 [^d]: GR purified.
-[^e]: TG [Conscience.](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
+[^e]: TG [[Conscience]].

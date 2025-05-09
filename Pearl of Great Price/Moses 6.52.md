@@ -5,8 +5,8 @@
 [Moses 6:52](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.52?lang=eng#p52)
 
 
-[^a]: [[3 Nephi 11.26|3 Ne. 11:26 (23-26)]]. TG [Baptism, Essential](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-essential?lang=eng).
-[^b]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
-[^c]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
-[^d]: [[Acts 4.12|Acts 4:12]]. TG [Jesus Christ, Authority of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng); [Name](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng).
-[^e]: TG [Jesus Christ, Savior](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng); [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^a]: [[3 Nephi 11.26|3 Ne. 11:26 (23-26)]]. TG [[Baptism, Essential]].
+[^b]: TG [[Grace]].
+[^c]: TG [[Jesus Christ, Messiah]].
+[^d]: [[Acts 4.12|Acts 4:12]]. TG [[Jesus Christ, Authority of]]; [[Name of the Lord]].
+[^e]: TG [[Jesus Christ, Savior]]; [[Salvation for the Dead]].

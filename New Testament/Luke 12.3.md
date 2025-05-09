@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 1.3|D&C 1:3.]]
-[^b]: TG [Gossip.](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng)
+[^b]: TG [[Gossip]].
 [^c]: GR places of privacy.

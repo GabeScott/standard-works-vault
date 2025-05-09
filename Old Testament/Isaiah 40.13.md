@@ -6,5 +6,5 @@
 
 
 [^a]: [[Job 21.22|Job 21:22.]]
-[^b]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
-[^c]: TG [Counselor.](https://www.churchofjesuschrist.org/study/scriptures/tg/counselor?lang=eng)
+[^b]: TG [[God, Spirit of]].
+[^c]: TG [[Counselor]].

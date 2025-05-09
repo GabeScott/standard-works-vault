@@ -7,4 +7,4 @@
 
 [^a]: [[Genesis 6.4|Gen. 6:4]]; [[Numbers 13.33|Num. 13:33]]; [[Deuteronomy 2.20|Deut. 2:20]]; [[Joshua 17.15|Josh. 17:15]]; [[Moses 7.15|Moses 7:15 (14-15).]]
 [^b]: [[Moses 8.26|Moses 8:26.]]
-[^c]: TG [Priesthood, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng)
+[^c]: TG [[Priesthood, Power of]].

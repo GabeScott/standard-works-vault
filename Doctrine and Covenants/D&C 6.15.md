@@ -5,6 +5,6 @@
 [D&C 6:15](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.15?lang=eng#p15)
 
 
-[^a]: TG [Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng)
-[^b]: [[Ephesians 1.18|Eph. 1:18]]. TG [Holy Ghost, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng).
-[^c]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^a]: TG [[Mind, Minded]].
+[^b]: [[Ephesians 1.18|Eph. 1:18]]. TG [[Holy Ghost, Mission of]].
+[^c]: TG [[God, Spirit of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 24.27|Gen. 24:27]]; [[3 Nephi 5.21|3 Ne. 5:21 (21-26).]]
-[^b]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^b]: TG [[Salvation for the Dead]].

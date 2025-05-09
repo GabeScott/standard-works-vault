@@ -7,4 +7,4 @@
 
 [^a]: [[Genesis 3.6|Gen. 3:6]]; [[1 Nephi 8.12|1 Ne. 8:12 (10-15)]]; [[1 Nephi 15.36|15:36.]]
 [^b]: [[D&C 29.40|D&C 29:40.]]
-[^c]: TG [Fall of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng)
+[^c]: TG [[Fall of Man]].

@@ -7,5 +7,5 @@
 
 [^a]: [[1 Peter 1.2|1 Pet. 1:2.]]
 [^b]: [[Hebrews 9.19|Heb. 9:19 (19-20).]]
-[^c]: [[Matthew 26.28|Matt. 26:28 (26-28)]]; [[Hebrews 9.16|Heb. 9:16 (15-22)]]. TG [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng); [Redemption](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng).
-[^d]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^c]: [[Matthew 26.28|Matt. 26:28 (26-28)]]; [[Hebrews 9.16|Heb. 9:16 (15-22)]]. TG [[Jesus Christ, Types of, in Anticipation]]; [[Redemption]].
+[^d]: TG [[Covenants]].

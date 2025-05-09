@@ -5,4 +5,4 @@
 [Isaiah 63:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/63.8?lang=eng#p8)
 
 
-[^a]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
+[^a]: TG [[Jesus Christ, Jehovah]].

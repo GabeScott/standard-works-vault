@@ -7,5 +7,5 @@
 
 [^a]: GR concerning.
 [^b]: [[Acts 15.29|Acts 15:29.]]
-[^c]: GR love. TG [Charity](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng).
-[^d]: GR builds up, strengthens, establishes, repairs. TG [Edification](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng).
+[^c]: GR love. TG [[Charity]].
+[^d]: GR builds up, strengthens, establishes, repairs. TG [[Edification, Edify]].

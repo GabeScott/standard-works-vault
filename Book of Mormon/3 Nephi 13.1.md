@@ -5,4 +5,4 @@
 [3 Nephi 13:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/13?lang=eng&id=p1#p1)
 
 
-[^a]: [[Matthew 6.1|Matt. 6:1 (1-34)]]. TG [Almsgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/almsgiving?lang=eng).
+[^a]: [[Matthew 6.1|Matt. 6:1 (1-34)]]. TG [[Almsgiving]].

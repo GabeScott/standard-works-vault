@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 41.13|Alma 41:13 (10-15).]]
 [^b]: Dan. 12:10.
-[^c]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^c]: TG [[Filthiness, Filthy]].

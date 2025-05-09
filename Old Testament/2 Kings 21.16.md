@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Kings 24.4|2 Kgs. 24:4.]]
-[^b]: TG [Blood, Shedding of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-shedding-of?lang=eng)
+[^b]: TG [[Blood, Shedding of]].

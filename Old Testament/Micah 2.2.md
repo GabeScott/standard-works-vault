@@ -5,5 +5,5 @@
 [Micah 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/2.2?lang=eng#p2)
 
 
-[^a]: TG [Covet.](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
+[^a]: TG [[Covet, Covetousness]].
 [^b]: [[Isaiah 5.8|Isa. 5:8 (8-9).]]

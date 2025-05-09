@@ -5,4 +5,4 @@
 [Ephesians 4:2](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.2?lang=eng#p2)
 
 
-[^a]: TG [Forbear.](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng)
+[^a]: TG [[Forbear, Forbearance]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Kings 22.24|1 Kgs. 22:24 (14-27).]]
-[^b]: [[Alma 12.17|Alma 12:17]]. TG [Damnation](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng).
+[^b]: [[Alma 12.17|Alma 12:17]]. TG [[Damnation, Damned]].

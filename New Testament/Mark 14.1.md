@@ -5,5 +5,5 @@
 [Mark 14:1](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.1?lang=eng#p1)
 
 
-[^a]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Scribe]].
 [^b]: [[Matthew 26.4|Matt. 26:4 (2-5)]]; [[Luke 22.2|Luke 22:2 (1-2).]]

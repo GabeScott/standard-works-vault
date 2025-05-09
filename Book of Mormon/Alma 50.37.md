@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 4.17|Alma 4:17 (16-18).]]
-[^b]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
+[^b]: TG [[Perfection, Perfect, Perfectly]].

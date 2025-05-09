@@ -6,6 +6,6 @@
 
 
 [^a]: [[Matthew 8.10|Matt. 8:10.]]
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^b]: TG [[Faith]].
 [^c]: [[John 11.47|John 11:47 (47-48).]]
-[^d]: [[Matthew 13.58|Matt. 13:58]]. TG [Doubt](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng); [Unbelief](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng).
+[^d]: [[Matthew 13.58|Matt. 13:58]]. TG [[Doubt, Doubtful]]; [[Unbelief, Unbelievers]].

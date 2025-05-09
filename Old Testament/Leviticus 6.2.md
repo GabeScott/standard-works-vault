@@ -5,4 +5,4 @@
 [Leviticus 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/6.2?lang=eng#p2)
 
 
-[^a]: TG [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^a]: TG [[Lying, Liar, Lie]].

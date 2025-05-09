@@ -6,4 +6,4 @@
 
 
 [^a]: JST Matt. 13:39-44 (Appendix).
-[^b]: TG [Harvest.](https://www.churchofjesuschrist.org/study/scriptures/tg/harvest?lang=eng)
+[^b]: TG [[Harvest]].

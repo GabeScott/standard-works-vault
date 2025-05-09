@@ -5,5 +5,5 @@
 [Psalms 80:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/80.1?lang=eng#p1)
 
 
-[^a]: TG [Jesus Christ, Good Shepherd](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng); [Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)
-[^b]: TG [Cherubim.](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
+[^a]: TG [[Jesus Christ, Good Shepherd]]; [[Shepherd]].
+[^b]: TG [[Cherubim]].

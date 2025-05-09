@@ -5,6 +5,6 @@
 [Mosiah 2:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p34#p34)
 
 
-[^a]: Philip. 3:8 (7-10). TG [Debt](https://www.churchofjesuschrist.org/study/scriptures/tg/debt?lang=eng).
+[^a]: Philip. 3:8 (7-10). TG [[Debt]].
 [^b]: [[Romans 12.1|Rom. 12:1 (1-2).]]
 [^c]: [[1 Nephi 5.14|1 Ne. 5:14]]; [[Alma 33.2|Alma 33:2.]]

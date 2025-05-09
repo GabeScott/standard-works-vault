@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 32.4|D&C 32:4.]]
 [^b]: [[John 16.13|John 16:13.]]
-[^c]: TG [Mysteries of Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/mysteries-of-godliness?lang=eng)
+[^c]: TG [[Mysteries of Godliness]].

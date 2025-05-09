@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 84.18|D&C 84:18 (6-22)]]; [[D&C 107.53|107:53 (40-55).]]
-[^b]: TG [Priesthood, Magnifying Callings within.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng)
-[^c]: TG [Spirituality.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirituality?lang=eng)
+[^b]: TG [[Priesthood, Magnifying Callings within]].
+[^c]: TG [[Spirituality]].

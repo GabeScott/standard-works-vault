@@ -6,6 +6,6 @@
 
 
 [^a]: [[Isaiah 7.14|Isa. 7:14.]]
-[^b]: TG [Jesus Christ, Birth of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-birth-of?lang=eng)
-[^c]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
-[^d]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^b]: TG [[Jesus Christ, Birth of]].
+[^c]: TG [[Name of the Lord]].
+[^d]: TG [[Jesus Christ, Prophecies about]].

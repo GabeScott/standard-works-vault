@@ -6,5 +6,5 @@
 
 
 [^a]: GR toil.
-[^b]: [[Acts 18.3|Acts 18:3]]; [[Acts 20.34|20:34]]. TG [Work, Value of](https://www.churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng).
+[^b]: [[Acts 18.3|Acts 18:3]]; [[Acts 20.34|20:34]]. TG [[Work, Value of]].
 [^c]: GR burdensome. 1 Cor. 9:18 (4-18); [[2 Corinthians 11.9|2 Cor. 11:9.]]

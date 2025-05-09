@@ -5,4 +5,4 @@
 [John 8:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.26?lang=eng#p26)
 
 
-[^a]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^a]: TG [[Revelation]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Mosiah 4.12|Mosiah 4:12]]; [[Alma 5.26|Alma 5:26 (26-35)]]; [[D&C 20.32|D&C 20:32 (31-34).]]
-[^b]: TG [Justification.](https://www.churchofjesuschrist.org/study/scriptures/tg/justification?lang=eng)
-[^c]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
-[^d]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^b]: TG [[Justification, Justify]].
+[^c]: TG [[Joy]].
+[^d]: TG [[Deliver, Deliverance]].

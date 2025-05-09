@@ -5,6 +5,6 @@
 [Galatians 5:21](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/5.21?lang=eng#p21)
 
 
-[^a]: TG [Envy.](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
-[^b]: TG [Drunkenness](https://www.churchofjesuschrist.org/study/scriptures/tg/drunkenness?lang=eng); [Word of Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/word-of-wisdom?lang=eng)
-[^c]: TG [Rioting and Reveling.](https://www.churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng)
+[^a]: TG [[Envy, Envious]].
+[^b]: TG [[Drunkenness]]; [[Word of Wisdom]].
+[^c]: TG [[Rioting and Reveling]].

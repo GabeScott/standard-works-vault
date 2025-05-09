@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 25.20|2 Ne. 25:20]]; [[2 Nephi 31.21|31:21]]; [[Mosiah 4.8|Mosiah 4:8]]; [[Mosiah 5.8|5:8]]; [[Alma 21.9|Alma 21:9]]; [[Alma 38.9|38:9.]]
-[^b]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
-[^c]: [[1 Corinthians 15.20|1 Cor. 15:20]]; [[Mosiah 13.35|Mosiah 13:35]]; [[Alma 7.12|Alma 7:12]]; [[Alma 12.25|12:25 (24-25)]]; [[Alma 42.23|42:23]]. TG [Jesus Christ, Resurrection](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng).
+[^b]: TG [[Jesus Christ, Prophecies about]].
+[^c]: [[1 Corinthians 15.20|1 Cor. 15:20]]; [[Mosiah 13.35|Mosiah 13:35]]; [[Alma 7.12|Alma 7:12]]; [[Alma 12.25|12:25 (24-25)]]; [[Alma 42.23|42:23]]. TG [[Jesus Christ, Resurrection]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Exodus 33.20|JST Ex. 33:20 (Appendix).]]
 [^b]: [[Moses 1.11|Moses 1:11.]]
-[^c]: TG [God, Privilege of Seeing](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng); [Jesus Christ, Appearances, Antemortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-antemortal?lang=eng)
+[^c]: TG [[God, Privilege of Seeing]]; [[Jesus Christ, Appearances, Antemortal]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 55.22|Ps. 55:22]]; [[Matthew 6.25|Matt. 6:25]]; Philip. 4:6.
-[^b]: TG [Motivations.](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng)
+[^b]: TG [[Motivations]].

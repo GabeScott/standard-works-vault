@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 13.26|Alma 13:26]]; [[Helaman 14.26|Hel. 14:26 (9, 26, 28).]]
 [^b]: [[Isaiah 52.7|Isa. 52:7.]]
-[^c]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^c]: TG [[Prophets, Rejection of]].

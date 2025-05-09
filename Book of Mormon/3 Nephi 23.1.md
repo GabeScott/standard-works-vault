@@ -5,5 +5,5 @@
 [3 Nephi 23:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/23?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Scriptures, Study of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
+[^a]: TG [[Scriptures, Study of]].
 [^b]: [[2 Nephi 25.5|2 Ne. 25:5 (1-5)]]; [[3 Nephi 20.11|3 Ne. 20:11]]; [[Mormon 8.23|Morm. 8:23.]]

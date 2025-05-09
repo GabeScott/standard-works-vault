@@ -5,4 +5,4 @@
 [Psalms 119:130](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.130?lang=eng#p130)
 
 
-[^a]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^a]: TG [[Understanding]].

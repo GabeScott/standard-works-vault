@@ -6,4 +6,4 @@
 
 
 [^a]: OR charge.
-[^b]: TG [Justification.](https://www.churchofjesuschrist.org/study/scriptures/tg/justification?lang=eng)
+[^b]: TG [[Justification, Justify]].

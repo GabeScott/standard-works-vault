@@ -8,5 +8,5 @@
 [^a]: [[Hebrews 11.1|Heb. 11:1.]]
 [^b]: [[Romans 8.25|Rom. 8:25 (24-25).]]
 [^c]: [[Alma 32.21|Alma 32:21.]]
-[^d]: [[Leviticus 9.6|Lev. 9:6 (6, 23)]]; [[2 Nephi 1.15|2 Ne. 1:15]]. TG [Sign Seekers](https://www.churchofjesuschrist.org/study/scriptures/tg/sign-seekers?lang=eng).
-[^e]: [[3 Nephi 26.11|3 Ne. 26:11]]. TG [Test](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng).
+[^d]: [[Leviticus 9.6|Lev. 9:6 (6, 23)]]; [[2 Nephi 1.15|2 Ne. 1:15]]. TG [[Sign Seekers]].
+[^e]: [[3 Nephi 26.11|3 Ne. 26:11]]. TG [[Testament]].

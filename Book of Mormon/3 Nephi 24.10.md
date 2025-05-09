@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 64.23|D&C 64:23]]; [[D&C 119.4|119:4 (1-7).]]
-[^b]: TG [Food.](https://www.churchofjesuschrist.org/study/scriptures/tg/food?lang=eng)
+[^b]: TG [[Food]].
 [^c]: [[Genesis 7.11|Gen. 7:11.]]
-[^d]: TG [Blessing.](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)
+[^d]: TG [[Israel, Blessings of]].

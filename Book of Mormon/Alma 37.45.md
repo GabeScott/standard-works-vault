@@ -5,4 +5,4 @@
 [Alma 37:45](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p45#p45)
 
 
-[^a]: TG [Jesus Christ, Types of, in Anticipation.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng)
+[^a]: TG [[Jesus Christ, Types of, in Anticipation]].

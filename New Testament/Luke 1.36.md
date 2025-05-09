@@ -6,4 +6,4 @@
 
 
 [^a]: GR relative (not necessarily a cousin).
-[^b]: TG [Old Age.](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
+[^b]: TG [[Old Age]].

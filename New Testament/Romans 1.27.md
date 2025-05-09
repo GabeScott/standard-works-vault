@@ -5,4 +5,4 @@
 [Romans 1:27](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.27?lang=eng#p27)
 
 
-[^a]: TG [Homosexual Behavior](https://www.churchofjesuschrist.org/study/scriptures/tg/homosexual-behavior?lang=eng); [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
+[^a]: TG [[Homosexual Behavior]]; [[Lust]].

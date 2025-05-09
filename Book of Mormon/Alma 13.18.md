@@ -5,4 +5,4 @@
 [Alma 13:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p18#p18)
 
 
-[^a]: TG [Priesthood.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood?lang=eng)
+[^a]: TG [[Priesthood, History of]].

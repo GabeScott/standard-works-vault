@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 19.26|Mosiah 19:26.]]
-[^b]: TG [Life, Sanctity of.](https://www.churchofjesuschrist.org/study/scriptures/tg/life-sanctity-of?lang=eng)
+[^b]: TG [[Life, Sanctity of]].

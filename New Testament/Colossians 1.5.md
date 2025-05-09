@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Peter 1.4|1 Pet. 1:4.]]
-[^b]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^b]: TG [[Gospel]].

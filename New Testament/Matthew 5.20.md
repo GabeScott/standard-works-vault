@@ -5,5 +5,5 @@
 [Matthew 5:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.20?lang=eng#p20)
 
 
-[^a]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^b]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]].
+[^b]: TG [[Scribe]].

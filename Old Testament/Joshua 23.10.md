@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 20.4|Deut. 20:4.]]
-[^b]: TG [Promise.](https://www.churchofjesuschrist.org/study/scriptures/tg/promise?lang=eng)
+[^b]: TG [[Promise]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 2.3|Mosiah 2:3.]]
-[^b]: TG [Respect.](https://www.churchofjesuschrist.org/study/scriptures/tg/respect?lang=eng)
-[^c]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Respecter]].
+[^c]: TG [[Self-Sacrifice]].

@@ -5,6 +5,6 @@
 [1 Peter 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.1?lang=eng#p1)
 
 
-[^a]: TG [Family, Love within](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng); [Marriage, Wives.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-wives?lang=eng)
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Family, Love within]]; [[Marriage, Wives]].
+[^b]: TG [[Disobedience, Disobey]].
 [^c]: JST 1 Pet. 3:1 … conduct …

@@ -5,5 +5,5 @@
 [Hebrews 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1.10?lang=eng#p10)
 
 
-[^a]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
+[^a]: TG [[Jesus Christ, Creator]].
 [^b]: [[D&C 67.2|D&C 67:2.]]

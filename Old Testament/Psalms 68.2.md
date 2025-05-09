@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 97.5|Ps. 97:5]]; [[Micah 1.4|Micah 1:4.]]
-[^b]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^b]: TG [[God, Presence of]].

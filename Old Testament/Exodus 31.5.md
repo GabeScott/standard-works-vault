@@ -5,4 +5,4 @@
 [Exodus 31:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.5?lang=eng#p5)
 
 
-[^a]: TG [Skill.](https://www.churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng)
+[^a]: TG [[Skill]].

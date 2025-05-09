@@ -5,6 +5,6 @@
 [Galatians 3:24](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.24?lang=eng#p24)
 
 
-[^a]: TG [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
-[^b]: GR pedagogue, director, supervisor of children. JST Gal. 3:24 … schoolmaster until Christ … TG [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng).
+[^a]: TG [[Law of Moses]].
+[^b]: GR pedagogue, director, supervisor of children. JST Gal. 3:24 … schoolmaster until Christ … TG [[Jesus Christ, Types of, in Anticipation]].
 [^c]: See JST Rom. 4:16 (Rom. 4:16 note a). Moro. 10:32 (32-33).

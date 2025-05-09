@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 52.8|Ps. 52:8.]]
-[^b]: TG [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
+[^b]: TG [[Vineyard of the Lord]].

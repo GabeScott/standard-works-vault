@@ -6,4 +6,4 @@
 
 
 [^a]: GR authority.
-[^b]: TG [Retribution.](https://www.churchofjesuschrist.org/study/scriptures/tg/retribution?lang=eng)
+[^b]: TG [[Retribution]].

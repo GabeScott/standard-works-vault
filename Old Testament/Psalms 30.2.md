@@ -5,4 +5,4 @@
 [Psalms 30:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/30.2?lang=eng#p2)
 
 
-[^a]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^a]: TG [[Health]].

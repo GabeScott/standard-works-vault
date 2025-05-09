@@ -9,4 +9,4 @@
 [^b]: IE on the west.
 [^c]: [[Jeremiah 4.8|Jer. 4:8.]]
 [^d]: IE In spite of all, the Lord is available if they will turn to Him (also vv. 17, 21).
-[^e]: TG [God, Access to.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-access-to?lang=eng)
+[^e]: TG [[God, Access to]].

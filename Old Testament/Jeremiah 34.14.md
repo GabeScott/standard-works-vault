@@ -5,4 +5,4 @@
 [Jeremiah 34:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/34.14?lang=eng#p14)
 
 
-[^a]: TG [Sabbatical Year.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbatical-year?lang=eng)
+[^a]: TG [[Sabbatical Year]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Luke 23.46|Luke 23:46.]]
-[^b]: TG [Death, Power over](https://www.churchofjesuschrist.org/study/scriptures/tg/death-power-over?lang=eng); [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
+[^b]: TG [[Death, Power over]]; [[God, Power of]].
 [^c]: GR authority, full power.
-[^d]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
+[^d]: TG [[Jesus Christ, Authority of]].

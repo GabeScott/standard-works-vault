@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 36.7|Ps. 36:7 (7-8)]]; [[Mosiah 4.6|Mosiah 4:6]]; [[Helaman 12.1|Hel. 12:1.]]
-[^c]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
-[^d]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^c]: TG [[Strength]].
+[^d]: TG [[Singing, Sing, Sang, Sung]].

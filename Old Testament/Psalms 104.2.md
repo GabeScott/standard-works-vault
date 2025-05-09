@@ -6,4 +6,4 @@
 
 
 [^a]: [[Job 9.8|Job 9:8]]; [[Isaiah 40.22|Isa. 40:22.]]
-[^b]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^b]: TG [[Man, a Spirit Child of Heavenly Father]].

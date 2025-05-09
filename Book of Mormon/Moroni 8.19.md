@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 18.16|Luke 18:16 (15-17).]]
-[^b]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^b]: TG [[God, Mercy of]].

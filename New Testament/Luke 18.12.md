@@ -6,5 +6,5 @@
 
 
 [^a]: [[Exodus 34.28|Ex. 34:28.]]
-[^b]: TG [Tithing.](https://www.churchofjesuschrist.org/study/scriptures/tg/tithing?lang=eng)
+[^b]: TG [[Tithing]].
 [^c]: GR acquire, gain, or possess.

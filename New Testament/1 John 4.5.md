@@ -5,4 +5,4 @@
 [1 John 4:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/4.5?lang=eng#p5)
 
 
-[^a]: TG [Worldliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
+[^a]: TG [[Worldliness]].

@@ -6,4 +6,4 @@
 
 
 [^a]: IE But I will tell you what is inscribed in the writing of truth: No one supports me against them (Persia and Grecia, which is Macedonia) except Michael your prince.
-[^b]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^b]: TG [[Angels]].

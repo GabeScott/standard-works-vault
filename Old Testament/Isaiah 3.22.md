@@ -6,4 +6,4 @@
 
 
 [^a]: HEB resplendent garments.
-[^b]: TG [Apparel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng)
+[^b]: TG [[Apparel]].

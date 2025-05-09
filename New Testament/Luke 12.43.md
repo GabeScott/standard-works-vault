@@ -5,4 +5,4 @@
 [Luke 12:43](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.43?lang=eng#p43)
 
 
-[^a]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
+[^a]: TG [[Commitment]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[John 16.33|John 16:33]]; 1 Jn. 1:7.
-[^b]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
-[^c]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^b]: TG [[Testimony]].
+[^c]: TG [[Martyrdom]].

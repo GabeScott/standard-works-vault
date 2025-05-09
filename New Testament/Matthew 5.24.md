@@ -5,4 +5,4 @@
 [Matthew 5:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.24?lang=eng#p24)
 
 
-[^a]: [[Matthew 18.15|Matt. 18:15 (15-18)]]. TG [Forgive](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng); [Reconciliation](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng).
+[^a]: [[Matthew 18.15|Matt. 18:15 (15-18)]]. TG [[Forgive, Forgiveness]]; [[Reconciliation, Reconcile]].

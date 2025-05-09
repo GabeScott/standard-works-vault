@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 3.26|Mosiah 3:26]]; [[Moroni 8.8|Moro. 8:8.]]
-[^b]: TG [Fall of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng)
-[^c]: TG [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
+[^b]: TG [[Fall of Man]].
+[^c]: TG [[Jesus Christ, Redeemer]].

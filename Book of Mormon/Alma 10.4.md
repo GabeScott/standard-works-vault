@@ -7,4 +7,4 @@
 
 [^a]: [[Acts 5.34|Acts 5:34 (34-39).]]
 [^b]: [[Alma 15.16|Alma 15:16.]]
-[^c]: TG [Industry](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng); [Work, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng)
+[^c]: TG [[Industry, Industrious]]; [[Work, Value of]].

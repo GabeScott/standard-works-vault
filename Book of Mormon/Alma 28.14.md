@@ -5,5 +5,5 @@
 [Alma 28:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/28?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Diligence](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng); [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
-[^b]: TG [Light of Christ.](https://www.churchofjesuschrist.org/study/scriptures/tg/light-of-christ?lang=eng)
+[^a]: TG [[Diligence, Diligent, Diligently]]; [[Vineyard of the Lord]].
+[^b]: TG [[Light of Christ]].

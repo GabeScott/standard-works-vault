@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 77.9|D&C 77:9.]]
-[^b]: TG [Seal.](https://www.churchofjesuschrist.org/study/scriptures/tg/seal?lang=eng)
+[^b]: TG [[Seal]].

@@ -6,7 +6,7 @@
 
 
 [^a]: [[Galatians 6.9|Gal. 6:9 (8-10).]]
-[^b]: TG [Worldliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
-[^c]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
-[^d]: TG [Pleasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/pleasure?lang=eng)
-[^e]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
+[^b]: TG [[Worldliness]].
+[^c]: TG [[Treasure]].
+[^d]: TG [[Pleasure]].
+[^e]: TG [[Perfection, Perfect, Perfectly]].

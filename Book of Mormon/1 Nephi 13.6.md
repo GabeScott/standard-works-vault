@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 88.94|D&C 88:94.]]
-[^b]: TG [Devil, Church of.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil-church-of?lang=eng)
-[^c]: [[1 Nephi 22.23|1 Ne. 22:23 (22-23)]]. TG [Devil](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng).
+[^b]: TG [[Devil, Church of]].
+[^c]: [[1 Nephi 22.23|1 Ne. 22:23 (22-23)]]. TG [[Devil, Church of]].

@@ -5,6 +5,6 @@
 [Hebrews 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/5.6?lang=eng#p6)
 
 
-[^a]: TG [Priesthood, Melchizedek.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-melchizedek?lang=eng)
+[^a]: TG [[Priesthood, Melchizedek]].
 [^b]: [[D&C 124.130|D&C 124:130.]]
-[^c]: TG [Priesthood, History of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-history-of?lang=eng)
+[^c]: TG [[Priesthood, History of]].

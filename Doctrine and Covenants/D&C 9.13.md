@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 29.9|Deut. 29:9]]; [[Psalms 1.3|Ps. 1:3 (2-3).]]
-[^b]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
+[^b]: TG [[Temptation]].

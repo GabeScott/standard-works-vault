@@ -5,5 +5,5 @@
 [Deuteronomy 24:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/24.8?lang=eng#p8)
 
 
-[^a]: TG [Leprosy.](https://www.churchofjesuschrist.org/study/scriptures/tg/leprosy?lang=eng)
-[^b]: TG [Teacher.](https://www.churchofjesuschrist.org/study/scriptures/tg/teacher?lang=eng)
+[^a]: TG [[Leprosy, Leper, Leprous]].
+[^b]: TG [[Teacher]].

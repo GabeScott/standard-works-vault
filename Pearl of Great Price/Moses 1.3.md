@@ -5,6 +5,6 @@
 [Moses 1:3](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.3?lang=eng#p3)
 
 
-[^a]: [[Revelation 19.6|Rev. 19:6]]. TG [Jesus Christ, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng).
-[^b]: [[Isaiah 63.16|Isa. 63:16]]; [[D&C 19.10|D&C 19:10 (9-12)]]; [[Moses 7.35|Moses 7:35]]. TG [God, Eternal Nature of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-eternal-nature-of?lang=eng).
+[^a]: [[Revelation 19.6|Rev. 19:6]]. TG [[Jesus Christ, Power of]].
+[^b]: [[Isaiah 63.16|Isa. 63:16]]; [[D&C 19.10|D&C 19:10 (9-12)]]; [[Moses 7.35|Moses 7:35]]. TG [[God, Eternal Nature of]].
 [^c]: [[Exodus 3.15|Ex. 3:15.]]

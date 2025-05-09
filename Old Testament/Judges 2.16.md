@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ruth 1.1|Ruth 1:1]]; [[2 Samuel 7.11|2 Sam. 7:11]]; [[Mosiah 29.41|Mosiah 29:41 (41, 44).]]
-[^b]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^b]: TG [[Deliver, Deliverance]].

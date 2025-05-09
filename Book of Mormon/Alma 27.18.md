@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 28.8|Alma 28:8.]]
-[^b]: TG [Happiness](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng); [Objectives.](https://www.churchofjesuschrist.org/study/scriptures/tg/objectives?lang=eng)
+[^b]: TG [[Happiness, Happy]]; [[Objectives]].

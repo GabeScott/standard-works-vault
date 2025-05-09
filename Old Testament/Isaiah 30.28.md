@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 11.4|Isa. 11:4.]]
 [^b]: [[Isaiah 8.8|Isa. 8:8.]]
-[^c]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
+[^c]: TG [[Vanity]].

@@ -5,4 +5,4 @@
 [Abraham 1:25](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.25?lang=eng#p25)
 
 
-[^a]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^a]: TG [[Governments]].

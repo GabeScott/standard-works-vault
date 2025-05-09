@@ -6,4 +6,4 @@
 
 
 [^a]: OR became. See JST Matt. 3:24-26 (Appendix).
-[^b]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^b]: TG [[Grace]].

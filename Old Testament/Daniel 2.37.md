@@ -5,4 +5,4 @@
 [Daniel 2:37](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.37?lang=eng#p37)
 
 
-[^a]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^a]: TG [[Governments]].

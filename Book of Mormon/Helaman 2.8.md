@@ -5,5 +5,5 @@
 [Helaman 2:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/2?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Conspiracy.](https://www.churchofjesuschrist.org/study/scriptures/tg/conspiracy?lang=eng)
-[^b]: [[2 Nephi 10.15|2 Ne. 10:15]]; [[Moses 5.31|Moses 5:31 (18-31)]]. TG [Secret Combinations](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng).
+[^a]: TG [[Conspiracy]].
+[^b]: [[2 Nephi 10.15|2 Ne. 10:15]]; [[Moses 5.31|Moses 5:31 (18-31)]]. TG [[Secret Combinations]].

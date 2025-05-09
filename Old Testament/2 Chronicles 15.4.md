@@ -5,5 +5,5 @@
 [2 Chronicles 15:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/15.4?lang=eng#p4)
 
 
-[^a]: TG [Adversity.](https://www.churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng)
-[^b]: TG [God, Access to.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-access-to?lang=eng)
+[^a]: TG [[Adversity]].
+[^b]: TG [[God, Access to]].

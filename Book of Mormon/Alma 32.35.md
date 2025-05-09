@@ -5,5 +5,5 @@
 [Alma 32:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p35#p35)
 
 
-[^a]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^a]: TG [[Light]].
 [^b]: [[Genesis 1.4|Gen. 1:4.]]

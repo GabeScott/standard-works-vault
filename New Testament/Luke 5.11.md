@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 14.33|Luke 14:33 (28-33).]]
-[^b]: TG [Apostles.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng)
+[^b]: TG [[Apostles]].

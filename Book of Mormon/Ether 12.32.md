@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 14.2|John 14:2]]; [[Enos 1.27|Enos 1:27]]; [[D&C 72.4|D&C 72:4]]; [[D&C 98.18|98:18.]]
-[^b]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
+[^b]: TG [[Hope]].

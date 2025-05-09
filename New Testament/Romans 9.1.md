@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Timothy 2.7|1 Tim. 2:7.]]
-[^b]: TG [Conscience.](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
+[^b]: TG [[Conscience]].

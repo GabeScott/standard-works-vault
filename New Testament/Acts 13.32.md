@@ -5,4 +5,4 @@
 [Acts 13:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.32?lang=eng#p32)
 
 
-[^a]: TG [Family, Patriarchal.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-patriarchal?lang=eng)
+[^a]: TG [[Family, Patriarchal]].

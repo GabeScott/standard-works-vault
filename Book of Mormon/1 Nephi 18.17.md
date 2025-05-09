@@ -7,5 +7,5 @@
 
 [^a]: [[1 Nephi 7.4|1 Ne. 7:4 (4-20).]]
 [^b]: [[Genesis 24.1|Gen. 24:1.]]
-[^c]: TG [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
-[^d]: TG [Family, Children, Duties of](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-duties-of?lang=eng); [Honoring Father and Mother.](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng)
+[^c]: TG [[Suffering]].
+[^d]: TG [[Family, Children, Duties of]]; [[Honoring Father and Mother]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 35.25|D&C 35:25]]; [[D&C 38.33|38:33.]]
-[^c]: TG [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
+[^c]: TG [[Salvation, Plan of]].

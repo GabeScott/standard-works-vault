@@ -5,5 +5,5 @@
 [Psalms 38:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/38.18?lang=eng#p18)
 
 
-[^a]: TG [Confession.](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng)
-[^b]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Confession]].
+[^b]: TG [[Repent, Repentance]].

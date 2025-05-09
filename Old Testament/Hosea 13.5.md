@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 2.7|Deut. 2:7.]]
-[^b]: TG [Drought.](https://www.churchofjesuschrist.org/study/scriptures/tg/drought?lang=eng)
+[^b]: TG [[Drought]].

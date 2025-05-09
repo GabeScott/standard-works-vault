@@ -5,4 +5,4 @@
 [Luke 14:13](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.13?lang=eng#p13)
 
 
-[^a]: TG [Generosity](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng); [Poor.](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng)
+[^a]: TG [[Generosity]]; [[Poor]].

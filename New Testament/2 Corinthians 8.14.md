@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 1.30|Alma 1:30 (29-30).]]
-[^b]: TG [Consecration.](https://www.churchofjesuschrist.org/study/scriptures/tg/consecration?lang=eng)
+[^b]: TG [[Consecration]].

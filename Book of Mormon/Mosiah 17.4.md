@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Kings 17.3|1 Kgs. 17:3 (1-16)]]; [[Ether 13.13|Ether 13:13 (13, 22).]]
-[^b]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^b]: TG [[Scriptures, Writing of]].

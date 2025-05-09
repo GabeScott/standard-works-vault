@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 58.4|D&C 58:4.]]
-[^b]: TG [Tribulation.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
+[^b]: TG [[Tribulation]].
 [^c]: [[Alma 17.9|Alma 17:9 (9-11)]]; [[Alma 26.3|26:3.]]
 [^d]: [[Mosiah 18.35|Mosiah 18:35.]]

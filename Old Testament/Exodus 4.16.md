@@ -5,6 +5,6 @@
 [Exodus 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.16?lang=eng#p16)
 
 
-[^a]: [[Exodus 16.9|Ex. 16:9]]; [[2 Nephi 3.17|2 Ne. 3:17 (17-18)]]; [[D&C 100.9|D&C 100:9 (9-11)]]; [[D&C 124.104|124:104]]. TG [Prophecy](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng).
-[^b]: A prophet is a spokesman; hence he speaks for, or instead of, God. TG [Prophets, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng).
+[^a]: [[Exodus 16.9|Ex. 16:9]]; [[2 Nephi 3.17|2 Ne. 3:17 (17-18)]]; [[D&C 100.9|D&C 100:9 (9-11)]]; [[D&C 124.104|124:104]]. TG [[Prophecy]].
+[^b]: A prophet is a spokesman; hence he speaks for, or instead of, God. TG [[Prophets, Mission of]].
 [^c]: [[Exodus 7.1|Ex. 7:1]]; [[Exodus 18.19|18:19.]]

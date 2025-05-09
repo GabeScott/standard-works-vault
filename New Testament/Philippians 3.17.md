@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 16.24|Matt. 16:24 (24-26)]]; [[Ephesians 5.1|Eph. 5:1]]; 1 Thes. 1:6.
-[^b]: TG [Example.](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
+[^b]: TG [[Example, Ensample]].

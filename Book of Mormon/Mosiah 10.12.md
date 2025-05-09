@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 17.14|Alma 17:14.]]
 [^b]: [[2 Nephi 5.1|2 Ne. 5:1 (1-3)]]; [[Mosiah 1.5|Mosiah 1:5]]; [[Alma 3.8|Alma 3:8.]]
-[^c]: TG [Injustice.](https://www.churchofjesuschrist.org/study/scriptures/tg/injustice?lang=eng)
+[^c]: TG [[Injustice]].

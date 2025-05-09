@@ -5,6 +5,6 @@
 [Isaiah 45:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.12?lang=eng#p12)
 
 
-[^a]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
-[^b]: TG [Man, Physical Creation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)
+[^a]: TG [[Jesus Christ, Creator]].
+[^b]: TG [[Man, Physical Creation of]].
 [^c]: [[Genesis 2.1|Gen. 2:1.]]

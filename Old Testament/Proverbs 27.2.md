@@ -5,4 +5,4 @@
 [Proverbs 27:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/27.2?lang=eng#p2)
 
 
-[^a]: TG [Boast](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng); [Humility.](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng)
+[^a]: TG [[Boast, Boasting]]; [[Humility, Humble]].

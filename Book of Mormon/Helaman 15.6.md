@@ -5,4 +5,4 @@
 [Helaman 15:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/15?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Dedication.](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng)
+[^a]: TG [[Dedication, Dedicate]].

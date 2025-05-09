@@ -6,5 +6,5 @@
 
 
 [^a]: [[3 Nephi 27.20|3 Ne. 27:20]]; [[Moroni 7.34|Moro. 7:34.]]
-[^b]: [[John 3.5|John 3:5 (3-5)]]. TG [Baptism, Essential](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-essential?lang=eng).
-[^c]: TG [Holy Ghost, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng)
+[^b]: [[John 3.5|John 3:5 (3-5)]]. TG [[Baptism, Essential]].
+[^c]: TG [[Holy Ghost, Gifts of]].

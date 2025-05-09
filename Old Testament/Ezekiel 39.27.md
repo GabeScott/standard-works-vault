@@ -5,4 +5,4 @@
 [Ezekiel 39:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/39.27?lang=eng#p27)
 
 
-[^a]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[Israel, Gathering of]].

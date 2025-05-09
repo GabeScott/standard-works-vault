@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 7.25|Lev. 7:25]]; [[Ezekiel 44.7|Ezek. 44:7.]]
-[^b]: TG [Blood, Eating of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-eating-of?lang=eng)
+[^b]: TG [[Blood, Eating of]].

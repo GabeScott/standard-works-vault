@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Chronicles 12.29|1 Chr. 12:29.]]
-[^b]: TG [Talents.](https://www.churchofjesuschrist.org/study/scriptures/tg/talents?lang=eng)
+[^b]: TG [[Talents]].
 [^c]: [[1 Samuel 10.23|1 Sam. 10:23.]]

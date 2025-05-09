@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 4.54|John 4:54.]]
-[^b]: TG [Miracle.](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
+[^b]: TG [[Miracle]].

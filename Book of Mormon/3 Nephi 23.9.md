@@ -7,5 +7,5 @@
 
 [^a]: [[Helaman 13.2|Hel. 13:2.]]
 [^b]: [[Helaman 14.25|Hel. 14:25 (1, 21-26).]]
-[^c]: TG [Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng)
-[^d]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^c]: TG [[Mission of Latter-day Saints]].
+[^d]: TG [[Jesus Christ, Resurrection]].

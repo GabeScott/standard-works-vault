@@ -5,4 +5,4 @@
 [Philippians 3:20](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.20?lang=eng#p20)
 
 
-[^a]: TG [Jesus Christ, Savior.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng)
+[^a]: TG [[Jesus Christ, Savior]].

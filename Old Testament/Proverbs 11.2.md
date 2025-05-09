@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 26.20|2 Ne. 26:20 (20-22)]]; [[D&C 38.39|D&C 38:39.]]
-[^b]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^b]: TG [[Shame]].

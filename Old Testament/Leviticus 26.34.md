@@ -5,4 +5,4 @@
 [Leviticus 26:34](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.34?lang=eng#p34)
 
 
-[^a]: TG [Sabbatical Year.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbatical-year?lang=eng)
+[^a]: TG [[Sabbatical Year]].

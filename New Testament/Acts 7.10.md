@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 24.1|D&C 24:1.]]
-[^b]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
+[^b]: TG [[Affliction]].

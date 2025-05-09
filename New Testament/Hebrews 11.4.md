@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 4.4|Gen. 4:4.]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].

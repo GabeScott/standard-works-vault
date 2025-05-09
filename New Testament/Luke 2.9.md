@@ -5,4 +5,4 @@
 [Luke 2:9](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.9?lang=eng#p9)
 
 
-[^a]: TG [God, Glory of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-glory-of?lang=eng)
+[^a]: TG [[God, Glory of]].

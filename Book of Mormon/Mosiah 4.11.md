@@ -6,9 +6,9 @@
 
 
 [^a]: [[Psalms 34.8|Ps. 34:8]]; [[Alma 36.24|Alma 36:24 (24-26).]]
-[^b]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^b]: TG [[Remission of Sins]].
 [^c]: [[Romans 5.8|Rom. 5:8 (6-8)]]; [[Moses 1.10|Moses 1:10.]]
 [^d]: [[Exodus 34.6|Ex. 34:6 (5-7)]]; [[Moroni 8.3|Moro. 8:3.]]
-[^e]: TG [Humility.](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng)
-[^f]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
-[^g]: TG [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
+[^e]: TG [[Humility, Humble]].
+[^f]: TG [[Prayer, Pray]].
+[^g]: TG [[Steadfastness, Steadfast]].

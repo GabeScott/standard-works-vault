@@ -5,7 +5,7 @@
 [Alma 5:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p27#p27)
 
 
-[^a]: 1 Jn. 3:21 (19-24). TG [Justification](https://www.churchofjesuschrist.org/study/scriptures/tg/justification?lang=eng).
-[^b]: TG [Humility.](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng)
+[^a]: 1 Jn. 3:21 (19-24). TG [[Justification, Justify]].
+[^b]: TG [[Humility, Humble]].
 [^c]: [[Revelation 19.8|Rev. 19:8.]]
-[^d]: [[1 Corinthians 15.3|1 Cor. 15:3]]. TG [Jesus Christ, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng).
+[^d]: [[1 Corinthians 15.3|1 Cor. 15:3]]. TG [[Jesus Christ, Mission of]].

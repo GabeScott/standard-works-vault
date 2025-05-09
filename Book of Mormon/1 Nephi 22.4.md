@@ -5,7 +5,7 @@
 [1 Nephi 22:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^a]: TG [[Israel, Ten Lost Tribes of]].
 [^b]: [[2 Nephi 10.22|2 Ne. 10:22.]]
 [^c]: [[Psalms 107.4|Ps. 107:4]]; [[Zechariah 2.6|Zech. 2:6.]]
 [^d]: [[Isaiah 51.5|Isa. 51:5]]; [[1 Nephi 21.1|1 Ne. 21:1]]; [[2 Nephi 10.8|2 Ne. 10:8 (8, 20).]]

@@ -5,7 +5,7 @@
 [Isaiah 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.16?lang=eng#p16)
 
 
-[^a]: [[Jeremiah 7.3|Jer. 7:3 (1-7)]]. TG [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng).
-[^b]: TG [Cleanliness](https://www.churchofjesuschrist.org/study/scriptures/tg/cleanliness?lang=eng); [Purification](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng); [Purity.](https://www.churchofjesuschrist.org/study/scriptures/tg/purity?lang=eng)
-[^c]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
-[^d]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: [[Jeremiah 7.3|Jer. 7:3 (1-7)]]. TG [[Holy Ghost, Baptism of]].
+[^b]: TG [[Cleanliness]]; [[Purification, Purify, Purifying]]; [[Purity, Pure]].
+[^c]: TG [[Evil]].
+[^d]: TG [[Repent, Repentance]].

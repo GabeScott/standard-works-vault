@@ -5,4 +5,4 @@
 [Genesis 17:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.23?lang=eng#p23)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^a]: TG [[Circumcision]].

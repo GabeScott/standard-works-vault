@@ -5,5 +5,5 @@
 [1 Timothy 5:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.13?lang=eng#p13)
 
 
-[^a]: TG [Idleness.](https://www.churchofjesuschrist.org/study/scriptures/tg/idleness?lang=eng)
-[^b]: TG [Gossip.](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng)
+[^a]: TG [[Idleness, Idle, Idler]].
+[^b]: TG [[Gossip]].

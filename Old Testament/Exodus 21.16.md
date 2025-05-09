@@ -5,4 +5,4 @@
 [Exodus 21:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/21.16?lang=eng#p16)
 
 
-[^a]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^a]: TG [[Stealing, Stolen]].

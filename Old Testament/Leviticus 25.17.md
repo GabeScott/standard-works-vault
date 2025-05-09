@@ -5,5 +5,5 @@
 [Leviticus 25:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.17?lang=eng#p17)
 
 
-[^a]: TG [Oppression.](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng)
+[^a]: TG [[Oppression, Oppress]].
 [^b]: [[Leviticus 25.14|Lev. 25:14.]]

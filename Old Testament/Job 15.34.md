@@ -5,5 +5,5 @@
 [Job 15:34](https://www.churchofjesuschrist.org/study/scriptures/ot/job/15.34?lang=eng#p34)
 
 
-[^a]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
-[^b]: TG [Bribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/bribe?lang=eng)
+[^a]: TG [[Hypocrisy, Hypocrite]].
+[^b]: TG [[Bribe, Bribery]].

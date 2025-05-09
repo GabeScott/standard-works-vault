@@ -6,5 +6,5 @@
 
 
 [^a]: OR festering boils.
-[^b]: [[Deuteronomy 28.27|Deut. 28:27]]. TG [Plague](https://www.churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng).
+[^b]: [[Deuteronomy 28.27|Deut. 28:27]]. TG [[Plague]].
 [^c]: HEB blisters, pustules.

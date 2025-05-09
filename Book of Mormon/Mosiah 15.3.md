@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 93.4|D&C 93:4.]]
-[^b]: [[Luke 1.32|Luke 1:32 (31-33)]]; [[Mosiah 3.8|Mosiah 3:8 (8-9)]]; [[Alma 7.10|Alma 7:10]]; [[3 Nephi 1.14|3 Ne. 1:14]]. TG [Jesus Christ, Divine Sonship](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng).
+[^b]: [[Luke 1.32|Luke 1:32 (31-33)]]; [[Mosiah 3.8|Mosiah 3:8 (8-9)]]; [[Alma 7.10|Alma 7:10]]; [[3 Nephi 1.14|3 Ne. 1:14]]. TG [[Jesus Christ, Divine Sonship]].

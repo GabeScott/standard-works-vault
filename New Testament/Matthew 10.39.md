@@ -7,5 +7,5 @@
 
 [^a]: JST Matt. 10:34 He who seeketh to save his life …
 [^b]: GR sacrifice.
-[^c]: [[Luke 9.24|Luke 9:24 (23-26)]]. TG [Loyalty](https://www.churchofjesuschrist.org/study/scriptures/tg/loyalty?lang=eng).
-[^d]: TG [Martyrdom](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng); [Self-Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng)
+[^c]: [[Luke 9.24|Luke 9:24 (23-26)]]. TG [[Loyalty]].
+[^d]: TG [[Martyrdom]]; [[Self-Sacrifice]].

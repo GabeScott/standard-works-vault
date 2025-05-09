@@ -5,5 +5,5 @@
 [Numbers 29:1](https://www.churchofjesuschrist.org/study/scriptures/ot/num/29.1?lang=eng#p1)
 
 
-[^a]: TG [Meetings.](https://www.churchofjesuschrist.org/study/scriptures/tg/meetings?lang=eng)
+[^a]: TG [[Meetings]].
 [^b]: [[Leviticus 23.24|Lev. 23:24 (23-25).]]

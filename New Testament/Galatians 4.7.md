@@ -6,5 +6,5 @@
 
 
 [^a]: GR slave.
-[^b]: TG [Sons and Daughters of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)
-[^c]: TG [Eternal Life](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng); [Man, Potential to Become like Heavenly Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-potential-to-become-like-heavenly-father?lang=eng)
+[^b]: TG [[Sons and Daughters of God]].
+[^c]: TG [[Eternal Life]]; [[Man, Potential to Become like Heavenly Father]].

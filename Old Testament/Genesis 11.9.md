@@ -6,6 +6,6 @@
 
 
 [^a]: HEB balal, “mix,” “confound” (a word play on Babel).
-[^b]: TG [Language.](https://www.churchofjesuschrist.org/study/scriptures/tg/language?lang=eng)
-[^c]: [[1 Nephi 10.13|1 Ne. 10:13 (12-13)]]. TG [Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-mormon?lang=eng).
+[^b]: TG [[Language]].
+[^c]: [[1 Nephi 10.13|1 Ne. 10:13 (12-13)]]. TG [[Book of Mormon]].
 [^d]: [[Ether 1.33|Ether 1:33 (33-43).]]

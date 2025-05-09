@@ -6,4 +6,4 @@
 
 
 [^a]: IE the effects of sin.
-[^c]: TG [Accountability](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng); [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
+[^c]: TG [[Accountability]]; [[Hate]].

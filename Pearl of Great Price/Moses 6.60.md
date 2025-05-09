@@ -6,6 +6,6 @@
 
 
 [^a]: [[Moroni 8.25|Moro. 8:25.]]
-[^b]: TG [Justification.](https://www.churchofjesuschrist.org/study/scriptures/tg/justification?lang=eng)
-[^c]: TG [Blood, Shedding of](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-shedding-of?lang=eng); [Blood, Symbolism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng)
-[^d]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^b]: TG [[Justification, Justify]].
+[^c]: TG [[Blood, Shedding of]]; [[Blood, Symbolism of]].
+[^d]: TG [[Sanctification, Sanctify]].

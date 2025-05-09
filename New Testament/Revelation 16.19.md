@@ -5,5 +5,5 @@
 [Revelation 16:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.19?lang=eng#p19)
 
 
-[^a]: TG [Babylon.](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng)
-[^b]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^a]: TG [[Babylon]].
+[^b]: TG [[God, Indignation of]].

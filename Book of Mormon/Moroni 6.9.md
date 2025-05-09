@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 20.45|D&C 20:45]]; [[D&C 46.2|46:2.]]
-[^b]: [[1 Nephi 13.37|1 Ne. 13:37]]; [[Moroni 3.4|Moro. 3:4]]. TG [Holy Ghost, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng); [Teaching with the Spirit](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching-with-the-spirit?lang=eng).
+[^b]: [[1 Nephi 13.37|1 Ne. 13:37]]; [[Moroni 3.4|Moro. 3:4]]. TG [[Holy Ghost, Gifts of]]; [[Teaching with the Spirit]].

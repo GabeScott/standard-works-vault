@@ -5,8 +5,8 @@
 [Hosea 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.2?lang=eng#p2)
 
 
-[^a]: TG [Profanity](https://www.churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng); [Swearing.](https://www.churchofjesuschrist.org/study/scriptures/tg/swearing?lang=eng)
-[^b]: TG [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
-[^c]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^a]: TG [[Profanity]]; [[Swearing, Swear, Sware, Sworn]].
+[^b]: TG [[Lying, Liar, Lie]].
+[^c]: TG [[Stealing, Stolen]].
 [^d]: IE break all bounds.
 [^e]: OR bloodshed leads to bloodshed.

@@ -5,5 +5,5 @@
 [Proverbs 14:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.23?lang=eng#p23)
 
 
-[^a]: TG [Labor](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng); [Work, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng)
-[^b]: TG [Communication.](https://www.churchofjesuschrist.org/study/scriptures/tg/communication?lang=eng)
+[^a]: TG [[Labor]]; [[Work, Value of]].
+[^b]: TG [[Communication]].

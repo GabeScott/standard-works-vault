@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 44.24|Isa. 44:24.]]
-[^b]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^b]: TG [[Strength]].

@@ -5,4 +5,4 @@
 [Lamentations 1:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/1.7?lang=eng#p7)
 
 
-[^a]: TG [Mocking.](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng)
+[^a]: TG [[Mocking, Mock, Mocker, Mockery]].

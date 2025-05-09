@@ -5,4 +5,4 @@
 [Proverbs 27:14](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/27.14?lang=eng#p14)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^a]: TG [[Curse]].

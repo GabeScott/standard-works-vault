@@ -5,4 +5,4 @@
 [Helaman 3:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p34#p34)
 
 
-[^a]: TG [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
+[^a]: TG [[Pride]].

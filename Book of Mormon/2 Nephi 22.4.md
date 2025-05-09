@@ -5,4 +5,4 @@
 [2 Nephi 22:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/22?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Praise](https://www.churchofjesuschrist.org/study/scriptures/tg/praise?lang=eng); [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^a]: TG [[Praise]]; [[Thanksgiving]].

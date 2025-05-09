@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 5.44|Matt. 5:44.]]
-[^b]: TG [Friendship.](https://www.churchofjesuschrist.org/study/scriptures/tg/friendship?lang=eng)
+[^b]: TG [[Friendship, Friend]].

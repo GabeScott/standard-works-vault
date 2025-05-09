@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 16.52|Ezek. 16:52.]]
-[^b]: [[D&C 10.28|D&C 10:28]]. TG [Judgment, the Last](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng).
+[^b]: [[D&C 10.28|D&C 10:28]]. TG [[Judgment, the Last]].

@@ -5,6 +5,6 @@
 [Hebrews 12:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/12.1?lang=eng#p1)
 
 
-[^a]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^a]: TG [[Sin]].
 [^b]: [[Romans 7.21|Rom. 7:21 (15-25)]]; [[2 Nephi 4.18|2 Ne. 4:18 (17-19).]]
-[^c]: TG [Patience](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng); [Perseverance.](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng)
+[^c]: TG [[Patience, Patient, Patiently]]; [[Perseverance]].

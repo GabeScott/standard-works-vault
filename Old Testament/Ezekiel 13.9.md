@@ -5,5 +5,5 @@
 [Ezekiel 13:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.9?lang=eng#p9)
 
 
-[^a]: TG [Book of Life](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-life?lang=eng); [Book of Remembrance](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-remembrance?lang=eng); [Record Keeping.](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng)
+[^a]: TG [[Book of Life]]; [[Book of Remembrance]]; [[Record Keeping]].
 [^b]: [[Ezekiel 20.38|Ezek. 20:38.]]

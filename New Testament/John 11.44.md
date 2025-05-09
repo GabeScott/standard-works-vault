@@ -5,5 +5,5 @@
 [John 11:44](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.44?lang=eng#p44)
 
 
-[^a]: [[2 Kings 8.1|2 Kgs. 8:1]]. TG [Death, Power over](https://www.churchofjesuschrist.org/study/scriptures/tg/death-power-over?lang=eng).
+[^a]: [[2 Kings 8.1|2 Kgs. 8:1]]. TG [[Death, Power over]].
 [^b]: [[John 20.7|John 20:7.]]

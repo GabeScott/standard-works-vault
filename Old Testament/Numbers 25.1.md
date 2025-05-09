@@ -5,4 +5,4 @@
 [Numbers 25:1](https://www.churchofjesuschrist.org/study/scriptures/ot/num/25.1?lang=eng#p1)
 
 
-[^a]: TG [Sexual Immorality](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng); [Whore.](https://www.churchofjesuschrist.org/study/scriptures/tg/whore?lang=eng)
+[^a]: TG [[Sexual Immorality]]; [[Whore, Whoredom]].

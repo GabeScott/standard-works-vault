@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 19.16|Prov. 19:16]]; [[Mormon 9.26|Morm. 9:26.]]
-[^b]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^b]: TG [[Reward]].

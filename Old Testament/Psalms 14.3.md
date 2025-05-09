@@ -5,5 +5,5 @@
 [Psalms 14:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/14.3?lang=eng#p3)
 
 
-[^a]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^a]: TG [[Filthiness, Filthy]].
 [^b]: [[Mosiah 16.3|Mosiah 16:3 (3-5).]]

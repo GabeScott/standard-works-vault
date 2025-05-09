@@ -6,5 +6,5 @@
 
 
 [^a]: [[Micah 5.10|Micah 5:10.]]
-[^b]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^b]: TG [[Heathen]].
 [^c]: [[Psalms 72.8|Ps. 72:8]]; [[D&C 58.22|D&C 58:22]]; [[D&C 76.63|76:63.]]

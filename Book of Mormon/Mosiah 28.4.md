@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 27.10|Mosiah 27:10]]; [[Alma 26.18|Alma 26:18 (17-18).]]
-[^b]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^b]: TG [[God, Mercy of]].

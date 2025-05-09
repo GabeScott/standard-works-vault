@@ -5,4 +5,4 @@
 [2 Kings 23:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/23.24?lang=eng#p24)
 
 
-[^b]: TG [Sorcery](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng); [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
+[^b]: TG [[Sorcery]]; [[Spirits, Evil or Unclean]].

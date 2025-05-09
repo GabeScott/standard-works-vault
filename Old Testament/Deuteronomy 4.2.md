@@ -5,4 +5,4 @@
 [Deuteronomy 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.2?lang=eng#p2)
 
 
-[^a]: [[Revelation 22.18|Rev. 22:18 (18-20)]]. TG [False Doctrine](https://www.churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng); [Scriptures, Preservation of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng).
+[^a]: [[Revelation 22.18|Rev. 22:18 (18-20)]]. TG [[False Doctrine]]; [[Scriptures, Preservation of]].

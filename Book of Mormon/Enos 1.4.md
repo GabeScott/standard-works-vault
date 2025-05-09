@@ -5,7 +5,7 @@
 [Enos 1:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1?lang=eng&id=p4#p4)
 
 
-[^a]: [[2 Nephi 9.51|2 Ne. 9:51]]; [[3 Nephi 12.6|3 Ne. 12:6]]. TG [Meditation](https://www.churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng); [Motivations](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng).
-[^b]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
-[^c]: [[Psalms 138.3|Ps. 138:3]]. TG [Perseverance](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng).
-[^d]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: [[2 Nephi 9.51|2 Ne. 9:51]]; [[3 Nephi 12.6|3 Ne. 12:6]]. TG [[Meditation, Meditate]]; [[Motivations]].
+[^b]: TG [[Reverence]].
+[^c]: [[Psalms 138.3|Ps. 138:3]]. TG [[Perseverance]].
+[^d]: TG [[Prayer, Pray]].

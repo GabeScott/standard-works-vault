@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ether 5.4|Ether 5:4 (4-6)]]; [[Moroni 7.35|Moro. 7:35.]]
-[^b]: TG [Jesus Christ, Glory of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng)
+[^b]: TG [[Jesus Christ, Glory of]].

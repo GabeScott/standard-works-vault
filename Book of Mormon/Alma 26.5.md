@@ -7,4 +7,4 @@
 
 [^a]: [[John 4.35|John 4:35]]; [[D&C 4.4|D&C 4:4.]]
 [^b]: [[Joel 3.13|Joel 3:13.]]
-[^c]: [[D&C 33.9|D&C 33:9]]; [[D&C 75.5|75:5]]. TG [Reward](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng).
+[^c]: [[D&C 33.9|D&C 33:9]]; [[D&C 75.5|75:5]]. TG [[Reward]].

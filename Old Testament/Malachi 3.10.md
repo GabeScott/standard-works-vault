@@ -5,9 +5,9 @@
 [Malachi 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/3.10?lang=eng#p10)
 
 
-[^a]: [[Alma 13.15|Alma 13:15]]; [[D&C 64.23|D&C 64:23]]. TG [Family, Managing Finances in](https://www.churchofjesuschrist.org/study/scriptures/tg/family-managing-finances-in?lang=eng).
-[^b]: TG [Food](https://www.churchofjesuschrist.org/study/scriptures/tg/food?lang=eng); [Meat](https://www.churchofjesuschrist.org/study/scriptures/tg/meat?lang=eng); [Welfare.](https://www.churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng)
-[^c]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
-[^d]: TG [Generosity.](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng)
+[^a]: [[Alma 13.15|Alma 13:15]]; [[D&C 64.23|D&C 64:23]]. TG [[Family, Managing Finances in]].
+[^b]: TG [[Food]]; [[Meat]]; [[Welfare]].
+[^c]: TG [[Testament]].
+[^d]: TG [[Generosity]].
 [^e]: [[2 Kings 7.2|2 Kgs. 7:2.]]
-[^f]: TG [Blessing](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng); Israel, [Blessing](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)s of.
+[^f]: TG [[Israel, Blessings of]]; Israel, [[Israel, Blessings of]]s of.

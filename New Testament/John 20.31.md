@@ -6,7 +6,7 @@
 
 
 [^a]: 1 Jn. 5:13 (10-21).
-[^b]: [[Luke 1.4|Luke 1:4 (3-4)]]; [[John 1.7|John 1:7 (6-8)]]; [[1 Nephi 6.4|1 Ne. 6:4]]; [[Mormon 5.14|Morm. 5:14]]. TG [Faith](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng).
-[^c]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
+[^b]: [[Luke 1.4|Luke 1:4 (3-4)]]; [[John 1.7|John 1:7 (6-8)]]; [[1 Nephi 6.4|1 Ne. 6:4]]; [[Mormon 5.14|Morm. 5:14]]. TG [[Faith]].
+[^c]: TG [[Jesus Christ, Messiah]].
 [^d]: [[John 5.24|John 5:24.]]
-[^e]: TG [Jesus Christ, Taking the Name of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-taking-the-name-of?lang=eng); [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^e]: TG [[Jesus Christ, Taking the Name of]]; [[Name of the Lord]].

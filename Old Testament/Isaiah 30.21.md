@@ -5,4 +5,4 @@
 [Isaiah 30:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.21?lang=eng#p21)
 
 
-[^a]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^a]: TG [[Walking with God]].

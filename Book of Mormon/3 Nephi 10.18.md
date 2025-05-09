@@ -6,5 +6,5 @@
 
 
 [^a]: 4 Ne. 1:20.
-[^b]: TG [Blessing.](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)
+[^b]: TG [[Israel, Blessings of]].
 [^c]: [[Acts 1.9|Acts 1:9 (9-11).]]

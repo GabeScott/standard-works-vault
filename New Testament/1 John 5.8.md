@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moses 6.59|Moses 6:59 (59-60).]]
-[^b]: TG [Blood, Symbolism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng)
+[^b]: TG [[Blood, Symbolism of]].

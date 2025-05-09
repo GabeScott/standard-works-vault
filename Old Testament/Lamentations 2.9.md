@@ -8,4 +8,4 @@
 [^a]: [[Isaiah 3.26|Isa. 3:26.]]
 [^b]: [[2 Nephi 23.15|2 Ne. 23:15]]; [[Alma 59.6|Alma 59:6 (5-6).]]
 [^c]: [[Psalms 74.9|Ps. 74:9.]]
-[^d]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^d]: TG [[Revelation]].

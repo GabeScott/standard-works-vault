@@ -6,5 +6,5 @@
 
 
 [^a]: OR vessels, implements, furniture.
-[^b]: [[1 Chronicles 25.1|1 Chr. 25:1]]. TG [Service](https://www.churchofjesuschrist.org/study/scriptures/tg/service?lang=eng).
+[^b]: [[1 Chronicles 25.1|1 Chr. 25:1]]. TG [[Service]].
 [^c]: [[Numbers 1.50|Num. 1:50 (50-53).]]

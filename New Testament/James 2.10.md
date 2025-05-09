@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 50.28|D&C 50:28 (28-29).]]
-[^b]: GR stumble, err. TG [Offense](https://www.churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng); [Sin](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng).
-[^c]: TG [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^b]: GR stumble, err. TG [[Offense, Offend, Offender]]; [[Sin]].
+[^c]: TG [[Guiltless]].

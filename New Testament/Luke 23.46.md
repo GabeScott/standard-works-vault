@@ -5,7 +5,7 @@
 [Luke 23:46](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.46?lang=eng#p46)
 
 
-[^a]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
-[^b]: [[Psalms 31.5|Ps. 31:5]]; [[John 10.18|John 10:18 (17-18)]]. TG [Man, a Spirit Child of Heavenly Father](https://www.churchofjesuschrist.org/study/scriptures/tg/man-a-spirit-child-of-heavenly-father?lang=eng).
+[^a]: TG [[Commitment]].
+[^b]: [[Psalms 31.5|Ps. 31:5]]; [[John 10.18|John 10:18 (17-18)]]. TG [[Man, a Spirit Child of Heavenly Father]].
 [^c]: GR expired, ceased breathing, or died.
-[^d]: TG [Death.](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng)
+[^d]: TG [[Death]].

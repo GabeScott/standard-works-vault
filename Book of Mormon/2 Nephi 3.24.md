@@ -5,5 +5,5 @@
 [2 Nephi 3:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/3?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Joseph Smith.](https://www.churchofjesuschrist.org/study/scriptures/tg/joseph-smith?lang=eng)
-[^b]: TG [Dispensations](https://www.churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng); [Israel, Restoration of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng); [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
+[^a]: TG [[Joseph Smith]].
+[^b]: TG [[Dispensations]]; [[Israel, Restoration of]]; [[Restoration of the Gospel]].

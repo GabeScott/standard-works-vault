@@ -5,4 +5,4 @@
 [Jeremiah 31:32](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.32?lang=eng#p32)
 
 
-[^a]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^a]: TG [[Covenants]].

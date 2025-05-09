@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 23.32|Matt. 23:32]]; [[Acts 7.51|Acts 7:51 (51-52).]]
-[^b]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^b]: TG [[Prophets, Rejection of]].

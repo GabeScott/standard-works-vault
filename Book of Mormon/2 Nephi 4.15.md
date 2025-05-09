@@ -6,7 +6,7 @@
 
 
 [^a]: [[1 Nephi 6.1|1 Ne. 6:1 (1-6).]]
-[^b]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^b]: TG [[Scriptures, Writing of]].
 [^c]: [[Psalms 119.24|Ps. 119:24]]; [[Moses 6.59|Moses 6:59.]]
-[^d]: TG [Meditation](https://www.churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng); [Scriptures, Study of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
-[^e]: [[1 Nephi 19.23|1 Ne. 19:23]]. TG [Scriptures, Value of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng).
+[^d]: TG [[Meditation, Meditate]]; [[Scriptures, Study of]].
+[^e]: [[1 Nephi 19.23|1 Ne. 19:23]]. TG [[Scriptures, Value of]].

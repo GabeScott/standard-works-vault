@@ -6,7 +6,7 @@
 
 
 [^a]: [[D&C 19.11|D&C 19:11 (6-12).]]
-[^b]: TG [Damnation](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng); [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
-[^c]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^d]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
-[^e]: TG [Eternal Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng)
+[^b]: TG [[Damnation, Damned]]; [[Punish, Punishment]].
+[^c]: TG [[God, the Standard of Righteousness]].
+[^d]: TG [[Jesus Christ, Resurrection]].
+[^e]: TG [[Eternal Life]].

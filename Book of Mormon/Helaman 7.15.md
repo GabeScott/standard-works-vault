@@ -5,4 +5,4 @@
 [Helaman 7:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=p15#p15)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Mourning, Mourn]].

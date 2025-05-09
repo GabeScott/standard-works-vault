@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 1.20|2 Ne. 1:20.]]
-[^b]: TG [Earth, Renewal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
+[^b]: TG [[Earth, Renewal of]].

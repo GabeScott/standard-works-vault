@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Thes. 4:9; 1 Jn. 2:27 (20, 27).
-[^b]: TG [Witness of the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness-of-the-father?lang=eng)
+[^b]: TG [[Witness of the Father]].

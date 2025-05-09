@@ -5,4 +5,4 @@
 [Genesis 20:11](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/20.11?lang=eng#p11)
 
 
-[^a]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
+[^a]: TG [[Reverence]].

@@ -5,7 +5,7 @@
 [Genesis 27:29](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/27.29?lang=eng#p29)
 
 
-[^a]: TG [Israel, Blessings of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng)
+[^a]: TG [[Israel, Blessings of]].
 [^b]: [[Genesis 49.8|Gen. 49:8]]; [[1 Nephi 7.20|1 Ne. 7:20.]]
-[^c]: TG [Abrahamic Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng)
-[^d]: TG [Blessing.](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)
+[^c]: TG [[Abrahamic Covenant]].
+[^d]: TG [[Israel, Blessings of]].

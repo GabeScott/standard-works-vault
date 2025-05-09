@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 1.16|Acts 1:16 (16-17).]]
-[^b]: TG [Jesus Christ, Betrayal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-betrayal-of?lang=eng)
+[^b]: TG [[Jesus Christ, Betrayal of]].

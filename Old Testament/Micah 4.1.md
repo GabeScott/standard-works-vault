@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 2.2|Isa. 2:2 (1-3).]]
-[^b]: TG [Dispensations.](https://www.churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng)
+[^b]: TG [[Dispensations]].

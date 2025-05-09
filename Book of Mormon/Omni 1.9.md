@@ -5,4 +5,4 @@
 [Omni 1:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/omni/1?lang=eng&id=p9#p9)
 
 
-[^a]: [[Omni 1.1|Omni 1:1]]. TG [Record Keeping](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng).
+[^a]: [[Omni 1.1|Omni 1:1]]. TG [[Record Keeping]].

@@ -6,5 +6,5 @@
 
 
 [^a]: GR turn away from, avoid.
-[^b]: TG [Peacemakers](https://www.churchofjesuschrist.org/study/scriptures/tg/peacemakers?lang=eng); [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^b]: TG [[Peacemakers]]; [[Peace of God]].
 [^c]: GR pursue, follow eagerly.

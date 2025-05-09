@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mark 5.27|Mark 5:27 (25-34).]]
-[^b]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^b]: TG [[Health]].

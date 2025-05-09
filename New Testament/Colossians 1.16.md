@@ -6,6 +6,6 @@
 
 
 [^a]: [[Hebrews 2.10|Heb. 2:10 (9-10).]]
-[^b]: TG [Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng)
+[^b]: TG [[Creation, Create]].
 [^c]: Col. 2:10; [[1 Peter 3.22|1 Pet. 3:22.]]
-[^d]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
+[^d]: TG [[Jesus Christ, Creator]].

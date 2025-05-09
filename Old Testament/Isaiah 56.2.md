@@ -5,5 +5,5 @@
 [Isaiah 56:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/56.2?lang=eng#p2)
 
 
-[^a]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
+[^a]: TG [[Sabbath]].
 [^b]: [[D&C 133.5|D&C 133:5 (3-5).]]

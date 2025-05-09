@@ -6,5 +6,5 @@
 
 
 [^a]: [[Exodus 23.32|Ex. 23:32 (31-33)]]; [[Judges 2.2|Judg. 2:2 (1-5).]]
-[^b]: TG [Gentiles.](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng)
+[^b]: TG [[Gentiles]].
 [^c]: OR become a.

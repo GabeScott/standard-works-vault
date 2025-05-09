@@ -5,6 +5,6 @@
 [Isaiah 31:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/31.1?lang=eng#p1)
 
 
-[^a]: TG [Trust Not in the Arm of Flesh.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-not-in-the-arm-of-flesh?lang=eng)
+[^a]: TG [[Trust Not in the Arm of Flesh]].
 [^b]: OR rely. Ps. 20:7.
 [^c]: [[Isaiah 30.16|Isa. 30:16]]; [[Hosea 14.3|Hosea 14:3 (1-3).]]

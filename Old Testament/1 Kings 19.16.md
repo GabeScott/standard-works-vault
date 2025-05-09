@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 68.20|D&C 68:20]]; [[D&C 109.35|109:35.]]
 [^b]: [[2 Kings 2.1|2 Kgs. 2:1.]]
-[^c]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
+[^c]: TG [[Called of God]].

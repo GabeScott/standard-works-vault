@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Kings 16.30|1 Kgs. 16:30 (30-33)]]; [[2 Chronicles 21.6|2 Chr. 21:6.]]
-[^b]: TG [Marriage, Motherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-motherhood?lang=eng)
+[^b]: TG [[Marriage, Motherhood]].

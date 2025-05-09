@@ -6,4 +6,4 @@
 
 
 [^a]: OR talked.
-[^b]: TG [Jesus Christ, Appearances, Postmortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-postmortal?lang=eng)
+[^b]: TG [[Jesus Christ, Appearances, Postmortal]].

@@ -5,6 +5,6 @@
 [Acts 3:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.25?lang=eng#p25)
 
 
-[^a]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
-[^b]: TG [Abrahamic Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng); [Mission of Early Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/mission-of-early-saints?lang=eng)
-[^c]: TG [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^a]: TG [[Seed of Abraham]].
+[^b]: TG [[Abrahamic Covenant]]; [[Mission of Early Saints]].
+[^c]: TG [[Israel, Mission of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 19.10|Alma 19:10.]]
-[^b]: TG [Courage.](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng)
+[^b]: TG [[Courage, Courageous]].

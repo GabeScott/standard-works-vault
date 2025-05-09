@@ -5,4 +5,4 @@
 [Acts 13:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.7?lang=eng#p7)
 
 
-[^a]: TG [Prudence.](https://www.churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
+[^a]: TG [[Prudence, Prudent]].

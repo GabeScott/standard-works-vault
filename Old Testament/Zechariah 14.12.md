@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 29.18|D&C 29:18 (17-19).]]
-[^b]: TG [Plague.](https://www.churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng)
+[^b]: TG [[Plague]].

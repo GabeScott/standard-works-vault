@@ -5,5 +5,5 @@
 [Jeremiah 32:39](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/32.39?lang=eng#p39)
 
 
-[^a]: TG [Conversion](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng); [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
+[^a]: TG [[Conversion, Convert]]; [[Man, New, Spiritually Reborn]].
 [^b]: [[Deuteronomy 6.24|Deut. 6:24]]; [[Deuteronomy 10.13|10:13.]]

@@ -5,5 +5,5 @@
 [Alma 11:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p22#p22)
 
 
-[^a]: TG [God, Spirit of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng); [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
-[^b]: TG [Bribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/bribe?lang=eng)
+[^a]: TG [[God, Spirit of]]; [[Holy Ghost, Mission of]].
+[^b]: TG [[Bribe, Bribery]].

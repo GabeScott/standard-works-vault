@@ -5,4 +5,4 @@
 [Alma 5:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Backbiting](https://www.churchofjesuschrist.org/study/scriptures/tg/backbiting?lang=eng); [Mocking.](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng)
+[^a]: TG [[Backbiting]]; [[Mocking, Mock, Mocker, Mockery]].

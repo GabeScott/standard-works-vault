@@ -5,7 +5,7 @@
 [1 Timothy 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/2.2?lang=eng#p2)
 
 
-[^a]: TG [Governments](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng); [Kings, Earthly.](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
-[^b]: TG [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)makers.
-[^c]: TG [Citizenship.](https://www.churchofjesuschrist.org/study/scriptures/tg/citizenship?lang=eng)
-[^d]: GR dignity, gravity. TG [Honesty](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng).
+[^a]: TG [[Governments]]; [[Kings, Earthly]].
+[^b]: TG [[Peace of God]]; [[Peace of God]]makers.
+[^c]: TG [[Citizenship]].
+[^d]: GR dignity, gravity. TG [[Honesty]].

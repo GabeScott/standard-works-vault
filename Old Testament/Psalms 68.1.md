@@ -6,4 +6,4 @@
 
 
 [^a]: [[Numbers 10.35|Num. 10:35.]]
-[^b]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
+[^b]: TG [[Hate]].

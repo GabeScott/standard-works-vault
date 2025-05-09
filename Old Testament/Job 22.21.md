@@ -6,4 +6,4 @@
 
 
 [^a]: IE God.
-[^b]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^b]: TG [[Peace of God]].

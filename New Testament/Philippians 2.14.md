@@ -5,4 +5,4 @@
 [Philippians 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.14?lang=eng#p14)
 
 
-[^a]: TG [Disputations.](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng)
+[^a]: TG [[Disputations, Dispute]].

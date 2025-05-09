@@ -5,6 +5,6 @@
 [1 Corinthians 4:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.14?lang=eng#p14)
 
 
-[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^a]: TG [[Shame]].
 [^b]: 1 Thes. 2:11.
-[^c]: TG [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^c]: TG [[Warn, Warnings]].

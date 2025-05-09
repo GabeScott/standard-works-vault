@@ -6,6 +6,6 @@
 
 
 [^a]: [[Jeremiah 23.5|Jer. 23:5 (5-6)]]; [[2 Nephi 3.5|2 Ne. 3:5]]; [[Jacob 2.25|Jacob 2:25.]]
-[^b]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
+[^b]: TG [[Beauty]].
 [^c]: IE the earth will be renewed, and will be productive, prosperous, and beautiful.
 [^d]: [[Isaiah 10.20|Isa. 10:20]]; [[D&C 133.12|D&C 133:12 (11-13).]]

@@ -5,4 +5,4 @@
 [Philippians 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/3.9?lang=eng#p9)
 
 
-[^a]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]].

@@ -5,5 +5,5 @@
 [Luke 12:42](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.42?lang=eng#p42)
 
 
-[^a]: TG [Trustworthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/trustworthiness?lang=eng)
-[^b]: TG [Stewardship.](https://www.churchofjesuschrist.org/study/scriptures/tg/stewardship?lang=eng)
+[^a]: TG [[Trustworthiness]].
+[^b]: TG [[Stewardship, Steward]].

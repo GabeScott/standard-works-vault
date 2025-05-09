@@ -5,6 +5,6 @@
 [Alma 7:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7?lang=eng&id=p13#p13)
 
 
-[^a]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
-[^b]: TG [Jesus Christ, Condescension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-condescension-of?lang=eng)
+[^a]: TG [[God, Omniscience of]].
+[^b]: TG [[Jesus Christ, Condescension of]].
 [^c]: [[Mosiah 15.12|Mosiah 15:12.]]

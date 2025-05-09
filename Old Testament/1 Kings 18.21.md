@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hosea 10.2|Hosea 10:2]]; [[James 1.8|James 1:8.]]
-[^b]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^b]: TG [[Agency]].

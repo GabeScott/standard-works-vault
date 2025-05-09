@@ -5,4 +5,4 @@
 [Mosiah 26:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^a]: TG [[Guidance, Divine]].

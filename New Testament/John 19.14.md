@@ -5,5 +5,5 @@
 [John 19:14](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.14?lang=eng#p14)
 
 
-[^a]: [[John 18.28|John 18:28]]. TG [Passover](https://www.churchofjesuschrist.org/study/scriptures/tg/passover?lang=eng).
+[^a]: [[John 18.28|John 18:28]]. TG [[Passover]].
 [^b]: [[D&C 45.53|D&C 45:53.]]

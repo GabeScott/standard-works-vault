@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 29.8|Jer. 29:8.]]
-[^b]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^b]: TG [[Sorcery]].

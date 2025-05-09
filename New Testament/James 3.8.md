@@ -5,5 +5,5 @@
 [James 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.8?lang=eng#p8)
 
 
-[^a]: TG [Gossip](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng); [Profanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng)
+[^a]: TG [[Gossip]]; [[Profanity]].
 [^b]: GR untameable, uncontrollable.

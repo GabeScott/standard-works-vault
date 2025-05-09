@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 31.7|Alma 31:7.]]
-[^b]: TG [Example.](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
+[^b]: TG [[Example, Ensample]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Romans 7.10|Rom. 7:10.]]
-[^b]: TG [Transfiguration.](https://www.churchofjesuschrist.org/study/scriptures/tg/transfiguration?lang=eng)
+[^b]: TG [[Transfiguration, Transfigured]].

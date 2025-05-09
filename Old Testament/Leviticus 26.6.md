@@ -5,5 +5,5 @@
 [Leviticus 26:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.6?lang=eng#p6)
 
 
-[^a]: TG [God, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
+[^a]: TG [[God, Gifts of]].
 [^b]: [[Psalms 66.12|Ps. 66:12.]]

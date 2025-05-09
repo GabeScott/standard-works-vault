@@ -7,4 +7,4 @@
 
 [^a]: 1 Thes. 5:8; [[James 2.17|James 2:17.]]
 [^b]: [[Hebrews 6.10|Heb. 6:10.]]
-[^c]: TG [Patience.](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
+[^c]: TG [[Patience, Patient, Patiently]].

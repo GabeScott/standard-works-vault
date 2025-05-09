@@ -5,9 +5,9 @@
 [Matthew 15:19](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.19?lang=eng#p19)
 
 
-[^a]: [[Genesis 6.5|Gen. 6:5]]; [[Hebrews 3.12|Heb. 3:12]]; [[Helaman 12.4|Hel. 12:4]]. TG [Chastity](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng).
-[^b]: TG [Blood, Shedding of](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-shedding-of?lang=eng); [Murder.](https://www.churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng)
-[^c]: TG [Adulterer](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng); [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
-[^d]: TG [Fornication.](https://www.churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng)
+[^a]: [[Genesis 6.5|Gen. 6:5]]; [[Hebrews 3.12|Heb. 3:12]]; [[Helaman 12.4|Hel. 12:4]]. TG [[Chastity, Chaste]].
+[^b]: TG [[Blood, Shedding of]]; [[Murder, Murderer]].
+[^c]: TG [[Adulterer, Adultery]]; [[Sexual Immorality]].
+[^d]: TG [[Fornication]].
 [^e]: [[Psalms 27.12|Ps. 27:12]]; [[Helaman 7.21|Hel. 7:21 (21-22).]]
-[^f]: GR slanderous statements. TG [Blaspheme](https://www.churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng).
+[^f]: GR slanderous statements. TG [[Blaspheme, Blasphemous, Blasphemy]].

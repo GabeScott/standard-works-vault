@@ -6,6 +6,6 @@
 
 
 [^a]: [[Moses 7.56|Moses 7:56 (56-57).]]
-[^b]: TG [Blessing.](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)
-[^c]: TG [Exaltation](https://www.churchofjesuschrist.org/study/scriptures/tg/exaltation?lang=eng); [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^b]: TG [[Israel, Blessings of]].
+[^c]: TG [[Exaltation]]; [[Reward]].
 [^d]: [[Luke 12.32|Luke 12:32]]; [[Revelation 22.5|Rev. 22:5.]]

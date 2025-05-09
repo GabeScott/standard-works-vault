@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 21.3|Alma 21:3 (2-4)]]; [[Alma 24.1|24:1 (1, 28-30).]]
-[^b]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^b]: TG [[Martyrdom]].

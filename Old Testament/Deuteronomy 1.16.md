@@ -5,5 +5,5 @@
 [Deuteronomy 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.16?lang=eng#p16)
 
 
-[^a]: TG [Citizenship](https://www.churchofjesuschrist.org/study/scriptures/tg/citizenship?lang=eng); [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^a]: TG [[Citizenship]]; [[God, Justice of]].
 [^b]: HEB alien, proselyte.

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 14.8|Ezek. 14:8.]]
-[^b]: TG [Blood, Eating of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-eating-of?lang=eng)
+[^b]: TG [[Blood, Eating of]].

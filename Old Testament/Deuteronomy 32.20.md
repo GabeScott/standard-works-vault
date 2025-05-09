@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 8.17|Isa. 8:17.]]
 [^b]: HEB perverse.
-[^c]: OR faithfulness. TG [Faith](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng).
+[^c]: OR faithfulness. TG [[Faith]].

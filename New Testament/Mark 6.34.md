@@ -5,6 +5,6 @@
 [Mark 6:34](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.34?lang=eng#p34)
 
 
-[^a]: TG [Compassion.](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
-[^b]: TG [Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)
-[^c]: TG [Jesus Christ, Teaching Mode of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-teaching-mode-of?lang=eng)
+[^a]: TG [[Compassion]].
+[^b]: TG [[Shepherd]].
+[^c]: TG [[Jesus Christ, Teaching Mode of]].

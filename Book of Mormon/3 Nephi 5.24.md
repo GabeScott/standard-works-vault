@@ -5,5 +5,5 @@
 [3 Nephi 5:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/5?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[Israel, Gathering of]].
 [^b]: [[Genesis 46.8|Gen. 46:8.]]

@@ -5,5 +5,5 @@
 [Moses 5:38](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.38?lang=eng#p38)
 
 
-[^a]: TG [Covet](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng); [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
-[^b]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^a]: TG [[Covet, Covetousness]]; [[Temptation]].
+[^b]: TG [[Punish, Punishment]].

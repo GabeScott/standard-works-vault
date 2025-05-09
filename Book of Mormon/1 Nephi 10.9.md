@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 1.28|John 1:28.]]
-[^b]: TG [Jesus Christ, Baptism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-baptism-of?lang=eng)
+[^b]: TG [[Jesus Christ, Baptism of]].

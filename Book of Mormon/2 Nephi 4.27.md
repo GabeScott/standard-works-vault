@@ -6,6 +6,6 @@
 
 
 [^a]: [[Romans 6.13|Rom. 6:13 (10-16).]]
-[^b]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
-[^c]: TG [Contentment](https://www.churchofjesuschrist.org/study/scriptures/tg/contentment?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng) of God.
-[^d]: TG [Self-Mastery.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
+[^b]: TG [[Temptation]].
+[^c]: TG [[Contentment]]; [[Peace of God]]; [[Peace of God]] of God.
+[^d]: TG [[Self-Mastery]].

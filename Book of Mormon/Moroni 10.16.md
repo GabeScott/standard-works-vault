@@ -5,4 +5,4 @@
 [Moroni 10:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Language.](https://www.churchofjesuschrist.org/study/scriptures/tg/language?lang=eng)
+[^a]: TG [[Language]].

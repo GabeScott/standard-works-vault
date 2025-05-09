@@ -6,6 +6,6 @@
 
 
 [^a]: JST 2 Thes. 2:3 … for there shall come a falling away first …
-[^b]: GR apostasy, defection. TG [Apostasy of the Early Christian Church](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng).
-[^c]: TG [Antichrist](https://www.churchofjesuschrist.org/study/scriptures/tg/antichrist?lang=eng); [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
-[^d]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^b]: GR apostasy, defection. TG [[Apostasy of the Early Christian Church]].
+[^c]: TG [[Antichrist]]; [[Devil, Church of]].
+[^d]: TG [[Sin]].

@@ -6,4 +6,4 @@
 
 
 [^a]: GR May it not be!
-[^b]: TG [Jealous.](https://www.churchofjesuschrist.org/study/scriptures/tg/jealous?lang=eng)
+[^b]: TG [[Jealous, Jealousy]].

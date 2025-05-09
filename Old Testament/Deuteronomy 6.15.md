@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 20.5|Ex. 20:5]]; [[Mosiah 11.22|Mosiah 11:22.]]
-[^b]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^b]: TG [[God, Indignation of]].

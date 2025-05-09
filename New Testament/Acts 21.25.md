@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 15.20|Acts 15:20 (19-20).]]
-[^b]: TG [Fornication.](https://www.churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng)
+[^b]: TG [[Fornication]].

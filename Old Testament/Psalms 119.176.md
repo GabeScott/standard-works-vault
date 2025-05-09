@@ -5,4 +5,4 @@
 [Psalms 119:176](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.176?lang=eng#p176)
 
 
-[^a]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^a]: TG [[Sheep]].

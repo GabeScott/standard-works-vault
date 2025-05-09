@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 58.26|D&C 58:26 (26-29).]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].
 [^c]: [[Leviticus 7.16|Lev. 7:16]]; [[Leviticus 22.23|22:23.]]

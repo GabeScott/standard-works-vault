@@ -6,4 +6,4 @@
 
 
 [^a]: 2 Tim. 1:10.
-[^b]: TG [Hell](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng); [Spirits in Prison.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-in-prison?lang=eng)
+[^b]: TG [[Hell]]; [[Spirits in Prison]].

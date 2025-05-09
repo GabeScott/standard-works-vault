@@ -5,6 +5,6 @@
 [1 Nephi 14:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Mission of Latter-day Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/mission-of-latter-day-saints?lang=eng)
-[^b]: TG [Deliver](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng); [Protection, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng)
+[^a]: TG [[Mission of Latter-day Saints]].
+[^b]: TG [[Deliver, Deliverance]]; [[Protection, Divine]].
 [^c]: [[Luke 24.49|Luke 24:49]]; [[1 Nephi 13.37|1 Ne. 13:37]]; [[1 Nephi 14.1|14:1]]; [[Jacob 6.2|Jacob 6:2 (2-3)]]; [[D&C 38.38|D&C 38:38 (32-38).]]

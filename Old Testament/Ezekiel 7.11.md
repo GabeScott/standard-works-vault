@@ -5,4 +5,4 @@
 [Ezekiel 7:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/7.11?lang=eng#p11)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Mourning, Mourn]].

@@ -6,5 +6,5 @@
 
 
 [^a]: HEB entice, or pull.
-[^b]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
+[^b]: TG [[Vanity]].
 [^c]: IE they are tied to their sins like beasts to their burdens.

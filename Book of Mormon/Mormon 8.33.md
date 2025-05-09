@@ -6,7 +6,7 @@
 
 
 [^a]: [[D&C 5.8|D&C 5:8.]]
-[^b]: TG [Priestcraft.](https://www.churchofjesuschrist.org/study/scriptures/tg/priestcraft?lang=eng)
-[^c]: [[1 Nephi 13.26|1 Ne. 13:26 (20-41)]]. TG [Apostasy of the Early Christian Church](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng).
-[^d]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^b]: TG [[Priestcraft]].
+[^c]: [[1 Nephi 13.26|1 Ne. 13:26 (20-41)]]. TG [[Apostasy of the Early Christian Church]].
+[^d]: TG [[Damnation, Damned]].
 [^e]: [[1 Nephi 14.23|1 Ne. 14:23 (18-27)]]; [[Ether 4.16|Ether 4:16.]]

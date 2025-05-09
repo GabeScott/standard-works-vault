@@ -5,5 +5,5 @@
 [Genesis 26:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/26.4?lang=eng#p4)
 
 
-[^a]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
-[^b]: TG [Abrahamic Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng); [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^a]: TG [[Seed of Abraham]].
+[^b]: TG [[Abrahamic Covenant]]; [[Israel, Mission of]].

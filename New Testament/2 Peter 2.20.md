@@ -6,7 +6,7 @@
 
 
 [^a]: [[Hebrews 6.4|Heb. 6:4 (4-6)]]; [[1 Nephi 8.28|1 Ne. 8:28 (24-28).]]
-[^b]: TG [Pollution.](https://www.churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng)
+[^b]: TG [[Pollution, Pollute]].
 [^c]: [[Psalms 85.8|Ps. 85:8]]; [[D&C 42.26|D&C 42:26.]]
 [^d]: [[2 Corinthians 2.11|2 Cor. 2:11]]; [[D&C 20.5|D&C 20:5.]]
 [^e]: [[D&C 76.35|D&C 76:35 (34-35).]]

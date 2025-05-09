@@ -6,4 +6,4 @@
 
 
 [^a]: GR place.
-[^b]: TG [Dream.](https://www.churchofjesuschrist.org/study/scriptures/tg/dream?lang=eng)
+[^b]: TG [[Dream]].

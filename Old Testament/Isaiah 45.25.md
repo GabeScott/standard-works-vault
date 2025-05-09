@@ -5,4 +5,4 @@
 [Isaiah 45:25](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.25?lang=eng#p25)
 
 
-[^a]: TG [Justification.](https://www.churchofjesuschrist.org/study/scriptures/tg/justification?lang=eng)
+[^a]: TG [[Justification, Justify]].

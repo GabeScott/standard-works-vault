@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 29.13|Mosiah 29:13.]]
-[^b]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^b]: TG [[Governments]].

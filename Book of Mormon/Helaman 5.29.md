@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 4.33|Deut. 4:33]]; [[3 Nephi 11.3|3 Ne. 11:3 (3-14).]]
-[^b]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
+[^b]: TG [[Servant]].

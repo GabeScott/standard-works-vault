@@ -6,4 +6,4 @@
 
 
 [^a]: Beginning of Judah’s reply, declining Moab’s appeal.
-[^b]: TG [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
+[^b]: TG [[Pride]].

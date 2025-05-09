@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 55.11|Isa. 55:11.]]
-[^b]: TG [Promise.](https://www.churchofjesuschrist.org/study/scriptures/tg/promise?lang=eng)
+[^b]: TG [[Promise]].

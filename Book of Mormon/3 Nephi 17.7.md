@@ -5,6 +5,6 @@
 [3 Nephi 17:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
-[^b]: TG [Leprosy.](https://www.churchofjesuschrist.org/study/scriptures/tg/leprosy?lang=eng)
-[^c]: TG [Administrations to the Sick](https://www.churchofjesuschrist.org/study/scriptures/tg/administrations-to-the-sick?lang=eng); [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^a]: TG [[Sickness, Sick]].
+[^b]: TG [[Leprosy, Leper, Leprous]].
+[^c]: TG [[Administrations to the Sick]]; [[Health]].

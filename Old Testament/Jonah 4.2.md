@@ -5,5 +5,5 @@
 [Jonah 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/4.2?lang=eng#p2)
 
 
-[^a]: TG [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
+[^a]: TG [[Mercy, Merciful]].
 [^b]: HEB relentest; i.e., Jonah knew that God could revoke the calamity decreed, but expected He would do so even without the repentance of the people.

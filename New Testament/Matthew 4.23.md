@@ -8,6 +8,6 @@
 [^a]: [[Luke 4.44|Luke 4:44.]]
 [^b]: [[Matthew 9.35|Matt. 9:35.]]
 [^c]: [[D&C 71.1|D&C 71:1.]]
-[^d]: TG [Heal](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng); [Miracle.](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
-[^e]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
+[^d]: TG [[Health]]; [[Miracle]].
+[^e]: TG [[Sickness, Sick]].
 [^f]: JST Matt. 4:22 … people which believed on his name.

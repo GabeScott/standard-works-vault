@@ -6,4 +6,4 @@
 
 
 [^a]: Mal. 4:5; [[3 Nephi 26.4|3 Ne. 26:4.]]
-[^b]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^b]: TG [[God, Presence of]].

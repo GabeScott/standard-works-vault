@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 21.2|John 21:2.]]
-[^b]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
+[^b]: TG [[Called of God]].

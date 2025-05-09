@@ -5,4 +5,4 @@
 [Psalms 147:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/147.11?lang=eng#p11)
 
 
-[^a]: TG [Pleasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/pleasure?lang=eng)
+[^a]: TG [[Pleasure]].

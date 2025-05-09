@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 3.18|Jer. 3:18.]]
-[^b]: [[Ezekiel 37.22|Ezek. 37:22 (16-22)]]. TG [Envy](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng).
-[^c]: TG [Israel, Joseph, People of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng); [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^b]: [[Ezekiel 37.22|Ezek. 37:22 (16-22)]]. TG [[Envy, Envious]].
+[^c]: TG [[Israel, Joseph, People of]]; [[Israel, Judah, People of]].

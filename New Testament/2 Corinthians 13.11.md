@@ -5,8 +5,8 @@
 [2 Corinthians 13:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/13.11?lang=eng#p11)
 
 
-[^a]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
-[^b]: TG [Unity.](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng)
+[^a]: TG [[Perfection, Perfect, Perfectly]].
+[^b]: TG [[Unity]].
 [^c]: [[1 Corinthians 1.10|1 Cor. 1:10 (10-13).]]
-[^d]: TG [Peace.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
-[^e]: TG [God, Love of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng)
+[^d]: TG [[Peace of God]].
+[^e]: TG [[God, Love of]].

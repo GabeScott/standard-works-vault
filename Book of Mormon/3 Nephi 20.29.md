@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 44.21|Isa. 44:21]]; [[3 Nephi 16.11|3 Ne. 16:11 (11-12).]]
-[^b]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
-[^c]: [[Amos 9.15|Amos 9:15]]; [[Alma 7.10|Alma 7:10]]; [[D&C 133.24|D&C 133:24]]. TG [Israel, Land of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng).
+[^b]: TG [[Israel, Gathering of]].
+[^c]: [[Amos 9.15|Amos 9:15]]; [[Alma 7.10|Alma 7:10]]; [[D&C 133.24|D&C 133:24]]. TG [[Israel, Land of]].

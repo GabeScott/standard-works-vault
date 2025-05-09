@@ -7,6 +7,6 @@
 
 [^a]: [[Hosea 14.9|Hosea 14:9 (8-9).]]
 [^b]: [[Mosiah 4.10|Mosiah 4:10.]]
-[^c]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^c]: TG [[Faith]].
 [^d]: [[Moroni 6.4|Moro. 6:4]]; [[D&C 3.20|D&C 3:20]]; [[Moses 7.53|Moses 7:53.]]
-[^e]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^e]: TG [[Jesus Christ, Atonement through]].

@@ -5,4 +5,4 @@
 [Habakkuk 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/1.11?lang=eng#p11)
 
 
-[^a]: TG [Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng)
+[^a]: TG [[Mind, Minded]].

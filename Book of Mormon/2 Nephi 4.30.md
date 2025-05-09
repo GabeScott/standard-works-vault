@@ -5,5 +5,5 @@
 [2 Nephi 4:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
-[^b]: [[1 Corinthians 3.11|1 Cor. 3:11 (9-13)]]. TG [Rock](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng).
+[^a]: TG [[Heart]].
+[^b]: [[1 Corinthians 3.11|1 Cor. 3:11 (9-13)]]. TG [[Rock]].

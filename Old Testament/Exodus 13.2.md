@@ -6,6 +6,6 @@
 
 
 [^a]: OR Consecrate.
-[^b]: [[Numbers 3.41|Num. 3:41 (41, 45)]]; [[Deuteronomy 15.19|Deut. 15:19]]. TG [Firstborn](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng).
+[^b]: [[Numbers 3.41|Num. 3:41 (41, 45)]]; [[Deuteronomy 15.19|Deut. 15:19]]. TG [[Firstborn]].
 [^c]: [[Exodus 34.19|Ex. 34:19.]]
 [^d]: [[Luke 2.23|Luke 2:23.]]

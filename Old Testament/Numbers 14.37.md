@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Corinthians 10.10|1 Cor. 10:10.]]
-[^b]: TG [Plague.](https://www.churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng)
+[^b]: TG [[Plague]].

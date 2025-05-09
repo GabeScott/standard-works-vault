@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Nephi 22.22|1 Ne. 22:22 (22-23)]]; [[D&C 88.26|D&C 88:26 (25-29)]]; [[Moses 7.63|Moses 7:63 (1-66).]]
-[^b]: TG [Death](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng); [Spirits, Disembodied.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-disembodied?lang=eng)
+[^b]: TG [[Death]]; [[Spirits, Disembodied]].
 [^c]: [[D&C 42.44|D&C 42:44]]; [[D&C 59.2|59:2.]]
-[^d]: TG [Paradise](https://www.churchofjesuschrist.org/study/scriptures/tg/paradise?lang=eng); [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^d]: TG [[Paradise, Paradisiacal]]; [[Restoration of the Gospel]].

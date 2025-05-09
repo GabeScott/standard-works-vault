@@ -5,4 +5,4 @@
 [2 Corinthians 11:21](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/11.21?lang=eng#p21)
 
 
-[^a]: TG [Reproach.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproach?lang=eng)
+[^a]: TG [[Reproach]].

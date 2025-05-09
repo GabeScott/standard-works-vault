@@ -6,4 +6,4 @@
 
 
 [^a]: JST 1 Cor. 4:4 … against myself …
-[^b]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^b]: TG [[Jesus Christ, Judge]].

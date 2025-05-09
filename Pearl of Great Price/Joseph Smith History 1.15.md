@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ephesians 6.12|Eph. 6:12 (11-18).]]
-[^b]: [[Genesis 15.12|Gen. 15:12 (1-21)]]. TG [Darkness, Physical](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-physical?lang=eng).
+[^b]: [[Genesis 15.12|Gen. 15:12 (1-21)]]. TG [[Darkness, Physical]].

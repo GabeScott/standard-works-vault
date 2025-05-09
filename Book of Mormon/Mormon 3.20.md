@@ -5,5 +5,5 @@
 [Mormon 3:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/3?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Jesus Christ, Judge](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng); [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]]; [[Judgment, the Last]].
 [^b]: [[D&C 27.11|D&C 27:11.]]

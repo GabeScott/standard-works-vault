@@ -6,4 +6,4 @@
 
 
 [^a]: OR propriety, skill.
-[^b]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
+[^b]: TG [[Vanity]].

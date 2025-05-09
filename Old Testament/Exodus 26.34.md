@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 25.21|Ex. 25:21.]]
-[^b]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^b]: TG [[Scriptures, Preservation of]].

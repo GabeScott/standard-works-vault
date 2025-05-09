@@ -6,7 +6,7 @@
 
 
 [^a]: [[2 Nephi 25.24|2 Ne. 25:24]]; [[Mosiah 2.3|Mosiah 2:3]]; [[Alma 30.3|Alma 30:3]]; [[Alma 34.14|34:14 (13-14).]]
-[^b]: [[Exodus 35.2|Ex. 35:2]]. TG [Sabbath](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng).
-[^c]: TG [Profanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng)
-[^d]: TG [Blaspheme.](https://www.churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng)
+[^b]: [[Exodus 35.2|Ex. 35:2]]. TG [[Sabbath]].
+[^c]: TG [[Profanity]].
+[^d]: TG [[Blaspheme, Blasphemous, Blasphemy]].
 [^e]: [[Alma 1.1|Alma 1:1.]]

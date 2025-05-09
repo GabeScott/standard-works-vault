@@ -5,6 +5,6 @@
 [1 Chronicles 25:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/25.1?lang=eng#p1)
 
 
-[^a]: TG [Setting Apart.](https://www.churchofjesuschrist.org/study/scriptures/tg/setting-apart?lang=eng)
+[^a]: TG [[Setting Apart]].
 [^b]: [[Numbers 3.8|Num. 3:8 (5-8).]]
 [^c]: [[1 Chronicles 6.39|1 Chr. 6:39.]]

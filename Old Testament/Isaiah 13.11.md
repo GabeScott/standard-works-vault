@@ -5,7 +5,7 @@
 [Isaiah 13:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.11?lang=eng#p11)
 
 
-[^a]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
-[^b]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
-[^c]: TG [Haughtiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng)
+[^a]: TG [[Punish, Punishment]].
+[^b]: TG [[World, End of]].
+[^c]: TG [[Haughtiness, Haughty]].
 [^d]: HEB tyrants.

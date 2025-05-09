@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 5.19|1 Ne. 5:19 (16-19)]]; [[Alma 63.13|Alma 63:13]]; [[Helaman 3.16|Hel. 3:16.]]
-[^b]: TG [Mysteries of Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/mysteries-of-godliness?lang=eng)
+[^b]: TG [[Mysteries of Godliness]].

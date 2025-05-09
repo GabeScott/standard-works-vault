@@ -5,8 +5,8 @@
 [Isaiah 2:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.2?lang=eng#p2)
 
 
-[^a]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
+[^a]: TG [[Last Days]].
 [^b]: [[Isaiah 13.2|Isa. 13:2]]; [[Micah 4.1|Micah 4:1 (1-3).]]
-[^c]: TG [Jerusalem, New.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem-new?lang=eng)
-[^d]: TG [Dispensations](https://www.churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng); [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
-[^e]: [[1 Kings 8.41|1 Kgs. 8:41 (41-42)]]. TG [Israel, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng); [Nations](https://www.churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng).
+[^c]: TG [[Jerusalem, New]].
+[^d]: TG [[Dispensations]]; [[Restoration of the Gospel]].
+[^e]: [[1 Kings 8.41|1 Kgs. 8:41 (41-42)]]. TG [[Israel, Mission of]]; [[Nations]].

@@ -8,4 +8,4 @@
 [^a]: [[Leviticus 4.7|Lev. 4:7.]]
 [^b]: [[Exodus 29.12|Ex. 29:12 (1-14).]]
 [^c]: [[Leviticus 4.7|Lev. 4:7.]]
-[^d]: HEB to atone for it. TG [Reconciliation](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng).
+[^d]: HEB to atone for it. TG [[Reconciliation, Reconcile]].

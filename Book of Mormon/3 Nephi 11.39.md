@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mark 4.2|Mark 4:2.]]
-[^b]: [[Matthew 7.24|Matt. 7:24 (24-29)]]; [[1 Peter 2.6|1 Pet. 2:6 (4-8)]]; [[1 Nephi 13.36|1 Ne. 13:36]]. TG [Rock](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng).
+[^b]: [[Matthew 7.24|Matt. 7:24 (24-29)]]; [[1 Peter 2.6|1 Pet. 2:6 (4-8)]]; [[1 Nephi 13.36|1 Ne. 13:36]]. TG [[Rock]].
 [^c]: [[Matthew 16.18|Matt. 16:18]]; [[3 Nephi 18.13|3 Ne. 18:13 (12-13)]]; [[D&C 17.8|D&C 17:8.]]

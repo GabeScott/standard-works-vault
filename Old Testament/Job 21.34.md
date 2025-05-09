@@ -5,4 +5,4 @@
 [Job 21:34](https://www.churchofjesuschrist.org/study/scriptures/ot/job/21.34?lang=eng#p34)
 
 
-[^a]: TG [False Doctrine.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng)
+[^a]: TG [[False Doctrine]].

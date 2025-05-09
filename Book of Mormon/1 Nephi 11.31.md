@@ -5,7 +5,7 @@
 [1 Nephi 11:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p31#p31)
 
 
-[^a]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
+[^a]: TG [[Sickness, Sick]].
 [^b]: [[Mark 5.15|Mark 5:15 (15-20)]]; [[Mark 7.30|7:30]]; [[Mosiah 3.6|Mosiah 3:6 (5-7)]]; [[Mormon 9.24|Morm. 9:24.]]
-[^c]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
-[^d]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^c]: TG [[Spirits, Evil or Unclean]].
+[^d]: TG [[Health]].

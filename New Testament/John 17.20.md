@@ -5,5 +5,5 @@
 [John 17:20](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.20?lang=eng#p20)
 
 
-[^a]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: TG [[Prayer, Pray]].
 [^b]: [[D&C 45.5|D&C 45:5.]]

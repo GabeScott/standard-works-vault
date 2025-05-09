@@ -5,5 +5,5 @@
 [Alma 34:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
+[^a]: TG [[Witness, Witnesses]].
 [^b]: [[Matthew 3.8|Matt. 3:8]]; [[Alma 13.13|Alma 13:13.]]

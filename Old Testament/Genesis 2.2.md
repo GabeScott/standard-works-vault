@@ -6,5 +6,5 @@
 
 
 [^a]: OR done.
-[^b]: HEB stopped, ceased; from the verb shavat; the noun shabbat (Engl. Sabbath) means a stopping or cessation. D&C 77:12; [[Moses 3.2|Moses 3:2 (1-3)]]; [[Abraham 5.2|Abr. 5:2 (1-3)]]. TG [Rest](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng).
-[^c]: TG [Industry.](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng)
+[^b]: HEB stopped, ceased; from the verb shavat; the noun shabbat (Engl. Sabbath) means a stopping or cessation. D&C 77:12; [[Moses 3.2|Moses 3:2 (1-3)]]; [[Abraham 5.2|Abr. 5:2 (1-3)]]. TG [[Restoration of the Gospel]].
+[^c]: TG [[Industry, Industrious]].

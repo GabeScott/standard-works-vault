@@ -5,4 +5,4 @@
 [Moroni 7:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^a]: TG [[Sin]].

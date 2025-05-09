@@ -5,6 +5,6 @@
 [Ether 13:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^a]: TG [[Promised Lands]].
 [^b]: [[Revelation 21.10|Rev. 21:10 (10-27).]]
 [^c]: [[Moroni 10.31|Moro. 10:31.]]

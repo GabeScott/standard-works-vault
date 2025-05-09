@@ -6,4 +6,4 @@
 
 
 [^a]: GR beloved of God, your election.
-[^b]: TG [Election.](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng)
+[^b]: TG [[Election, Elect]].

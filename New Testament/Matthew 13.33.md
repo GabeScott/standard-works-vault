@@ -5,4 +5,4 @@
 [Matthew 13:33](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.33?lang=eng#p33)
 
 
-[^a]: GR yeast. TG [Leaven](https://www.churchofjesuschrist.org/study/scriptures/tg/leaven?lang=eng).
+[^a]: GR yeast. TG [[Leaven]].

@@ -5,5 +5,5 @@
 [Genesis 15:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/15.13?lang=eng#p13)
 
 
-[^a]: TG [Israel, Bondage of, in Egypt](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-egypt?lang=eng); [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^a]: TG [[Israel, Bondage of, in Egypt]]; [[Stranger]].
 [^b]: [[Exodus 1.11|Ex. 1:11 (10-11)]]; [[1 Nephi 17.25|1 Ne. 17:25 (23-25).]]

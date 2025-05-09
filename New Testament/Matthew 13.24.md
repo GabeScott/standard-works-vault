@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 86.1|D&C 86:1 (1-11).]]
-[^b]: TG [Kingdom of God, on Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-on-earth?lang=eng)
+[^b]: TG [[Kingdom of God, on Earth]].
 [^c]: [[Matthew 13.37|Matt. 13:37 (36-43).]]

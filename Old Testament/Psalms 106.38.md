@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 2.34|Jer. 2:34 (31-37).]]
-[^b]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^b]: TG [[Idolatry, Idol]].

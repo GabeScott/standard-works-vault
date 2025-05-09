@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 12:9; [[1 Nephi 14.26|1 Ne. 14:26]]; [[D&C 35.18|D&C 35:18]]; JS—H 1:65.
-[^b]: [[Ether 4.15|Ether 4:15]]. TG [God, Omniscience of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng).
+[^b]: [[Ether 4.15|Ether 4:15]]. TG [[God, Omniscience of]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ezekiel 36.18|Ezek. 36:18 (16-20).]]
-[^b]: TG [Blood, Shedding of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-shedding-of?lang=eng)
+[^b]: TG [[Blood, Shedding of]].
 [^c]: [[Ezekiel 21.25|Ezek. 21:25.]]

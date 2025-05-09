@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 12.18|Alma 12:18]]; [[D&C 88.33|D&C 88:33.]]
 [^b]: [[Revelation 20.13|Rev. 20:13 (12-13)]]; [[Alma 28.12|Alma 28:12]]; [[Alma 42.23|42:23.]]
-[^c]: TG [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^c]: TG [[Judgment, the Last]].

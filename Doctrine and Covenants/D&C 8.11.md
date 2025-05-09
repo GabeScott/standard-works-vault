@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 1.29|D&C 1:29]]; 9:1, 10.
-[^b]: TG [Sacred.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacred?lang=eng)
+[^b]: TG [[Sacred]].

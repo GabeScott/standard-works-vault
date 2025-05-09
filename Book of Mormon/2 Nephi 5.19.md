@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 1.25|2 Ne. 1:25 (25-27).]]
-[^b]: TG [Teacher.](https://www.churchofjesuschrist.org/study/scriptures/tg/teacher?lang=eng)
+[^b]: TG [[Teacher]].

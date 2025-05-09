@@ -6,8 +6,8 @@
 
 
 [^a]: IE security for those who trust Him, but dismay and suffering for unbelievers. Ezek. 11:16 (15-21).
-[^b]: TG [Cornerstone.](https://www.churchofjesuschrist.org/study/scriptures/tg/cornerstone?lang=eng)
+[^b]: TG [[Cornerstone]].
 [^c]: [[Matthew 21.44|Matt. 21:44 (43-45)]]; [[Luke 2.34|Luke 2:34]]; [[Romans 9.32|Rom. 9:32 (28-33).]]
-[^d]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
-[^e]: [[Matthew 11.6|Matt. 11:6]]; [[Matthew 24.10|24:10]]. TG [Offense](https://www.churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng).
+[^d]: TG [[Rock]].
+[^e]: [[Matthew 11.6|Matt. 11:6]]; [[Matthew 24.10|24:10]]. TG [[Offense, Offend, Offender]].
 [^f]: [[Psalms 69.22|Ps. 69:22.]]

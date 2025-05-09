@@ -7,5 +7,5 @@
 
 [^a]: OR a nation consecrated to.
 [^b]: [[Ezra 9.2|Ezra 9:2]]; [[Isaiah 63.18|Isa. 63:18.]]
-[^c]: TG [Israel, Blessings of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng); [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
-[^d]: TG [Peculiar People](https://www.churchofjesuschrist.org/study/scriptures/tg/peculiar-people?lang=eng); [Separation.](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng)
+[^c]: TG [[Israel, Blessings of]]; [[Israel, Mission of]].
+[^d]: TG [[Peculiar People]]; [[Separation, Separate]].

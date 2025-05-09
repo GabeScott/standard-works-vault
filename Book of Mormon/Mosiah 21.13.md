@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 19.28|Mosiah 19:28 (26, 28)]]; [[Mosiah 21.36|21:36.]]
-[^b]: TG [Submissiveness.](https://www.churchofjesuschrist.org/study/scriptures/tg/submissiveness?lang=eng)
+[^b]: TG [[Submissiveness, Submit]].

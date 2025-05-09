@@ -5,5 +5,5 @@
 [Psalms 51:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/51.11?lang=eng#p11)
 
 
-[^a]: TG [Death, Spiritual, First.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-first?lang=eng)
-[^b]: TG [Holy Ghost, Loss of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-loss-of?lang=eng)
+[^a]: TG [[Death, Spiritual, First]].
+[^b]: TG [[Holy Ghost, Loss of]].

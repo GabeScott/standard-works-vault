@@ -5,4 +5,4 @@
 [Isaiah 46:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/46.6?lang=eng#p6)
 
 
-[^a]: TG [Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/worship?lang=eng)
+[^a]: TG [[Assembly for Worship]].

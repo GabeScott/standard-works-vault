@@ -6,5 +6,5 @@
 
 
 [^a]: [[Revelation 18.24|Rev. 18:24 (22-24).]]
-[^b]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^b]: TG [[Martyrdom]].
 [^c]: GR astonishment, wonder.

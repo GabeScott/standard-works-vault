@@ -5,4 +5,4 @@
 [Jacob 5:52](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p52#p52)
 
 
-[^a]: TG [Israel, Gathering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng); [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
+[^a]: TG [[Israel, Gathering of]]; [[Israel, Restoration of]].

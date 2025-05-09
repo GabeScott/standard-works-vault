@@ -5,5 +5,5 @@
 [Proverbs 16:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.16?lang=eng#p16)
 
 
-[^a]: TG [Objectives.](https://www.churchofjesuschrist.org/study/scriptures/tg/objectives?lang=eng)
-[^b]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^a]: TG [[Objectives]].
+[^b]: TG [[Understanding]].

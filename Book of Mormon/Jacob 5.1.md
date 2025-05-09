@@ -5,4 +5,4 @@
 [Jacob 5:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p1#p1)
 
 
-[^a]: [[1 Nephi 19.12|1 Ne. 19:12 (12, 16)]]; [[Jacob 6.1|Jacob 6:1]]. TG [Scriptures, Lost](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng).
+[^a]: [[1 Nephi 19.12|1 Ne. 19:12 (12, 16)]]; [[Jacob 6.1|Jacob 6:1]]. TG [[Scriptures, Lost]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 14.5|Acts 14:5]]; [[Acts 17.5|17:5.]]
-[^b]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^b]: TG [[Heathen]].
 [^c]: [[Acts 21.31|Acts 21:31.]]

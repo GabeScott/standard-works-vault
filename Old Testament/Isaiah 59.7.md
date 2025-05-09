@@ -7,5 +7,5 @@
 
 [^a]: [[Helaman 12.4|Hel. 12:4 (4-6).]]
 [^b]: [[Proverbs 1.16|Prov. 1:16 (10-19).]]
-[^c]: TG [Rashness.](https://www.churchofjesuschrist.org/study/scriptures/tg/rashness?lang=eng)
+[^c]: TG [[Rashness]].
 [^d]: [[Romans 3.15|Rom. 3:15.]]

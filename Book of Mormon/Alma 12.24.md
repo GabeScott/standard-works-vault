@@ -5,7 +5,7 @@
 [Alma 12:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Death.](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng)
+[^a]: TG [[Death]].
 [^b]: [[2 Nephi 2.21|2 Ne. 2:21]]; Moses 5:8-12.
-[^c]: [[1 Peter 2.20|1 Pet. 2:20 (20-21)]]. TG [Earth, Purpose of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-purpose-of?lang=eng); [Probation](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng).
+[^c]: [[1 Peter 2.20|1 Pet. 2:20 (20-21)]]. TG [[Earth, Purpose of]]; [[Probation, Probationary]].
 [^d]: [[Alma 34.32|Alma 34:32 (32-35).]]

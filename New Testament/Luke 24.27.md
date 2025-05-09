@@ -7,5 +7,5 @@
 
 [^a]: [[John 5.46|John 5:46.]]
 [^b]: [[Acts 3.18|Acts 3:18 (18-21)]]; [[1 Peter 1.10|1 Pet. 1:10 (1-16).]]
-[^c]: TG [Scriptures, Study of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
-[^d]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^c]: TG [[Scriptures, Study of]].
+[^d]: TG [[Jesus Christ, Prophecies about]].

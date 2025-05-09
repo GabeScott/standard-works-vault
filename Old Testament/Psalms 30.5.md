@@ -6,4 +6,4 @@
 
 
 [^a]: JST Ps. 30:5 For his anger kindleth against the wicked; they repent, and in a moment it is turned away, and they are in his favor, and he giveth them life; therefore, weeping may …
-[^b]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^b]: TG [[Joy]].

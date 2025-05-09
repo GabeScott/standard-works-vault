@@ -6,4 +6,4 @@
 
 
 [^a]: JST 1 Pet. 4:8 … for charity preventeth a multitude of sins.
-[^b]: TG [Charity.](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng)
+[^b]: TG [[Charity]].

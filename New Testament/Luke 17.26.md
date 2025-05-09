@@ -5,4 +5,4 @@
 [Luke 17:26](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.26?lang=eng#p26)
 
 
-[^a]: TG [Earth, Cleansing of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng); [Flood.](https://www.churchofjesuschrist.org/study/scriptures/tg/flood?lang=eng)
+[^a]: TG [[Earth, Cleansing of]]; [[Flood, Noah’s]].

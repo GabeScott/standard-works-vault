@@ -5,5 +5,5 @@
 [Proverbs 19:17](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.17?lang=eng#p17)
 
 
-[^a]: TG [Compassion](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng); [Generosity.](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng)
+[^a]: TG [[Compassion]]; [[Generosity]].
 [^b]: [[Mosiah 4.16|Mosiah 4:16 (16-18).]]

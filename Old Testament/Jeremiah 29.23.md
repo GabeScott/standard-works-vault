@@ -6,4 +6,4 @@
 
 
 [^a]: HEB vile deeds.
-[^b]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^b]: TG [[Adulterer, Adultery]].

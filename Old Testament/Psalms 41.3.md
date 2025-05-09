@@ -6,4 +6,4 @@
 
 
 [^a]: IE heal all his infirmities when he is sick.
-[^b]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
+[^b]: TG [[Sickness, Sick]].

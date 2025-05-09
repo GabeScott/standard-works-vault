@@ -5,4 +5,4 @@
 [Psalms 36:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/36.1?lang=eng#p1)
 
 
-[^a]: TG [Courage](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng); [Fearful.](https://www.churchofjesuschrist.org/study/scriptures/tg/fearful?lang=eng)
+[^a]: TG [[Courage, Courageous]]; [[Fearful]].

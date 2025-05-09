@@ -5,10 +5,10 @@
 [Alma 13:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p3#p3)
 
 
-[^a]: [[D&C 127.2|D&C 127:2]]. TG [Election](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng); [Foreordination](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng).
+[^a]: [[D&C 127.2|D&C 127:2]]. TG [[Election, Elect]]; [[Foreordination]].
 [^b]: [[D&C 138.56|D&C 138:56.]]
-[^c]: [[Alma 12.30|Alma 12:30 (25, 30)]]; [[Alma 22.13|22:13]]. TG [Man, Antemortal Existence of](https://www.churchofjesuschrist.org/study/scriptures/tg/man-antemortal-existence-of?lang=eng).
-[^d]: TG [God, Foreknowledge of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-foreknowledge-of?lang=eng)
-[^e]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
-[^f]: TG [Priesthood, Qualifying for.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-qualifying-for?lang=eng)
-[^g]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
+[^c]: [[Alma 12.30|Alma 12:30 (25, 30)]]; [[Alma 22.13|22:13]]. TG [[Man, Antemortal Existence of]].
+[^d]: TG [[God, Foreknowledge of]].
+[^e]: TG [[Agency]].
+[^f]: TG [[Priesthood, Qualifying for]].
+[^g]: TG [[Called of God]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 27.13|2 Ne. 27:13.]]
-[^b]: [[Revelation 12.1|Rev. 12:1 (1-6)]]. TG [Church](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng); Jesus Christ, Head of the [Church](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng).
+[^b]: [[Revelation 12.1|Rev. 12:1 (1-6)]]. TG [[Apostasy of the Early Christian Church]]; Jesus Christ, Head of the [[Apostasy of the Early Christian Church]].
 [^c]: Song 6:10; [[D&C 105.31|D&C 105:31]]; [[D&C 109.73|109:73.]]

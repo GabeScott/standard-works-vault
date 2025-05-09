@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mark 9.48|Mark 9:48 (43-48)]]; [[D&C 76.44|D&C 76:44.]]
-[^b]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^b]: TG [[Hell]].

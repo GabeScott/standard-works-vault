@@ -5,6 +5,6 @@
 [Isaiah 55:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.9?lang=eng#p9)
 
 
-[^a]: TG [Spirituality.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirituality?lang=eng)
+[^a]: TG [[Spirituality]].
 [^b]: [[Job 33.12|Job 33:12]]; [[Abraham 3.19|Abr. 3:19.]]
 [^c]: [[Psalms 139.17|Ps. 139:17 (17-24).]]

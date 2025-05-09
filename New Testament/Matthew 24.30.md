@@ -5,9 +5,9 @@
 [Matthew 24:30](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.30?lang=eng#p30)
 
 
-[^a]: [[D&C 88.93|D&C 88:93]]. TG [Jesus Christ, Second Coming](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng).
-[^b]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^a]: [[D&C 88.93|D&C 88:93]]. TG [[Jesus Christ, Second Coming]].
+[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
 [^c]: [[Zechariah 12.12|Zech. 12:12]]; [[Revelation 1.7|Rev. 1:7 (7-8).]]
-[^d]: TG [Jesus Christ, Son of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
-[^e]: TG [Jesus Christ, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng)
-[^f]: TG [Jesus Christ, Glory of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng)
+[^d]: TG [[Jesus Christ, Son of Man]].
+[^e]: TG [[Jesus Christ, Power of]].
+[^f]: TG [[Jesus Christ, Glory of]].

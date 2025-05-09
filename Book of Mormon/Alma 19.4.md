@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 18.43|Alma 18:43.]]
-[^b]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
+[^b]: TG [[Prophets, Mission of]].
 [^c]: [[D&C 3.4|D&C 3:4.]]

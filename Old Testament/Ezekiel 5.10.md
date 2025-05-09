@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 19.9|Jer. 19:9]]; Lam. 2:20.
-[^b]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^b]: TG [[Israel, Scattering of]].

@@ -5,4 +5,4 @@
 [Numbers 27:19](https://www.churchofjesuschrist.org/study/scriptures/ot/num/27.19?lang=eng#p19)
 
 
-[^a]: TG [Common Consent](https://www.churchofjesuschrist.org/study/scriptures/tg/common-consent?lang=eng); [Setting Apart](https://www.churchofjesuschrist.org/study/scriptures/tg/setting-apart?lang=eng); [Sustaining Church Leaders.](https://www.churchofjesuschrist.org/study/scriptures/tg/sustaining-church-leaders?lang=eng)
+[^a]: TG [[Common Consent]]; [[Setting Apart]]; [[Sustaining Church Leaders]].

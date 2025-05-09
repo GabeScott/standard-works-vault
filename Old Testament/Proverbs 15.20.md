@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 10.1|Prov. 10:1.]]
-[^b]: TG [Marriage, Motherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-motherhood?lang=eng)
+[^b]: TG [[Marriage, Motherhood]].

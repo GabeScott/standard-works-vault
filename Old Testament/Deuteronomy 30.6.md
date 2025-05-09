@@ -5,5 +5,5 @@
 [Deuteronomy 30:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.6?lang=eng#p6)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
-[^b]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^a]: TG [[Circumcision]].
+[^b]: TG [[Love]].

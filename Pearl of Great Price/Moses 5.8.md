@@ -6,5 +6,5 @@
 
 
 [^a]: [[Moses 1.17|Moses 1:17.]]
-[^b]: [[Moses 6.57|Moses 6:57]]; [[Moses 7.10|7:10]]. TG [Repent](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng).
-[^c]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^b]: [[Moses 6.57|Moses 6:57]]; [[Moses 7.10|7:10]]. TG [[Repent, Repentance]].
+[^c]: TG [[Prayer, Pray]].

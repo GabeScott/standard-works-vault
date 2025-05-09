@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Kings 12.28|1 Kgs. 12:28 (28-33).]]
-[^b]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^b]: TG [[Apostasy of Israel]].
 [^c]: [[Amos 3.14|Amos 3:14.]]

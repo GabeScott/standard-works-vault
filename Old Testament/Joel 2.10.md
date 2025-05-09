@@ -5,7 +5,7 @@
 [Joel 2:10](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.10?lang=eng#p10)
 
 
-[^a]: TG [Earth, Destiny of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-destiny-of?lang=eng)
+[^a]: TG [[Earth, Destiny of]].
 [^b]: [[D&C 43.18|D&C 43:18]]; [[D&C 84.118|84:118.]]
 [^c]: [[D&C 29.14|D&C 29:14]]; [[D&C 45.42|45:42]]; [[D&C 88.87|88:87]]; [[D&C 133.49|133:49]]; JS—M 1:33.
 [^d]: [[Isaiah 13.10|Isa. 13:10]]; [[Ezekiel 32.7|Ezek. 32:7]]; [[Matthew 24.29|Matt. 24:29.]]

@@ -5,6 +5,6 @@
 [Acts 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.8?lang=eng#p8)
 
 
-[^a]: 2 Tim. 1:7. TG [Holy Ghost, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng).
+[^a]: 2 Tim. 1:7. TG [[Holy Ghost, Gifts of]].
 [^b]: [[Luke 24.48|Luke 24:48]]; [[D&C 27.12|D&C 27:12.]]
 [^c]: [[Acts 8.5|Acts 8:5 (5, 14).]]

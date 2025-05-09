@@ -5,4 +5,4 @@
 [3 Nephi 18:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p8#p8)
 
 
-[^a]: [[Matthew 26.27|Matt. 26:27 (27-29)]]. TG [Jesus Christ, Types of, in Memory](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-memory?lang=eng).
+[^a]: [[Matthew 26.27|Matt. 26:27 (27-29)]]. TG [[Jesus Christ, Types of, in Memory]].

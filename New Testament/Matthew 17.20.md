@@ -5,7 +5,7 @@
 [Matthew 17:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/17.20?lang=eng#p20)
 
 
-[^a]: GR little faith. TG [Doubt](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng).
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: GR little faith. TG [[Doubt, Doubtful]].
+[^b]: TG [[Faith]].
 [^c]: [[Ether 12.30|Ether 12:30]]; [[Moses 7.13|Moses 7:13.]]
-[^d]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
+[^d]: TG [[God, Power of]].

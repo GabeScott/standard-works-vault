@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 18.20|Deut. 18:20.]]
-[^b]: TG [Dream.](https://www.churchofjesuschrist.org/study/scriptures/tg/dream?lang=eng)
-[^c]: TG [Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)
+[^b]: TG [[Dream]].
+[^c]: TG [[Shepherd]].

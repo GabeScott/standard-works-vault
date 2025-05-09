@@ -5,4 +5,4 @@
 [1 Kings 2:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/2.24?lang=eng#p24)
 
 
-[^a]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^a]: TG [[Capital Punishment]].

@@ -5,5 +5,5 @@
 [Acts 20:30](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.30?lang=eng#p30)
 
 
-[^a]: TG [False Doctrine.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng)
-[^b]: [[Romans 16.17|Rom. 16:17 (17-19)]]. TG [Apostasy of Individuals](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng).
+[^a]: TG [[False Doctrine]].
+[^b]: [[Romans 16.17|Rom. 16:17 (17-19)]]. TG [[Apostasy of Individuals]].

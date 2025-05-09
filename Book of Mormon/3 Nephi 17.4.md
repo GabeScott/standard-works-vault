@@ -6,5 +6,5 @@
 
 
 [^a]: [[3 Nephi 18.39|3 Ne. 18:39.]]
-[^b]: [[3 Nephi 16.3|3 Ne. 16:3]]. TG [Jesus Christ, Appearances, Postmortal](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-postmortal?lang=eng).
-[^c]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^b]: [[3 Nephi 16.3|3 Ne. 16:3]]. TG [[Jesus Christ, Appearances, Postmortal]].
+[^c]: TG [[Israel, Ten Lost Tribes of]].

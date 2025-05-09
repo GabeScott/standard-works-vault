@@ -5,4 +5,4 @@
 [Revelation 16:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.9?lang=eng#p9)
 
 
-[^a]: TG [Blaspheme.](https://www.churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng)
+[^a]: TG [[Blaspheme, Blasphemous, Blasphemy]].

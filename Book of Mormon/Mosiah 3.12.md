@@ -5,5 +5,5 @@
 [Mosiah 3:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/3?lang=eng&id=p12#p12)
 
 
-[^a]: [[Mosiah 2.37|Mosiah 2:37 (36-38)]]; [[Helaman 8.25|Hel. 8:25 (24-25)]]. TG [Rebellion](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng).
-[^b]: TG [Jesus Christ, Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lord?lang=eng)
+[^a]: [[Mosiah 2.37|Mosiah 2:37 (36-38)]]; [[Helaman 8.25|Hel. 8:25 (24-25)]]. TG [[Rebellion, Rebel]].
+[^b]: TG [[Jesus Christ, Lord]].

@@ -5,5 +5,5 @@
 [Acts 7:24](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.24?lang=eng#p24)
 
 
-[^a]: TG [Oppression.](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng)
+[^a]: TG [[Oppression, Oppress]].
 [^b]: [[Exodus 2.12|Ex. 2:12 (11-12).]]

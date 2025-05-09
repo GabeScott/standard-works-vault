@@ -5,5 +5,5 @@
 [Luke 2:51](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.51?lang=eng#p51)
 
 
-[^a]: TG [Family, Children, Duties of](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-duties-of?lang=eng); [Self-Mastery.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
-[^b]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^a]: TG [[Family, Children, Duties of]]; [[Self-Mastery]].
+[^b]: TG [[Heart]].

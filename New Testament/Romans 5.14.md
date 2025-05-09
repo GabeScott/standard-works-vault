@@ -5,5 +5,5 @@
 [Romans 5:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.14?lang=eng#p14)
 
 
-[^a]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^a]: TG [[Transgressor]].
 [^b]: GR type, pattern. 1 Cor. 15:45.

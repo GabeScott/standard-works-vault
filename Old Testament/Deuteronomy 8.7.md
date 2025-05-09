@@ -6,5 +6,5 @@
 
 
 [^a]: [[Exodus 3.8|Ex. 3:8.]]
-[^b]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^b]: TG [[Israel, Land of]].
 [^c]: OR springs and water recesses. Deut. 33:28.

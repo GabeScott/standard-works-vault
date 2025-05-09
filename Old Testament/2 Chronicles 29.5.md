@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Chronicles 35.6|2 Chr. 35:6.]]
-[^b]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^b]: TG [[Filthiness, Filthy]].

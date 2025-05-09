@@ -6,7 +6,7 @@
 
 
 [^a]: IE the Pleiades.
-[^b]: TG [Astronomy.](https://www.churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng)
+[^b]: TG [[Astronomy]].
 [^c]: [[Amos 4.13|Amos 4:13.]]
 [^d]: [[Amos 8.9|Amos 8:9.]]
 [^e]: [[Amos 9.6|Amos 9:6.]]

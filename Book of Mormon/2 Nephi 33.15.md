@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 25.22|2 Ne. 25:22]]; [[3 Nephi 27.25|3 Ne. 27:25 (23-27)]]; [[Ether 4.10|Ether 4:10 (8-10).]]
-[^b]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^b]: TG [[Obedience, Obedient, Obey]].

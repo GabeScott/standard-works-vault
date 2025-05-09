@@ -7,5 +7,5 @@
 
 [^a]: [[Mosiah 29.28|Mosiah 29:28 (28-29).]]
 [^b]: IE regarding degrees of manslaughter, etc.
-[^c]: [[Ezekiel 44.24|Ezek. 44:24]]. TG [Disputations](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng).
+[^c]: [[Ezekiel 44.24|Ezek. 44:24]]. TG [[Disputations, Dispute]].
 [^d]: [[1 Kings 8.29|1 Kgs. 8:29 (26-30).]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 53.5|Isa. 53:5]]; [[Mark 10.45|Mark 10:45.]]
-[^b]: TG [Justification.](https://www.churchofjesuschrist.org/study/scriptures/tg/justification?lang=eng)
+[^b]: TG [[Justification, Justify]].

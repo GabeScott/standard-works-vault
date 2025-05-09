@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Kings 8.61|1 Kgs. 8:61.]]
-[^b]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^b]: TG [[God, Omniscience of]].
 [^c]: [[D&C 6.16|D&C 6:16.]]
 [^d]: [[D&C 88.63|D&C 88:63.]]

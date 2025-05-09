@@ -5,4 +5,4 @@
 [Hebrews 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.1?lang=eng#p1)
 
 
-[^a]: TG [God, Glory of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-glory-of?lang=eng); [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^a]: TG [[God, Glory of]]; [[Restoration of the Gospel]].

@@ -5,6 +5,6 @@
 [Alma 42:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
-[^b]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Punish, Punishment]].
+[^b]: TG [[Repent, Repentance]].
 [^c]: [[Galatians 3.13|Gal. 3:13]]; [[D&C 76.48|D&C 76:48.]]

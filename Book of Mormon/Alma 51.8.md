@@ -5,5 +5,5 @@
 [Alma 51:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Haughtiness](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng); [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
-[^b]: TG [Tyranny.](https://www.churchofjesuschrist.org/study/scriptures/tg/tyranny?lang=eng)
+[^a]: TG [[Haughtiness, Haughty]]; [[Pride]].
+[^b]: TG [[Tyranny]].

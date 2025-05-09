@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 6.5|1 Ne. 6:5 (3-6).]]
-[^b]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^b]: TG [[Jesus Christ, Prophecies about]].

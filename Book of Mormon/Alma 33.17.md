@@ -5,4 +5,4 @@
 [Alma 33:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/33?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^a]: TG [[Martyrdom]].

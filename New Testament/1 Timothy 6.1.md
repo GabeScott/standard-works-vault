@@ -6,4 +6,4 @@
 
 
 [^a]: GR slaves. Col. 3:22; [[Titus 2.9|Titus 2:9 (9-10)]]; [[1 Peter 2.18|1 Pet. 2:18.]]
-[^b]: TG [Bondage, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng)
+[^b]: TG [[Bondage, Physical]].

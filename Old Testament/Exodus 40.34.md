@@ -6,6 +6,6 @@
 
 
 [^a]: [[Exodus 13.21|Ex. 13:21]]; [[D&C 84.5|D&C 84:5.]]
-[^b]: [[Ezekiel 44.4|Ezek. 44:4]]; [[Haggai 2.7|Hag. 2:7 (7-9)]]; [[D&C 109.12|D&C 109:12]]. TG [Jesus Christ, Glory of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng).
+[^b]: [[Ezekiel 44.4|Ezek. 44:4]]; [[Haggai 2.7|Hag. 2:7 (7-9)]]; [[D&C 109.12|D&C 109:12]]. TG [[Jesus Christ, Glory of]].
 [^c]: [[Leviticus 16.2|Lev. 16:2.]]
-[^d]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^d]: TG [[Genealogy and Temple Work]].

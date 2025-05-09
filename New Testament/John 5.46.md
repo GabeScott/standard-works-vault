@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 24.27|Luke 24:27.]]
-[^b]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^b]: TG [[Jesus Christ, Prophecies about]].

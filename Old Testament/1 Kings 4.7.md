@@ -5,5 +5,5 @@
 [1 Kings 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/4.7?lang=eng#p7)
 
 
-[^a]: TG [Delegation of Responsibility.](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng)
+[^a]: TG [[Delegation of Responsibility]].
 [^b]: [[1 Kings 12.4|1 Kgs. 12:4.]]

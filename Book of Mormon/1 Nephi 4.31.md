@@ -5,4 +5,4 @@
 [1 Nephi 4:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/4?lang=eng&id=p31#p31)
 
 
-[^a]: TG [Strength](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng); [Strength](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)en.
+[^a]: TG [[Strength]]; [[Strength]]en.

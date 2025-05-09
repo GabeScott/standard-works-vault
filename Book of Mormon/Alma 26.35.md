@@ -5,6 +5,6 @@
 [Alma 26:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p35#p35)
 
 
-[^a]: TG [God, Intelligence of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-intelligence-of?lang=eng); [God, Perfection of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng); [God, Wisdom of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-wisdom-of?lang=eng)
+[^a]: TG [[God, Intelligence of]]; [[God, Perfection of]]; [[God, Wisdom of]].
 [^b]: [[D&C 88.41|D&C 88:41.]]
-[^c]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^c]: TG [[God, Mercy of]].

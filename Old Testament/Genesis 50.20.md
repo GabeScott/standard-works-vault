@@ -5,6 +5,6 @@
 [Genesis 50:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.20?lang=eng#p20)
 
 
-[^a]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
+[^a]: TG [[Evil]].
 [^b]: [[Genesis 45.5|Gen. 45:5.]]
 [^c]: [[D&C 100.15|D&C 100:15.]]

@@ -8,4 +8,4 @@
 [^a]: JST Rom. 8:9 But ye are not after the flesh, but after the Spirit …
 [^b]: [[D&C 8.2|D&C 8:2.]]
 [^c]: 1 Jn. 3:24 (19-24).
-[^d]: TG [Holy Ghost, Loss of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-loss-of?lang=eng)
+[^d]: TG [[Holy Ghost, Loss of]].

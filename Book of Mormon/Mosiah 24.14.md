@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 46.4|Isa. 46:4 (3-4).]]
-[^b]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
-[^c]: TG [Adversity](https://www.churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng); [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
+[^b]: TG [[Witness, Witnesses]].
+[^c]: TG [[Adversity]]; [[Affliction]].

@@ -5,4 +5,4 @@
 [Mark 13:34](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.34?lang=eng#p34)
 
 
-[^a]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
+[^a]: TG [[Authority]].

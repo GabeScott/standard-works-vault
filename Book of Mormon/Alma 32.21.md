@@ -6,5 +6,5 @@
 
 
 [^a]: [[John 20.29|John 20:29]]; [[Hebrews 11.1|Heb. 11:1 (1-40).]]
-[^b]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
+[^b]: TG [[Hope]].
 [^c]: [[Ether 12.6|Ether 12:6.]]

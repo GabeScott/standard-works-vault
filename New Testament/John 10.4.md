@@ -5,5 +5,5 @@
 [John 10:4](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.4?lang=eng#p4)
 
 
-[^a]: TG [Discernment, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/discernment-spiritual?lang=eng)
-[^b]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^a]: TG [[Discernment, Spiritual]].
+[^b]: TG [[Revelation]].

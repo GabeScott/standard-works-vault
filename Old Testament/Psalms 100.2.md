@@ -5,5 +5,5 @@
 [Psalms 100:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/100.2?lang=eng#p2)
 
 
-[^a]: TG [Cheerful.](https://www.churchofjesuschrist.org/study/scriptures/tg/cheerful?lang=eng)
-[^b]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^a]: TG [[Cheerful, Cheerfulness]].
+[^b]: TG [[Singing, Sing, Sang, Sung]].

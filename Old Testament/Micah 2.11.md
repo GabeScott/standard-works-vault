@@ -5,5 +5,5 @@
 [Micah 2:11](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/2.11?lang=eng#p11)
 
 
-[^a]: TG [Priestcraft.](https://www.churchofjesuschrist.org/study/scriptures/tg/priestcraft?lang=eng)
+[^a]: TG [[Priestcraft]].
 [^b]: [[Helaman 13.27|Hel. 13:27.]]

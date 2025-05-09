@@ -5,4 +5,4 @@
 [John 13:35](https://www.churchofjesuschrist.org/study/scriptures/nt/john/13.35?lang=eng#p35)
 
 
-[^a]: TG [Fellowshipping](https://www.churchofjesuschrist.org/study/scriptures/tg/fellowshipping?lang=eng); [God, Love of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng)
+[^a]: TG [[Fellowshipping]]; [[God, Love of]].

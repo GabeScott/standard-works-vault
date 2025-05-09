@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 26.33|2 Ne. 26:33.]]
-[^b]: [[2 Nephi 5.22|2 Ne. 5:22 (20-25)]]. TG [Filthiness](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng).
-[^c]: TG [Idleness.](https://www.churchofjesuschrist.org/study/scriptures/tg/idleness?lang=eng)
+[^b]: [[2 Nephi 5.22|2 Ne. 5:22 (20-25)]]. TG [[Filthiness, Filthy]].
+[^c]: TG [[Idleness, Idle, Idler]].

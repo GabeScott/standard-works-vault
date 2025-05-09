@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 23.26|Matt. 23:26 (25-26).]]
-[^b]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^b]: TG [[Purification, Purify, Purifying]].

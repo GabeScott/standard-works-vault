@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mormon 3.8|Morm. 3:8 (7-8, 13).]]
-[^b]: TG [God, Spirit of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng); [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^b]: TG [[God, Spirit of]]; [[Strength]].

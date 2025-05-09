@@ -5,4 +5,4 @@
 [2 Corinthians 12:19](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/12.19?lang=eng#p19)
 
 
-[^a]: [[1 Corinthians 14.26|1 Cor. 14:26]]. TG [Edification](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng).
+[^a]: [[1 Corinthians 14.26|1 Cor. 14:26]]. TG [[Edification, Edify]].

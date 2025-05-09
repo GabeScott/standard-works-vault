@@ -5,6 +5,6 @@
 [Romans 2:22](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.22?lang=eng#p22)
 
 
-[^a]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^a]: TG [[Adulterer, Adultery]].
 [^b]: GR rob shrines, temples.
-[^c]: TG [Sacrilege.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng)
+[^c]: TG [[Sacrilege]].

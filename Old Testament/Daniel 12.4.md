@@ -5,7 +5,7 @@
 [Daniel 12:4](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.4?lang=eng#p4)
 
 
-[^a]: TG [Seal.](https://www.churchofjesuschrist.org/study/scriptures/tg/seal?lang=eng)
-[^b]: TG [Scriptures to Come Forth.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-to-come-forth?lang=eng)
+[^a]: TG [[Seal]].
+[^b]: TG [[Scriptures to Come Forth]].
 [^c]: [[D&C 38.5|D&C 38:5 (4-6).]]
 [^d]: [[D&C 121.33|D&C 121:33.]]

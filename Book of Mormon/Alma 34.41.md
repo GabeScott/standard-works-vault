@@ -5,5 +5,5 @@
 [Alma 34:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p41#p41)
 
 
-[^a]: TG [Patience.](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
+[^a]: TG [[Patience, Patient, Patiently]].
 [^b]: [[Job 23.2|Job 23:2 (2-5).]]

@@ -5,4 +5,4 @@
 [Leviticus 26:20](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.20?lang=eng#p20)
 
 
-[^a]: TG [Waste.](https://www.churchofjesuschrist.org/study/scriptures/tg/waste?lang=eng)
+[^a]: TG [[Waste]].

@@ -5,4 +5,4 @@
 [Isaiah 10:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/10.6?lang=eng#p6)
 
 
-[^a]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^a]: TG [[Hypocrisy, Hypocrite]].

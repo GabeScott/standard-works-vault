@@ -5,6 +5,6 @@
 [Luke 10:19](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.19?lang=eng#p19)
 
 
-[^a]: TG [Priesthood, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng)
+[^a]: TG [[Priesthood, Power of]].
 [^b]: [[Psalms 91.13|Ps. 91:13.]]
 [^c]: [[Acts 28.5|Acts 28:5.]]

@@ -7,5 +7,5 @@
 
 [^a]: [[1 Samuel 3.21|1 Sam. 3:21]]; [[D&C 67.11|D&C 67:11 (11-12).]]
 [^b]: [[Enos 1.8|Enos 1:8 (6-8).]]
-[^c]: TG [God, Presence of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng); [God, Privilege of Seeing.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng)
-[^d]: TG [Jesus Christ, Appearances, Antemortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-antemortal?lang=eng)
+[^c]: TG [[God, Presence of]]; [[God, Privilege of Seeing]].
+[^d]: TG [[Jesus Christ, Appearances, Antemortal]].

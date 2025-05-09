@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 18.10|Gen. 18:10 (10, 14)]]; [[Genesis 21.1|21:1.]]
-[^b]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^b]: TG [[Seed of Abraham]].

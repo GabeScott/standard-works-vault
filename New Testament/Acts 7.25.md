@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 2.14|Ex. 2:14]]; [[Exodus 3.13|3:13 (13-15)]]; [[Exodus 4.1|4:1.]]
-[^b]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^b]: TG [[Deliver, Deliverance]].

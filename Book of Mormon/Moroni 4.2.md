@@ -5,4 +5,4 @@
 [Moroni 4:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/4?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].

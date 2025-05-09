@@ -6,4 +6,4 @@
 
 
 [^a]: JS—H 1:59.
-[^b]: TG [Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng)
+[^b]: TG [[Mind, Minded]].

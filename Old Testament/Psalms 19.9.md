@@ -6,4 +6,4 @@
 
 
 [^a]: [[Job 34.12|Job 34:12]]; [[2 Nephi 9.15|2 Ne. 9:15]]; [[2 Nephi 30.9|30:9.]]
-[^b]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^b]: TG [[Truth]].

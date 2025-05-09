@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 22.13|Isa. 22:13]]; [[Luke 12.19|Luke 12:19]]; [[2 Nephi 28.7|2 Ne. 28:7.]]
-[^b]: TG [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
+[^b]: TG [[Procrastination, Procrastinate]].

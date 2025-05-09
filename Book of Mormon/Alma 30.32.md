@@ -5,5 +5,5 @@
 [Alma 30:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p32#p32)
 
 
-[^a]: TG [Labor](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng); [Self-Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng)
+[^a]: TG [[Labor]]; [[Self-Sacrifice]].
 [^b]: [[Acts 20.34|Acts 20:34 (33-35)]]; 1 Thes. 2:9; [[Mosiah 18.24|Mosiah 18:24.]]

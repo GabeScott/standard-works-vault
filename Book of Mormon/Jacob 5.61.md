@@ -7,4 +7,4 @@
 
 [^a]: [[Jacob 6.2|Jacob 6:2.]]
 [^b]: [[D&C 24.19|D&C 24:19]]; [[D&C 39.17|39:17]]; [[D&C 95.4|95:4.]]
-[^c]: TG [Millennium, Preparing a People for.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium-preparing-a-people-for?lang=eng)
+[^c]: TG [[Millennium, Preparing a People for]].

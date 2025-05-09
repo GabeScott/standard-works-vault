@@ -5,11 +5,11 @@
 [2 Nephi 9:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Death, Spiritual, First.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-first?lang=eng)
+[^a]: TG [[Death, Spiritual, First]].
 [^b]: [[D&C 76.84|D&C 76:84.]]
 [^c]: [[D&C 138.18|D&C 138:18.]]
-[^d]: TG [Bondage, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng); [Spirits in Prison.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-in-prison?lang=eng)
-[^e]: TG [Spirits, Disembodied.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-disembodied?lang=eng)
-[^f]: TG [Body, Sanctity of.](https://www.churchofjesuschrist.org/study/scriptures/tg/body-sanctity-of?lang=eng)
-[^g]: TG [Spirit Body.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirit-body?lang=eng)
-[^h]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^d]: TG [[Bondage, Spiritual]]; [[Spirits in Prison]].
+[^e]: TG [[Spirits, Disembodied]].
+[^f]: TG [[Body, Sanctity of]].
+[^g]: TG [[Spirit Body]].
+[^h]: TG [[Jesus Christ, Resurrection]].

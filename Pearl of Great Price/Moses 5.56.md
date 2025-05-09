@@ -5,4 +5,4 @@
 [Moses 5:56](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.56?lang=eng#p56)
 
 
-[^a]: TG [Earth, Curse of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-curse-of?lang=eng)
+[^a]: TG [[Earth, Curse of]].

@@ -7,4 +7,4 @@
 
 [^a]: [[3 Nephi 20.31|3 Ne. 20:31 (29-34)]]; [[Mormon 5.14|Morm. 5:14.]]
 [^b]: [[1 Nephi 14.17|1 Ne. 14:17]]; [[3 Nephi 21.6|3 Ne. 21:6 (6-7).]]
-[^c]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^c]: TG [[Israel, Ten Lost Tribes of]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 31.15|Jer. 31:15.]]
-[^b]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^b]: TG [[Mourning, Mourn]].
 [^c]: [[Jeremiah 40.1|Jer. 40:1.]]

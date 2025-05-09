@@ -7,4 +7,4 @@
 
 [^a]: JST Gen. 9:10-15 (Appendix).
 [^b]: [[Leviticus 17.11|Lev. 17:11 (11-14).]]
-[^c]: TG [Blood, Eating of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-eating-of?lang=eng)
+[^c]: TG [[Blood, Eating of]].

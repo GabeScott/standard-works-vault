@@ -5,7 +5,7 @@
 [2 Timothy 2:22](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/2.22?lang=eng#p22)
 
 
-[^a]: GR impure, violent desires. TG [Chastity](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng); [Lust](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng).
-[^b]: TG [Priesthood, Magnifying Callings within.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng)
-[^c]: TG [Peace.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
+[^a]: GR impure, violent desires. TG [[Chastity, Chaste]]; [[Lust]].
+[^b]: TG [[Priesthood, Magnifying Callings within]].
+[^c]: TG [[Peace of God]].
 [^d]: [[1 Timothy 1.5|1 Tim. 1:5.]]

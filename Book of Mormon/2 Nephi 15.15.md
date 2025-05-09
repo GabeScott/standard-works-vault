@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 2.17|Isa. 2:17 (11, 17).]]
 [^b]: [[2 Nephi 12.11|2 Ne. 12:11.]]
-[^c]: TG [Haughtiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng)
+[^c]: TG [[Haughtiness, Haughty]].

@@ -5,4 +5,4 @@
 [Ezra 7:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/7.11?lang=eng#p11)
 
 
-[^a]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Scribe]].

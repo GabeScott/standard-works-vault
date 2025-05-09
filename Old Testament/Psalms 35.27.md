@@ -5,4 +5,4 @@
 [Psalms 35:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/35.27?lang=eng#p27)
 
 
-[^a]: TG [Pleasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/pleasure?lang=eng)
+[^a]: TG [[Pleasure]].

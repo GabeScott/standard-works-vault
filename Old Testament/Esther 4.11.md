@@ -6,5 +6,5 @@
 
 
 [^a]: [[Esther 6.4|Esth. 6:4.]]
-[^b]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^b]: TG [[Capital Punishment]].
 [^c]: [[Esther 5.2|Esth. 5:2]]; [[Esther 8.4|8:4.]]

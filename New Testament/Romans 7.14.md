@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 29.34|D&C 29:34.]]
-[^b]: TG [Carnal Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/carnal-mind?lang=eng)
+[^b]: TG [[Carnal Mind]].
 [^c]: GR devoted to, a slave to.

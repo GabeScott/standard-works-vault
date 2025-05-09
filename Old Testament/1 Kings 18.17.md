@@ -5,4 +5,4 @@
 [1 Kings 18:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.17?lang=eng#p17)
 
 
-[^a]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^a]: TG [[Prophets, Rejection of]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 13.13|Gen. 13:13.]]
-[^b]: TG [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
-[^c]: TG [Idleness](https://www.churchofjesuschrist.org/study/scriptures/tg/idleness?lang=eng); [Laziness.](https://www.churchofjesuschrist.org/study/scriptures/tg/laziness?lang=eng)
+[^b]: TG [[Pride]].
+[^c]: TG [[Idleness, Idle, Idler]]; [[Laziness]].

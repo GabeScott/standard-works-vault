@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 3.15|2 Ne. 3:15.]]
-[^b]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^b]: TG [[Stiffnecked, Stiffneckedness]].

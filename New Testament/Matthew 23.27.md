@@ -7,5 +7,5 @@
 
 [^a]: GR whitewashed tombs. Acts 23:3.
 [^b]: [[Luke 11.44|Luke 11:44.]]
-[^c]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
-[^d]: TG [Cleanliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/cleanliness?lang=eng)
+[^c]: TG [[Beauty]].
+[^d]: TG [[Cleanliness]].

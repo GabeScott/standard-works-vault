@@ -7,6 +7,6 @@
 
 [^a]: [[Omni 1.25|Omni 1:25]]; [[Alma 5.40|Alma 5:40]]; [[Moroni 7.16|Moro. 7:16 (12-17).]]
 [^b]: [[3 Nephi 11.35|3 Ne. 11:35]]; [[3 Nephi 28.34|28:34.]]
-[^c]: TG [Jesus Christ, Light of the World.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-light-of-the-world?lang=eng)
+[^c]: TG [[Jesus Christ, Light of the World]].
 [^d]: Col. 3:4.
 [^e]: [[Alma 38.9|Alma 38:9.]]

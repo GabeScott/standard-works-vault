@@ -5,4 +5,4 @@
 [Abraham 5:20](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.20?lang=eng#p20)
 
 
-[^a]: TG [Adam.](https://www.churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng)
+[^a]: TG [[Adam]].

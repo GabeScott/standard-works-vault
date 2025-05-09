@@ -5,4 +5,4 @@
 [Mosiah 10:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/10?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Weapon.](https://www.churchofjesuschrist.org/study/scriptures/tg/weapon?lang=eng)
+[^a]: TG [[Weapon]].

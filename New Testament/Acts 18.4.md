@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 17.17|Acts 17:17]]; [[Acts 19.8|19:8.]]
-[^b]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
+[^b]: TG [[Sabbath]].

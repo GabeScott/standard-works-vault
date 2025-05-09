@@ -5,5 +5,5 @@
 [Exodus 16:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/16.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 14.19|Ex. 14:19]]; [[Exodus 24.16|24:16]]; [[Numbers 14.10|Num. 14:10]]. TG [God, Manifestations of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-manifestations-of?lang=eng).
+[^a]: [[Exodus 14.19|Ex. 14:19]]; [[Exodus 24.16|24:16]]; [[Numbers 14.10|Num. 14:10]]. TG [[God, Manifestations of]].
 [^b]: [[Exodus 40.38|Ex. 40:38.]]

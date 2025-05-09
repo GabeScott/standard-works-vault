@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hosea 13.4|Hosea 13:4]]; [[D&C 76.1|D&C 76:1.]]
-[^b]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
+[^b]: TG [[Jesus Christ, Jehovah]].

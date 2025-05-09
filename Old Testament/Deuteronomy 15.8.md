@@ -5,5 +5,5 @@
 [Deuteronomy 15:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.8?lang=eng#p8)
 
 
-[^a]: TG [Almsgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/almsgiving?lang=eng)
+[^a]: TG [[Almsgiving]].
 [^b]: HEB needs.

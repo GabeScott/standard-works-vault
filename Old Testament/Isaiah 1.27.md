@@ -5,6 +5,6 @@
 [Isaiah 1:27](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.27?lang=eng#p27)
 
 
-[^a]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^a]: TG [[Zion, Sion]].
 [^b]: HEB justice.
-[^c]: TG [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^c]: TG [[Conversion, Convert]].

@@ -5,5 +5,5 @@
 [Acts 6:8](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/6.8?lang=eng#p8)
 
 
-[^a]: TG [Priesthood, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng)
-[^b]: TG [Miracle.](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
+[^a]: TG [[Priesthood, Power of]].
+[^b]: TG [[Miracle]].

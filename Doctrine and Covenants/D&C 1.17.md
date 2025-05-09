@@ -5,9 +5,9 @@
 [D&C 1:17](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/1.17?lang=eng#p17)
 
 
-[^a]: TG [God, Foreknowledge of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-foreknowledge-of?lang=eng)
+[^a]: TG [[God, Foreknowledge of]].
 [^b]: [[Isaiah 24.6|Isa. 24:6 (1-6).]]
-[^c]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
-[^d]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
-[^e]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^c]: TG [[Called of God]].
+[^d]: TG [[Servant]].
+[^e]: TG [[Revelation]].
 [^f]: [[D&C 1.30|D&C 1:30 (23-28, 30).]]

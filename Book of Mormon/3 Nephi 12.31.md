@@ -5,4 +5,4 @@
 [3 Nephi 12:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p31#p31)
 
 
-[^a]: TG [Divorce.](https://www.churchofjesuschrist.org/study/scriptures/tg/divorce?lang=eng)
+[^a]: TG [[Divorce, Divorcement]].

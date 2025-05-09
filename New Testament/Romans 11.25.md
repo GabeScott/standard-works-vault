@@ -7,5 +7,5 @@
 
 [^a]: [[Proverbs 26.12|Prov. 26:12.]]
 [^b]: GR callousness. Jacob 4:14.
-[^c]: TG [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
-[^d]: TG [Gentiles.](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng)
+[^c]: TG [[Restoration of the Gospel]].
+[^d]: TG [[Gentiles]].

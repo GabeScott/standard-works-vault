@@ -5,4 +5,4 @@
 [Joseph Smith History 1:47](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.47?lang=eng#p47)
 
 
-[^a]: TG [Meditation.](https://www.churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng)
+[^a]: TG [[Meditation, Meditate]].

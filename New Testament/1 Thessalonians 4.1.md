@@ -6,6 +6,6 @@
 
 
 [^a]: Philip. 4:9.
-[^b]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^b]: TG [[Walking with God]].
 [^c]: Col. 1:10.
 [^d]: 1 Thes. 3:12.

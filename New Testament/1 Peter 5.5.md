@@ -5,8 +5,8 @@
 [1 Peter 5:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/5.5?lang=eng#p5)
 
 
-[^a]: TG [Respect](https://www.churchofjesuschrist.org/study/scriptures/tg/respect?lang=eng); [Submissiveness.](https://www.churchofjesuschrist.org/study/scriptures/tg/submissiveness?lang=eng)
-[^b]: TG [Humility.](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng)
+[^a]: TG [[Respecter]]; [[Submissiveness, Submit]].
+[^b]: TG [[Humility, Humble]].
 [^c]: GR opposes, is adverse to.
-[^d]: TG [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
-[^e]: TG [Poor in Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/poor-in-spirit?lang=eng)
+[^d]: TG [[Pride]].
+[^e]: TG [[Poor in Spirit]].

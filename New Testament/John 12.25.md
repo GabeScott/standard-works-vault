@@ -6,4 +6,4 @@
 
 
 [^a]: See JST Luke 9:24-25 (Appendix).
-[^b]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
+[^b]: TG [[Hate]].

@@ -5,4 +5,4 @@
 [Ezra 10:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/10.10?lang=eng#p10)
 
 
-[^a]: TG [Marriage, Interfaith.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng)
+[^a]: TG [[Marriage, Interfaith]].

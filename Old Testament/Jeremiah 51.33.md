@@ -5,4 +5,4 @@
 [Jeremiah 51:33](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.33?lang=eng#p33)
 
 
-[^a]: TG [Harvest.](https://www.churchofjesuschrist.org/study/scriptures/tg/harvest?lang=eng)
+[^a]: TG [[Harvest]].

@@ -5,4 +5,4 @@
 [2 Chronicles 36:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/36.20?lang=eng#p20)
 
 
-[^a]: [[Ezekiel 19.12|Ezek. 19:12]]. TG [Israel, Bondage of, in Other Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng).
+[^a]: [[Ezekiel 19.12|Ezek. 19:12]]. TG [[Israel, Bondage of, in Other Lands]].

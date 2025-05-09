@@ -5,4 +5,4 @@
 [Deuteronomy 5:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/5.16?lang=eng#p16)
 
 
-[^a]: TG [Honoring Father and Mother.](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng)
+[^a]: TG [[Honoring Father and Mother]].

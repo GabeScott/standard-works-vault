@@ -5,5 +5,5 @@
 [John 7:39](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.39?lang=eng#p39)
 
 
-[^a]: TG [Holy Ghost, Gift of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gift-of?lang=eng)
+[^a]: TG [[Holy Ghost, Gift of]].
 [^b]: JST John 7:39 … for the Holy Ghost was promised unto them who believe, after that Jesus was glorified.)

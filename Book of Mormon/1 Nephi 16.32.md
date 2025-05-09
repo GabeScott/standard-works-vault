@@ -5,4 +5,4 @@
 [1 Nephi 16:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/16?lang=eng&id=p32#p32)
 
 
-[^a]: [[2 Nephi 1.24|2 Ne. 1:24]]. TG [Food](https://www.churchofjesuschrist.org/study/scriptures/tg/food?lang=eng); [Thanksgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng).
+[^a]: [[2 Nephi 1.24|2 Ne. 1:24]]. TG [[Food]]; [[Thanksgiving]].

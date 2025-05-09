@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jacob 5.46|Jacob 5:46]]; [[Jacob 6.7|6:7]]; [[Alma 5.52|Alma 5:52]]; [[D&C 132.13|D&C 132:13.]]
-[^b]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^b]: TG [[Hell]].

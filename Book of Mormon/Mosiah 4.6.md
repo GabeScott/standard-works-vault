@@ -5,7 +5,7 @@
 [Mosiah 4:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p6#p6)
 
 
-[^a]: TG [God, Knowledge about](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng); [God, Perfection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng)
-[^b]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^a]: TG [[God, Knowledge about]]; [[God, Perfection of]].
+[^b]: TG [[Jesus Christ, Atonement through]].
 [^c]: [[Mosiah 15.19|Mosiah 15:19]]; [[Mosiah 18.13|18:13.]]
-[^d]: [[Psalms 36.7|Ps. 36:7 (7-8)]]; [[2 Nephi 22.2|2 Ne. 22:2]]; [[Helaman 12.1|Hel. 12:1]]. TG [Trust in God](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng).
+[^d]: [[Psalms 36.7|Ps. 36:7 (7-8)]]; [[2 Nephi 22.2|2 Ne. 22:2]]; [[Helaman 12.1|Hel. 12:1]]. TG [[Trust in God]].

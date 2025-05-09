@@ -5,4 +5,4 @@
 [Alma 62:51](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/62?lang=eng&id=p51#p51)
 
 
-[^a]: [[Genesis 26.22|Gen. 26:22]]. TG [Prosper](https://www.churchofjesuschrist.org/study/scriptures/tg/prosper?lang=eng).
+[^a]: [[Genesis 26.22|Gen. 26:22]]. TG [[Prosper]].

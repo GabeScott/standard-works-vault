@@ -5,4 +5,4 @@
 [Psalms 22:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/22.25?lang=eng#p25)
 
 
-[^a]: TG [Assembly for Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/assembly-for-worship?lang=eng)
+[^a]: TG [[Assembly for Worship]].

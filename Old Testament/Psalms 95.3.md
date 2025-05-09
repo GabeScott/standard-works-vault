@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Chronicles 16.25|1 Chr. 16:25.]]
-[^b]: TG [Kingdom of God, in Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng)
+[^b]: TG [[Kingdom of God, in Heaven]].

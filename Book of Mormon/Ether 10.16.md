@@ -5,4 +5,4 @@
 [Ether 10:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Old Age.](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
+[^a]: TG [[Old Age]].

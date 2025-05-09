@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 34.24|Ex. 34:24.]]
-[^b]: Dan. 1:9. TG [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng) of God.
+[^b]: Dan. 1:9. TG [[Peace of God]]; [[Peace of God]] of God.

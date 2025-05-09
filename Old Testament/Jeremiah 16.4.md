@@ -5,6 +5,6 @@
 [Jeremiah 16:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/16.4?lang=eng#p4)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Mourning, Mourn]].
 [^b]: [[Jeremiah 14.12|Jer. 14:12.]]
 [^c]: [[Deuteronomy 28.26|Deut. 28:26.]]

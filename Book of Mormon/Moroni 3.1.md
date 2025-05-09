@@ -5,6 +5,6 @@
 [Moroni 3:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/3?lang=eng&id=p1#p1)
 
 
-[^a]: [[Alma 6.1|Alma 6:1]]. TG [Elder](https://www.churchofjesuschrist.org/study/scriptures/tg/elder?lang=eng).
-[^b]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
+[^a]: [[Alma 6.1|Alma 6:1]]. TG [[Elder, Melchizedek Priesthood]].
+[^b]: TG [[Church Organization]].
 [^c]: [[Mosiah 6.3|Mosiah 6:3.]]

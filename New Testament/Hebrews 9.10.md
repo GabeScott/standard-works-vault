@@ -5,7 +5,7 @@
 [Hebrews 9:10](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.10?lang=eng#p10)
 
 
-[^a]: TG [Wash.](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
+[^a]: TG [[Wash, Washing]].
 [^b]: [[Hebrews 7.16|Heb. 7:16.]]
-[^c]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^c]: TG [[Ordinance]].
 [^d]: [[Mosiah 13.29|Mosiah 13:29 (27-32).]]

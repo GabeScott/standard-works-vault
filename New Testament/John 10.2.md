@@ -5,4 +5,4 @@
 [John 10:2](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.2?lang=eng#p2)
 
 
-[^a]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^a]: TG [[Sheep]].

@@ -5,4 +5,4 @@
 [Exodus 18:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/18.22?lang=eng#p22)
 
 
-[^a]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
+[^a]: TG [[Judgment]].

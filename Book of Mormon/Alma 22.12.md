@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 5.18|1 Ne. 5:18 (10-18)]]; [[Alma 18.36|Alma 18:36]]; [[Alma 37.9|37:9.]]
-[^b]: TG [Man, Physical Creation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)
+[^b]: TG [[Man, Physical Creation of]].

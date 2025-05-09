@@ -5,5 +5,5 @@
 [Proverbs 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.1?lang=eng#p1)
 
 
-[^a]: TG [Edification](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng); [Teachable.](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng)
-[^b]: TG [Chastening.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng)
+[^a]: TG [[Edification, Edify]]; [[Teachable]].
+[^b]: TG [[Chastening]].

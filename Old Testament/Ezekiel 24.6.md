@@ -5,6 +5,6 @@
 [Ezekiel 24:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/24.6?lang=eng#p6)
 
 
-[^a]: TG [Blood, Shedding of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-shedding-of?lang=eng)
+[^a]: TG [[Blood, Shedding of]].
 [^b]: OR refuse or filth.
 [^c]: IE let none of the pieces be selected for consecration.

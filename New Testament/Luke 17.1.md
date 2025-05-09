@@ -5,4 +5,4 @@
 [Luke 17:1](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.1?lang=eng#p1)
 
 
-[^a]: TG [Offense.](https://www.churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng)
+[^a]: TG [[Offense, Offend, Offender]].

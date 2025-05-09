@@ -5,7 +5,7 @@
 [Ether 8:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p25#p25)
 
 
-[^a]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^a]: TG [[Liberty]].
 [^b]: [[Genesis 3.13|Gen. 3:13 (1-13)]]; [[2 Nephi 9.9|2 Ne. 9:9]]; [[Mosiah 16.3|Mosiah 16:3]]; [[Moses 4.19|Moses 4:19 (5-19).]]
-[^c]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
-[^d]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^c]: TG [[Hardheartedness, Harden, Hardness]].
+[^d]: TG [[Prophets, Rejection of]].

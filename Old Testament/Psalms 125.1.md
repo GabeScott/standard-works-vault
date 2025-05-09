@@ -5,5 +5,5 @@
 [Psalms 125:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/125.1?lang=eng#p1)
 
 
-[^a]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Trust in God]].
 [^b]: 1 Jn. 2:17.

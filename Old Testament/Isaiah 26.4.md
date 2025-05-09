@@ -5,5 +5,5 @@
 [Isaiah 26:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.4?lang=eng#p4)
 
 
-[^b]: TG [Eternity.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternity?lang=eng)
-[^c]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^b]: TG [[Eternity]].
+[^c]: TG [[Strength]].

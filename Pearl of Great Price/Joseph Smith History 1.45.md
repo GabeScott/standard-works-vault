@@ -6,6 +6,6 @@
 
 
 [^a]: [[Ezekiel 2.3|Ezek. 2:3 (1-10)]]; [[Ezekiel 3.4|3:4 (1-27).]]
-[^b]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
-[^c]: TG [Famine.](https://www.churchofjesuschrist.org/study/scriptures/tg/famine?lang=eng)
+[^b]: TG [[Judgment]].
+[^c]: TG [[Famine]].
 [^d]: [[Deuteronomy 32.25|Deut. 32:25]]; [[1 Nephi 1.13|1 Ne. 1:13]]; [[Alma 10.22|Alma 10:22.]]

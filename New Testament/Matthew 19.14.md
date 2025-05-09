@@ -6,4 +6,4 @@
 
 
 [^a]: GR Allow, Permit.
-[^b]: [[D&C 137.10|D&C 137:10]]. TG [Children](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng); Salvation of Little [Children](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng).
+[^b]: [[D&C 137.10|D&C 137:10]]. TG [[Children]]; Salvation of Little [[Children]].

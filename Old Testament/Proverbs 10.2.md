@@ -5,5 +5,5 @@
 [Proverbs 10:2](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.2?lang=eng#p2)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^a]: TG [[Treasure]].
+[^b]: TG [[God, the Standard of Righteousness]].

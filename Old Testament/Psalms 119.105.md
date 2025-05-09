@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 37.44|Alma 37:44 (38-46).]]
 [^b]: [[Proverbs 6.23|Prov. 6:23.]]
-[^c]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^c]: TG [[Light]].

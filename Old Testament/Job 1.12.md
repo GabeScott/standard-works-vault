@@ -5,4 +5,4 @@
 [Job 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.12?lang=eng#p12)
 
 
-[^a]: TG [Probation.](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng)
+[^a]: TG [[Probation, Probationary]].

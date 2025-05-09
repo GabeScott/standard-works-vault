@@ -7,4 +7,4 @@
 
 [^a]: JST 1 Jn. 1:1 Brethren, this is the testimony which we give of that which was from the beginning …
 [^b]: [[John 1.2|John 1:2 (1-4, 14).]]
-[^c]: TG [Jesus Christ, Messenger of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messenger-of-the-covenant?lang=eng)
+[^c]: TG [[Jesus Christ, Messenger of the Covenant]].

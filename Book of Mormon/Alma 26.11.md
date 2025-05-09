@@ -7,4 +7,4 @@
 
 [^a]: [[2 Corinthians 7.14|2 Cor. 7:14 (13-16).]]
 [^b]: 1 Thes. 3:9; [[D&C 18.16|D&C 18:16 (14-16).]]
-[^c]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^c]: TG [[Joy]].

@@ -5,4 +5,4 @@
 [Leviticus 23:7](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.7?lang=eng#p7)
 
 
-[^a]: TG [Meetings.](https://www.churchofjesuschrist.org/study/scriptures/tg/meetings?lang=eng)
+[^a]: TG [[Meetings]].

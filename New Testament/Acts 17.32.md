@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 12.15|Alma 12:15 (12-18).]]
-[^b]: TG [Mocking.](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng)
+[^b]: TG [[Mocking, Mock, Mocker, Mockery]].

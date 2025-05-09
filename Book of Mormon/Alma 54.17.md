@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 5.3|2 Ne. 5:3 (1-4)]]; [[Mosiah 10.15|Mosiah 10:15 (12-17).]]
-[^b]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^b]: TG [[Governments]].

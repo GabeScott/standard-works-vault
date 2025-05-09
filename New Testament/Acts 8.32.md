@@ -5,4 +5,4 @@
 [Acts 8:32](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.32?lang=eng#p32)
 
 
-[^a]: TG [Jesus Christ, Lamb of God](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lamb-of-god?lang=eng); [Jesus Christ, Trials of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-trials-of?lang=eng)
+[^a]: TG [[Jesus Christ, Lamb of God]]; [[Jesus Christ, Trials of]].

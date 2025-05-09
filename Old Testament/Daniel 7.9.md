@@ -5,8 +5,8 @@
 [Daniel 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.9?lang=eng#p9)
 
 
-[^a]: [[1 Corinthians 15.24|1 Cor. 15:24]]. TG [Kings, Earthly](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng).
+[^a]: [[1 Corinthians 15.24|1 Cor. 15:24]]. TG [[Kings, Earthly]].
 [^b]: Aramaic: set up.
-[^c]: [[D&C 138.38|D&C 138:38]]. TG [Adam](https://www.churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng).
-[^d]: TG [Clothing.](https://www.churchofjesuschrist.org/study/scriptures/tg/clothing?lang=eng)
+[^c]: [[D&C 138.38|D&C 138:38]]. TG [[Adam]].
+[^d]: TG [[Clothing]].
 [^e]: [[Ezekiel 1.15|Ezek. 1:15.]]

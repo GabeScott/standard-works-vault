@@ -6,5 +6,5 @@
 
 
 [^a]: [[Numbers 21.6|Num. 21:6 (4-9)]]; [[1 Nephi 17.41|1 Ne. 17:41]]; [[Ether 9.33|Ether 9:33 (31-33).]]
-[^b]: TG [Drought.](https://www.churchofjesuschrist.org/study/scriptures/tg/drought?lang=eng)
+[^b]: TG [[Drought]].
 [^c]: [[1 Nephi 17.29|1 Ne. 17:29.]]

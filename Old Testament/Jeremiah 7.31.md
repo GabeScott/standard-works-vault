@@ -7,5 +7,5 @@
 
 [^a]: [[2 Kings 23.10|2 Kgs. 23:10.]]
 [^b]: [[Joshua 18.16|Josh. 18:16.]]
-[^c]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^c]: TG [[Idolatry, Idol]].
 [^d]: [[Leviticus 18.21|Lev. 18:21]]; [[Deuteronomy 12.31|Deut. 12:31]]; [[Deuteronomy 18.10|18:10.]]

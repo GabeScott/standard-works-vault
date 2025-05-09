@@ -7,5 +7,5 @@
 
 [^a]: [[2 Kings 24.20|2 Kgs. 24:20]]; [[Jeremiah 52.3|Jer. 52:3]]; [[Ezekiel 17.15|Ezek. 17:15.]]
 [^b]: [[Ezekiel 17.13|Ezek. 17:13.]]
-[^c]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
-[^d]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^c]: TG [[Stiffnecked, Stiffneckedness]].
+[^d]: TG [[Hardheartedness, Harden, Hardness]].

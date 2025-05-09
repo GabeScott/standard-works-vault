@@ -5,5 +5,5 @@
 [Matthew 13:52](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.52?lang=eng#p52)
 
 
-[^a]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Scribe]].
 [^b]: GR which has become a disciple in.

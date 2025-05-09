@@ -5,4 +5,4 @@
 [Isaiah 26:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.7?lang=eng#p7)
 
 
-[^a]: TG [God, Justice of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
+[^a]: TG [[God, Justice of]].

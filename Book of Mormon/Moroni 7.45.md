@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Corinthians 13.4|1 Cor. 13:4 (1-13).]]
-[^b]: TG [Kindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
-[^c]: TG [Envy.](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
-[^d]: TG [Provoking.](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng)
+[^b]: TG [[Kindness]].
+[^c]: TG [[Envy, Envious]].
+[^d]: TG [[Provoking, Provoke]].

@@ -5,6 +5,6 @@
 [1 Peter 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.14?lang=eng#p14)
 
 
-[^a]: [[Luke 6.22|Luke 6:22]]; [[James 1.12|James 1:12 (8-16)]]. TG [Suffering](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng).
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^c]: TG [Happiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng)
+[^a]: [[Luke 6.22|Luke 6:22]]; [[James 1.12|James 1:12 (8-16)]]. TG [[Suffering]].
+[^b]: TG [[God, the Standard of Righteousness]].
+[^c]: TG [[Happiness, Happy]].

@@ -7,4 +7,4 @@
 
 [^a]: [[2 Nephi 10.16|2 Ne. 10:16.]]
 [^b]: [[Revelation 17.6|Rev. 17:6 (3-6)]]; [[Revelation 18.24|18:24]]; [[1 Nephi 14.13|1 Ne. 14:13.]]
-[^c]: [[Jeremiah 28.14|Jer. 28:14 (10-14)]]. TG [Bondage, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng).
+[^c]: [[Jeremiah 28.14|Jer. 28:14 (10-14)]]. TG [[Bondage, Spiritual]].

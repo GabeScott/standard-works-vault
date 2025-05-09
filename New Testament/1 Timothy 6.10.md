@@ -6,7 +6,7 @@
 
 
 [^a]: [[Psalms 119.36|Ps. 119:36]]; [[James 5.3|James 5:3 (1-6).]]
-[^b]: TG [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
-[^c]: TG [Covet.](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
+[^b]: TG [[Selfishness]].
+[^c]: TG [[Covet, Covetousness]].
 [^d]: GR wandered, apostatized.
-[^e]: TG [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
+[^e]: TG [[Sorrow]].

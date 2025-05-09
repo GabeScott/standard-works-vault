@@ -5,5 +5,5 @@
 [Matthew 6:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.18?lang=eng#p18)
 
 
-[^a]: TG [Fast, Fasting](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng); [Motivations.](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng)
-[^b]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^a]: TG [[Fast, Fasting]]; [[Motivations]].
+[^b]: TG [[Reward]].

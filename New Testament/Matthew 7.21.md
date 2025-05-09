@@ -5,8 +5,8 @@
 [Matthew 7:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.21?lang=eng#p21)
 
 
-[^a]: [[Titus 1.16|Titus 1:16]]. TG [Hypocrisy](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng); [Sincere](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng).
+[^a]: [[Titus 1.16|Titus 1:16]]. TG [[Hypocrisy, Hypocrite]]; [[Sincere, Sincerity]].
 [^b]: [[Hosea 8.2|Hosea 8:2 (1-4)]]; [[Luke 6.46|Luke 6:46.]]
-[^c]: [[Luke 8.21|Luke 8:21 (9-21)]]; [[D&C 138.4|D&C 138:4]]. TG [Duty](https://www.churchofjesuschrist.org/study/scriptures/tg/duty?lang=eng); [Good Works](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng); [Obedience](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng).
-[^d]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
+[^c]: [[Luke 8.21|Luke 8:21 (9-21)]]; [[D&C 138.4|D&C 138:4]]. TG [[Duty]]; [[Good Works]]; [[Obedience, Obedient, Obey]].
+[^d]: TG [[God, Will of]].
 [^e]: JST Matt. 7:30-31 … heaven. For the day soon cometh, that men shall come before me to judgment, to be judged according to their works.

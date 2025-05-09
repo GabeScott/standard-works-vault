@@ -5,5 +5,5 @@
 [Exodus 25:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/25.18?lang=eng#p18)
 
 
-[^a]: TG [Art.](https://www.churchofjesuschrist.org/study/scriptures/tg/art?lang=eng)
-[^b]: TG [Cherubim.](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
+[^a]: TG [[Art]].
+[^b]: TG [[Cherubim]].

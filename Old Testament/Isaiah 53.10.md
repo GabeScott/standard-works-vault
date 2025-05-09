@@ -6,6 +6,6 @@
 
 
 [^a]: [[Genesis 3.15|Gen. 3:15.]]
-[^b]: TG [Self-Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng)
-[^c]: [[Mosiah 15.10|Mosiah 15:10 (5-13)]]. TG [Sons and Daughters of God](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng).
-[^d]: TG [Pleasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/pleasure?lang=eng)
+[^b]: TG [[Self-Sacrifice]].
+[^c]: [[Mosiah 15.10|Mosiah 15:10 (5-13)]]. TG [[Sons and Daughters of God]].
+[^d]: TG [[Pleasure]].

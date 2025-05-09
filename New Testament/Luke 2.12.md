@@ -5,4 +5,4 @@
 [Luke 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.12?lang=eng#p12)
 
 
-[^a]: TG [Signs.](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng)
+[^a]: TG [[Signs]].

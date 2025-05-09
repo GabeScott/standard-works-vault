@@ -6,4 +6,4 @@
 
 
 [^a]: GR collected.
-[^b]: TG [Usury.](https://www.churchofjesuschrist.org/study/scriptures/tg/usury?lang=eng)
+[^b]: TG [[Usury]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 5.1|Isa. 5:1 (1-30).]]
-[^b]: TG [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
+[^b]: TG [[Vineyard of the Lord]].

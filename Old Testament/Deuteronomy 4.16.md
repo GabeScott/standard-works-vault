@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 6.11|Gen. 6:11 (11-13)]]; [[Exodus 32.7|Ex. 32:7.]]
-[^b]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^b]: TG [[Idolatry, Idol]].

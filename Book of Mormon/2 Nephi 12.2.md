@@ -6,6 +6,6 @@
 
 
 [^a]: Comparison with the King James Bible in English shows that there are differences in more than half of the 433 verses of Isaiah quoted in the Book of Mormon, while about 200 verses have the same wording as KJV.
-[^b]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^b]: TG [[Zion, Sion]].
 [^c]: [[3 Nephi 24.1|3 Ne. 24:1.]]
 [^d]: [[Genesis 49.26|Gen. 49:26]]; [[D&C 49.25|D&C 49:25]]; [[D&C 109.61|109:61]]; [[D&C 133.31|133:31 (29-31).]]

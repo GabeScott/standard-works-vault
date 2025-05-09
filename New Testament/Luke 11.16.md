@@ -5,4 +5,4 @@
 [Luke 11:16](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.16?lang=eng#p16)
 
 
-[^a]: TG [Sign Seekers.](https://www.churchofjesuschrist.org/study/scriptures/tg/sign-seekers?lang=eng)
+[^a]: TG [[Sign Seekers]].

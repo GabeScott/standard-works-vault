@@ -5,4 +5,4 @@
 [1 Chronicles 7:29](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/7.29?lang=eng#p29)
 
 
-[^a]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
+[^a]: TG [[Israel, Joseph, People of]].

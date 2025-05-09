@@ -5,4 +5,4 @@
 [Isaiah 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.11?lang=eng#p11)
 
 
-[^a]: TG [Drunkenness.](https://www.churchofjesuschrist.org/study/scriptures/tg/drunkenness?lang=eng)
+[^a]: TG [[Drunkenness]].

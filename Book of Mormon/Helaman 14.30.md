@@ -6,5 +6,5 @@
 
 
 [^a]: [[3 Nephi 3.11|3 Ne. 3:11.]]
-[^b]: [[Galatians 5.1|Gal. 5:1]]; [[2 Nephi 2.27|2 Ne. 2:27 (26-27)]]; [[Alma 41.7|Alma 41:7]]; [[Moses 6.56|Moses 6:56]]. TG [Agency](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng).
-[^c]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
+[^b]: [[Galatians 5.1|Gal. 5:1]]; [[2 Nephi 2.27|2 Ne. 2:27 (26-27)]]; [[Alma 41.7|Alma 41:7]]; [[Moses 6.56|Moses 6:56]]. TG [[Agency]].
+[^c]: TG [[Knowledge]].

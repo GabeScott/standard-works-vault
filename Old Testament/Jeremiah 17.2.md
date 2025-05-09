@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 9.37|2 Ne. 9:37]]; [[Alma 31.1|Alma 31:1.]]
-[^b]: HEB asherim; i.e., fertility idols. TG [Idolatry](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng).
+[^b]: HEB asherim; i.e., fertility idols. TG [[Idolatry, Idol]].

@@ -5,4 +5,4 @@
 [3 Nephi 14:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/14?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Benevolence](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng); [Compassion](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng); [Courtesy.](https://www.churchofjesuschrist.org/study/scriptures/tg/courtesy?lang=eng)
+[^a]: TG [[Benevolence]]; [[Compassion]]; [[Courtesy]].

@@ -5,4 +5,4 @@
 [Isaiah 30:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.15?lang=eng#p15)
 
 
-[^a]: TG [Silence.](https://www.churchofjesuschrist.org/study/scriptures/tg/silence?lang=eng)
+[^a]: TG [[Silence, Silent]].

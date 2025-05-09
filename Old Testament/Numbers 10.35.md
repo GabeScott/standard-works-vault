@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 68.1|Ps. 68:1.]]
-[^b]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
+[^b]: TG [[Hate]].

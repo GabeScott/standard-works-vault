@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 10.42|Matt. 10:42]]; [[D&C 84.90|D&C 84:90.]]
-[^b]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^b]: TG [[Reward]].

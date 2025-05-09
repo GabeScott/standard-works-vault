@@ -5,4 +5,4 @@
 [Deuteronomy 11:16](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/11.16?lang=eng#p16)
 
 
-[^a]: TG [Deceit.](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng)
+[^a]: TG [[Deceit, Deceive]].

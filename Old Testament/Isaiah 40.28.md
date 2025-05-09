@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 21.33|Gen. 21:33.]]
-[^b]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
+[^b]: TG [[Jesus Christ, Creator]].
 [^c]: OR fathoming. Rom. 11:33.

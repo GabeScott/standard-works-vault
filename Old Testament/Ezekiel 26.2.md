@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 23.1|Isa. 23:1]]; [[Amos 1.9|Amos 1:9.]]
-[^b]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^b]: TG [[Jerusalem]].

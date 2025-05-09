@@ -6,7 +6,7 @@
 
 
 [^a]: [[Mosiah 12.8|Mosiah 12:8]]; [[Alma 45.11|Alma 45:11 (9-14)]]; [[Helaman 13.6|Hel. 13:6 (5-6).]]
-[^b]: TG [Foolishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/foolishness?lang=eng)
-[^c]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^b]: TG [[Foolishness]].
+[^c]: TG [[Agency]].
 [^d]: [[Job 38.15|Job 38:15]]; [[John 3.19|John 3:19.]]
-[^e]: [[Job 24.24|Job 24:24 (17-24)]]. TG [Hell](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng).
+[^e]: [[Job 24.24|Job 24:24 (17-24)]]. TG [[Hell]].

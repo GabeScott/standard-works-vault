@@ -5,4 +5,4 @@
 [Numbers 18:26](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.26?lang=eng#p26)
 
 
-[^a]: TG [Tithing.](https://www.churchofjesuschrist.org/study/scriptures/tg/tithing?lang=eng)
+[^a]: TG [[Tithing]].

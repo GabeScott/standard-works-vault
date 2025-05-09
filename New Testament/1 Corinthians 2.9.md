@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 64.4|Isa. 64:4]]; [[D&C 76.10|D&C 76:10.]]
-[^b]: TG [Blessing](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng); [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^b]: TG [[Israel, Blessings of]]; [[Reward]].

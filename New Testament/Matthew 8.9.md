@@ -5,4 +5,4 @@
 [Matthew 8:9](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.9?lang=eng#p9)
 
 
-[^a]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
+[^a]: TG [[Authority]].

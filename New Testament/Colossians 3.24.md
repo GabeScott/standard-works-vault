@@ -6,6 +6,6 @@
 
 
 [^a]: [[Ephesians 6.8|Eph. 6:8.]]
-[^b]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
-[^c]: TG [Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/inheritance?lang=eng)
+[^b]: TG [[Reward]].
+[^c]: TG [[Inheritance]].
 [^d]: [[1 Corinthians 7.22|1 Cor. 7:22.]]

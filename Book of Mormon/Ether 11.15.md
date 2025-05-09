@@ -5,5 +5,5 @@
 [Ether 11:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p15#p15)
 
 
-[^a]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
-[^b]: TG [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
+[^a]: TG [[Rebellion, Rebel]].
+[^b]: TG [[Secret Combinations]].

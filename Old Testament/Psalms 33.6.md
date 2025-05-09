@@ -5,5 +5,5 @@
 [Psalms 33:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.6?lang=eng#p6)
 
 
-[^a]: See JST John 1:1-16 (Appendix). TG [Jesus Christ, Creator](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng).
-[^b]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^a]: See JST John 1:1-16 (Appendix). TG [[Jesus Christ, Creator]].
+[^b]: TG [[Man, a Spirit Child of Heavenly Father]].

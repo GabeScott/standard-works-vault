@@ -5,4 +5,4 @@
 [2 Kings 17:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.4?lang=eng#p4)
 
 
-[^a]: TG [Conspiracy.](https://www.churchofjesuschrist.org/study/scriptures/tg/conspiracy?lang=eng)
+[^a]: TG [[Conspiracy]].

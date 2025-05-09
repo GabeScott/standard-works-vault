@@ -6,6 +6,6 @@
 
 
 [^a]: [[Psalms 22.6|Ps. 22:6]]; [[Mosiah 14.3|Mosiah 14:3 (3-6).]]
-[^b]: [[Jeremiah 24.9|Jer. 24:9]]; [[3 Nephi 29.8|3 Ne. 29:8 (8-9)]]. TG [Israel, Bondage of, in Other Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng).
+[^b]: [[Jeremiah 24.9|Jer. 24:9]]; [[3 Nephi 29.8|3 Ne. 29:8 (8-9)]]. TG [[Israel, Bondage of, in Other Lands]].
 [^c]: [[Deuteronomy 28.37|Deut. 28:37]]; [[1 Kings 9.7|1 Kgs. 9:7 (6-7)]]; [[Joel 2.17|Joel 2:17]]; [[3 Nephi 16.9|3 Ne. 16:9 (8-9).]]
-[^d]: [[2 Nephi 10.6|2 Ne. 10:6]]; [[2 Nephi 25.15|25:15]]. TG [Hate](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng).
+[^d]: [[2 Nephi 10.6|2 Ne. 10:6]]; [[2 Nephi 25.15|25:15]]. TG [[Hate]].

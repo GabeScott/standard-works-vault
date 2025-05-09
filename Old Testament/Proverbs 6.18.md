@@ -5,4 +5,4 @@
 [Proverbs 6:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.18?lang=eng#p18)
 
 
-[^a]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^a]: TG [[Hardheartedness, Harden, Hardness]].

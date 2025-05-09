@@ -5,4 +5,4 @@
 [Ephesians 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.11?lang=eng#p11)
 
 
-[^a]: TG [Earth, Purpose of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-purpose-of?lang=eng)
+[^a]: TG [[Earth, Purpose of]].

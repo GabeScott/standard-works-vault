@@ -7,4 +7,4 @@
 
 [^a]: [[2 Nephi 30.18|2 Ne. 30:18.]]
 [^b]: [[2 Nephi 33.4|2 Ne. 33:4]]; [[Moroni 7.13|Moro. 7:13 (12-17).]]
-[^c]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^c]: TG [[God, the Standard of Righteousness]].

@@ -5,4 +5,4 @@
 [Moroni 7:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/godliness?lang=eng)
+[^a]: TG [[Mysteries of Godliness]].

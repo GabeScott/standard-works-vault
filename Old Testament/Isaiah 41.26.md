@@ -5,4 +5,4 @@
 [Isaiah 41:26](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.26?lang=eng#p26)
 
 
-[^a]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^a]: TG [[God, Omniscience of]].

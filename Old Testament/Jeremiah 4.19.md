@@ -6,4 +6,4 @@
 
 
 [^a]: Lam. 1:20.
-[^b]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
+[^b]: TG [[Pain]].

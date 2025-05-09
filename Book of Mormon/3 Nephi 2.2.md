@@ -6,5 +6,5 @@
 
 
 [^a]: [[Hebrews 3.12|Heb. 3:12.]]
-[^b]: TG [Deceit.](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng)
+[^b]: TG [[Deceit, Deceive]].
 [^c]: [[1 Corinthians 1.23|1 Cor. 1:23 (23-25)]]; [[Alma 30.13|Alma 30:13 (12-18).]]

@@ -7,6 +7,6 @@
 
 [^a]: [[Isaiah 50.1|Isa. 50:1 (1-11)]]; [[2 Nephi 8.1|2 Ne. 8:1.]]
 [^b]: [[Jeremiah 3.8|Jer. 3:8.]]
-[^c]: TG [Divorce.](https://www.churchofjesuschrist.org/study/scriptures/tg/divorce?lang=eng)
+[^c]: TG [[Divorce, Divorcement]].
 [^d]: [[2 Kings 4.1|2 Kgs. 4:1]]; [[Matthew 18.25|Matt. 18:25.]]
-[^e]: [[Judges 4.2|Judg. 4:2]]; [[Isaiah 52.3|Isa. 52:3]]. TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng).
+[^e]: [[Judges 4.2|Judg. 4:2]]; [[Isaiah 52.3|Isa. 52:3]]. TG [[Apostasy of Israel]].

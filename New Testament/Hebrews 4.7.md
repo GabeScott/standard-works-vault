@@ -7,4 +7,4 @@
 
 [^a]: GR appoints, decrees, constitutes.
 [^b]: [[Psalms 95.7|Ps. 95:7.]]
-[^c]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^c]: TG [[Hardheartedness, Harden, Hardness]].

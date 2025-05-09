@@ -5,7 +5,7 @@
 [Hosea 12:4](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/12.4?lang=eng#p4)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].
 [^b]: [[Genesis 32.28|Gen. 32:28 (24-28).]]
 [^c]: [[Genesis 28.13|Gen. 28:13 (10-16).]]
 [^d]: OR him.

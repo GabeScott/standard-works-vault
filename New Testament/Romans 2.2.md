@@ -6,4 +6,4 @@
 
 
 [^a]: GR know.
-[^b]: TG [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^b]: TG [[Judgment, the Last]].

@@ -5,4 +5,4 @@
 [Acts 19:5](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/19.5?lang=eng#p5)
 
 
-[^a]: TG [Baptism, Essential.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-essential?lang=eng)
+[^a]: TG [[Baptism, Essential]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 3.28|1 Ne. 3:28]]; [[1 Nephi 7.6|7:6 (6-19)]]; [[1 Nephi 18.10|18:10 (9-22).]]
-[^b]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
+[^b]: TG [[Unbelief, Unbelievers]].

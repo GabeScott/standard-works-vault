@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Peter 1.22|1 Pet. 1:22.]]
-[^b]: TG [Guile](https://www.churchofjesuschrist.org/study/scriptures/tg/guile?lang=eng); [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^b]: TG [[Guile]]; [[Hypocrisy, Hypocrite]].

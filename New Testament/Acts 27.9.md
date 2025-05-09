@@ -5,4 +5,4 @@
 [Acts 27:9](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/27.9?lang=eng#p9)
 
 
-[^a]: [[Leviticus 23.27|Lev. 23:27 (27, 29)]]. TG [Fast, Fasting](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng).
+[^a]: [[Leviticus 23.27|Lev. 23:27 (27, 29)]]. TG [[Fast, Fasting]].

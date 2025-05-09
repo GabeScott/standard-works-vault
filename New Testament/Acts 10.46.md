@@ -5,4 +5,4 @@
 [Acts 10:46](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.46?lang=eng#p46)
 
 
-[^a]: TG [Holy Ghost, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng)
+[^a]: TG [[Holy Ghost, Gifts of]].

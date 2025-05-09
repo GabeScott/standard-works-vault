@@ -6,4 +6,4 @@
 
 
 [^a]: 4 Ne. 1:12.
-[^b]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^b]: TG [[Ordinance]].

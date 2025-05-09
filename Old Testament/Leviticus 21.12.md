@@ -7,4 +7,4 @@
 
 [^a]: OR temple.
 [^b]: OR consecration.
-[^c]: [[Leviticus 10.7|Lev. 10:7]]. TG [Anointing](https://www.churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng).
+[^c]: [[Leviticus 10.7|Lev. 10:7]]. TG [[Anointing, Anoint]].

@@ -5,6 +5,6 @@
 [Hebrews 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.4?lang=eng#p4)
 
 
-[^a]: [[Acts 5.12|Acts 5:12 (12-23)]]. TG [Holy Ghost, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng); [Symbolism](https://www.churchofjesuschrist.org/study/scriptures/tg/symbolism?lang=eng).
-[^b]: TG [Miracle.](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
-[^c]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
+[^a]: [[Acts 5.12|Acts 5:12 (12-23)]]. TG [[Holy Ghost, Gifts of]]; [[Blood, Symbolism of]].
+[^b]: TG [[Miracle]].
+[^c]: TG [[God, Will of]].

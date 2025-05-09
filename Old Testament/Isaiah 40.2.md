@@ -6,5 +6,5 @@
 
 
 [^a]: OR time of service.
-[^b]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^b]: TG [[Forgive, Forgiveness]].
 [^c]: [[Jeremiah 16.18|Jer. 16:18]]; [[Jeremiah 17.18|17:18.]]

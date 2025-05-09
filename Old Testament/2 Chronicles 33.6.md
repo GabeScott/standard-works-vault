@@ -9,4 +9,4 @@
 [^b]: IE practiced soothsaying.
 [^c]: [[Deuteronomy 18.12|Deut. 18:12 (10-14).]]
 [^d]: IE practiced spiritualism.
-[^e]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
+[^e]: TG [[Spirits, Evil or Unclean]].

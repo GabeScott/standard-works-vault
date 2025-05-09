@@ -5,5 +5,5 @@
 [Genesis 25:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.5?lang=eng#p5)
 
 
-[^a]: TG [Patriarch.](https://www.churchofjesuschrist.org/study/scriptures/tg/patriarch?lang=eng)
+[^a]: TG [[Family, Patriarchal]].
 [^b]: [[Genesis 24.36|Gen. 24:36.]]

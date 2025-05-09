@@ -7,4 +7,4 @@
 
 [^a]: OR a screen, or curtain.
 [^b]: [[Exodus 27.16|Ex. 27:16]]; [[Exodus 35.15|35:15.]]
-[^c]: TG [Art.](https://www.churchofjesuschrist.org/study/scriptures/tg/art?lang=eng)
+[^c]: TG [[Art]].

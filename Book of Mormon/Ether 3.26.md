@@ -6,5 +6,5 @@
 
 
 [^a]: Ether 3:11-13.
-[^b]: TG [Believe.](https://www.churchofjesuschrist.org/study/scriptures/tg/believe?lang=eng)
+[^b]: TG [[Believe]].
 [^c]: [[2 Nephi 27.7|2 Ne. 27:7 (7-8, 10-11)]]; [[Mosiah 8.19|Mosiah 8:19]]; [[Ether 4.4|Ether 4:4 (1-8).]]

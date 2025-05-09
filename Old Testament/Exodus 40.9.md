@@ -5,4 +5,4 @@
 [Exodus 40:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/40.9?lang=eng#p9)
 
 
-[^a]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^a]: TG [[Genealogy and Temple Work]].

@@ -6,4 +6,4 @@
 
 
 [^a]: OR suddenly; all at once.
-[^b]: TG [Fornication.](https://www.churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng)
+[^b]: TG [[Fornication]].

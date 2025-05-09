@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 10.25|Isa. 10:25.]]
-[^b]: TG [Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng); [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
-[^c]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^b]: TG [[Chastening]]; [[Israel, Ten Lost Tribes of]].
+[^c]: TG [[Israel, Gathering of]].

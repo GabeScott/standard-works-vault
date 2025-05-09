@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 44.3|Isa. 44:3]]; [[Isaiah 55.1|55:1 (1-2).]]
-[^b]: TG [Living Water.](https://www.churchofjesuschrist.org/study/scriptures/tg/living-water?lang=eng)
+[^b]: TG [[Living Water]].
 [^c]: [[Alma 5.34|Alma 5:34]]; [[Alma 42.27|42:27.]]

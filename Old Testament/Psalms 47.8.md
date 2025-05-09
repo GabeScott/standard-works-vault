@@ -7,4 +7,4 @@
 
 [^a]: HEB nations, Gentiles.
 [^b]: [[Revelation 7.15|Rev. 7:15]]; [[D&C 88.13|D&C 88:13.]]
-[^c]: TG [Kingdom of God, in Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng)
+[^c]: TG [[Kingdom of God, in Heaven]].

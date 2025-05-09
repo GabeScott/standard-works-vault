@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 19.11|D&C 19:11 (11-15).]]
-[^b]: TG [Despair.](https://www.churchofjesuschrist.org/study/scriptures/tg/despair?lang=eng)
-[^c]: TG [Poor in Spirit](https://www.churchofjesuschrist.org/study/scriptures/tg/poor-in-spirit?lang=eng); [Repent](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng); [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
+[^b]: TG [[Despair]].
+[^c]: TG [[Poor in Spirit]]; [[Repent, Repentance]]; [[Sorrow]].

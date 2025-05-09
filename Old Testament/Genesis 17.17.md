@@ -6,5 +6,5 @@
 
 
 [^a]: JST Gen. 17:23-24 (Appendix).
-[^b]: HEB (also) rejoiced. JST Gen. 17:23 … rejoiced … TG [Laughter](https://www.churchofjesuschrist.org/study/scriptures/tg/laughter?lang=eng).
+[^b]: HEB (also) rejoiced. JST Gen. 17:23 … rejoiced … TG [[Laughter, Laugh]].
 [^c]: [[Genesis 21.5|Gen. 21:5.]]

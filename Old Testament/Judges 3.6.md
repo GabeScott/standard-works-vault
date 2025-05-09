@@ -5,4 +5,4 @@
 [Judges 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/3.6?lang=eng#p6)
 
 
-[^a]: TG [Marriage, Interfaith.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng)
+[^a]: TG [[Marriage, Interfaith]].

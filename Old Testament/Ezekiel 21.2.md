@@ -7,4 +7,4 @@
 
 [^a]: [[Ezekiel 20.46|Ezek. 20:46.]]
 [^b]: OR preach against.
-[^c]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^c]: TG [[Israel, Land of]].

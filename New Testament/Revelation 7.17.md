@@ -5,5 +5,5 @@
 [Revelation 7:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/7.17?lang=eng#p17)
 
 
-[^a]: TG [Living Water.](https://www.churchofjesuschrist.org/study/scriptures/tg/living-water?lang=eng)
+[^a]: TG [[Living Water]].
 [^b]: [[Revelation 21.4|Rev. 21:4.]]

@@ -5,4 +5,4 @@
 [Psalms 119:34](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.34?lang=eng#p34)
 
 
-[^a]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^a]: TG [[Understanding]].

@@ -5,5 +5,5 @@
 [2 Nephi 28:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p31#p31)
 
 
-[^a]: [[D&C 1.19|D&C 1:19 (19-20)]]. TG [Trust Not in the Arm of Flesh](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-not-in-the-arm-of-flesh?lang=eng).
+[^a]: [[D&C 1.19|D&C 1:19 (19-20)]]. TG [[Trust Not in the Arm of Flesh]].
 [^b]: [[2 Nephi 27.25|2 Ne. 27:25.]]

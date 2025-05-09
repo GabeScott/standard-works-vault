@@ -6,4 +6,4 @@
 
 
 [^a]: OR knew.
-[^b]: TG [Citizenship.](https://www.churchofjesuschrist.org/study/scriptures/tg/citizenship?lang=eng)
+[^b]: TG [[Citizenship]].

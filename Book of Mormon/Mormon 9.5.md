@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 32.25|Ex. 32:25]]; [[2 Nephi 9.14|2 Ne. 9:14.]]
-[^b]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
+[^b]: TG [[Holiness]].

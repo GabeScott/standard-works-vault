@@ -6,4 +6,4 @@
 
 
 [^a]: [[Romans 13.12|Rom. 13:12.]]
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^b]: TG [[God, the Standard of Righteousness]].

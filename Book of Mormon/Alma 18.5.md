@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 17.15|Alma 17:15]]; [[Alma 60.32|60:32.]]
-[^b]: [[Alma 19.25|Alma 19:25 (25-27)]]. TG [God, Knowledge about](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng).
+[^b]: [[Alma 19.25|Alma 19:25 (25-27)]]. TG [[God, Knowledge about]].
 [^c]: [[Alma 30.17|Alma 30:17.]]

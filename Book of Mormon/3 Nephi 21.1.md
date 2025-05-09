@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 66.19|Isa. 66:19.]]
-[^b]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
+[^b]: TG [[Last Days]].

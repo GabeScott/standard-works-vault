@@ -6,7 +6,7 @@
 
 
 [^a]: [[D&C 34.10|D&C 34:10.]]
-[^b]: TG [Priesthood, Magnifying Callings within.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng)
+[^b]: TG [[Priesthood, Magnifying Callings within]].
 [^c]: HEB ram’s horn. Alma 29:1 (1-2); [[D&C 33.2|D&C 33:2]]; [[D&C 42.6|42:6.]]
-[^d]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
-[^e]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^d]: TG [[Prophets, Mission of]].
+[^e]: TG [[Transgressor]].

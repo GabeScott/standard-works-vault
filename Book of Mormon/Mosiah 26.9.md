@@ -5,4 +5,4 @@
 [Mosiah 26:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
+[^a]: TG [[Witness, Witnesses]].

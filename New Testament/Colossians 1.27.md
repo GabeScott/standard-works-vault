@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ephesians 3.3|Eph. 3:3.]]
-[^b]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^b]: TG [[Treasure]].

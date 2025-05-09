@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Peter 3.14|1 Pet. 3:14.]]
-[^b]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
-[^c]: TG [Reproach.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproach?lang=eng)
+[^b]: TG [[Persecution, Persecute]].
+[^c]: TG [[Reproach]].
 [^d]: [[Isaiah 66.5|Isa. 66:5.]]

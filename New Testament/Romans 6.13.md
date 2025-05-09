@@ -9,4 +9,4 @@
 [^b]: Col. 3:5.
 [^c]: GR weapons.
 [^d]: [[Mosiah 3.19|Mosiah 3:19]]; [[Helaman 3.35|Hel. 3:35.]]
-[^e]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^e]: TG [[God, the Standard of Righteousness]].

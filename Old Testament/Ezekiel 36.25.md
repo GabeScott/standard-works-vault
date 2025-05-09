@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 52.15|Isa. 52:15]]; [[3 Nephi 20.45|3 Ne. 20:45.]]
-[^b]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^b]: TG [[Filthiness, Filthy]].
 [^c]: [[Ezekiel 37.23|Ezek. 37:23.]]

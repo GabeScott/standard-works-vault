@@ -5,5 +5,5 @@
 [Deuteronomy 29:25](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.25?lang=eng#p25)
 
 
-[^a]: [[Jeremiah 22.9|Jer. 22:9 (8-9)]]. TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng).
-[^b]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^a]: [[Jeremiah 22.9|Jer. 22:9 (8-9)]]. TG [[Apostasy of Israel]].
+[^b]: TG [[Covenants]].

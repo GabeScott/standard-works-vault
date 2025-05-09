@@ -5,4 +5,4 @@
 [Psalms 146:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/146.10?lang=eng#p10)
 
 
-[^a]: TG [God, Eternal Nature of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-eternal-nature-of?lang=eng)
+[^a]: TG [[God, Eternal Nature of]].

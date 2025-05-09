@@ -5,7 +5,7 @@
 [Alma 34:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p36#p36)
 
 
-[^a]: [[Mosiah 2.37|Mosiah 2:37]]; [[Alma 7.21|Alma 7:21]]; [[Helaman 4.24|Hel. 4:24]]. TG [Cleanliness](https://www.churchofjesuschrist.org/study/scriptures/tg/cleanliness?lang=eng).
+[^a]: [[Mosiah 2.37|Mosiah 2:37]]; [[Alma 7.21|Alma 7:21]]; [[Helaman 4.24|Hel. 4:24]]. TG [[Cleanliness]].
 [^b]: [[D&C 130.3|D&C 130:3.]]
-[^c]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^c]: TG [[God, the Standard of Righteousness]].
 [^d]: [[Revelation 12.11|Rev. 12:11.]]

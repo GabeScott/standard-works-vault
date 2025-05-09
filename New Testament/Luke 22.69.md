@@ -6,4 +6,4 @@
 
 
 [^a]: GR From now on.
-[^b]: TG [Jesus Christ, Son of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
+[^b]: TG [[Jesus Christ, Son of Man]].

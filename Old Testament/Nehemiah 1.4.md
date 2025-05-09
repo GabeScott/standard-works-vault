@@ -5,4 +5,4 @@
 [Nehemiah 1:4](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/1.4?lang=eng#p4)
 
 
-[^a]: TG [Fast, Fasting.](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
+[^a]: TG [[Fast, Fasting]].

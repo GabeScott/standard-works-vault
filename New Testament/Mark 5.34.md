@@ -6,4 +6,4 @@
 
 
 [^a]: [[Helaman 15.9|Hel. 15:9 (9-10)]]; [[D&C 46.19|D&C 46:19.]]
-[^b]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^b]: TG [[Peace of God]].

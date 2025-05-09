@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 11.15|D&C 11:15.]]
-[^b]: TG [Mission of Early Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/mission-of-early-saints?lang=eng)
+[^b]: TG [[Mission of Early Saints]].

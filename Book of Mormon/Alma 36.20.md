@@ -5,4 +5,4 @@
 [Alma 36:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p20#p20)
 
 
-[^a]: [[Moses 5.11|Moses 5:11]]. TG [Forgive](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng); [Joy](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng).
+[^a]: [[Moses 5.11|Moses 5:11]]. TG [[Forgive, Forgiveness]]; [[Joy]].

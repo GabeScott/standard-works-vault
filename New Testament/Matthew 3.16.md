@@ -5,7 +5,7 @@
 [Matthew 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/3.16?lang=eng#p16)
 
 
-[^a]: TG [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng); [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng), Immersion.
+[^a]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Immersion.
 [^b]: GR immediately.
-[^c]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
-[^d]: TG [Holy Ghost, Dove, Sign of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-dove-sign-of?lang=eng)
+[^c]: TG [[God, Spirit of]].
+[^d]: TG [[Holy Ghost, Dove, Sign of]].

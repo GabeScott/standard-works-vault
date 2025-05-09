@@ -5,9 +5,9 @@
 [Revelation 7:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/7.14?lang=eng#p14)
 
 
-[^a]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
-[^b]: TG [Tribulation.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
-[^c]: [[3 Nephi 27.19|3 Ne. 27:19]]. TG [Purity](https://www.churchofjesuschrist.org/study/scriptures/tg/purity?lang=eng); [Wash](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng).
-[^d]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^a]: TG [[Peace of God]].
+[^b]: TG [[Tribulation]].
+[^c]: [[3 Nephi 27.19|3 Ne. 27:19]]. TG [[Purity, Pure]]; [[Wash, Washing]].
+[^d]: TG [[Remission of Sins]].
 [^e]: 1 Jn. 1:7.
-[^f]: TG [Jesus Christ, Lamb of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lamb-of-god?lang=eng)
+[^f]: TG [[Jesus Christ, Lamb of God]].

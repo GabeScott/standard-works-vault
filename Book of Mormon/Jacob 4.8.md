@@ -7,7 +7,7 @@
 
 [^a]: [[Psalms 106.2|Ps. 106:2.]]
 [^b]: [[Romans 11.34|Rom. 11:34 (33-36)]]; [[Mosiah 4.9|Mosiah 4:9.]]
-[^c]: [[D&C 19.10|D&C 19:10]]; [[D&C 76.114|76:114 (114-16)]]. TG [Mysteries of Godliness](https://www.churchofjesuschrist.org/study/scriptures/tg/mysteries-of-godliness?lang=eng).
-[^d]: Dan. 1:17; [[1 Corinthians 2.11|1 Cor. 2:11 (9-16)]]; [[Alma 26.21|Alma 26:21 (21-22)]]. TG [God, Knowledge about](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng).
+[^c]: [[D&C 19.10|D&C 19:10]]; [[D&C 76.114|76:114 (114-16)]]. TG [[Mysteries of Godliness]].
+[^d]: Dan. 1:17; [[1 Corinthians 2.11|1 Cor. 2:11 (9-16)]]; [[Alma 26.21|Alma 26:21 (21-22)]]. TG [[God, Knowledge about]].
 [^e]: [[Isaiah 55.8|Isa. 55:8 (8-9).]]
 [^f]: [[D&C 3.7|D&C 3:7.]]

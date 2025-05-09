@@ -5,4 +5,4 @@
 [Daniel 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.7?lang=eng#p7)
 
 
-[^a]: TG [Tyranny.](https://www.churchofjesuschrist.org/study/scriptures/tg/tyranny?lang=eng)
+[^a]: TG [[Tyranny]].

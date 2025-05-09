@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 34.12|Ex. 34:12]]; [[Joshua 9.7|Josh. 9:7.]]
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^b]: TG [[Disobedience, Disobey]].

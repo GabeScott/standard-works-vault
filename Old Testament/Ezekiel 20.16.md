@@ -5,4 +5,4 @@
 [Ezekiel 20:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.16?lang=eng#p16)
 
 
-[^a]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^a]: TG [[Heart]].

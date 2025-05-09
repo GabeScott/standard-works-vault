@@ -5,5 +5,5 @@
 [Psalms 100:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/100.4?lang=eng#p4)
 
 
-[^a]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^a]: TG [[Thanksgiving]].
 [^b]: [[Psalms 116.19|Ps. 116:19.]]

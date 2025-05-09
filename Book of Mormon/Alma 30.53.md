@@ -9,5 +9,5 @@
 [^b]: [[2 Nephi 9.9|2 Ne. 9:9.]]
 [^c]: [[2 Corinthians 11.14|2 Cor. 11:14.]]
 [^d]: [[Psalms 10.4|Ps. 10:4 (2-11)]]; [[Alma 30.28|Alma 30:28.]]
-[^e]: TG [Carnal Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/carnal-mind?lang=eng)
-[^f]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^e]: TG [[Carnal Mind]].
+[^f]: TG [[Curse]].

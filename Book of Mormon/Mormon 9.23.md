@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mark 16.16|Mark 16:16.]]
-[^b]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^b]: TG [[Damnation, Damned]].

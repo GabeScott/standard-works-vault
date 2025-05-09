@@ -5,5 +5,5 @@
 [Psalms 37:37](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.37?lang=eng#p37)
 
 
-[^a]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
-[^b]: TG [Peace.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
+[^a]: TG [[Perfection, Perfect, Perfectly]].
+[^b]: TG [[Peace of God]].

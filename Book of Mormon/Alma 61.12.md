@@ -5,4 +5,4 @@
 [Alma 61:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/61?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Bondage, Physical](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng); [Submissiveness.](https://www.churchofjesuschrist.org/study/scriptures/tg/submissiveness?lang=eng)
+[^a]: TG [[Bondage, Physical]]; [[Submissiveness, Submit]].

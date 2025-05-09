@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 55.1|Isa. 55:1 (1-2).]]
-[^b]: TG [Laughter.](https://www.churchofjesuschrist.org/study/scriptures/tg/laughter?lang=eng)
+[^b]: TG [[Laughter, Laugh]].

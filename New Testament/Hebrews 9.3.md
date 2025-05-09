@@ -5,5 +5,5 @@
 [Hebrews 9:3](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.3?lang=eng#p3)
 
 
-[^a]: TG [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng); [Veil.](https://www.churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng)
+[^a]: TG [[Jesus Christ, Types of, in Anticipation]]; [[Veil]].
 [^b]: GR Holy of holies.

@@ -5,4 +5,4 @@
 [2 Nephi 2:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p9#p9)
 
 
-[^a]: [[Isaiah 53.12|Isa. 53:12 (1-12)]]; [[Mosiah 14.12|Mosiah 14:12]]; [[Mosiah 15.8|15:8]]; [[Moroni 7.28|Moro. 7:28 (27-28)]]. TG [Jesus Christ, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng).
+[^a]: [[Isaiah 53.12|Isa. 53:12 (1-12)]]; [[Mosiah 14.12|Mosiah 14:12]]; [[Mosiah 15.8|15:8]]; [[Moroni 7.28|Moro. 7:28 (27-28)]]. TG [[Jesus Christ, Mission of]].

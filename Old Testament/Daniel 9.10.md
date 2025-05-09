@@ -5,4 +5,4 @@
 [Daniel 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.10?lang=eng#p10)
 
 
-[^a]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^a]: TG [[Walking with God]].

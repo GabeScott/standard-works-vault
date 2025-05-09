@@ -7,4 +7,4 @@
 
 [^a]: [[John 6.39|John 6:39]]; [[John 18.9|18:9.]]
 [^b]: [[D&C 50.42|D&C 50:42.]]
-[^c]: [[3 Nephi 27.32|3 Ne. 27:32]]. TG [Damnation](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng); [Death, Spiritual, Second](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng); [Hell](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng).
+[^c]: [[3 Nephi 27.32|3 Ne. 27:32]]. TG [[Damnation, Damned]]; [[Death, Spiritual, Second]]; [[Hell]].

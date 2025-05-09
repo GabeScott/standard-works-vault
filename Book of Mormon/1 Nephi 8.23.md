@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 13.19|Matt. 13:19 (18-19)]]; 2 Pet. 2:17; [[1 Nephi 12.17|1 Ne. 12:17]]; [[1 Nephi 15.24|15:24 (23-24).]]
-[^b]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^b]: TG [[Apostasy of Individuals]].

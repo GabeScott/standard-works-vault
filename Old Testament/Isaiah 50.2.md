@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 59.1|Isa. 59:1]]; [[D&C 35.8|D&C 35:8.]]
 [^b]: [[D&C 133.67|D&C 133:67.]]
-[^c]: TG [Drought.](https://www.churchofjesuschrist.org/study/scriptures/tg/drought?lang=eng)
+[^c]: TG [[Drought]].

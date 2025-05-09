@@ -5,6 +5,6 @@
 [Numbers 12:8](https://www.churchofjesuschrist.org/study/scriptures/ot/num/12.8?lang=eng#p8)
 
 
-[^a]: TG [God, Privilege of Seeing.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng)
+[^a]: TG [[God, Privilege of Seeing]].
 [^b]: [[Judges 6.22|Judg. 6:22]]; [[Ether 12.39|Ether 12:39]]; [[D&C 17.1|D&C 17:1]]; [[Moses 1.2|Moses 1:2.]]
-[^c]: TG [Jesus Christ, Appearances, Antemortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-antemortal?lang=eng)
+[^c]: TG [[Jesus Christ, Appearances, Antemortal]].

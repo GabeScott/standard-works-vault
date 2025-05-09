@@ -7,4 +7,4 @@
 
 [^a]: [[Genesis 28.21|Gen. 28:21 (16-22).]]
 [^b]: [[Genesis 28.18|Gen. 28:18.]]
-[^c]: TG [Vow.](https://www.churchofjesuschrist.org/study/scriptures/tg/vow?lang=eng)
+[^c]: TG [[Vow]].

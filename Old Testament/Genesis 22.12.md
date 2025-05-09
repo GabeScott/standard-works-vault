@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 132.36|D&C 132:36.]]
 [^b]: [[James 2.23|James 2:23 (21-23).]]
-[^c]: TG [Loyalty.](https://www.churchofjesuschrist.org/study/scriptures/tg/loyalty?lang=eng)
+[^c]: TG [[Loyalty]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 100.3|Ps. 100:3]]; [[Isaiah 60.21|Isa. 60:21]]; [[D&C 29.25|D&C 29:25.]]
-[^b]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
-[^c]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^b]: TG [[Good Works]].
+[^c]: TG [[Walking with God]].

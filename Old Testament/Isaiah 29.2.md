@@ -5,4 +5,4 @@
 [Isaiah 29:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.2?lang=eng#p2)
 
 
-[^a]: TG [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
+[^a]: TG [[Sorrow]].

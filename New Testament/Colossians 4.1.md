@@ -7,4 +7,4 @@
 
 [^a]: Mal. 3:5; [[Ephesians 6.9|Eph. 6:9.]]
 [^b]: [[Matthew 23.8|Matt. 23:8.]]
-[^c]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^c]: TG [[Man, a Spirit Child of Heavenly Father]].

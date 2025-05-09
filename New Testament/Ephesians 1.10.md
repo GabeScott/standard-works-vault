@@ -5,6 +5,6 @@
 [Ephesians 1:10](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.10?lang=eng#p10)
 
 
-[^a]: TG [Dispensations](https://www.churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng); [Last Days](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng); [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
-[^b]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
-[^c]: TG [Jesus Christ, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng)
+[^a]: TG [[Dispensations]]; [[Last Days]]; [[Restoration of the Gospel]].
+[^b]: TG [[Israel, Gathering of]].
+[^c]: TG [[Jesus Christ, Power of]].

@@ -5,5 +5,5 @@
 [Haggai 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/1.11?lang=eng#p11)
 
 
-[^a]: TG [Drought](https://www.churchofjesuschrist.org/study/scriptures/tg/drought?lang=eng); [Famine.](https://www.churchofjesuschrist.org/study/scriptures/tg/famine?lang=eng)
+[^a]: TG [[Drought]]; [[Famine]].
 [^b]: OR grain.

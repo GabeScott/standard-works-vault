@@ -5,6 +5,6 @@
 [3 Nephi 11:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p33#p33)
 
 
-[^a]: [[Mark 16.16|Mark 16:16]]. TG [Baptism, Essential](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-essential?lang=eng).
-[^b]: TG [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
-[^c]: TG [Exaltation.](https://www.churchofjesuschrist.org/study/scriptures/tg/exaltation?lang=eng)
+[^a]: [[Mark 16.16|Mark 16:16]]. TG [[Baptism, Essential]].
+[^b]: TG [[Salvation, Plan of]].
+[^c]: TG [[Exaltation]].

@@ -5,4 +5,4 @@
 [Psalms 112:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/112.4?lang=eng#p4)
 
 
-[^a]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^a]: TG [[Light]].

@@ -5,4 +5,4 @@
 [John 10:30](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.30?lang=eng#p30)
 
 
-[^a]: [[D&C 93.3|D&C 93:3 (1-6)]]. TG [Godhead](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng); [Unity](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng).
+[^a]: [[D&C 93.3|D&C 93:3 (1-6)]]. TG [[Godhead]]; [[Unity]].

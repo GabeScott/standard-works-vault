@@ -5,4 +5,4 @@
 [Joel 3:9](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.9?lang=eng#p9)
 
 
-[^a]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
+[^a]: TG [[War]].

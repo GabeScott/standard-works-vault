@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moses 5.52|Moses 5:52]]; [[Moses 6.15|6:15.]]
-[^b]: TG [Marriage, Interfaith](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng); [Marriage, Marry.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-marry?lang=eng)
+[^b]: TG [[Marriage, Interfaith]]; [[Marriage, Marry]].

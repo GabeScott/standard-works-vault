@@ -5,7 +5,7 @@
 [James 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.17?lang=eng#p17)
 
 
-[^a]: TG [God, Intelligence of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-intelligence-of?lang=eng); [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
+[^a]: TG [[God, Intelligence of]]; [[Wisdom]].
 [^b]: GR pliant, easily persuaded.
-[^c]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^c]: TG [[God, Mercy of]].
 [^d]: [[D&C 121.42|D&C 121:42.]]

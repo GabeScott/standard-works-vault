@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 108.8|D&C 108:8.]]
-[^b]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^b]: TG [[Deliver, Deliverance]].

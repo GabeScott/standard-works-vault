@@ -6,5 +6,5 @@
 
 
 [^a]: GR strive, endeavor earnestly.
-[^b]: TG [Industry](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng); [Labor](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng); [Skill](https://www.churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng); [Work, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng)
+[^b]: TG [[Industry, Industrious]]; [[Labor]]; [[Skill]]; [[Work, Value of]].
 [^c]: [[Proverbs 31.13|Prov. 31:13.]]

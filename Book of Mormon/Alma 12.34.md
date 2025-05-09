@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Corinthians 4.1|2 Cor. 4:1.]]
-[^b]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
-[^c]: [[D&C 84.24|D&C 84:24]]. TG [Rest](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng).
+[^b]: TG [[Remission of Sins]].
+[^c]: [[D&C 84.24|D&C 84:24]]. TG [[Restoration of the Gospel]].

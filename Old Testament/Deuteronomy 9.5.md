@@ -5,4 +5,4 @@
 [Deuteronomy 9:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.5?lang=eng#p5)
 
 
-[^a]: [[Ezekiel 36.22|Ezek. 36:22]]. TG [Righteousness](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng).
+[^a]: [[Ezekiel 36.22|Ezek. 36:22]]. TG [[God, the Standard of Righteousness]].

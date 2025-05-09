@@ -5,4 +5,4 @@
 [Ether 11:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
+[^a]: TG [[Persecution, Persecute]].

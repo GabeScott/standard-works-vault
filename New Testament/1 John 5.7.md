@@ -5,5 +5,5 @@
 [1 John 5:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/5.7?lang=eng#p7)
 
 
-[^a]: TG [Godhead.](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng)
-[^b]: TG [Unity.](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng)
+[^a]: TG [[Godhead]].
+[^b]: TG [[Unity]].

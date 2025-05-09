@@ -6,4 +6,4 @@
 
 
 [^a]: JST 1 Pet. 4:7 But to you, the end of all things is at hand …
-[^b]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
+[^b]: TG [[Watch, Watchfulness]].

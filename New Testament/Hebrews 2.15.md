@@ -5,4 +5,4 @@
 [Hebrews 2:15](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.15?lang=eng#p15)
 
 
-[^a]: TG [Bondage, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng); [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
+[^a]: TG [[Bondage, Spiritual]]; [[Law of Moses]].

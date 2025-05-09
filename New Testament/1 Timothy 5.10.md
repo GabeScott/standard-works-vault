@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 16.15|Acts 16:15 (14-15).]]
-[^b]: TG [Wash.](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
+[^b]: TG [[Wash, Washing]].
 [^c]: JST 1 Tim. 5:10 … clothes …

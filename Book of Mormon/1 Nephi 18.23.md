@@ -5,4 +5,4 @@
 [1 Nephi 18:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/18?lang=eng&id=p23#p23)
 
 
-[^a]: [[Mosiah 10.13|Mosiah 10:13]]. TG [Promised Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng).
+[^a]: [[Mosiah 10.13|Mosiah 10:13]]. TG [[Promised Lands]].

@@ -6,5 +6,5 @@
 
 
 [^a]: GR by the road.
-[^b]: TG [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
+[^b]: TG [[Vineyard of the Lord]].
 [^c]: GR immediately; see also Mark 11:20-24.

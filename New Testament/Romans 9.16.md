@@ -5,4 +5,4 @@
 [Romans 9:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.16?lang=eng#p16)
 
 
-[^a]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^a]: TG [[God, Mercy of]].

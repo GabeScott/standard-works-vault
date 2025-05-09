@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:42](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.42?lang=eng#p42)
 
 
-[^a]: TG [Flood.](https://www.churchofjesuschrist.org/study/scriptures/tg/flood?lang=eng)
+[^a]: TG [[Flood, Noah’s]].

@@ -5,4 +5,4 @@
 [4 Nephi 1:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Pride](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng); [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
+[^a]: TG [[Pride]]; [[Selfishness]].

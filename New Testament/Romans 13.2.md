@@ -5,5 +5,5 @@
 [Romans 13:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.2?lang=eng#p2)
 
 
-[^a]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
-[^b]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^a]: TG [[Rebellion, Rebel]].
+[^b]: TG [[Damnation, Damned]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 112.10|D&C 112:10.]]
-[^b]: TG [Comfort.](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng)
-[^c]: TG [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
+[^b]: TG [[Holy Ghost, Comforter]].
+[^c]: TG [[Sorrow]].

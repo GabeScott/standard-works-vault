@@ -5,6 +5,6 @@
 [Alma 42:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Death.](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng)
+[^a]: TG [[Death]].
 [^b]: [[2 Nephi 9.7|2 Ne. 9:7]]; [[Mosiah 16.4|Mosiah 16:4 (4-7)]]; [[Alma 11.45|Alma 11:45]]; [[Alma 12.36|12:36.]]
-[^c]: TG [Fall of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng)
+[^c]: TG [[Fall of Man]].

@@ -6,6 +6,6 @@
 
 
 [^a]: Dan. 8:27.
-[^b]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
-[^c]: TG [Sacrilege.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng)
+[^b]: TG [[Temptation]].
+[^c]: TG [[Sacrilege]].
 [^d]: [[Luke 11.34|Luke 11:34 (34-36)]]; [[D&C 121.37|D&C 121:37.]]

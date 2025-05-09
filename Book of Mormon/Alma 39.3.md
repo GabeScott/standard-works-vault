@@ -5,4 +5,4 @@
 [Alma 39:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39?lang=eng&id=p3#p3)
 
 
-[^a]: [[1 Samuel 2.22|1 Sam. 2:22 (22-25)]]; [[Proverbs 5.3|Prov. 5:3]]. TG [Sensuality](https://www.churchofjesuschrist.org/study/scriptures/tg/sensuality?lang=eng).
+[^a]: [[1 Samuel 2.22|1 Sam. 2:22 (22-25)]]; [[Proverbs 5.3|Prov. 5:3]]. TG [[Sensuality]].

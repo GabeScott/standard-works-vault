@@ -6,6 +6,6 @@
 
 
 [^a]: [[Luke 12.34|Luke 12:34.]]
-[^b]: TG [Boast.](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng)
+[^b]: TG [[Boast, Boasting]].
 [^c]: [[Alma 30.31|Alma 30:31.]]
-[^d]: TG [Envy.](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
+[^d]: TG [[Envy, Envious]].

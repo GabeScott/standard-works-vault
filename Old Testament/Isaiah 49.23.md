@@ -8,4 +8,4 @@
 [^a]: [[1 Nephi 22.8|1 Ne. 22:8 (1-9)]]; [[2 Nephi 10.9|2 Ne. 10:9 (5-9).]]
 [^b]: [[Isaiah 60.16|Isa. 60:16.]]
 [^c]: [[Isaiah 60.14|Isa. 60:14]]; [[Revelation 3.9|Rev. 3:9.]]
-[^d]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^d]: TG [[Shame]].

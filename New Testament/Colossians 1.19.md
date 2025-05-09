@@ -5,4 +5,4 @@
 [Colossians 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/col/1.19?lang=eng#p19)
 
 
-[^a]: TG [Jesus Christ, Relationships with the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
+[^a]: TG [[Jesus Christ, Relationships with the Father]].

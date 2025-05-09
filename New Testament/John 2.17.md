@@ -5,5 +5,5 @@
 [John 2:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/2.17?lang=eng#p17)
 
 
-[^a]: TG [Zeal.](https://www.churchofjesuschrist.org/study/scriptures/tg/zeal?lang=eng)
+[^a]: TG [[Zeal, Zealous]].
 [^b]: GR consumed me.

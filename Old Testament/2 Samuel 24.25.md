@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Chronicles 21.26|1 Chr. 21:26.]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].

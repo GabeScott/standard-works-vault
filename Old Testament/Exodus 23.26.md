@@ -6,4 +6,4 @@
 
 
 [^a]: OR None shall miscarry.
-[^b]: TG [Barren.](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng)
+[^b]: TG [[Barren, Barrenness]].

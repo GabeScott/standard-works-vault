@@ -5,4 +5,4 @@
 [Genesis 3:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.23?lang=eng#p23)
 
 
-[^a]: TG [Eden.](https://www.churchofjesuschrist.org/study/scriptures/tg/eden?lang=eng)
+[^a]: TG [[Eden]].

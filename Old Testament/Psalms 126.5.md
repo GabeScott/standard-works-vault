@@ -5,4 +5,4 @@
 [Psalms 126:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/126.5?lang=eng#p5)
 
 
-[^a]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Joy]].

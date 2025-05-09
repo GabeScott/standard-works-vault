@@ -5,4 +5,4 @@
 [D&C 5:2](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.2?lang=eng#p2)
 
 
-[^a]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
+[^a]: TG [[Witness, Witnesses]].

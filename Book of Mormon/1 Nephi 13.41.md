@@ -8,4 +8,4 @@
 [^a]: [[1 Nephi 13.20|1 Ne. 13:20 (20-28).]]
 [^b]: [[Ezekiel 37.17|Ezek. 37:17.]]
 [^c]: [[Deuteronomy 6.4|Deut. 6:4]]; [[2 Nephi 31.21|2 Ne. 31:21.]]
-[^d]: TG [Jesus Christ, Good Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng)
+[^d]: TG [[Jesus Christ, Good Shepherd]].

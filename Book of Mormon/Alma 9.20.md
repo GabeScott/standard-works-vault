@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Samuel 7.23|2 Sam. 7:23]]; [[Abraham 2.9|Abr. 2:9.]]
-[^b]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
+[^b]: TG [[Prophets, Mission of]].

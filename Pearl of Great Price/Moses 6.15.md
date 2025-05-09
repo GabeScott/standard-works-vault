@@ -8,7 +8,7 @@
 [^a]: [[Moses 8.14|Moses 8:14 (13-15).]]
 [^b]: [[3 Nephi 6.15|3 Ne. 6:15.]]
 [^c]: [[Moses 5.13|Moses 5:13.]]
-[^d]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
-[^e]: TG [Conspiracy.](https://www.churchofjesuschrist.org/study/scriptures/tg/conspiracy?lang=eng)
-[^f]: TG [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
-[^g]: [[Ether 8.23|Ether 8:23]]. TG [Selfishness](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng).
+[^d]: TG [[War]].
+[^e]: TG [[Conspiracy]].
+[^f]: TG [[Secret Combinations]].
+[^g]: [[Ether 8.23|Ether 8:23]]. TG [[Selfishness]].

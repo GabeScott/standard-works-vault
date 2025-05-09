@@ -5,4 +5,4 @@
 [Matthew 9:29](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.29?lang=eng#p29)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Faith]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 16.15|Luke 16:15.]]
-[^b]: TG [Neighbor.](https://www.churchofjesuschrist.org/study/scriptures/tg/neighbor?lang=eng)
+[^b]: TG [[Neighbor]].

@@ -6,4 +6,4 @@
 
 
 [^a]: Israel recalls all the misery of the past days of exile, vv. 16-18.
-[^b]: TG [Chastening.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng)
+[^b]: TG [[Chastening]].

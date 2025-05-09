@@ -5,5 +5,5 @@
 [Alma 31:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/31?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Conceit](https://www.churchofjesuschrist.org/study/scriptures/tg/conceit?lang=eng); [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
-[^b]: TG [False Doctrine.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng)
+[^a]: TG [[Conceit]]; [[Pride]].
+[^b]: TG [[False Doctrine]].

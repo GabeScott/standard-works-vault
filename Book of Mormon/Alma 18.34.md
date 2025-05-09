@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 7.27|Mosiah 7:27]]; [[Ether 3.15|Ether 3:15 (13-16).]]
-[^b]: TG [Teaching with the Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching-with-the-spirit?lang=eng)
+[^b]: TG [[Teaching with the Spirit]].

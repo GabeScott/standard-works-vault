@@ -8,4 +8,4 @@
 [^a]: [[1 Timothy 6.13|1 Tim. 6:13.]]
 [^b]: [[Isaiah 55.4|Isa. 55:4.]]
 [^c]: [[John 19.12|John 19:12 (11-13).]]
-[^d]: [[3 Nephi 11.31|3 Ne. 11:31 (31-41)]]. TG [Truth](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng).
+[^d]: [[3 Nephi 11.31|3 Ne. 11:31 (31-41)]]. TG [[Truth]].

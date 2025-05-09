@@ -5,7 +5,7 @@
 [Isaiah 40:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.9?lang=eng#p9)
 
 
-[^a]: TG [Jerusalem, New.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem-new?lang=eng)
-[^b]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^a]: TG [[Jerusalem, New]].
+[^b]: TG [[Gospel]].
 [^c]: [[Isaiah 52.7|Isa. 52:7.]]
-[^d]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^d]: TG [[Israel, Judah, People of]].

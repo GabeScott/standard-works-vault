@@ -5,7 +5,7 @@
 [Isaiah 49:22](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.22?lang=eng#p22)
 
 
-[^a]: TG [Millennium, Preparing a People for.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium-preparing-a-people-for?lang=eng)
+[^a]: TG [[Millennium, Preparing a People for]].
 [^b]: [[Isaiah 60.5|Isa. 60:5]]; [[Revelation 21.24|Rev. 21:24.]]
-[^c]: TG [Ensign.](https://www.churchofjesuschrist.org/study/scriptures/tg/ensign?lang=eng)
+[^c]: TG [[Ensign]].
 [^d]: [[Isaiah 60.4|Isa. 60:4]]; [[1 Nephi 19.16|1 Ne. 19:16 (16-17)]]; A of F 1:10.

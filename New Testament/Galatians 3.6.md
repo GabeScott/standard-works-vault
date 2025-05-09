@@ -5,4 +5,4 @@
 [Galatians 3:6](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.6?lang=eng#p6)
 
 
-[^a]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]].

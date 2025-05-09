@@ -5,6 +5,6 @@
 [1 Chronicles 2:55](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/2.55?lang=eng#p55)
 
 
-[^a]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Scribe]].
 [^b]: [[Judges 1.16|Judg. 1:16.]]
 [^c]: [[2 Kings 10.15|2 Kgs. 10:15]]; [[Jeremiah 35.2|Jer. 35:2.]]

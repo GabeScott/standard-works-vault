@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Timothy 2.5|1 Tim. 2:5]]; [[D&C 121.28|D&C 121:28.]]
-[^b]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^b]: TG [[Circumcision]].

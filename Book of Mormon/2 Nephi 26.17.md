@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Nephi 13.40|1 Ne. 13:40 (39-42)]]; [[2 Nephi 27.6|2 Ne. 27:6 (6-26)]]; [[2 Nephi 29.12|29:12.]]
-[^b]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
-[^c]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
+[^b]: TG [[Scriptures, Preservation of]].
+[^c]: TG [[Unbelief, Unbelievers]].
 [^d]: [[Enos 1.14|Enos 1:14]]; [[Mormon 6.6|Morm. 6:6.]]

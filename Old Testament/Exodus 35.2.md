@@ -8,4 +8,4 @@
 [^a]: [[Exodus 20.9|Ex. 20:9.]]
 [^b]: [[Exodus 31.15|Ex. 31:15 (14-15).]]
 [^c]: [[Jarom 1.5|Jarom 1:5]]; [[Mosiah 18.23|Mosiah 18:23]]; [[D&C 59.10|D&C 59:10 (9-12).]]
-[^d]: [[Exodus 31.14|Ex. 31:14]]; [[Numbers 15.35|Num. 15:35 (32-36)]]. TG [Capital Punishment](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng).
+[^d]: [[Exodus 31.14|Ex. 31:14]]; [[Numbers 15.35|Num. 15:35 (32-36)]]. TG [[Capital Punishment]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 1.8|3 Ne. 1:8.]]
-[^b]: TG [Jesus Christ, Birth of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-birth-of?lang=eng)
+[^b]: TG [[Jesus Christ, Birth of]].

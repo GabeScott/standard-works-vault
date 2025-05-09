@@ -7,4 +7,4 @@
 
 [^a]: IE harvest, or glean.
 [^b]: IE from Mesopotamia.
-[^c]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^c]: TG [[Israel, Gathering of]].

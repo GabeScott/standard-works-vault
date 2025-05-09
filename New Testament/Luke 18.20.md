@@ -8,4 +8,4 @@
 [^a]: [[D&C 42.24|D&C 42:24 (23-25).]]
 [^b]: [[D&C 42.79|D&C 42:79.]]
 [^c]: [[D&C 42.21|D&C 42:21.]]
-[^d]: TG [Honoring Father and Mother.](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng)
+[^d]: TG [[Honoring Father and Mother]].

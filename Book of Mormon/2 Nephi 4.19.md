@@ -5,4 +5,4 @@
 [2 Nephi 4:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p19#p19)
 
 
-[^a]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Trust in God]].

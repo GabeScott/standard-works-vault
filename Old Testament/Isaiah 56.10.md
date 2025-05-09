@@ -5,5 +5,5 @@
 [Isaiah 56:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/56.10?lang=eng#p10)
 
 
-[^a]: TG [Watchman.](https://www.churchofjesuschrist.org/study/scriptures/tg/watchman?lang=eng)
+[^a]: TG [[Watchman, Watchmen]].
 [^b]: [[Isaiah 28.7|Isa. 28:7.]]

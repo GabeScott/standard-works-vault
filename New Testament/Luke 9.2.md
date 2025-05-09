@@ -5,5 +5,5 @@
 [Luke 9:2](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/9.2?lang=eng#p2)
 
 
-[^a]: TG [Missionary Work](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng); [Preaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
+[^a]: TG [[Missionary Work]]; [[Preaching, Preach]].
 [^b]: [[Matthew 10.8|Matt. 10:8 (7-8).]]

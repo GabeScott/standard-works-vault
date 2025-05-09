@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hosea 3.1|Hosea 3:1 (1-3).]]
-[^b]: TG [Idolatry](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng); [Whore.](https://www.churchofjesuschrist.org/study/scriptures/tg/whore?lang=eng)
+[^b]: TG [[Idolatry, Idol]]; [[Whore, Whoredom]].

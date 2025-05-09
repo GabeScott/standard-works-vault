@@ -5,4 +5,4 @@
 [Isaiah 19:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/19.17?lang=eng#p17)
 
 
-[^a]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
+[^a]: TG [[Last Days]].

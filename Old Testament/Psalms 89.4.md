@@ -5,5 +5,5 @@
 [Psalms 89:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.4?lang=eng#p4)
 
 
-[^a]: TG [Jesus Christ, Davidic Descent of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-davidic-descent-of?lang=eng)
-[^b]: TG [Jesus Christ, Millennial Reign](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-millennial-reign?lang=eng); [Kingdom of God, on Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-on-earth?lang=eng)
+[^a]: TG [[Jesus Christ, Davidic Descent of]].
+[^b]: TG [[Jesus Christ, Millennial Reign]]; [[Kingdom of God, on Earth]].

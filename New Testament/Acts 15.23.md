@@ -5,4 +5,4 @@
 [Acts 15:23](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.23?lang=eng#p23)
 
 
-[^a]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^a]: TG [[Scriptures, Writing of]].

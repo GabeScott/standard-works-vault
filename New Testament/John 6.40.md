@@ -5,6 +5,6 @@
 [John 6:40](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.40?lang=eng#p40)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
-[^b]: TG [Eternal Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng)
+[^a]: TG [[Faith]].
+[^b]: TG [[Eternal Life]].
 [^c]: JST John 6:40 … in the resurrection of the just at the last day.

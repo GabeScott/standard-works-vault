@@ -5,6 +5,6 @@
 [Romans 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.4?lang=eng#p4)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^a]: TG [[Treasure]].
 [^b]: [[Mosiah 4.20|Mosiah 4:20 (19-20).]]
-[^c]: TG [Forbear.](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng)
+[^c]: TG [[Forbear, Forbearance]].

@@ -5,11 +5,11 @@
 [Hebrews 9:15](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/9.15?lang=eng#p15)
 
 
-[^a]: TG [Jesus Christ, Authority of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng); [Jesus Christ, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng)
+[^a]: TG [[Jesus Christ, Authority of]]; [[Jesus Christ, Mission of]].
 [^b]: [[Hebrews 8.13|Heb. 8:13.]]
 [^c]: JST Heb. 9:15 … covenant … (Note: JST uses “covenant” in place of “testament” in every instance in vv. 15-18, 20.)
-[^d]: TG [Jesus Christ, Death of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
-[^e]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^d]: TG [[Jesus Christ, Death of]].
+[^e]: TG [[Transgressor]].
 [^f]: JST Heb. 9:15 … covenant …
 [^g]: [[Hebrews 10.36|Heb. 10:36.]]
-[^h]: [[D&C 137.7|D&C 137:7 (7-10)]]. TG [Inheritance](https://www.churchofjesuschrist.org/study/scriptures/tg/inheritance?lang=eng).
+[^h]: [[D&C 137.7|D&C 137:7 (7-10)]]. TG [[Inheritance]].

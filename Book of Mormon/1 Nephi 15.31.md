@@ -5,5 +5,5 @@
 [1 Nephi 15:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p31#p31)
 
 
-[^a]: TG [Probation.](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng)
+[^a]: TG [[Probation, Probationary]].
 [^b]: [[Alma 40.11|Alma 40:11 (6-26).]]

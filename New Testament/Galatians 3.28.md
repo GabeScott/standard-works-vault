@@ -5,5 +5,5 @@
 [Galatians 3:28](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.28?lang=eng#p28)
 
 
-[^a]: TG [Gentiles.](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng)
-[^b]: [[Romans 10.12|Rom. 10:12 (12-13)]]. TG [Unity](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng).
+[^a]: TG [[Gentiles]].
+[^b]: [[Romans 10.12|Rom. 10:12 (12-13)]]. TG [[Unity]].

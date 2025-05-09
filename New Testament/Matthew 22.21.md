@@ -5,5 +5,5 @@
 [Matthew 22:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.21?lang=eng#p21)
 
 
-[^a]: TG [Citizenship.](https://www.churchofjesuschrist.org/study/scriptures/tg/citizenship?lang=eng)
-[^b]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^a]: TG [[Citizenship]].
+[^b]: TG [[Governments]].

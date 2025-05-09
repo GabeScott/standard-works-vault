@@ -5,6 +5,6 @@
 [Nehemiah 9:20](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.20?lang=eng#p20)
 
 
-[^a]: TG [Teaching with the Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching-with-the-spirit?lang=eng)
-[^b]: TG [Holy Ghost, Source of Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-source-of-testimony?lang=eng)
+[^a]: TG [[Teaching with the Spirit]].
+[^b]: TG [[Holy Ghost, Source of Testimony]].
 [^c]: [[Deuteronomy 8.3|Deut. 8:3]]; [[1 Nephi 17.28|1 Ne. 17:28]]; [[Mosiah 7.19|Mosiah 7:19.]]

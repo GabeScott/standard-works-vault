@@ -5,4 +5,4 @@
 [Hosea 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/12.6?lang=eng#p6)
 
 
-[^a]: TG [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^a]: TG [[Conversion, Convert]].

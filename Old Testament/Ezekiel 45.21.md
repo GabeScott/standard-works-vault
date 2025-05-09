@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 23.5|Lev. 23:5.]]
-[^b]: TG [Bread, Unleavened.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-unleavened?lang=eng)
+[^b]: TG [[Bread, Unleavened]].

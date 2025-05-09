@@ -6,4 +6,4 @@
 
 
 [^a]: [[Abraham 2.10|Abr. 2:10 (9-10).]]
-[^b]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^b]: TG [[Name of the Lord]].

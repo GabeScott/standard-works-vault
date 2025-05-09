@@ -6,5 +6,5 @@
 
 
 [^a]: JST Matt. 12:26 … unto men who receive me and repent; but …
-[^b]: TG [Blaspheme](https://www.churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng); [Holy Ghost, Unpardonable Sin against.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-unpardonable-sin-against?lang=eng)
-[^c]: TG [Holy Ghost, Loss of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-loss-of?lang=eng)
+[^b]: TG [[Blaspheme, Blasphemous, Blasphemy]]; [[Holy Ghost, Unpardonable Sin against]].
+[^c]: TG [[Holy Ghost, Loss of]].

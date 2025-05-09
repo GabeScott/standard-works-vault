@@ -5,4 +5,4 @@
 [Joshua 6:6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6.6?lang=eng#p6)
 
 
-[^a]: TG [Ark of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/ark-of-the-covenant?lang=eng)
+[^a]: TG [[Ark of the Covenant]].

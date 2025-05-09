@@ -5,4 +5,4 @@
 [Genesis 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/5.2?lang=eng#p2)
 
 
-[^a]: In Hebrew adam is also a common noun, meaning man, or mankind. TG [Adam](https://www.churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng).
+[^a]: In Hebrew adam is also a common noun, meaning man, or mankind. TG [[Adam]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 63.10|Isa. 63:10]]; [[1 Nephi 17.30|1 Ne. 17:30 (23-31)]]; [[Jacob 1.8|Jacob 1:8]]; [[Alma 12.37|Alma 12:37 (36-37)]]; [[Helaman 7.18|Hel. 7:18.]]
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^b]: TG [[Faith]].

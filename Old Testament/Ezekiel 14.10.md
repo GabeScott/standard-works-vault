@@ -5,4 +5,4 @@
 [Ezekiel 14:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/14.10?lang=eng#p10)
 
 
-[^a]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^a]: TG [[Punish, Punishment]].

@@ -5,7 +5,7 @@
 [3 Nephi 12:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Teachable.](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng)
+[^a]: TG [[Teachable]].
 [^b]: [[Mosiah 26.15|Mosiah 26:15 (15-16)]]; [[D&C 46.14|D&C 46:14.]]
 [^c]: [[3 Nephi 11.23|3 Ne. 11:23.]]
 [^d]: [[Ether 4.13|Ether 4:13.]]

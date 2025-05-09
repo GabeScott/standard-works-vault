@@ -5,4 +5,4 @@
 [Psalms 104:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/104.24?lang=eng#p24)
 
 
-[^a]: HEB creations. TG [Treasure](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng).
+[^a]: HEB creations. TG [[Treasure]].

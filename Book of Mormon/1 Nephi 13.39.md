@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 9.2|D&C 9:2.]]
-[^b]: TG [Scriptures to Come Forth.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-to-come-forth?lang=eng)
+[^b]: TG [[Scriptures to Come Forth]].
 [^c]: [[Ezekiel 37.17|Ezek. 37:17 (15-20)]]; [[1 Nephi 14.2|1 Ne. 14:2 (1-5).]]
 [^d]: [[1 Nephi 14.30|1 Ne. 14:30.]]

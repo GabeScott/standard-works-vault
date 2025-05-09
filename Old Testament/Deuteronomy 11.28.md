@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 2.23|1 Ne. 2:23]]; [[D&C 41.1|D&C 41:1.]]
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^b]: TG [[Disobedience, Disobey]].

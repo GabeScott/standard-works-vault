@@ -5,4 +5,4 @@
 [Ezekiel 13:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.2?lang=eng#p2)
 
 
-[^a]: TG [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
+[^a]: TG [[False Prophets]].

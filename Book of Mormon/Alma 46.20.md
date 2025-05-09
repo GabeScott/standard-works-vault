@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 48.13|Alma 48:13.]]
-[^b]: TG [Citizenship.](https://www.churchofjesuschrist.org/study/scriptures/tg/citizenship?lang=eng)
+[^b]: TG [[Citizenship]].

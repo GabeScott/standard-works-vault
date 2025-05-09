@@ -7,4 +7,4 @@
 
 [^a]: [[2 Kings 24.19|2 Kgs. 24:19]]; [[2 Chronicles 36.14|2 Chr. 36:14]]; [[Jeremiah 13.27|Jer. 13:27.]]
 [^b]: [[2 Kings 23.27|2 Kgs. 23:27]]; [[2 Kings 24.2|24:2]]; [[Jeremiah 13.14|Jer. 13:14]]; [[Ezekiel 15.6|Ezek. 15:6 (6-8)]]; [[1 Nephi 2.13|1 Ne. 2:13]]; [[1 Nephi 3.17|3:17.]]
-[^c]: [[2 Kings 20.17|2 Kgs. 20:17 (17-18)]]; [[Jeremiah 52.15|Jer. 52:15 (3-15)]]; [[2 Nephi 25.10|2 Ne. 25:10]]; [[Omni 1.15|Omni 1:15]]. TG [Babylon](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng).
+[^c]: [[2 Kings 20.17|2 Kgs. 20:17 (17-18)]]; [[Jeremiah 52.15|Jer. 52:15 (3-15)]]; [[2 Nephi 25.10|2 Ne. 25:10]]; [[Omni 1.15|Omni 1:15]]. TG [[Babylon]].

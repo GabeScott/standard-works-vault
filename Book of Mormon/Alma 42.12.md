@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Corinthians 15.22|1 Cor. 15:22.]]
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^b]: TG [[Disobedience, Disobey]].

@@ -5,4 +5,4 @@
 [Acts 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.7?lang=eng#p7)
 
 
-[^a]: [[Mark 9.27|Mark 9:27]]. TG [Heal](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng).
+[^a]: [[Mark 9.27|Mark 9:27]]. TG [[Health]].

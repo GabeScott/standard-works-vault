@@ -6,6 +6,6 @@
 
 
 [^a]: [[Alma 34.10|Alma 34:10.]]
-[^b]: [[Matthew 26.54|Matt. 26:54 (52-56)]]. TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng).
+[^b]: [[Matthew 26.54|Matt. 26:54 (52-56)]]. TG [[Jesus Christ, Atonement through]].
 [^c]: [[Mosiah 16.4|Mosiah 16:4 (4-7)]]; [[Alma 11.45|Alma 11:45]]; [[Alma 12.36|12:36]]; [[Alma 42.6|42:6 (6, 9, 14).]]
 [^d]: [[Mosiah 15.19|Mosiah 15:19.]]

@@ -5,9 +5,9 @@
 [Matthew 24:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.24?lang=eng#p24)
 
 
-[^a]: TG [Apostasy of the Early Christian Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
-[^b]: TG [False Christs.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-christs?lang=eng)
-[^c]: TG [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
-[^d]: [[Revelation 16.14|Rev. 16:14 (13-14)]]. TG [Signs](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng); [Sign Seekers](https://www.churchofjesuschrist.org/study/scriptures/tg/sign-seekers?lang=eng).
-[^e]: [[Revelation 13.14|Rev. 13:14 (11-18)]]. TG [Deceit](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng).
+[^a]: TG [[Apostasy of the Early Christian Church]].
+[^b]: TG [[False Christs]].
+[^c]: TG [[False Prophets]].
+[^d]: [[Revelation 16.14|Rev. 16:14 (13-14)]]. TG [[Signs]]; [[Sign Seekers]].
+[^e]: [[Revelation 13.14|Rev. 13:14 (11-18)]]. TG [[Deceit, Deceive]].
 [^f]: [[D&C 29.7|D&C 29:7 (7-8)]]; [[D&C 84.34|84:34 (33-34).]]

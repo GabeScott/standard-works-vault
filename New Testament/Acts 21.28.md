@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 24.6|Acts 24:6.]]
-[^b]: TG [Pollution.](https://www.churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng)
+[^b]: TG [[Pollution, Pollute]].

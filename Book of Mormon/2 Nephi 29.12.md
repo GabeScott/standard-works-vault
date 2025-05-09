@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Nephi 13.23|1 Ne. 13:23 (23-29)]]; [[2 Nephi 3.12|2 Ne. 3:12.]]
-[^b]: TG [Scriptures, Lost.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng)
+[^b]: TG [[Scriptures, Lost]].
 [^c]: [[1 Nephi 13.40|1 Ne. 13:40 (39-42)]]; [[2 Nephi 26.17|2 Ne. 26:17 (16-17)]]; [[2 Nephi 27.6|27:6 (6-26).]]
 [^d]: [[2 Nephi 26.33|2 Ne. 26:33]]; [[Alma 29.8|Alma 29:8.]]

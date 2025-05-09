@@ -6,4 +6,4 @@
 
 
 [^a]: GR about, concerning.
-[^b]: TG [Apostasy of the Early Christian Church](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng); [Contention.](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
+[^b]: TG [[Apostasy of the Early Christian Church]]; [[Contention]].

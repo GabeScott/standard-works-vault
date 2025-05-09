@@ -5,5 +5,5 @@
 [Psalms 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/1.6?lang=eng#p6)
 
 
-[^a]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^b]: TG [Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/godliness?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]].
+[^b]: TG [[Mysteries of Godliness]].

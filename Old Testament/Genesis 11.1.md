@@ -5,4 +5,4 @@
 [Genesis 11:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/11.1?lang=eng#p1)
 
 
-[^a]: TG [Language.](https://www.churchofjesuschrist.org/study/scriptures/tg/language?lang=eng)
+[^a]: TG [[Language]].

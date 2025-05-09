@@ -5,4 +5,4 @@
 [1 Samuel 1:27](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/1.27?lang=eng#p27)
 
 
-[^a]: TG [Marriage, Motherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-motherhood?lang=eng)
+[^a]: TG [[Marriage, Motherhood]].

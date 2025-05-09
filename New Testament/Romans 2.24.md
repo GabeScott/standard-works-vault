@@ -5,4 +5,4 @@
 [Romans 2:24](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.24?lang=eng#p24)
 
 
-[^a]: TG [Blaspheme.](https://www.churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng)
+[^a]: TG [[Blaspheme, Blasphemous, Blasphemy]].

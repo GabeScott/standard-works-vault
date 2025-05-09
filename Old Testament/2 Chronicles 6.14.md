@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Kings 8.23|1 Kgs. 8:23 (22-61).]]
-[^b]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^b]: TG [[Walking with God]].

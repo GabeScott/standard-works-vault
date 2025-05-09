@@ -6,4 +6,4 @@
 
 
 [^a]: OR slander in order to.
-[^b]: TG [Sensuality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sensuality?lang=eng)
+[^b]: TG [[Sensuality]].

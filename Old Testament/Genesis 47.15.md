@@ -5,4 +5,4 @@
 [Genesis 47:15](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/47.15?lang=eng#p15)
 
 
-[^a]: TG [Welfare.](https://www.churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng)
+[^a]: TG [[Welfare]].

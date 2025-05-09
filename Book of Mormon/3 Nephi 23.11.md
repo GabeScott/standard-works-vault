@@ -5,5 +5,5 @@
 [3 Nephi 23:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/23?lang=eng&id=p11#p11)
 
 
-[^a]: TG [Jesus Christ, Teaching Mode of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-teaching-mode-of?lang=eng)
+[^a]: TG [[Jesus Christ, Teaching Mode of]].
 [^b]: [[Matthew 27.52|Matt. 27:52 (52-53).]]

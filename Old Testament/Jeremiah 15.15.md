@@ -6,5 +6,5 @@
 
 
 [^a]: OR be mindful of me.
-[^b]: TG [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
+[^b]: TG [[Suffering]].
 [^c]: HEB taunts.

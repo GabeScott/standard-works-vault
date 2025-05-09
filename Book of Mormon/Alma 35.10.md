@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 47.1|Alma 47:1]]; [[Helaman 1.17|Hel. 1:17.]]
-[^b]: TG [Anger](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng); [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
+[^b]: TG [[Anger]]; [[War]].

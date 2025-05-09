@@ -6,6 +6,6 @@
 
 
 [^a]: [[Exodus 24.15|Ex. 24:15.]]
-[^b]: TG [God, Body of, Corporeal Nature.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
-[^c]: [[Matthew 3.17|Matt. 3:17]]; [[3 Nephi 11.7|3 Ne. 11:7]]; JS—H 1:17. TG [Witness of the Father](https://www.churchofjesuschrist.org/study/scriptures/tg/witness-of-the-father?lang=eng).
-[^d]: TG [God](https://www.churchofjesuschrist.org/study/scriptures/tg/god?lang=eng); [God](https://www.churchofjesuschrist.org/study/scriptures/tg/god?lang=eng)head; [God](https://www.churchofjesuschrist.org/study/scriptures/tg/god?lang=eng) the Father, Elohim; [Jesus Christ, Divine Sonship.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
+[^b]: TG [[God, Body of, Corporeal Nature]].
+[^c]: [[Matthew 3.17|Matt. 3:17]]; [[3 Nephi 11.7|3 Ne. 11:7]]; JS—H 1:17. TG [[Witness of the Father]].
+[^d]: TG [[Walking with God]]; [[Walking with God]]head; [[Walking with God]] the Father, Elohim; [[Jesus Christ, Divine Sonship]].

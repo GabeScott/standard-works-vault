@@ -5,7 +5,7 @@
 [Matthew 16:4](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.4?lang=eng#p4)
 
 
-[^a]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^a]: TG [[Adulterer, Adultery]].
 [^b]: [[Mark 8.12|Mark 8:12 (11-21).]]
 [^c]: [[Jonah 1.17|Jonah 1:17.]]
-[^d]: TG [Jesus Christ, Death of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
+[^d]: TG [[Jesus Christ, Death of]].

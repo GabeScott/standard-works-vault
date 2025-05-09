@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 22.12|Isa. 22:12]]; [[2 Corinthians 7.10|2 Cor. 7:10]]; [[James 4.9|James 4:9 (8-10).]]
 [^b]: [[Exodus 33.13|Ex. 33:13.]]
-[^c]: [[Jeremiah 24.9|Jer. 24:9]]; [[1 Nephi 19.14|1 Ne. 19:14]]; [[3 Nephi 16.9|3 Ne. 16:9 (8-9)]]. TG [Reproach](https://www.churchofjesuschrist.org/study/scriptures/tg/reproach?lang=eng).
+[^c]: [[Jeremiah 24.9|Jer. 24:9]]; [[1 Nephi 19.14|1 Ne. 19:14]]; [[3 Nephi 16.9|3 Ne. 16:9 (8-9)]]. TG [[Reproach]].

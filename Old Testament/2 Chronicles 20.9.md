@@ -5,4 +5,4 @@
 [2 Chronicles 20:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/20.9?lang=eng#p9)
 
 
-[^a]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
+[^a]: TG [[Affliction]].

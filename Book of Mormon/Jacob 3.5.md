@@ -8,4 +8,4 @@
 [^a]: [[Jacob 2.35|Jacob 2:35.]]
 [^b]: [[Jacob 2.27|Jacob 2:27.]]
 [^c]: [[Mosiah 11.2|Mosiah 11:2 (2-14)]]; [[Ether 10.5|Ether 10:5.]]
-[^d]: TG [Chastity.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng)
+[^d]: TG [[Chastity, Chaste]].

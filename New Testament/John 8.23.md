@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 3.31|John 3:31 (13, 31).]]
-[^b]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
+[^b]: TG [[World, End of]].

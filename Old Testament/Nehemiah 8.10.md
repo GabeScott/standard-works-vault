@@ -8,4 +8,4 @@
 [^a]: [[Esther 9.19|Esth. 9:19.]]
 [^b]: [[D&C 59.12|D&C 59:12 (12-16).]]
 [^c]: [[2 Nephi 4.15|2 Ne. 4:15 (15-16).]]
-[^d]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^d]: TG [[Strength]].

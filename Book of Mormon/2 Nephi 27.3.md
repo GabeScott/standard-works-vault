@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 29.7|Isa. 29:7 (7-8).]]
-[^b]: [[1 Nephi 22.14|1 Ne. 22:14]]. TG [Protection, Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng).
+[^b]: [[1 Nephi 22.14|1 Ne. 22:14]]. TG [[Protection, Divine]].

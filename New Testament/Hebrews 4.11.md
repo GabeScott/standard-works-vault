@@ -6,4 +6,4 @@
 
 
 [^a]: GR hasten, be eager.
-[^b]: GR obstinacy, disobedience. TG [Unbelief](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng).
+[^b]: GR obstinacy, disobedience. TG [[Unbelief, Unbelievers]].

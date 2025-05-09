@@ -6,4 +6,4 @@
 
 
 [^a]: GR are unfaithful.
-[^b]: [[D&C 39.16|D&C 39:16]]. TG [God, Perfection of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng).
+[^b]: [[D&C 39.16|D&C 39:16]]. TG [[God, Perfection of]].

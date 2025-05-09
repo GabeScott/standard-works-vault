@@ -5,5 +5,5 @@
 [Ezekiel 34:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.8?lang=eng#p8)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Apostasy of Israel]].
 [^b]: [[2 Nephi 28.13|2 Ne. 28:13 (9-16)]]; [[Mormon 8.37|Morm. 8:37 (37-41).]]

@@ -6,5 +6,5 @@
 
 
 [^a]: GR was accomplishing.
-[^b]: TG [Rioting and Reveling.](https://www.churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng)
+[^b]: TG [[Rioting and Reveling]].
 [^c]: [[John 18.38|John 18:38 (28-38).]]

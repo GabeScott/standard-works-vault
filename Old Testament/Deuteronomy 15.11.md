@@ -5,4 +5,4 @@
 [Deuteronomy 15:11](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.11?lang=eng#p11)
 
 
-[^a]: TG [Generosity.](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng)
+[^a]: TG [[Generosity]].

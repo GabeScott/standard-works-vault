@@ -5,4 +5,4 @@
 [Genesis 24:67](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.67?lang=eng#p67)
 
 
-[^a]: TG [Comfort.](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng)
+[^a]: TG [[Holy Ghost, Comforter]].

@@ -6,5 +6,5 @@
 
 
 [^a]: GR in many locations and various ways.
-[^b]: TG [Family, Patriarchal.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-patriarchal?lang=eng)
-[^c]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
+[^b]: TG [[Family, Patriarchal]].
+[^c]: TG [[Prophets, Mission of]].

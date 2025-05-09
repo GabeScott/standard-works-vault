@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Thes. 2:17.
-[^b]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
+[^b]: TG [[Perfection, Perfect, Perfectly]].

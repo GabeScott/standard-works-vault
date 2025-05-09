@@ -5,4 +5,4 @@
 [1 Corinthians 13:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/13.8?lang=eng#p8)
 
 
-[^a]: TG [Dependability.](https://www.churchofjesuschrist.org/study/scriptures/tg/dependability?lang=eng)
+[^a]: TG [[Dependability]].

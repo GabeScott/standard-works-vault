@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 4.35|1 Ne. 4:35]]; [[1 Nephi 16.7|16:7]]; [[2 Nephi 1.31|2 Ne. 1:31 (30-32).]]
-[^b]: TG [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^b]: TG [[Warn, Warnings]].

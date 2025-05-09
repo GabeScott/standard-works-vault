@@ -5,6 +5,6 @@
 [Matthew 24:29](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.29?lang=eng#p29)
 
 
-[^a]: TG [Day of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/day-of-the-lord?lang=eng)
-[^b]: TG [Astronomy.](https://www.churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng)
+[^a]: TG [[Day of the Lord]].
+[^b]: TG [[Astronomy]].
 [^c]: [[Isaiah 13.10|Isa. 13:10]]; [[Ezekiel 32.7|Ezek. 32:7]]; [[Ezekiel 34.12|34:12 (11-19)]]; [[Joel 2.10|Joel 2:10]]; [[Revelation 6.12|Rev. 6:12.]]

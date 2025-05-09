@@ -5,4 +5,4 @@
 [Luke 14:5](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.5?lang=eng#p5)
 
 
-[^a]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
+[^a]: TG [[Sabbath]].

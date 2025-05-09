@@ -5,7 +5,7 @@
 [Acts 10:43](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.43?lang=eng#p43)
 
 
-[^a]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
-[^b]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
-[^c]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
-[^d]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^a]: TG [[Prophets, Mission of]].
+[^b]: TG [[Name of the Lord]].
+[^c]: TG [[Faith]].
+[^d]: TG [[Remission of Sins]].

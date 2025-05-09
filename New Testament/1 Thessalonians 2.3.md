@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Corinthians 4.2|2 Cor. 4:2]]; [[2 Corinthians 7.2|7:2.]]
-[^b]: TG [Guile.](https://www.churchofjesuschrist.org/study/scriptures/tg/guile?lang=eng)
+[^b]: TG [[Guile]].

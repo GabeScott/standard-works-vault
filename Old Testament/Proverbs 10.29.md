@@ -5,4 +5,4 @@
 [Proverbs 10:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/10.29?lang=eng#p29)
 
 
-[^a]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^a]: TG [[Strength]].

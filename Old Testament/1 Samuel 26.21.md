@@ -5,4 +5,4 @@
 [1 Samuel 26:21](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/26.21?lang=eng#p21)
 
 
-[^a]: TG [Life, Sanctity of.](https://www.churchofjesuschrist.org/study/scriptures/tg/life-sanctity-of?lang=eng)
+[^a]: TG [[Life, Sanctity of]].

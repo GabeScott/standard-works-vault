@@ -5,4 +5,4 @@
 [John 11:27](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.27?lang=eng#p27)
 
 
-[^a]: TG [God, Body of, Corporeal Nature.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
+[^a]: TG [[God, Body of, Corporeal Nature]].

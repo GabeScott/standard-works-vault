@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 21.7|Luke 21:7 (7-36)]]; [[D&C 45.16|D&C 45:16 (16-75).]]
-[^b]: JS—M 1:4 adds “or the destruction of the wicked, which is the end of the world.” D&C 45:22. TG [Last Days](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng); [World, End of](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng).
+[^b]: JS—M 1:4 adds “or the destruction of the wicked, which is the end of the world.” D&C 45:22. TG [[Last Days]]; [[World, End of]].

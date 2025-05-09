@@ -5,5 +5,5 @@
 [2 Peter 2:22](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.22?lang=eng#p22)
 
 
-[^a]: [[Proverbs 26.11|Prov. 26:11]]. TG [Apostasy of Individuals](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng); [Apostasy of the Early Christian Church](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng).
-[^b]: TG [Wash.](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
+[^a]: [[Proverbs 26.11|Prov. 26:11]]. TG [[Apostasy of Individuals]]; [[Apostasy of the Early Christian Church]].
+[^b]: TG [[Wash, Washing]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 20.18|1 Ne. 20:18.]]
-[^b]: TG [Time.](https://www.churchofjesuschrist.org/study/scriptures/tg/time?lang=eng)
+[^b]: TG [[Time]].

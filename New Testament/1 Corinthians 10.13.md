@@ -6,7 +6,7 @@
 
 
 [^a]: GR seized upon.
-[^b]: [[Job 4.7|Job 4:7 (1, 2, 7)]]; [[Job 37.23|37:23]]; [[Psalms 34.17|Ps. 34:17 (17, 19)]]; [[1 Nephi 22.19|1 Ne. 22:19]]; [[Alma 14.11|Alma 14:11]]. TG [Test](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng).
-[^c]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
+[^b]: [[Job 4.7|Job 4:7 (1, 2, 7)]]; [[Job 37.23|37:23]]; [[Psalms 34.17|Ps. 34:17 (17, 19)]]; [[1 Nephi 22.19|1 Ne. 22:19]]; [[Alma 14.11|Alma 14:11]]. TG [[Testament]].
+[^c]: TG [[Temptation]].
 [^d]: [[D&C 95.1|D&C 95:1.]]
-[^e]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^e]: TG [[Strength]].

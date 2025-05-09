@@ -6,5 +6,5 @@
 
 
 [^a]: [[Numbers 6.13|Num. 6:13.]]
-[^b]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^b]: TG [[Purification, Purify, Purifying]].
 [^c]: [[Numbers 6.11|Num. 6:11 (9-12).]]

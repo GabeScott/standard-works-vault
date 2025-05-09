@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 1.25|D&C 1:25.]]
-[^b]: TG [Learn.](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng)
+[^b]: TG [[Learn, Learning]].

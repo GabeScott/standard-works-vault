@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 26.13|3 Ne. 26:13]]; [[3 Nephi 27.2|27:2.]]
-[^b]: TG [Jesus Christ, Appearances, Postmortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-postmortal?lang=eng)
+[^b]: TG [[Jesus Christ, Appearances, Postmortal]].

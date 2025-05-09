@@ -5,5 +5,5 @@
 [Ephesians 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.16?lang=eng#p16)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
-[^b]: Col. 1:11. TG [Strength](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng).
+[^a]: TG [[Treasure]].
+[^b]: Col. 1:11. TG [[Strength]].

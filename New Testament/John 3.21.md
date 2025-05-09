@@ -5,6 +5,6 @@
 [John 3:21](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.21?lang=eng#p21)
 
 
-[^a]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
-[^b]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
-[^c]: TG [Discernment, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/discernment-spiritual?lang=eng)
+[^a]: TG [[Good Works]].
+[^b]: TG [[Truth]].
+[^c]: TG [[Discernment, Spiritual]].

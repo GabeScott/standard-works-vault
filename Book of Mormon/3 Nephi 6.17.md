@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moses 5.23|Moses 5:23.]]
-[^b]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
+[^b]: TG [[Temptation]].

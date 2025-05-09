@@ -5,5 +5,5 @@
 [Alma 34:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Blood, Shedding of](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-shedding-of?lang=eng); [Life, Sanctity of.](https://www.churchofjesuschrist.org/study/scriptures/tg/life-sanctity-of?lang=eng)
-[^b]: TG [Capital Punishment](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng); [Murder.](https://www.churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng)
+[^a]: TG [[Blood, Shedding of]]; [[Life, Sanctity of]].
+[^b]: TG [[Capital Punishment]]; [[Murder, Murderer]].

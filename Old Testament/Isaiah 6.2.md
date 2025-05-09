@@ -5,4 +5,4 @@
 [Isaiah 6:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/6.2?lang=eng#p2)
 
 
-[^a]: TG [Cherubim](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng); [Symbolism.](https://www.churchofjesuschrist.org/study/scriptures/tg/symbolism?lang=eng)
+[^a]: TG [[Cherubim]]; [[Blood, Symbolism of]].

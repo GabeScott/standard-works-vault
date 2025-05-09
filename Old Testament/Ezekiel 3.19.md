@@ -5,4 +5,4 @@
 [Ezekiel 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.19?lang=eng#p19)
 
 
-[^a]: TG [Prophets, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng); [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^a]: TG [[Prophets, Mission of]]; [[Warn, Warnings]].

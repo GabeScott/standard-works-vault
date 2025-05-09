@@ -5,5 +5,5 @@
 [Genesis 23:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/23.4?lang=eng#p4)
 
 
-[^a]: IE a resident alien. TG [Stranger](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng).
-[^b]: TG [Death.](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng)
+[^a]: IE a resident alien. TG [[Stranger]].
+[^b]: TG [[Death]].

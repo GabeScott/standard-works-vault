@@ -5,6 +5,6 @@
 [Ezekiel 6:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/6.8?lang=eng#p8)
 
 
-[^a]: TG [Israel, Remnant of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-remnant-of?lang=eng)
+[^a]: TG [[Israel, Remnant of]].
 [^b]: [[Jeremiah 44.28|Jer. 44:28]]; [[Ezekiel 7.16|Ezek. 7:16.]]
-[^c]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^c]: TG [[Israel, Scattering of]].

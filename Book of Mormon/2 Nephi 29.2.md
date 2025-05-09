@@ -8,4 +8,4 @@
 [^a]: [[2 Nephi 3.21|2 Ne. 3:21.]]
 [^b]: [[Isaiah 5.26|Isa. 5:26]]; [[Moroni 10.28|Moro. 10:28.]]
 [^c]: [[2 Nephi 15.26|2 Ne. 15:26.]]
-[^d]: [[Psalms 60.4|Ps. 60:4]]. TG [Ensign](https://www.churchofjesuschrist.org/study/scriptures/tg/ensign?lang=eng).
+[^d]: [[Psalms 60.4|Ps. 60:4]]. TG [[Ensign]].

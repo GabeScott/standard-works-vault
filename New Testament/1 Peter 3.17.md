@@ -5,4 +5,4 @@
 [1 Peter 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.17?lang=eng#p17)
 
 
-[^a]: TG [Self-Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng)
+[^a]: TG [[Self-Sacrifice]].

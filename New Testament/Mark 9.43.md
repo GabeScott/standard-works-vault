@@ -6,5 +6,5 @@
 
 
 [^a]: JST Mark 9:40-48 (Appendix).
-[^b]: TG [Self-Mastery.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
-[^c]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^b]: TG [[Self-Mastery]].
+[^c]: TG [[Hell]].

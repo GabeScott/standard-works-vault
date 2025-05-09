@@ -5,6 +5,6 @@
 [Psalms 78:51](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.51?lang=eng#p51)
 
 
-[^a]: TG [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
+[^a]: TG [[Firstborn]].
 [^b]: HEB tents, dwellings.
 [^c]: [[Abraham 1.21|Abr. 1:21 (21-25).]]

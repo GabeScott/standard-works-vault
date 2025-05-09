@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 28.22|2 Ne. 28:22]]; [[Alma 36.18|Alma 36:18.]]
-[^b]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
+[^b]: TG [[Rock]].

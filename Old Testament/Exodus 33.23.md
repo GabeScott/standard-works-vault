@@ -5,6 +5,6 @@
 [Exodus 33:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/33.23?lang=eng#p23)
 
 
-[^a]: TG [God, Knowledge about.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng)
-[^b]: TG [God, Body of, Corporeal Nature.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
+[^a]: TG [[God, Knowledge about]].
+[^b]: TG [[God, Body of, Corporeal Nature]].
 [^c]: [[Exodus 33.23|JST Ex. 33:23 … seen, as at other times]]; for I am angry with my people Israel.

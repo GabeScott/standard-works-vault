@@ -5,6 +5,6 @@
 [2 Chronicles 33:12](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/33.12?lang=eng#p12)
 
 
-[^a]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
+[^a]: TG [[Affliction]].
 [^b]: [[D&C 101.8|D&C 101:8 (7-9).]]
 [^c]: [[Alma 32.12|Alma 32:12 (6, 12-16).]]

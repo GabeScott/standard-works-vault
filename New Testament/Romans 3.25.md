@@ -6,7 +6,7 @@
 
 
 [^a]: GR purposed, designed beforehand.
-[^b]: GR mercy seat. TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng); [Redemption](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng).
-[^c]: TG [Blood, Symbolism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng)
-[^d]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
-[^e]: TG [Forbear.](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng)
+[^b]: GR mercy seat. TG [[Jesus Christ, Atonement through]]; [[Redemption]].
+[^c]: TG [[Blood, Symbolism of]].
+[^d]: TG [[Remission of Sins]].
+[^e]: TG [[Forbear, Forbearance]].

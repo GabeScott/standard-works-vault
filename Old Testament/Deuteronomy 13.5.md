@@ -5,6 +5,6 @@
 [Deuteronomy 13:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/13.5?lang=eng#p5)
 
 
-[^a]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
-[^b]: TG [False Doctrine.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng)
+[^a]: TG [[Capital Punishment]].
+[^b]: TG [[False Doctrine]].
 [^c]: HEB seduce (also v. 10).

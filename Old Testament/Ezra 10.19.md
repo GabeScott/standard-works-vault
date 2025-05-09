@@ -5,4 +5,4 @@
 [Ezra 10:19](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/10.19?lang=eng#p19)
 
 
-[^a]: TG [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^a]: TG [[Guiltless]].

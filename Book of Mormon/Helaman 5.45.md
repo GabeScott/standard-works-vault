@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 9.20|3 Ne. 9:20]]; [[3 Nephi 19.14|19:14 (13-14)]]; [[Ether 12.14|Ether 12:14.]]
-[^b]: TG [Holy Ghost, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng)
+[^b]: TG [[Holy Ghost, Gifts of]].

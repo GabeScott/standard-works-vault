@@ -5,6 +5,6 @@
 [Hebrews 6:18](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.18?lang=eng#p18)
 
 
-[^a]: TG [God, Perfection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng)
-[^b]: TG [Refuge.](https://www.churchofjesuschrist.org/study/scriptures/tg/refuge?lang=eng)
-[^c]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
+[^a]: TG [[God, Perfection of]].
+[^b]: TG [[Refuge]].
+[^c]: TG [[Hope]].

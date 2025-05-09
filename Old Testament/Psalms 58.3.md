@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 48.8|Isa. 48:8.]]
-[^b]: TG [Conceived in Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/conceived-in-sin?lang=eng)
+[^b]: TG [[Conceived in Sin]].

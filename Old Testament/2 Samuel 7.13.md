@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Kings 6.12|1 Kgs. 6:12]]; [[1 Kings 8.13|8:13.]]
-[^b]: TG [Jesus Christ, Davidic Descent of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-davidic-descent-of?lang=eng)
+[^b]: TG [[Jesus Christ, Davidic Descent of]].

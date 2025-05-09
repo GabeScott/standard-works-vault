@@ -5,7 +5,7 @@
 [Moses 5:58](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.58?lang=eng#p58)
 
 
-[^a]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
-[^b]: TG [Preaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
+[^a]: TG [[Gospel]].
+[^b]: TG [[Preaching, Preach]].
 [^c]: [[Alma 12.29|Alma 12:29 (28-30)]]; [[Moroni 7.25|Moro. 7:25 (25, 31).]]
 [^d]: [[Acts 7.53|Acts 7:53.]]

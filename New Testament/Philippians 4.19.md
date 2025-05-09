@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 23.1|Ps. 23:1.]]
-[^b]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^b]: TG [[Treasure]].

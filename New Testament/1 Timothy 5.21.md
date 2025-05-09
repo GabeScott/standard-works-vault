@@ -5,5 +5,5 @@
 [1 Timothy 5:21](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.21?lang=eng#p21)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].
 [^b]: GR apart from prejudice.

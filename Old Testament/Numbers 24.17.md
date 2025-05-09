@@ -6,5 +6,5 @@
 
 
 [^a]: IE His coming was to be in the future, long after Moses’ time.
-[^b]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^b]: TG [[Jesus Christ, Prophecies about]].
 [^c]: [[2 Samuel 8.2|2 Sam. 8:2]]; [[Jeremiah 48.45|Jer. 48:45.]]

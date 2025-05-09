@@ -5,4 +5,4 @@
 [Helaman 6:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^a]: TG [[Conversion, Convert]].

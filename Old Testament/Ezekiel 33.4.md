@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 18.13|Ezek. 18:13]]; [[Acts 18.6|Acts 18:6.]]
-[^b]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
+[^b]: TG [[Accountability]].

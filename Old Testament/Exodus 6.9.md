@@ -5,4 +5,4 @@
 [Exodus 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/6.9?lang=eng#p9)
 
 
-[^a]: TG [Cruelty.](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
+[^a]: TG [[Cruelty, Cruel]].

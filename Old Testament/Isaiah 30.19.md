@@ -5,4 +5,4 @@
 [Isaiah 30:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/30.19?lang=eng#p19)
 
 
-[^a]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^a]: TG [[Zion, Sion]].

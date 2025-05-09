@@ -5,6 +5,6 @@
 [Ether 13:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^a]: TG [[Jerusalem]].
 [^b]: [[1 Nephi 1.18|1 Ne. 1:18 (18-20)]]; [[1 Nephi 2.2|2:2.]]
 [^c]: [[Joel 2.18|Joel 2:18]]; [[Revelation 21.10|Rev. 21:10 (10-27)]]; [[3 Nephi 20.46|3 Ne. 20:46 (29-36, 46).]]

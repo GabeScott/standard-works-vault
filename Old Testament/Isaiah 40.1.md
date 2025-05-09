@@ -5,4 +5,4 @@
 [Isaiah 40:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.1?lang=eng#p1)
 
 
-[^a]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
+[^a]: TG [[Israel, Restoration of]].

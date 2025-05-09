@@ -5,6 +5,6 @@
 [Revelation 5:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/5.12?lang=eng#p12)
 
 
-[^a]: TG [Jesus Christ, Lamb of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lamb-of-god?lang=eng)
-[^b]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
-[^c]: TG [God, Wisdom of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-wisdom-of?lang=eng)
+[^a]: TG [[Jesus Christ, Lamb of God]].
+[^b]: TG [[Jesus Christ, Authority of]].
+[^c]: TG [[God, Wisdom of]].

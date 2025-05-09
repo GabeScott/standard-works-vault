@@ -6,4 +6,4 @@
 
 
 [^a]: HEB obscenity.
-[^b]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^b]: TG [[Hypocrisy, Hypocrite]].

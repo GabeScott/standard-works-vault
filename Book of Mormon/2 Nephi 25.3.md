@@ -5,4 +5,4 @@
 [2 Nephi 25:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p3#p3)
 
 
-[^a]: TG [God, Knowledge about](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng); [Prophets, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng); [Scriptures, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng)
+[^a]: TG [[God, Knowledge about]]; [[Prophets, Mission of]]; [[Scriptures, Value of]].

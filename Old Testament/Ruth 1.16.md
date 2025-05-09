@@ -5,7 +5,7 @@
 [Ruth 1:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/1.16?lang=eng#p16)
 
 
-[^a]: TG [Family, Love within.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng)
-[^b]: TG [Loyalty.](https://www.churchofjesuschrist.org/study/scriptures/tg/loyalty?lang=eng)
-[^c]: TG [Brotherhood and Sisterhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
-[^d]: TG [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^a]: TG [[Family, Love within]].
+[^b]: TG [[Loyalty]].
+[^c]: TG [[Brotherhood and Sisterhood]].
+[^d]: TG [[Conversion, Convert]].

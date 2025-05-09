@@ -5,6 +5,6 @@
 [1 Chronicles 5:2](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/5.2?lang=eng#p2)
 
 
-[^a]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^a]: TG [[Israel, Judah, People of]].
 [^b]: [[Micah 5.2|Micah 5:2]]; [[Matthew 2.6|Matt. 2:6]]; [[John 7.42|John 7:42.]]
-[^c]: TG [Birthright](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng); [Priesthood, History of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-history-of?lang=eng)
+[^c]: TG [[Birthright]]; [[Priesthood, History of]].

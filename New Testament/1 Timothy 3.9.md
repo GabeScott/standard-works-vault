@@ -5,4 +5,4 @@
 [1 Timothy 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/3.9?lang=eng#p9)
 
 
-[^a]: TG [Conscience.](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
+[^a]: TG [[Conscience]].

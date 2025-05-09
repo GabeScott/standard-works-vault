@@ -7,4 +7,4 @@
 
 [^a]: OR Nile (so also in vv. 18, 20-21, 24-25).
 [^b]: [[Revelation 11.6|Rev. 11:6 (5-6).]]
-[^c]: TG [Plague.](https://www.churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng)
+[^c]: TG [[Plague]].

@@ -5,6 +5,6 @@
 [John 2:23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/2.23?lang=eng#p23)
 
 
-[^a]: TG [Passover.](https://www.churchofjesuschrist.org/study/scriptures/tg/passover?lang=eng)
-[^b]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
-[^c]: TG [Miracle](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng); [Signs.](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng)
+[^a]: TG [[Passover]].
+[^b]: TG [[Name of the Lord]].
+[^c]: TG [[Miracle]]; [[Signs]].

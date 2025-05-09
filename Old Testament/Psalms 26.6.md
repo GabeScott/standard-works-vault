@@ -5,4 +5,4 @@
 [Psalms 26:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/26.6?lang=eng#p6)
 
 
-[^a]: TG [Wash.](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
+[^a]: TG [[Wash, Washing]].

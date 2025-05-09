@@ -5,8 +5,8 @@
 [Moses 7:48](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.48?lang=eng#p48)
 
 
-[^a]: TG [Earth, Purpose of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-purpose-of?lang=eng)
-[^b]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
+[^a]: TG [[Earth, Purpose of]].
+[^b]: TG [[Pain]].
 [^c]: [[Moses 7.64|Moses 7:64 (54, 58, 64).]]
-[^d]: TG [Earth, Cleansing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng)
-[^e]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^d]: TG [[Earth, Cleansing of]].
+[^e]: TG [[Filthiness, Filthy]].

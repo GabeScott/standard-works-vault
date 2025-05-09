@@ -6,4 +6,4 @@
 
 
 [^a]: [[James 3.2|James 3:2.]]
-[^b]: TG [Gossip.](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng)
+[^b]: TG [[Gossip]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 42.2|Ps. 42:2 (1-3)]]; [[Psalms 143.6|143:6 (5-12)]]; [[Isaiah 55.1|Isa. 55:1 (1-3)]]; [[John 4.14|John 4:14 (13-15)]]; [[John 6.35|6:35.]]
-[^b]: TG [Living Water.](https://www.churchofjesuschrist.org/study/scriptures/tg/living-water?lang=eng)
+[^b]: TG [[Living Water]].

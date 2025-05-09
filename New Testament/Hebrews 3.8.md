@@ -5,5 +5,5 @@
 [Hebrews 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.8?lang=eng#p8)
 
 
-[^a]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^a]: TG [[Hardheartedness, Harden, Hardness]].
 [^b]: [[Numbers 14.23|Num. 14:23 (2-23)]]; [[Jacob 1.7|Jacob 1:7 (7-8)]]; [[Alma 12.36|Alma 12:36.]]

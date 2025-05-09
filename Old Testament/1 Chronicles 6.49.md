@@ -8,4 +8,4 @@
 [^a]: [[Leviticus 1.9|Lev. 1:9.]]
 [^b]: [[D&C 84.34|D&C 84:34 (33-41).]]
 [^c]: [[Exodus 30.10|Ex. 30:10 (1-10)]]; [[Leviticus 4.20|Lev. 4:20]]; [[Alma 34.10|Alma 34:10 (10-15)]]; [[Moses 5.7|Moses 5:7 (6-7).]]
-[^d]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
+[^d]: TG [[Servant]].

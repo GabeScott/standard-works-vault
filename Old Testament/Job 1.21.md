@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ecclesiastes 5.15|Eccl. 5:15]]; [[1 Timothy 6.7|1 Tim. 6:7.]]
-[^b]: TG [Patience](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng); [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
+[^b]: TG [[Patience, Patient, Patiently]]; [[Suffering]].
 [^c]: [[Genesis 14.20|Gen. 14:20]]; [[D&C 36.3|D&C 36:3.]]

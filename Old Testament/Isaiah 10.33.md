@@ -6,4 +6,4 @@
 
 
 [^a]: See Isa. 36-37 or 2 Kgs. 18:13-19:37 for a fulfillment of this prophecy.
-[^b]: TG [Haughtiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng)
+[^b]: TG [[Haughtiness, Haughty]].

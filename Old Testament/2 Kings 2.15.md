@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 2.2|D&C 2:2 (1-3)]]; [[D&C 27.9|27:9.]]
-[^b]: TG [Priesthood, Ordination.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-ordination?lang=eng)
+[^b]: TG [[Priesthood, Ordination]].

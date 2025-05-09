@@ -5,4 +5,4 @@
 [Colossians 3:17](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.17?lang=eng#p17)
 
 
-[^b]: Col. 1:12. TG [Prayer](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng).
+[^b]: Col. 1:12. TG [[Prayer, Pray]].

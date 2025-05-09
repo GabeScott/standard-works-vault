@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 31.17|2 Ne. 31:17]]; [[Alma 4.4|Alma 4:4.]]
-[^b]: TG [Jesus Christ, Taking the Name of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-taking-the-name-of?lang=eng)
-[^c]: [[Nehemiah 10.29|Neh. 10:29]]. TG [Commitment](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng).
+[^b]: TG [[Jesus Christ, Taking the Name of]].
+[^c]: [[Nehemiah 10.29|Neh. 10:29]]. TG [[Commitment]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Exodus 34.13|Ex. 34:13.]]
-[^b]: HEB pillars. TG [Idolatry](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng).
+[^b]: HEB pillars. TG [[Idolatry, Idol]].
 [^c]: HEB asherim; i.e., fertility deities. Judg. 6:25.

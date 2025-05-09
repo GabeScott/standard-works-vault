@@ -5,4 +5,4 @@
 [2 Samuel 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/12.7?lang=eng#p7)
 
 
-[^a]: TG [Anointing.](https://www.churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng)
+[^a]: TG [[Anointing, Anoint]].

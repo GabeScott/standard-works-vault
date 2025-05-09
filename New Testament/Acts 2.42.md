@@ -5,6 +5,6 @@
 [Acts 2:42](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.42?lang=eng#p42)
 
 
-[^a]: TG [Commitment](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng); [Steadfastness](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng); [Sustaining Church Leaders.](https://www.churchofjesuschrist.org/study/scriptures/tg/sustaining-church-leaders?lang=eng)
-[^b]: TG [Fellowshipping.](https://www.churchofjesuschrist.org/study/scriptures/tg/fellowshipping?lang=eng)
-[^c]: TG [Bread](https://www.churchofjesuschrist.org/study/scriptures/tg/bread?lang=eng); [Sacrament.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrament?lang=eng)
+[^a]: TG [[Commitment]]; [[Steadfastness, Steadfast]]; [[Sustaining Church Leaders]].
+[^b]: TG [[Fellowshipping]].
+[^c]: TG [[Bread]]; [[Sacrament]].

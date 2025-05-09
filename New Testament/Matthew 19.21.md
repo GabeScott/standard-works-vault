@@ -5,8 +5,8 @@
 [Matthew 19:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.21?lang=eng#p21)
 
 
-[^a]: TG [Commitment](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng); [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
-[^b]: TG [Almsgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/almsgiving?lang=eng); [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
-[^c]: TG [Poor.](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng)
-[^d]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^a]: TG [[Commitment]]; [[Perfection, Perfect, Perfectly]].
+[^b]: TG [[Almsgiving]]; [[Self-Sacrifice]].
+[^c]: TG [[Poor]].
+[^d]: TG [[Treasure]].
 [^e]: [[Alma 22.15|Alma 22:15.]]

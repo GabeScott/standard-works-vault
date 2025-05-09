@@ -6,6 +6,6 @@
 
 
 [^a]: [[Alma 46.12|Alma 46:12.]]
-[^b]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
-[^c]: TG [Cruelty.](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
-[^d]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^b]: TG [[Martyrdom]].
+[^c]: TG [[Cruelty, Cruel]].
+[^d]: TG [[Apostasy of Individuals]].

@@ -5,5 +5,5 @@
 [John 11:53](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.53?lang=eng#p53)
 
 
-[^a]: [[Matthew 21.38|Matt. 21:38 (33-46)]]. TG [Counsel](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng).
+[^a]: [[Matthew 21.38|Matt. 21:38 (33-46)]]. TG [[Counsel]].
 [^b]: [[John 7.1|John 7:1.]]

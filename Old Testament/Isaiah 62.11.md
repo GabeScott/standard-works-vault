@@ -5,7 +5,7 @@
 [Isaiah 62:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/62.11?lang=eng#p11)
 
 
-[^a]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
+[^a]: TG [[World, End of]].
 [^b]: [[Zechariah 9.9|Zech. 9:9.]]
 [^c]: [[Isaiah 46.13|Isa. 46:13]]; [[Matthew 21.5|Matt. 21:5.]]
-[^d]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^d]: TG [[Reward]].

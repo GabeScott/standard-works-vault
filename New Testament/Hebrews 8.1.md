@@ -5,4 +5,4 @@
 [Hebrews 8:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/8.1?lang=eng#p1)
 
 
-[^a]: TG [High Priest, Melchizedek Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/high-priest-melchizedek-priesthood?lang=eng); [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
+[^a]: TG [[High Priest, Melchizedek Priesthood]]; [[Jesus Christ, Authority of]].

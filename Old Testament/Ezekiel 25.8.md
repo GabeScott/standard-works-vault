@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 15.1|Isa. 15:1.]]
 [^b]: [[Ezekiel 35.2|Ezek. 35:2 (1-15).]]
-[^c]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^c]: TG [[Heathen]].

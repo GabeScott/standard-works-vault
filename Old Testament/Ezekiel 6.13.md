@@ -5,4 +5,4 @@
 [Ezekiel 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/6.13?lang=eng#p13)
 
 
-[^a]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^a]: TG [[Idolatry, Idol]].

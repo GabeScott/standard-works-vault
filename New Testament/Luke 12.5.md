@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 122.9|D&C 122:9 (4-9).]]
-[^b]: TG [Death, Spiritual, Second](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng); [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^b]: TG [[Death, Spiritual, Second]]; [[Devil, Church of]].

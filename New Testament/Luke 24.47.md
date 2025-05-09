@@ -5,6 +5,6 @@
 [Luke 24:47](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.47?lang=eng#p47)
 
 
-[^a]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
-[^b]: [[D&C 137.6|D&C 137:6]]. TG [Forgive](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng); [Remission of Sins](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng).
-[^c]: TG [Apostles](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng); [Mission of Early Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/mission-of-early-saints?lang=eng)
+[^a]: TG [[Repent, Repentance]].
+[^b]: [[D&C 137.6|D&C 137:6]]. TG [[Forgive, Forgiveness]]; [[Remission of Sins]].
+[^c]: TG [[Apostles]]; [[Mission of Early Saints]].

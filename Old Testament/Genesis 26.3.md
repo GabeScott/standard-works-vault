@@ -7,5 +7,5 @@
 
 [^a]: [[Psalms 39.12|Ps. 39:12]]; [[Acts 7.6|Acts 7:6 (2-8)]]; [[Hebrews 11.9|Heb. 11:9]]; [[1 Nephi 17.4|1 Ne. 17:4 (3-4)]]; [[Abraham 2.21|Abr. 2:21.]]
 [^b]: [[Ether 1.43|Ether 1:43 (42-43).]]
-[^c]: TG [Israel, Land of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng); [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
-[^d]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^c]: TG [[Israel, Land of]]; [[Promised Lands]].
+[^d]: TG [[Covenants]].

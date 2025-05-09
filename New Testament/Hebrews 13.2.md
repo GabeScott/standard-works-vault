@@ -5,7 +5,7 @@
 [Hebrews 13:2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.2?lang=eng#p2)
 
 
-[^a]: TG [Hospitality.](https://www.churchofjesuschrist.org/study/scriptures/tg/hospitality?lang=eng)
-[^b]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
-[^c]: TG [Angels](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng); [Translated Beings.](https://www.churchofjesuschrist.org/study/scriptures/tg/translated-beings?lang=eng)
+[^a]: TG [[Hospitality]].
+[^b]: TG [[Stranger]].
+[^c]: TG [[Angels]]; [[Translated Beings]].
 [^d]: [[Luke 24.16|Luke 24:16 (13-16, 28).]]

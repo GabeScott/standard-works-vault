@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 1.4|Mosiah 1:4]]; [[Alma 22.12|Alma 22:12]]; [[Alma 36.1|36:1]]; [[Alma 37.9|37:9]]; [[Helaman 5.13|Hel. 5:13 (1-13)]]; [[Moses 6.58|Moses 6:58.]]
-[^b]: [[Alma 63.12|Alma 63:12]]. TG [Scriptures, Value of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng).
+[^b]: [[Alma 63.12|Alma 63:12]]. TG [[Scriptures, Value of]].
 [^c]: [[Acts 3.18|Acts 3:18 (18-21)]]; [[Acts 28.23|28:23.]]

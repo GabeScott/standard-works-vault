@@ -6,4 +6,4 @@
 
 
 [^a]: IE Division.
-[^b]: TG [Earth, Dividing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-dividing-of?lang=eng)
+[^b]: TG [[Earth, Dividing of]].

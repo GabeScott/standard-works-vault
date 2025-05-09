@@ -7,4 +7,4 @@
 
 [^a]: [[Ezra 9.8|Ezra 9:8.]]
 [^b]: [[Matthew 6.22|Matt. 6:22 (20-25).]]
-[^c]: [[D&C 88.67|D&C 88:67]]. TG [Dedication](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng).
+[^c]: [[D&C 88.67|D&C 88:67]]. TG [[Dedication, Dedicate]].

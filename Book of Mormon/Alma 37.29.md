@@ -6,4 +6,4 @@
 
 
 [^a]: [[Helaman 6.25|Hel. 6:25.]]
-[^b]: [[Deuteronomy 32.19|Deut. 32:19]]; [[Alma 13.12|Alma 13:12]]. TG [Hate](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng).
+[^b]: [[Deuteronomy 32.19|Deut. 32:19]]; [[Alma 13.12|Alma 13:12]]. TG [[Hate]].

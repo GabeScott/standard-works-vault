@@ -5,5 +5,5 @@
 [Acts 3:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/3.20?lang=eng#p20)
 
 
-[^a]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
+[^a]: TG [[Jesus Christ, Second Coming]].
 [^b]: JST Acts 3:20 … you, whom ye have crucified;

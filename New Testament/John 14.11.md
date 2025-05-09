@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 50.43|D&C 50:43.]]
-[^b]: TG [Jesus Christ, Relationships with the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
+[^b]: TG [[Jesus Christ, Relationships with the Father]].

@@ -7,5 +7,5 @@
 
 [^a]: IE religious leaders of a later apostasy.
 [^b]: [[Isaiah 56.10|Isa. 56:10 (10-12).]]
-[^c]: TG [Word of Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/word-of-wisdom?lang=eng)
-[^d]: TG [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
+[^c]: TG [[Word of Wisdom]].
+[^d]: TG [[False Prophets]].

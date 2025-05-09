@@ -6,4 +6,4 @@
 
 
 [^a]: [[Helaman 4.21|Hel. 4:21.]]
-[^b]: TG [Counsel.](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng)
+[^b]: TG [[Counsel]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Matthew 25.29|Matt. 25:29 (29-30).]]
-[^b]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
-[^c]: [[Proverbs 5.22|Prov. 5:22]]; [[John 8.34|John 8:34 (31-36)]]; [[2 Nephi 28.19|2 Ne. 28:19 (19-22)]]; [[Mosiah 23.12|Mosiah 23:12]]; [[Alma 26.14|Alma 26:14]]. TG [Bondage, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng).
-[^d]: [[Proverbs 9.18|Prov. 9:18]]; [[1 Nephi 14.7|1 Ne. 14:7]]; [[2 Nephi 2.29|2 Ne. 2:29 (26-29)]]. TG [Hell](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng).
+[^b]: TG [[Apostasy of Individuals]].
+[^c]: [[Proverbs 5.22|Prov. 5:22]]; [[John 8.34|John 8:34 (31-36)]]; [[2 Nephi 28.19|2 Ne. 28:19 (19-22)]]; [[Mosiah 23.12|Mosiah 23:12]]; [[Alma 26.14|Alma 26:14]]. TG [[Bondage, Spiritual]].
+[^d]: [[Proverbs 9.18|Prov. 9:18]]; [[1 Nephi 14.7|1 Ne. 14:7]]; [[2 Nephi 2.29|2 Ne. 2:29 (26-29)]]. TG [[Hell]].

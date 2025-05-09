@@ -6,4 +6,4 @@
 
 
 [^a]: OR womb.
-[^b]: TG [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
+[^b]: TG [[Firstborn]].

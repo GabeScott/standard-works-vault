@@ -6,4 +6,4 @@
 
 
 [^a]: [[Galatians 1.6|Gal. 1:6.]]
-[^b]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^b]: TG [[Gospel]].

@@ -5,4 +5,4 @@
 [Psalms 136:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/136.6?lang=eng#p6)
 
 
-[^a]: TG [Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng)
+[^a]: TG [[Creation, Create]].

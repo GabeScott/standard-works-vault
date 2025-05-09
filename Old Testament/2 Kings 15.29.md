@@ -8,4 +8,4 @@
 [^a]: [[2 Kings 16.7|2 Kgs. 16:7]]; [[1 Chronicles 5.6|1 Chr. 5:6.]]
 [^b]: [[Isaiah 8.4|Isa. 8:4 (1-4).]]
 [^c]: [[1 Chronicles 5.26|1 Chr. 5:26]]; [[Hosea 1.5|Hosea 1:5.]]
-[^d]: TG [Israel, Bondage of, in Other Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng); [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^d]: TG [[Israel, Bondage of, in Other Lands]]; [[Israel, Scattering of]].

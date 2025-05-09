@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mormon 4.18|Morm. 4:18.]]
-[^b]: TG [Hardheartedness](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng); [Ingratitude.](https://www.churchofjesuschrist.org/study/scriptures/tg/ingratitude?lang=eng)
+[^b]: TG [[Hardheartedness, Harden, Hardness]]; [[Ingratitude]].

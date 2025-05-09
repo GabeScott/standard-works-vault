@@ -5,6 +5,6 @@
 [Ezekiel 33:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/33.15?lang=eng#p15)
 
 
-[^a]: TG [Reconciliation](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng); [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Reconciliation, Reconcile]]; [[Repent, Repentance]].
 [^b]: [[Ezekiel 18.7|Ezek. 18:7.]]
 [^c]: [[Leviticus 18.5|Lev. 18:5.]]

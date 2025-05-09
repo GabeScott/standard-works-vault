@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 44.4|Jer. 44:4 (4-5)]]; [[D&C 133.71|D&C 133:71.]]
-[^b]: [[1 Nephi 1.4|1 Ne. 1:4 (4, 18)]]. TG [Prophets, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng).
+[^b]: [[1 Nephi 1.4|1 Ne. 1:4 (4, 18)]]. TG [[Prophets, Mission of]].
 [^c]: HEB early, promptly.

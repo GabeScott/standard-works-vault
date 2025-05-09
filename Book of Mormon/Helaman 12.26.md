@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 12:2 (2-3); [[D&C 19.7|D&C 19:7.]]
-[^b]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^b]: TG [[Damnation, Damned]].

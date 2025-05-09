@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ether 13.11|Ether 13:11.]]
-[^b]: IE the blessings of salvation. TG [Vineyard of the Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng).
+[^b]: IE the blessings of salvation. TG [[Vineyard of the Lord]].

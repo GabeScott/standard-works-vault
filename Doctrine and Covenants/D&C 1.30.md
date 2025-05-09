@@ -6,8 +6,8 @@
 
 
 [^a]: [[D&C 1.17|D&C 1:17 (4-5, 17-18).]]
-[^b]: TG [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
-[^c]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
-[^d]: [[1 Corinthians 14.33|1 Cor. 14:33]]; [[Ephesians 4.5|Eph. 4:5 (3-13)]]. TG [Church](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng).
+[^b]: TG [[Restoration of the Gospel]].
+[^c]: TG [[Darkness, Spiritual]].
+[^d]: [[1 Corinthians 14.33|1 Cor. 14:33]]; [[Ephesians 4.5|Eph. 4:5 (3-13)]]. TG [[Apostasy of the Early Christian Church]].
 [^e]: [[D&C 38.10|D&C 38:10.]]
 [^f]: [[D&C 50.4|D&C 50:4.]]

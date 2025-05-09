@@ -5,4 +5,4 @@
 [Numbers 9:12](https://www.churchofjesuschrist.org/study/scriptures/ot/num/9.12?lang=eng#p12)
 
 
-[^a]: [[John 19.36|John 19:36]]. TG [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng).
+[^a]: [[John 19.36|John 19:36]]. TG [[Jesus Christ, Types of, in Anticipation]].

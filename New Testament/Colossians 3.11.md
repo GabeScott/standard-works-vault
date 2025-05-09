@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Corinthians 12.13|1 Cor. 12:13.]]
-[^b]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^b]: TG [[Circumcision]].

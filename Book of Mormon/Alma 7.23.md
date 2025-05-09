@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 18.12|Prov. 18:12.]]
-[^b]: TG [Submissiveness.](https://www.churchofjesuschrist.org/study/scriptures/tg/submissiveness?lang=eng)
+[^b]: TG [[Submissiveness, Submit]].

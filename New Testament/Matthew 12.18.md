@@ -6,5 +6,5 @@
 
 
 [^a]: GR son.
-[^b]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
-[^c]: TG [Witness of the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness-of-the-father?lang=eng)
+[^b]: TG [[Jesus Christ, Authority of]].
+[^c]: TG [[Witness of the Father]].

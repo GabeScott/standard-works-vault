@@ -5,4 +5,4 @@
 [Revelation 5:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/5.2?lang=eng#p2)
 
 
-[^a]: TG [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
+[^a]: TG [[Worthiness, Worthy]].

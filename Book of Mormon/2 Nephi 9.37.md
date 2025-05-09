@@ -5,4 +5,4 @@
 [2 Nephi 9:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p37#p37)
 
 
-[^a]: [[Isaiah 41.24|Isa. 41:24 (21-24)]]. TG [Idolatry](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng).
+[^a]: [[Isaiah 41.24|Isa. 41:24 (21-24)]]. TG [[Idolatry, Idol]].

@@ -5,4 +5,4 @@
 [Mark 11:22](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/11.22?lang=eng#p22)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Faith]].

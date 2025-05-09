@@ -6,4 +6,4 @@
 
 
 [^a]: GR wantonly.
-[^b]: TG [Pleasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/pleasure?lang=eng)
+[^b]: TG [[Pleasure]].

@@ -5,5 +5,5 @@
 [Matthew 8:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/8.26?lang=eng#p26)
 
 
-[^a]: TG [Courage](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng); [Fearful.](https://www.churchofjesuschrist.org/study/scriptures/tg/fearful?lang=eng)
-[^b]: [[Psalms 65.7|Ps. 65:7]]; [[Psalms 89.9|89:9]]; [[Psalms 107.29|107:29]]. TG [God, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng).
+[^a]: TG [[Courage, Courageous]]; [[Fearful]].
+[^b]: [[Psalms 65.7|Ps. 65:7]]; [[Psalms 89.9|89:9]]; [[Psalms 107.29|107:29]]. TG [[God, Power of]].

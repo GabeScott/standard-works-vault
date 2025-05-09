@@ -5,5 +5,5 @@
 [Jeremiah 6:7](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.7?lang=eng#p7)
 
 
-[^a]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^a]: TG [[Wickedness, Wicked]].
 [^b]: [[Jeremiah 20.8|Jer. 20:8.]]

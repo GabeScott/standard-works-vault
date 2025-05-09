@@ -5,4 +5,4 @@
 [Acts 20:12](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/20.12?lang=eng#p12)
 
 
-[^a]: TG [Death, Power over.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-power-over?lang=eng)
+[^a]: TG [[Death, Power over]].

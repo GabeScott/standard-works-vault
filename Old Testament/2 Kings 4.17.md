@@ -5,4 +5,4 @@
 [2 Kings 4:17](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/4.17?lang=eng#p17)
 
 
-[^a]: TG [Marriage, Motherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-motherhood?lang=eng)
+[^a]: TG [[Marriage, Motherhood]].

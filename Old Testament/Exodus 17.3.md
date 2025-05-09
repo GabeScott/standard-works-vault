@@ -5,4 +5,4 @@
 [Exodus 17:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/17.3?lang=eng#p3)
 
 
-[^a]: TG [Ingratitude](https://www.churchofjesuschrist.org/study/scriptures/tg/ingratitude?lang=eng); [Murmuring.](https://www.churchofjesuschrist.org/study/scriptures/tg/murmuring?lang=eng)
+[^a]: TG [[Ingratitude]]; [[Murmuring, Murmur]].

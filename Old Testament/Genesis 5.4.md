@@ -5,4 +5,4 @@
 [Genesis 5:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/5.4?lang=eng#p4)
 
 
-[^a]: [[D&C 107.41|D&C 107:41 (41-50)]]; [[Moses 5.2|Moses 5:2 (2-3)]]. TG [Adam](https://www.churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng).
+[^a]: [[D&C 107.41|D&C 107:41 (41-50)]]; [[Moses 5.2|Moses 5:2 (2-3)]]. TG [[Adam]].

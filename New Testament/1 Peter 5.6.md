@@ -5,4 +5,4 @@
 [1 Peter 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/5.6?lang=eng#p6)
 
 
-[^a]: TG [Contrite Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/contrite-heart?lang=eng)
+[^a]: TG [[Contrite Heart]].

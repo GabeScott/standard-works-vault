@@ -6,5 +6,5 @@
 
 
 [^a]: The Greek text omits the name and title at this point.
-[^b]: TG [Jesus Christ, Birth of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-birth-of?lang=eng)
-[^c]: TG [Jesus Christ, Davidic Descent of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-davidic-descent-of?lang=eng)
+[^b]: TG [[Jesus Christ, Birth of]].
+[^c]: TG [[Jesus Christ, Davidic Descent of]].

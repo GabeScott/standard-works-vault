@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 7.24|Alma 7:24.]]
-[^b]: [[Psalms 18.1|Ps. 18:1]]; [[D&C 20.31|D&C 20:31]]; [[D&C 76.116|76:116]]. TG [God, Love of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng).
+[^b]: [[Psalms 18.1|Ps. 18:1]]; [[D&C 20.31|D&C 20:31]]; [[D&C 76.116|76:116]]. TG [[God, Love of]].
 [^c]: [[D&C 84.24|D&C 84:24.]]

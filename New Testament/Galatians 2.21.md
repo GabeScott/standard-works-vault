@@ -5,5 +5,5 @@
 [Galatians 2:21](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.21?lang=eng#p21)
 
 
-[^a]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: TG [[Grace]].
 [^b]: [[Mosiah 13.28|Mosiah 13:28 (27-31).]]

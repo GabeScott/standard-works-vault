@@ -5,4 +5,4 @@
 [Psalms 9:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/9.11?lang=eng#p11)
 
 
-[^a]: TG [Preaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
+[^a]: TG [[Preaching, Preach]].

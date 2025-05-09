@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Nephi 15.3|1 Ne. 15:3]]; [[Alma 27.7|Alma 27:7]]; [[D&C 6.11|D&C 6:11]]; [[D&C 46.7|46:7]]; [[D&C 102.23|102:23]]; JS—H 1:18 (18, 26).
-[^b]: TG [Priesthood, Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng)
-[^c]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
-[^d]: TG [Seer.](https://www.churchofjesuschrist.org/study/scriptures/tg/seer?lang=eng)
+[^b]: TG [[Priesthood, Authority]].
+[^c]: TG [[Prophets, Mission of]].
+[^d]: TG [[Seer]].

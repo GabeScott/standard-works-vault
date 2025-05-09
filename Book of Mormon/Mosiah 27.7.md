@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 3.16|Ex. 3:16.]]
-[^b]: TG [Prosper.](https://www.churchofjesuschrist.org/study/scriptures/tg/prosper?lang=eng)
+[^b]: TG [[Prosper]].

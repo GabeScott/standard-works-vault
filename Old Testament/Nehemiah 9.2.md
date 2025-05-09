@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 5.57|Alma 5:57.]]
 [^b]: OR foreigners.
-[^c]: TG [Confession](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng); [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^c]: TG [[Confession]]; [[Repent, Repentance]].

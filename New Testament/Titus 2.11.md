@@ -5,5 +5,5 @@
 [Titus 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.11?lang=eng#p11)
 
 
-[^a]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: TG [[Grace]].
 [^b]: JST Titus 2:11 … which bringeth salvation to all men, hath appeared;

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Samuel 3.1|1 Sam. 3:1.]]
-[^b]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^b]: TG [[Revelation]].

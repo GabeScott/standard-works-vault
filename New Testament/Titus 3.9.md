@@ -6,4 +6,4 @@
 
 
 [^a]: 2 Tim. 2:23 (23-26).
-[^b]: TG [Contention.](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
+[^b]: TG [[Contention]].

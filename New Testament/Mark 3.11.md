@@ -5,4 +5,4 @@
 [Mark 3:11](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.11?lang=eng#p11)
 
 
-[^a]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
+[^a]: TG [[Spirits, Evil or Unclean]].

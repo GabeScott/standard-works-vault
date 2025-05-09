@@ -7,5 +7,5 @@
 
 [^a]: [[2 Nephi 13.10|2 Ne. 13:10.]]
 [^b]: [[Isaiah 3.10|Isa. 3:10.]]
-[^c]: TG [Happiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng)
-[^d]: TG [Health.](https://www.churchofjesuschrist.org/study/scriptures/tg/health?lang=eng)
+[^c]: TG [[Happiness, Happy]].
+[^d]: TG [[Health]].

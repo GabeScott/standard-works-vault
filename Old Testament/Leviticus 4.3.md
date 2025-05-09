@@ -8,4 +8,4 @@
 [^a]: [[Hebrews 5.3|Heb. 5:3.]]
 [^b]: OR male calf.
 [^c]: [[Ezekiel 40.39|Ezek. 40:39]]; [[Ezekiel 42.13|42:13.]]
-[^d]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^d]: TG [[Self-Sacrifice]].

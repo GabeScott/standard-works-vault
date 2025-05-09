@@ -7,5 +7,5 @@
 
 [^a]: [[Helaman 13.2|Hel. 13:2 (2-3).]]
 [^b]: [[Alma 17.10|Alma 17:10.]]
-[^c]: [[Alma 17.11|Alma 17:11]]. TG [Patience](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng).
-[^d]: [[Alma 7.5|Alma 7:5]]. TG [Affliction](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng).
+[^c]: [[Alma 17.11|Alma 17:11]]. TG [[Patience, Patient, Patiently]].
+[^d]: [[Alma 7.5|Alma 7:5]]. TG [[Affliction]].

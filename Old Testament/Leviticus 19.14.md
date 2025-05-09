@@ -5,8 +5,8 @@
 [Leviticus 19:14](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.14?lang=eng#p14)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
-[^b]: TG [Compassion.](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
+[^a]: TG [[Curse]].
+[^b]: TG [[Compassion]].
 [^c]: [[Romans 14.13|Rom. 14:13.]]
 [^d]: [[Deuteronomy 27.18|Deut. 27:18.]]
 [^e]: HEB Jehovah. Note that this phrase occurs fifteen times like a seal of authority upon each of these statutes.

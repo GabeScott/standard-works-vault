@@ -5,5 +5,5 @@
 [Zechariah 12:1](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/12.1?lang=eng#p1)
 
 
-[^a]: TG [Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng)
-[^b]: TG [Man, Antemortal Existence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-antemortal-existence-of?lang=eng)
+[^a]: TG [[Creation, Create]].
+[^b]: TG [[Man, Antemortal Existence of]].

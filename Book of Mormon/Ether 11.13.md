@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 44.16|Jer. 44:16]]; [[Mosiah 16.2|Mosiah 16:2.]]
-[^b]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^b]: TG [[Mourning, Mourn]].

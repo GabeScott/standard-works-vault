@@ -6,4 +6,4 @@
 
 
 [^a]: [[Job 1.21|Job 1:21]]; [[D&C 36.3|D&C 36:3.]]
-[^b]: [[Alma 13.15|Alma 13:15]]. TG [Tithing](https://www.churchofjesuschrist.org/study/scriptures/tg/tithing?lang=eng).
+[^b]: [[Alma 13.15|Alma 13:15]]. TG [[Tithing]].

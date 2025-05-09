@@ -5,4 +5,4 @@
 [Philippians 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.11?lang=eng#p11)
 
 
-[^a]: TG [Contentment.](https://www.churchofjesuschrist.org/study/scriptures/tg/contentment?lang=eng)
+[^a]: TG [[Contentment]].

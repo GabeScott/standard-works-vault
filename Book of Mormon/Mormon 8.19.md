@@ -5,5 +5,5 @@
 [Mormon 8:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p19#p19)
 
 
-[^a]: [[3 Nephi 14.2|3 Ne. 14:2]]; [[Moroni 7.14|Moro. 7:14]]. TG [Gossip](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng).
-[^b]: TG [Rashness.](https://www.churchofjesuschrist.org/study/scriptures/tg/rashness?lang=eng)
+[^a]: [[3 Nephi 14.2|3 Ne. 14:2]]; [[Moroni 7.14|Moro. 7:14]]. TG [[Gossip]].
+[^b]: TG [[Rashness]].

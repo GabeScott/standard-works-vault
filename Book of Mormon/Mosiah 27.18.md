@@ -5,5 +5,5 @@
 [Mosiah 27:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p18#p18)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].
 [^b]: [[Isaiah 6.4|Isa. 6:4]]; [[Alma 36.7|Alma 36:7.]]

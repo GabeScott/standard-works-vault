@@ -5,5 +5,5 @@
 [Daniel 2:1](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.1?lang=eng#p1)
 
 
-[^a]: TG [Dream.](https://www.churchofjesuschrist.org/study/scriptures/tg/dream?lang=eng)
+[^a]: TG [[Dream]].
 [^b]: [[Genesis 41.8|Gen. 41:8 (1-8).]]

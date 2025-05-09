@@ -5,4 +5,4 @@
 [Helaman 1:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/1?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^a]: TG [[Capital Punishment]].

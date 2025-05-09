@@ -5,4 +5,4 @@
 [2 Samuel 22:50](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/22.50?lang=eng#p50)
 
 
-[^a]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^a]: TG [[Thanksgiving]].

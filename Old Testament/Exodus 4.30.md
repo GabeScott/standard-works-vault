@@ -5,4 +5,4 @@
 [Exodus 4:30](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.30?lang=eng#p30)
 
 
-[^a]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
+[^a]: TG [[Prophets, Mission of]].

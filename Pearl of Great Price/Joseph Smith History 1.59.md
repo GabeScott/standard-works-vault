@@ -6,6 +6,6 @@
 
 
 [^a]: [[Isaiah 29.12|Isa. 29:12.]]
-[^b]: TG [Dependability](https://www.churchofjesuschrist.org/study/scriptures/tg/dependability?lang=eng); [Trustworthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/trustworthiness?lang=eng)
+[^b]: TG [[Dependability]]; [[Trustworthiness]].
 [^c]: JS—H 1:42.
-[^d]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^d]: TG [[Scriptures, Preservation of]].

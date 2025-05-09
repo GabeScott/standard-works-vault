@@ -5,4 +5,4 @@
 [Nahum 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/nahum/1.3?lang=eng#p3)
 
 
-[^a]: TG [Forbear.](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng)
+[^a]: TG [[Forbear, Forbearance]].

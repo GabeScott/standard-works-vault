@@ -5,5 +5,5 @@
 [Jonah 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/1.3?lang=eng#p3)
 
 
-[^a]: TG [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
+[^a]: TG [[Procrastination, Procrastinate]].
 [^b]: [[Psalms 139.7|Ps. 139:7 (1-16)]]; [[Moses 4.14|Moses 4:14.]]

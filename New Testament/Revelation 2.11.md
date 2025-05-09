@@ -5,4 +5,4 @@
 [Revelation 2:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/2.11?lang=eng#p11)
 
 
-[^a]: TG [Death, Spiritual, Second.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng)
+[^a]: TG [[Death, Spiritual, Second]].

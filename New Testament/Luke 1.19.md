@@ -5,5 +5,5 @@
 [Luke 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.19?lang=eng#p19)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].
 [^b]: Dan. 8:16; [[D&C 27.7|D&C 27:7]]; [[D&C 128.21|128:21.]]

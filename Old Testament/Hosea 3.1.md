@@ -5,5 +5,5 @@
 [Hosea 3:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/3.1?lang=eng#p1)
 
 
-[^a]: [[Hosea 1.2|Hosea 1:2]]. TG [Adulterer](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng).
+[^a]: [[Hosea 1.2|Hosea 1:2]]. TG [[Adulterer, Adultery]].
 [^b]: HEB raisin-cakes (used in fertility rites).

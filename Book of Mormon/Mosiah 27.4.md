@@ -5,7 +5,7 @@
 [Mosiah 27:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Peace.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
-[^b]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
-[^c]: TG [Neighbor.](https://www.churchofjesuschrist.org/study/scriptures/tg/neighbor?lang=eng)
-[^d]: TG [Industry](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng); [Labor.](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
+[^a]: TG [[Peace of God]].
+[^b]: TG [[Love]].
+[^c]: TG [[Neighbor]].
+[^d]: TG [[Industry, Industrious]]; [[Labor]].

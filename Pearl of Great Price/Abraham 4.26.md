@@ -5,6 +5,6 @@
 [Abraham 4:26](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.26?lang=eng#p26)
 
 
-[^a]: TG [Counsel.](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng)
-[^b]: TG [Man, Physical Creation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)
+[^a]: TG [[Counsel]].
+[^b]: TG [[Man, Physical Creation of]].
 [^c]: [[Moses 6.9|Moses 6:9 (8-10).]]

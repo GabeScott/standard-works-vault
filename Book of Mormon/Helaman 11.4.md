@@ -6,4 +6,4 @@
 
 
 [^a]: [[Helaman 11.14|Hel. 11:14.]]
-[^b]: [[1 Kings 8.35|1 Kgs. 8:35]]; [[1 Chronicles 21.12|1 Chr. 21:12]]; [[Helaman 10.6|Hel. 10:6]]. TG [Famine](https://www.churchofjesuschrist.org/study/scriptures/tg/famine?lang=eng).
+[^b]: [[1 Kings 8.35|1 Kgs. 8:35]]; [[1 Chronicles 21.12|1 Chr. 21:12]]; [[Helaman 10.6|Hel. 10:6]]. TG [[Famine]].

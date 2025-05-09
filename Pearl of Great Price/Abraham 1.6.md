@@ -5,6 +5,6 @@
 [Abraham 1:6](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.6?lang=eng#p6)
 
 
-[^a]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^a]: TG [[Hardheartedness, Harden, Hardness]].
 [^b]: [[Alma 40.13|Alma 40:13.]]
 [^c]: IE the “gods,” as illustrated in Abr., fac. 1.

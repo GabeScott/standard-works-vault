@@ -5,7 +5,7 @@
 [Alma 36:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
+[^a]: TG [[Man, New, Spiritually Reborn]].
 [^b]: [[Alma 26.21|Alma 26:21 (21-22).]]
 [^c]: [[Mosiah 27.11|Mosiah 27:11 (11-18).]]
-[^d]: TG [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
+[^d]: TG [[Worthiness, Worthy]].

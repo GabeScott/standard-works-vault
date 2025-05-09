@@ -5,7 +5,7 @@
 [Mark 6:25](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.25?lang=eng#p25)
 
 
-[^a]: TG [Haste.](https://www.churchofjesuschrist.org/study/scriptures/tg/haste?lang=eng)
+[^a]: TG [[Haste, Hasten, Hasty]].
 [^b]: GR at once.
 [^c]: OR platter.
-[^d]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^d]: TG [[Martyrdom]].

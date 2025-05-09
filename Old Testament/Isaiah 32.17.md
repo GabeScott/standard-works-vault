@@ -5,5 +5,5 @@
 [Isaiah 32:17](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/32.17?lang=eng#p17)
 
 
-[^a]: TG [Conscience](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)makers; [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng) of God.
-[^b]: TG [Happiness](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng); [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Conscience]]; [[Peace of God]]; [[Peace of God]]makers; [[Peace of God]] of God.
+[^b]: TG [[Happiness, Happy]]; [[Joy]].

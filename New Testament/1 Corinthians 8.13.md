@@ -7,4 +7,4 @@
 
 [^a]: GR cause my brother to stumble, falter.
 [^b]: [[Romans 14.21|Rom. 14:21 (20-21).]]
-[^c]: TG [Abstain.](https://www.churchofjesuschrist.org/study/scriptures/tg/abstain?lang=eng)
+[^c]: TG [[Abstain, Abstinence]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 2.11|Acts 2:11.]]
-[^b]: TG [Signs.](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng)
-[^c]: TG [Prophecy.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
+[^b]: TG [[Signs]].
+[^c]: TG [[Prophecy]].

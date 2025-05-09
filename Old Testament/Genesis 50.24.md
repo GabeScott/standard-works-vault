@@ -6,6 +6,6 @@
 
 
 [^a]: JST Gen. 50:24-38 (Appendix).
-[^b]: TG [Israel, Bondage of, in Egypt.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-egypt?lang=eng)
-[^c]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^b]: TG [[Israel, Bondage of, in Egypt]].
+[^c]: TG [[Promised Lands]].
 [^d]: [[Deuteronomy 11.9|Deut. 11:9.]]

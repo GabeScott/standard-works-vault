@@ -5,5 +5,5 @@
 [Luke 19:17](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.17?lang=eng#p17)
 
 
-[^a]: TG [Stewardship.](https://www.churchofjesuschrist.org/study/scriptures/tg/stewardship?lang=eng)
-[^b]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
+[^a]: TG [[Stewardship, Steward]].
+[^b]: TG [[Authority]].

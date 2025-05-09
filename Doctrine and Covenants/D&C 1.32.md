@@ -5,6 +5,6 @@
 [D&C 1:32](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/1.32?lang=eng#p32)
 
 
-[^a]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Repent, Repentance]].
 [^b]: [[Proverbs 19.16|Prov. 19:16.]]
-[^c]: [[Psalms 65.3|Ps. 65:3]]; [[D&C 58.42|D&C 58:42 (42-43)]]. TG [Forgive](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng).
+[^c]: [[Psalms 65.3|Ps. 65:3]]; [[D&C 58.42|D&C 58:42 (42-43)]]. TG [[Forgive, Forgiveness]].

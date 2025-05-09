@@ -6,4 +6,4 @@
 
 
 [^a]: OR knew.
-[^b]: [[John 4.34|John 4:34]]; [[John 6.39|6:39 (38-39)]]. TG [God the Father, Elohim](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-father-elohim?lang=eng).
+[^b]: [[John 4.34|John 4:34]]; [[John 6.39|6:39 (38-39)]]. TG [[God the Father, Elohim]].

@@ -5,6 +5,6 @@
 [Jeremiah 4:22](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/4.22?lang=eng#p22)
 
 
-[^a]: TG [Foolishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/foolishness?lang=eng)
+[^a]: TG [[Foolishness]].
 [^b]: [[Mosiah 5.13|Mosiah 5:13.]]
 [^c]: [[Helaman 12.4|Hel. 12:4 (1-7).]]

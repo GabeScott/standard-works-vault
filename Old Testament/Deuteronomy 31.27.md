@@ -5,5 +5,5 @@
 [Deuteronomy 31:27](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.27?lang=eng#p27)
 
 
-[^a]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
-[^b]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^a]: TG [[Rebellion, Rebel]].
+[^b]: TG [[Stiffnecked, Stiffneckedness]].

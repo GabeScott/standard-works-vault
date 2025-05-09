@@ -5,5 +5,5 @@
 [1 Nephi 4:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/4?lang=eng&id=p33#p33)
 
 
-[^a]: [[2 Samuel 21.7|2 Sam. 21:7]]. TG [Oath](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng).
-[^b]: TG [Free.](https://www.churchofjesuschrist.org/study/scriptures/tg/free?lang=eng)
+[^a]: [[2 Samuel 21.7|2 Sam. 21:7]]. TG [[Oath]].
+[^b]: TG [[Freely]].

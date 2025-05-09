@@ -6,5 +6,5 @@
 
 
 [^a]: OR justice.
-[^b]: TG [Walking in Darkness.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-in-darkness?lang=eng)
+[^b]: TG [[Walking in Darkness]].
 [^c]: OR humble.

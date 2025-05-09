@@ -7,5 +7,5 @@
 
 [^a]: [[Genesis 18.32|Gen. 18:32 (25-33).]]
 [^b]: [[Moses 1.10|Moses 1:10.]]
-[^c]: TG [Fall of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng)
+[^c]: TG [[Fall of Man]].
 [^d]: [[Mosiah 3.19|Mosiah 3:19.]]

@@ -5,4 +5,4 @@
 [Alma 40:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Jesus Christ, Ascension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-ascension-of?lang=eng)
+[^a]: TG [[Jesus Christ, Ascension of]].

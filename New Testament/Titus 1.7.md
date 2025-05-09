@@ -5,7 +5,7 @@
 [Titus 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/1.7?lang=eng#p7)
 
 
-[^a]: TG [Bishop](https://www.churchofjesuschrist.org/study/scriptures/tg/bishop?lang=eng); [Leadership.](https://www.churchofjesuschrist.org/study/scriptures/tg/leadership?lang=eng)
-[^b]: TG [Delegation of Responsibility](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng); [Stewardship.](https://www.churchofjesuschrist.org/study/scriptures/tg/stewardship?lang=eng)
+[^a]: TG [[Bishop]]; [[Leadership]].
+[^b]: TG [[Delegation of Responsibility]]; [[Stewardship, Steward]].
 [^c]: GR obstinate, arrogant.
-[^d]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^d]: TG [[Anger]].

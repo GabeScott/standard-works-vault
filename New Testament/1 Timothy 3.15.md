@@ -6,6 +6,6 @@
 
 
 [^a]: JST 1 Tim. 3:15-16 (Appendix). Note the change, emphasizing that the “pillar and ground of the truth” is Jesus Christ.
-[^b]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^b]: TG [[Apostasy of the Early Christian Church]].
 [^c]: GR foundation.
-[^d]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^d]: TG [[Truth]].

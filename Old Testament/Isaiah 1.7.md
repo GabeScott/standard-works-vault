@@ -7,4 +7,4 @@
 
 [^a]: [[Deuteronomy 28.51|Deut. 28:51 (51-52).]]
 [^b]: [[Jeremiah 9.11|Jer. 9:11]]; [[Micah 3.12|Micah 3:12]]; [[2 Nephi 13.8|2 Ne. 13:8.]]
-[^c]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^c]: TG [[Israel, Scattering of]].

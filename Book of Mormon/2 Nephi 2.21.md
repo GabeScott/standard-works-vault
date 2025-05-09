@@ -6,7 +6,7 @@
 
 
 [^a]: [[Job 14.1|Job 14:1]]; [[Alma 12.24|Alma 12:24]]; [[Moses 4.23|Moses 4:23 (22-25).]]
-[^b]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
-[^c]: [[Alma 34.32|Alma 34:32]]. TG [Repent](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng).
-[^d]: TG [Mortality](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng); [Probation.](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng)
+[^b]: TG [[God, Will of]].
+[^c]: [[Alma 34.32|Alma 34:32]]. TG [[Repent, Repentance]].
+[^d]: TG [[Mortality]]; [[Probation, Probationary]].
 [^e]: [[Jacob 7.12|Jacob 7:12.]]

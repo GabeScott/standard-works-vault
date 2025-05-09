@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Thes. 1:10; [[1 Peter 2.8|1 Pet. 2:8 (6-8).]]
-[^b]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^b]: TG [[Salvation for the Dead]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Amos 1.1|Amos 1:1.]]
-[^b]: 1 Thes. 4:14; JST 1 Thes. 4:17 (1 Thes. 4:17 note a). TG [Saints](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng).
+[^b]: 1 Thes. 4:14; JST 1 Thes. 4:17 (1 Thes. 4:17 note a). TG [[Mission of Latter-day Saints]].

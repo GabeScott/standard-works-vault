@@ -5,4 +5,4 @@
 [Colossians 2:5](https://www.churchofjesuschrist.org/study/scriptures/nt/col/2.5?lang=eng#p5)
 
 
-[^a]: TG [Order.](https://www.churchofjesuschrist.org/study/scriptures/tg/order?lang=eng)
+[^a]: TG [[Order]].

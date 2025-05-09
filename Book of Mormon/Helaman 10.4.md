@@ -6,6 +6,6 @@
 
 
 [^a]: [[Acts 23.11|Acts 23:11.]]
-[^b]: [[Acts 20.31|Acts 20:31]]. TG [Dedication](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng); [Dependability](https://www.churchofjesuschrist.org/study/scriptures/tg/dependability?lang=eng); [Priesthood, Magnifying Callings within](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng); [Steadfastness](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng).
-[^c]: TG [Self-Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng)
+[^b]: [[Acts 20.31|Acts 20:31]]. TG [[Dedication, Dedicate]]; [[Dependability]]; [[Priesthood, Magnifying Callings within]]; [[Steadfastness, Steadfast]].
+[^c]: TG [[Self-Sacrifice]].
 [^d]: [[Mosiah 24.15|Mosiah 24:15]]; [[3 Nephi 11.11|3 Ne. 11:11.]]

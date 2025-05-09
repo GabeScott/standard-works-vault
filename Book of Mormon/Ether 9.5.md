@@ -6,4 +6,4 @@
 
 
 [^a]: [[Esther 2.21|Esth. 2:21.]]
-[^b]: TG [Oath.](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng)
+[^b]: TG [[Oath]].

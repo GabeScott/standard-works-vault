@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Corinthians 7.31|1 Cor. 7:31 (29-31).]]
-[^b]: TG [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
-[^c]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
+[^b]: TG [[World, End of]].
+[^c]: TG [[God, Will of]].
 [^d]: [[Psalms 125.1|Ps. 125:1]]; [[3 Nephi 14.21|3 Ne. 14:21.]]

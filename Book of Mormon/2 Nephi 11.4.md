@@ -8,4 +8,4 @@
 [^a]: [[2 Nephi 31.2|2 Ne. 31:2.]]
 [^b]: [[Jacob 4.5|Jacob 4:5]]; [[Jarom 1.11|Jarom 1:11]]; [[Alma 25.16|Alma 25:16 (15-16)]]; [[Ether 12.19|Ether 12:19 (18-19).]]
 [^c]: [[2 Nephi 5.10|2 Ne. 5:10.]]
-[^d]: TG [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng); [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
+[^d]: TG [[Jesus Christ, Types of, in Anticipation]]; [[Law of Moses]].

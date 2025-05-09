@@ -7,7 +7,7 @@
 
 [^a]: IE the latter days. JS—H 1:40.
 [^b]: [[Revelation 5.5|Rev. 5:5]]; [[D&C 113.6|D&C 113:6 (5-6).]]
-[^c]: TG [Ensign.](https://www.churchofjesuschrist.org/study/scriptures/tg/ensign?lang=eng)
+[^c]: TG [[Ensign]].
 [^d]: OR unto him.
-[^e]: TG [Gentiles](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng); [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
-[^f]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^e]: TG [[Gentiles]]; [[Israel, Mission of]].
+[^f]: TG [[Restoration of the Gospel]].

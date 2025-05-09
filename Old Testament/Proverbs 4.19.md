@@ -5,4 +5,4 @@
 [Proverbs 4:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/4.19?lang=eng#p19)
 
 
-[^a]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
+[^a]: TG [[Darkness, Spiritual]].

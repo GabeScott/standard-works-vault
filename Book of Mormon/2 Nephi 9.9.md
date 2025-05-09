@@ -9,9 +9,9 @@
 [^b]: [[Jacob 3.11|Jacob 3:11]]; Alma 5:25, 39; [[Moroni 9.13|Moro. 9:13.]]
 [^c]: [[2 Corinthians 11.14|2 Cor. 11:14 (13-15).]]
 [^d]: [[Revelation 12.9|Rev. 12:9 (7-9).]]
-[^e]: TG [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^e]: TG [[Lying, Liar, Lie]].
 [^f]: [[Genesis 3.13|Gen. 3:13 (1-13)]]; [[Mosiah 16.3|Mosiah 16:3]]; [[Ether 8.25|Ether 8:25]]; [[Moses 4.19|Moses 4:19 (5-19).]]
 [^g]: [[Revelation 16.14|Rev. 16:14 (13-14)]]; [[Alma 30.53|Alma 30:53.]]
 [^h]: [[D&C 129.8|D&C 129:8.]]
-[^i]: TG [Motivations.](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng)
-[^j]: TG [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
+[^i]: TG [[Motivations]].
+[^j]: TG [[Secret Combinations]].

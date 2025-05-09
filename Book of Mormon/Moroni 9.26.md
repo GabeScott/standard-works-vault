@@ -5,4 +5,4 @@
 [Moroni 9:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/9?lang=eng&id=p26#p26)
 
 
-[^a]: TG [Jesus Christ, Relationships with the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
+[^a]: TG [[Jesus Christ, Relationships with the Father]].

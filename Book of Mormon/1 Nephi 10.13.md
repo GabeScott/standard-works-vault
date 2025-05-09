@@ -5,4 +5,4 @@
 [1 Nephi 10:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/10?lang=eng&id=p13#p13)
 
 
-[^a]: [[1 Nephi 2.20|1 Ne. 2:20]]. TG [Promised Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng).
+[^a]: [[1 Nephi 2.20|1 Ne. 2:20]]. TG [[Promised Lands]].

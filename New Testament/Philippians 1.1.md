@@ -5,6 +5,6 @@
 [Philippians 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/1.1?lang=eng#p1)
 
 
-[^a]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
-[^b]: TG [Bishop](https://www.churchofjesuschrist.org/study/scriptures/tg/bishop?lang=eng); [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
-[^c]: TG [Deacon.](https://www.churchofjesuschrist.org/study/scriptures/tg/deacon?lang=eng)
+[^a]: TG [[Servant]].
+[^b]: TG [[Bishop]]; [[Church Organization]].
+[^c]: TG [[Deacon]].

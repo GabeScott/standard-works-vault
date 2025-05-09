@@ -5,5 +5,5 @@
 [3 Nephi 13:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/13?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
-[^b]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^a]: TG [[Sincere, Sincerity]].
+[^b]: TG [[Heathen]].

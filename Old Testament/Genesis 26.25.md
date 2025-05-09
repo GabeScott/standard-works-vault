@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 12.7|Gen. 12:7]]; [[Genesis 13.18|13:18]]; [[1 Nephi 2.7|1 Ne. 2:7.]]
-[^b]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^b]: TG [[Name of the Lord]].

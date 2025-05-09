@@ -5,5 +5,5 @@
 [Acts 13:37](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.37?lang=eng#p37)
 
 
-[^a]: TG [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
+[^a]: TG [[Jesus Christ, Resurrection]].
 [^b]: [[Acts 2.27|Acts 2:27 (27, 31).]]

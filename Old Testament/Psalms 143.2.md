@@ -5,4 +5,4 @@
 [Psalms 143:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/143.2?lang=eng#p2)
 
 
-[^a]: TG [Justification.](https://www.churchofjesuschrist.org/study/scriptures/tg/justification?lang=eng)
+[^a]: TG [[Justification, Justify]].

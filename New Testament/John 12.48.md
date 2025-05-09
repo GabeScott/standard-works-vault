@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 39.9|D&C 39:9.]]
-[^b]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
-[^c]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
-[^d]: TG [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^b]: TG [[Judgment]].
+[^c]: TG [[Gospel]].
+[^d]: TG [[Judgment, the Last]].

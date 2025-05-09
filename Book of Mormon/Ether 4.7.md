@@ -6,7 +6,7 @@
 
 
 [^a]: [[D&C 5.28|D&C 5:28.]]
-[^b]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^b]: TG [[Sanctification, Sanctify]].
 [^c]: [[2 Nephi 30.16|2 Ne. 30:16]]; [[Alma 12.9|Alma 12:9]]; [[3 Nephi 26.10|3 Ne. 26:10 (6-11).]]
 [^d]: [[2 Nephi 27.22|2 Ne. 27:22.]]
 [^e]: [[Mosiah 3.8|Mosiah 3:8.]]

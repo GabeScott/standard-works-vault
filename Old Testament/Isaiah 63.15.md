@@ -6,5 +6,5 @@
 
 
 [^a]: [[Deuteronomy 26.15|Deut. 26:15]]; [[Psalms 33.14|Ps. 33:14.]]
-[^b]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
+[^b]: TG [[Holiness]].
 [^c]: IE the abundance of Thy tenderness.

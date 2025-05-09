@@ -5,4 +5,4 @@
 [Mark 1:27](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.27?lang=eng#p27)
 
 
-[^a]: TG [Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng); Jesus Christ, [Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng) of.
+[^a]: TG [[Authority]]; Jesus Christ, [[Authority]] of.

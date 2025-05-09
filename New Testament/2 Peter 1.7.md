@@ -5,6 +5,6 @@
 [2 Peter 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.7?lang=eng#p7)
 
 
-[^a]: TG [Brotherhood and Sisterhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
-[^b]: TG [Benevolence](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng); [Kindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
-[^c]: TG [Charity.](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng)
+[^a]: TG [[Brotherhood and Sisterhood]].
+[^b]: TG [[Benevolence]]; [[Kindness]].
+[^c]: TG [[Charity]].

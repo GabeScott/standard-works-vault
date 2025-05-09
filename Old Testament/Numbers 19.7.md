@@ -5,4 +5,4 @@
 [Numbers 19:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/19.7?lang=eng#p7)
 
 
-[^a]: TG [Wash.](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
+[^a]: TG [[Wash, Washing]].

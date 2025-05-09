@@ -6,4 +6,4 @@
 
 
 [^a]: IE The fallen king of Babylon is typified by the fallen “son of the morning,” Lucifer in vv. 12-15. D&C 76:26.
-[^b]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^b]: TG [[Devil, Church of]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 50.10|D&C 50:10.]]
-[^b]: TG [Forgive](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng); [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
-[^c]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^b]: TG [[Forgive, Forgiveness]]; [[Sin]].
+[^c]: TG [[Purification, Purify, Purifying]].

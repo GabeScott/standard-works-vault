@@ -5,5 +5,5 @@
 [Alma 44:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/44?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
+[^a]: TG [[Unbelief, Unbelievers]].
 [^b]: [[Alma 43.38|Alma 43:38]]; [[Alma 46.13|46:13.]]

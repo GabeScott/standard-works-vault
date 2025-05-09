@@ -7,4 +7,4 @@
 
 [^a]: [[Deuteronomy 18.18|Deut. 18:18.]]
 [^b]: [[3 Nephi 15.18|3 Ne. 15:18.]]
-[^c]: TG [Jesus Christ, Teaching Mode of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-teaching-mode-of?lang=eng)
+[^c]: TG [[Jesus Christ, Teaching Mode of]].

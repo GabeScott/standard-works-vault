@@ -6,6 +6,6 @@
 
 
 [^a]: GR at.
-[^b]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
-[^c]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
-[^d]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^b]: TG [[Jesus Christ, Messiah]].
+[^c]: TG [[Jesus Christ, Atonement through]].
+[^d]: TG [[Forgive, Forgiveness]].

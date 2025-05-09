@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 24.10|Alma 24:10]]; [[D&C 64.7|D&C 64:7 (6-7)]]; [[D&C 84.61|84:61 (60-61).]]
-[^b]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^b]: TG [[Rebellion, Rebel]].

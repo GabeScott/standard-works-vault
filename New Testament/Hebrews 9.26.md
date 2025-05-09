@@ -7,4 +7,4 @@
 
 [^a]: JST Heb. 9:26 … in the meridian of time hath he …
 [^b]: GR consummation of the ages.
-[^c]: TG [Self-Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng)
+[^c]: TG [[Self-Sacrifice]].

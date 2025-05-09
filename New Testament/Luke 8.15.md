@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 11.10|D&C 11:10.]]
-[^b]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^b]: TG [[Heart]].
 [^c]: [[Alma 12.30|Alma 12:30 (29-30).]]

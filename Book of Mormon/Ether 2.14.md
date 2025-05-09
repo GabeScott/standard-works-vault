@@ -6,5 +6,5 @@
 
 
 [^a]: [[Exodus 25.22|Ex. 25:22.]]
-[^b]: [[1 Nephi 16.25|1 Ne. 16:25]]. TG [Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng); [Reproof](https://www.churchofjesuschrist.org/study/scriptures/tg/reproof?lang=eng).
-[^c]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^b]: [[1 Nephi 16.25|1 Ne. 16:25]]. TG [[Chastening]]; [[Reproof, Reprove]].
+[^c]: TG [[Prayer, Pray]].

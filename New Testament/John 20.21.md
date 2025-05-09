@@ -5,6 +5,6 @@
 [John 20:21](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.21?lang=eng#p21)
 
 
-[^a]: TG [Jesus Christ, Divine Sonship.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
-[^b]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
-[^c]: [[Mark 16.15|Mark 16:15 (14-18)]]. TG [Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng).
+[^a]: TG [[Jesus Christ, Divine Sonship]].
+[^b]: TG [[Jesus Christ, Authority of]].
+[^c]: [[Mark 16.15|Mark 16:15 (14-18)]]. TG [[Authority]].

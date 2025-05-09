@@ -6,10 +6,10 @@
 
 
 [^a]: [[Galatians 5.1|Gal. 5:1]]; [[Helaman 14.30|Hel. 14:30 (29-30)]]; [[Moses 6.56|Moses 6:56.]]
-[^b]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
+[^b]: TG [[Mortality]].
 [^c]: [[2 Nephi 26.24|2 Ne. 26:24]]; [[Jacob 5.41|Jacob 5:41]]; [[Alma 26.37|Alma 26:37.]]
-[^d]: [[Alma 29.8|Alma 29:8]]. TG [Talents](https://www.churchofjesuschrist.org/study/scriptures/tg/talents?lang=eng).
-[^e]: TG [Initiative](https://www.churchofjesuschrist.org/study/scriptures/tg/initiative?lang=eng); [Opposition.](https://www.churchofjesuschrist.org/study/scriptures/tg/opposition?lang=eng)
-[^f]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^d]: [[Alma 29.8|Alma 29:8]]. TG [[Talents]].
+[^e]: TG [[Initiative]]; [[Opposition]].
+[^f]: TG [[Liberty]].
 [^g]: [[Deuteronomy 30.15|Deut. 30:15.]]
 [^h]: [[D&C 10.22|D&C 10:22.]]

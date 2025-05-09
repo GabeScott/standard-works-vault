@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mark 13.13|Mark 13:13]]; [[Alma 38.2|Alma 38:2]]; [[D&C 20.29|D&C 20:29]]; [[D&C 53.7|53:7.]]
-[^b]: TG [Example](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng); [Jesus Christ, Exemplar.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-exemplar?lang=eng)
+[^b]: TG [[Example, Ensample]]; [[Jesus Christ, Exemplar]].

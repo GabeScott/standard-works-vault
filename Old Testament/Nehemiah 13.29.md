@@ -5,5 +5,5 @@
 [Nehemiah 13:29](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/13.29?lang=eng#p29)
 
 
-[^a]: TG [Priesthood, Aaronic.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-aaronic?lang=eng)
-[^b]: Mal. 2:8 (4-8). TG [Priesthood, Oath and Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-oath-and-covenant?lang=eng).
+[^a]: TG [[Priesthood, Aaronic]].
+[^b]: Mal. 2:8 (4-8). TG [[Priesthood, Oath and Covenant]].

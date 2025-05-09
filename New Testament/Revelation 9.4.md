@@ -6,4 +6,4 @@
 
 
 [^a]: [[Revelation 7.3|Rev. 7:3.]]
-[^b]: TG [Seal.](https://www.churchofjesuschrist.org/study/scriptures/tg/seal?lang=eng)
+[^b]: TG [[Seal]].

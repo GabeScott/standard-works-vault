@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 13.14|Ex. 13:14.]]
-[^b]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^b]: TG [[Testimony]].

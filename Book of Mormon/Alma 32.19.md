@@ -6,7 +6,7 @@
 
 
 [^a]: [[D&C 41.1|D&C 41:1.]]
-[^b]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^b]: TG [[Curse]].
 [^c]: [[John 15.24|John 15:24 (22-24).]]
-[^d]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
-[^e]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^d]: TG [[God, Will of]].
+[^e]: TG [[Transgressor]].

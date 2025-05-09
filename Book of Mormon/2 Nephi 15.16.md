@@ -5,4 +5,4 @@
 [2 Nephi 15:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/15?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].

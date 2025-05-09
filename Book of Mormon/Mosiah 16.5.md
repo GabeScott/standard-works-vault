@@ -5,7 +5,7 @@
 [Mosiah 16:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/16?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Carnal Mind](https://www.churchofjesuschrist.org/study/scriptures/tg/carnal-mind?lang=eng); [Man, Natural, Not Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-natural-not-spiritually-reborn?lang=eng)
-[^b]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^a]: TG [[Carnal Mind]]; [[Man, Natural, Not Spiritually Reborn]].
+[^b]: TG [[Bondage, Spiritual]].
 [^c]: [[1 Nephi 10.6|1 Ne. 10:6]]; [[2 Nephi 2.6|2 Ne. 2:6 (5-8)]]; [[2 Nephi 25.20|25:20]]; [[Alma 12.22|Alma 12:22 (22-25).]]
-[^d]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^d]: TG [[Devil, Church of]].

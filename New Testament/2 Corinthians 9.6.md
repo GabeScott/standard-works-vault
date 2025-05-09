@@ -5,5 +5,5 @@
 [2 Corinthians 9:6](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/9.6?lang=eng#p6)
 
 
-[^a]: TG [Harvest.](https://www.churchofjesuschrist.org/study/scriptures/tg/harvest?lang=eng)
-[^b]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
+[^a]: TG [[Harvest]].
+[^b]: TG [[Accountability]].

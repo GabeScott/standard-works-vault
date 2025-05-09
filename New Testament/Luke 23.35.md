@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 22.7|Ps. 22:7.]]
-[^b]: TG [Jesus Christ, Relationships with the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
+[^b]: TG [[Jesus Christ, Relationships with the Father]].

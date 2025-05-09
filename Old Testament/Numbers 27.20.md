@@ -6,4 +6,4 @@
 
 
 [^a]: OR invest him with some of your authority.
-[^b]: TG [Delegation of Responsibility.](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng)
+[^b]: TG [[Delegation of Responsibility]].

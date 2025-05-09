@@ -7,5 +7,5 @@
 
 [^a]: [[1 Corinthians 11.29|1 Cor. 11:29.]]
 [^b]: [[Matthew 18.3|Matt. 18:3.]]
-[^c]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^c]: TG [[Salvation for the Dead]].
 [^d]: [[Mosiah 4.2|Mosiah 4:2]]; [[Helaman 5.9|Hel. 5:9.]]

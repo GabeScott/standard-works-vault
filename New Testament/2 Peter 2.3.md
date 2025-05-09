@@ -7,4 +7,4 @@
 
 [^a]: [[Romans 16.18|Rom. 16:18.]]
 [^b]: [[Deuteronomy 32.35|Deut. 32:35.]]
-[^c]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^c]: TG [[Damnation, Damned]].

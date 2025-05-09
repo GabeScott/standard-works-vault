@@ -5,4 +5,4 @@
 [Proverbs 31:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/31.22?lang=eng#p22)
 
 
-[^a]: TG [Apparel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng)
+[^a]: TG [[Apparel]].

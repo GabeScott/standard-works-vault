@@ -6,4 +6,4 @@
 
 
 [^a]: [[Numbers 18.19|Num. 18:19]]; [[3 Nephi 12.13|3 Ne. 12:13.]]
-[^b]: TG [Salt.](https://www.churchofjesuschrist.org/study/scriptures/tg/salt?lang=eng)
+[^b]: TG [[Salt]].

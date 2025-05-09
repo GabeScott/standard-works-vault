@@ -5,6 +5,6 @@
 [3 Nephi 6:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p18#p18)
 
 
-[^a]: [[Numbers 15.27|Num. 15:27 (2-29)]]; [[Mosiah 3.11|Mosiah 3:11]]. TG [Ignorance](https://www.churchofjesuschrist.org/study/scriptures/tg/ignorance?lang=eng).
-[^b]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
-[^c]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^a]: [[Numbers 15.27|Num. 15:27 (2-29)]]; [[Mosiah 3.11|Mosiah 3:11]]. TG [[Ignorance, Ignorant]].
+[^b]: TG [[God, Will of]].
+[^c]: TG [[Rebellion, Rebel]].

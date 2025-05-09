@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 7.3|JST Ex. 7:3 And Pharaoh will harden his heart, as I said unto thee]]; and thou shalt multiply my signs …
-[^b]: TG [Miracle.](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
+[^b]: TG [[Miracle]].

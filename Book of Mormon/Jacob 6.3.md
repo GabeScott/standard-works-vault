@@ -6,7 +6,7 @@
 
 
 [^a]: [[Jacob 5.71|Jacob 5:71.]]
-[^b]: TG [Diligence](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng); [Perseverance.](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng)
+[^b]: TG [[Diligence, Diligent, Diligently]]; [[Perseverance]].
 [^c]: [[D&C 41.1|D&C 41:1.]]
-[^d]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
-[^e]: [[Isaiah 24.6|Isa. 24:6]]; [[2 Nephi 27.2|2 Ne. 27:2]]; [[Jacob 5.77|Jacob 5:77]]; [[3 Nephi 25.1|3 Ne. 25:1]]. TG [World, End of](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng).
+[^d]: TG [[World, End of]].
+[^e]: [[Isaiah 24.6|Isa. 24:6]]; [[2 Nephi 27.2|2 Ne. 27:2]]; [[Jacob 5.77|Jacob 5:77]]; [[3 Nephi 25.1|3 Ne. 25:1]]. TG [[World, End of]].

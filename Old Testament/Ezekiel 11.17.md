@@ -5,6 +5,6 @@
 [Ezekiel 11:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.17?lang=eng#p17)
 
 
-[^a]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[Israel, Gathering of]].
 [^b]: HEB peoples or nations.
-[^c]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
+[^c]: TG [[Israel, Land of]].

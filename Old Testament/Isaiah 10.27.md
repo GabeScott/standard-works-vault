@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 9.4|Isa. 9:4 (3-4).]]
-[^b]: TG [Bondage, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng)
-[^c]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
+[^b]: TG [[Bondage, Physical]].
+[^c]: TG [[Jesus Christ, Messiah]].

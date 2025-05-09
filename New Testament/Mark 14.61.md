@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 53.7|Isa. 53:7 (7-8).]]
-[^b]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
+[^b]: TG [[Jesus Christ, Messiah]].

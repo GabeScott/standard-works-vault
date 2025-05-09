@@ -5,4 +5,4 @@
 [3 Nephi 17:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p18#p18)
 
 
-[^a]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Joy]].

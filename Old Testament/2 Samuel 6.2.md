@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Chronicles 13.13|1 Chr. 13:13 (6-14).]]
-[^b]: TG [Cherubim.](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
+[^b]: TG [[Cherubim]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 27.2|Alma 27:2 (2, 12).]]
 [^b]: [[Acts 17.4|Acts 17:4 (4, 12).]]
-[^c]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
+[^c]: TG [[Persecution, Persecute]].

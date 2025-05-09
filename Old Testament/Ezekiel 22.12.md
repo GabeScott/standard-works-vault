@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 27.25|Deut. 27:25]]; [[Isaiah 1.23|Isa. 1:23.]]
-[^b]: [[Isaiah 3.14|Isa. 3:14]]; [[Amos 3.10|Amos 3:10]]; [[Alma 4.12|Alma 4:12 (12-13)]]. TG [Usury](https://www.churchofjesuschrist.org/study/scriptures/tg/usury?lang=eng).
+[^b]: [[Isaiah 3.14|Isa. 3:14]]; [[Amos 3.10|Amos 3:10]]; [[Alma 4.12|Alma 4:12 (12-13)]]. TG [[Usury]].

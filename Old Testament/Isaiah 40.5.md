@@ -5,6 +5,6 @@
 [Isaiah 40:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.5?lang=eng#p5)
 
 
-[^a]: TG [Jesus Christ, Glory of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng)
-[^b]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
+[^a]: TG [[Jesus Christ, Glory of]].
+[^b]: TG [[Jesus Christ, Second Coming]].
 [^c]: [[D&C 101.23|D&C 101:23.]]

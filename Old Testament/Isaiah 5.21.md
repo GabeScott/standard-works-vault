@@ -5,6 +5,6 @@
 [Isaiah 5:21](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.21?lang=eng#p21)
 
 
-[^a]: TG [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
-[^b]: TG [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
-[^c]: TG [Prudence.](https://www.churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
+[^a]: TG [[Wisdom]].
+[^b]: TG [[Pride]].
+[^c]: TG [[Prudence, Prudent]].

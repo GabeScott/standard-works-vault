@@ -7,5 +7,5 @@
 
 [^a]: JST 2 Pet. 3:17 … seeing ye know before the things which are coming, beware lest …
 [^b]: [[2 Nephi 28.14|2 Ne. 28:14 (3-14).]]
-[^c]: TG [Apostasy of the Early Christian Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
-[^d]: TG [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
+[^c]: TG [[Apostasy of the Early Christian Church]].
+[^d]: TG [[Steadfastness, Steadfast]].

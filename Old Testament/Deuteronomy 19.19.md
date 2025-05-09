@@ -5,4 +5,4 @@
 [Deuteronomy 19:19](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/19.19?lang=eng#p19)
 
 
-[^a]: TG [Retribution.](https://www.churchofjesuschrist.org/study/scriptures/tg/retribution?lang=eng)
+[^a]: TG [[Retribution]].

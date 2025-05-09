@@ -7,4 +7,4 @@
 
 [^a]: [[2 Nephi 28.2|2 Ne. 28:2]]; [[3 Nephi 16.6|3 Ne. 16:6 (6-13).]]
 [^b]: [[1 Nephi 22.9|1 Ne. 22:9 (5-10)]]; [[3 Nephi 5.25|3 Ne. 5:25 (20-26).]]
-[^c]: [[2 Nephi 4.7|2 Ne. 4:7 (7-11)]]; [[Jacob 1.5|Jacob 1:5]]. TG [Israel, Remnant of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-remnant-of?lang=eng).
+[^c]: [[2 Nephi 4.7|2 Ne. 4:7 (7-11)]]; [[Jacob 1.5|Jacob 1:5]]. TG [[Israel, Remnant of]].

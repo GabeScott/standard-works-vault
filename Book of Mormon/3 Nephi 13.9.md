@@ -6,5 +6,5 @@
 
 
 [^a]: [[Matthew 6.9|Matt. 6:9 (9-13).]]
-[^b]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
-[^c]: TG [God the Father, Elohim.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-father-elohim?lang=eng)
+[^b]: TG [[Prayer, Pray]].
+[^c]: TG [[God the Father, Elohim]].

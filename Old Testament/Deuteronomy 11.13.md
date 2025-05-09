@@ -6,4 +6,4 @@
 
 
 [^a]: 2 Thes. 3:5.
-[^b]: TG [Service.](https://www.churchofjesuschrist.org/study/scriptures/tg/service?lang=eng)
+[^b]: TG [[Service]].

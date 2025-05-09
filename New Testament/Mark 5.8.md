@@ -5,5 +5,5 @@
 [Mark 5:8](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.8?lang=eng#p8)
 
 
-[^a]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
-[^b]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^a]: TG [[Spirits, Evil or Unclean]].
+[^b]: TG [[Health]].

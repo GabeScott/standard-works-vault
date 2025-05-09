@@ -5,4 +5,4 @@
 [Ether 12:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p34#p34)
 
 
-[^a]: [[Moroni 7.47|Moro. 7:47]]. TG [Love](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng).
+[^a]: [[Moroni 7.47|Moro. 7:47]]. TG [[Love]].

@@ -5,5 +5,5 @@
 [2 Nephi 8:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/8?lang=eng&id=p4#p4)
 
 
-[^a]: [[Isaiah 2.3|Isa. 2:3]]. TG [God, Law of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-law-of?lang=eng).
-[^b]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^a]: [[Isaiah 2.3|Isa. 2:3]]. TG [[God, Law of]].
+[^b]: TG [[Light]].

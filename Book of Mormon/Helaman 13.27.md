@@ -5,5 +5,5 @@
 [Helaman 13:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p27#p27)
 
 
-[^a]: TG [Walking in Darkness.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-in-darkness?lang=eng)
-[^b]: Lam. 2:14; 4:13; [[Micah 2.11|Micah 2:11]]. TG [False Prophets](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng).
+[^a]: TG [[Walking in Darkness]].
+[^b]: Lam. 2:14; 4:13; [[Micah 2.11|Micah 2:11]]. TG [[False Prophets]].

@@ -7,4 +7,4 @@
 
 [^a]: Col. 3:8.
 [^b]: [[Romans 6.6|Rom. 6:6 (1-7).]]
-[^c]: TG [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
+[^c]: TG [[Lust]].

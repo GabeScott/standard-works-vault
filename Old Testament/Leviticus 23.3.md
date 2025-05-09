@@ -6,6 +6,6 @@
 
 
 [^a]: [[Leviticus 19.30|Lev. 19:30.]]
-[^b]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
-[^c]: TG [Meetings.](https://www.churchofjesuschrist.org/study/scriptures/tg/meetings?lang=eng)
+[^b]: TG [[Sabbath]].
+[^c]: TG [[Meetings]].
 [^d]: [[D&C 59.9|D&C 59:9 (9-13).]]

@@ -5,4 +5,4 @@
 [Revelation 16:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.11?lang=eng#p11)
 
 
-[^a]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
+[^a]: TG [[Pain]].

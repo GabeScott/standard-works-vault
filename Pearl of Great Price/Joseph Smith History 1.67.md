@@ -5,4 +5,4 @@
 [Joseph Smith History 1:67](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.67?lang=eng#p67)
 
 
-[^a]: [[D&C 9.1|D&C 9:1]]. TG [Scriptures, Writing of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng).
+[^a]: [[D&C 9.1|D&C 9:1]]. TG [[Scriptures, Writing of]].

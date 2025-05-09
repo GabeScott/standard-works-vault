@@ -5,5 +5,5 @@
 [John 14:2](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.2?lang=eng#p2)
 
 
-[^a]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
-[^b]: [[D&C 59.2|D&C 59:2]]; [[D&C 98.18|98:18]]. TG [Eternal Life](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng); [Telestial Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/telestial-glory?lang=eng).
+[^a]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^b]: [[D&C 59.2|D&C 59:2]]; [[D&C 98.18|98:18]]. TG [[Eternal Life]]; [[Telestial Glory]].

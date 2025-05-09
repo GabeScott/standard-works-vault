@@ -5,5 +5,5 @@
 [Alma 1:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p13#p13)
 
 
-[^a]: [[Proverbs 28.17|Prov. 28:17]]. TG [Blood, Shedding of](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-shedding-of?lang=eng).
-[^b]: [[Luke 18.7|Luke 18:7]]; [[D&C 121.5|D&C 121:5]]. TG [Vengeance](https://www.churchofjesuschrist.org/study/scriptures/tg/vengeance?lang=eng).
+[^a]: [[Proverbs 28.17|Prov. 28:17]]. TG [[Blood, Shedding of]].
+[^b]: [[Luke 18.7|Luke 18:7]]; [[D&C 121.5|D&C 121:5]]. TG [[Vengeance]].

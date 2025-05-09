@@ -5,4 +5,4 @@
 [Proverbs 7:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/7.10?lang=eng#p10)
 
 
-[^a]: TG [Lust](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng); [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
+[^a]: TG [[Lust]]; [[Sexual Immorality]].

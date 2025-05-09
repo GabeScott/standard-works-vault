@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moses 3.4|Moses 3:4 (4-5)]]; [[Abraham 5.4|Abr. 5:4 (4-5).]]
-[^b]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
+[^b]: TG [[Jesus Christ, Jehovah]].

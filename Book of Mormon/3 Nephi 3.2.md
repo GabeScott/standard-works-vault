@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 2.12|3 Ne. 2:12.]]
-[^b]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^b]: TG [[Liberty]].

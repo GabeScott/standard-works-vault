@@ -5,6 +5,6 @@
 [James 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.6?lang=eng#p6)
 
 
-[^a]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
-[^c]: GR doubting, hesitating. TG [Doubt](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng).
+[^a]: TG [[Prayer, Pray]].
+[^b]: TG [[Faith]].
+[^c]: GR doubting, hesitating. TG [[Doubt, Doubtful]].

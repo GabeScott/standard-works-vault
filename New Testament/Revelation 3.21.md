@@ -7,4 +7,4 @@
 
 [^a]: 1 Jn. 5:4 (4-5).
 [^b]: [[D&C 6.30|D&C 6:30.]]
-[^c]: [[Matthew 25.21|Matt. 25:21]]. TG [Exaltation](https://www.churchofjesuschrist.org/study/scriptures/tg/exaltation?lang=eng); [Man, Potential to Become like Heavenly Father](https://www.churchofjesuschrist.org/study/scriptures/tg/man-potential-to-become-like-heavenly-father?lang=eng); [Salvation, Plan of](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng).
+[^c]: [[Matthew 25.21|Matt. 25:21]]. TG [[Exaltation]]; [[Man, Potential to Become like Heavenly Father]]; [[Salvation, Plan of]].

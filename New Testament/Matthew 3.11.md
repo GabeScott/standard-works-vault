@@ -7,8 +7,8 @@
 
 [^a]: JST Matt. 3:38-40 (Appendix).
 [^b]: [[Acts 19.3|Acts 19:3 (1-7)]]; [[2 Nephi 31.5|2 Ne. 31:5 (5-10).]]
-[^c]: TG [Baptism, Qualifications for.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng)
+[^c]: TG [[Baptism, Qualifications for]].
 [^d]: See JST John 1:27-34 (Appendix).
-[^e]: TG [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
-[^f]: TG [Holy Ghost, Baptism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-baptism-of?lang=eng)
+[^e]: TG [[Worthiness, Worthy]].
+[^f]: TG [[Holy Ghost, Baptism of]].
 [^g]: [[D&C 19.31|D&C 19:31.]]

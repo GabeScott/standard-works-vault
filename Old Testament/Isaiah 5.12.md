@@ -7,5 +7,5 @@
 
 [^a]: HEB lyre.
 [^b]: HEB drums.
-[^c]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^c]: TG [[Rebellion, Rebel]].
 [^d]: [[Psalms 28.5|Ps. 28:5 (4-5).]]

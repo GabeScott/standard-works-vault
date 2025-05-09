@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 122.7|D&C 122:7 (7-8).]]
-[^b]: TG [Forbear](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng); [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
-[^c]: [[Alma 12.24|Alma 12:24]]. TG [Patience](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng).
+[^b]: TG [[Forbear, Forbearance]]; [[Suffering]].
+[^c]: [[Alma 12.24|Alma 12:24]]. TG [[Patience, Patient, Patiently]].
 [^d]: GR pleasing, gracious.

@@ -8,5 +8,5 @@
 [^a]: [[2 Kings 13.23|2 Kgs. 13:23.]]
 [^b]: [[Genesis 22.16|Gen. 22:16 (15-19).]]
 [^c]: [[D&C 27.10|D&C 27:10]]; [[Abraham 1.2|Abr. 1:2.]]
-[^d]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
-[^e]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^d]: TG [[Seed of Abraham]].
+[^e]: TG [[Promised Lands]].

@@ -5,4 +5,4 @@
 [Luke 12:15](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.15?lang=eng#p15)
 
 
-[^a]: [[Psalms 62.10|Ps. 62:10]]; [[Psalms 119.36|119:36]]. TG [Covet](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng).
+[^a]: [[Psalms 62.10|Ps. 62:10]]; [[Psalms 119.36|119:36]]. TG [[Covet, Covetousness]].

@@ -6,4 +6,4 @@
 
 
 [^a]: JST Mark 9:34-35 Whosoever shall humble himself like one of these children, and receiveth me, ye shall receive in my name. And whosoever shall receive me, receiveth not me only, but him that sent me, even the Father.
-[^b]: TG [Children](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng); Salvation of Little [Children](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng).
+[^b]: TG [[Children]]; Salvation of Little [[Children]].

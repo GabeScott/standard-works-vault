@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 5:28; 7:5.
-[^b]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
+[^b]: TG [[Authority]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Isaiah 29.13|Isa. 29:13 (13-24).]]
-[^b]: [[Matthew 15.8|Matt. 15:8 (7-9)]]. TG [Honor](https://www.churchofjesuschrist.org/study/scriptures/tg/honor?lang=eng); [Respect](https://www.churchofjesuschrist.org/study/scriptures/tg/respect?lang=eng).
-[^c]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^b]: [[Matthew 15.8|Matt. 15:8 (7-9)]]. TG [[Honorable]]; [[Respecter]].
+[^c]: TG [[Hardheartedness, Harden, Hardness]].
 [^d]: [[2 Nephi 28.31|2 Ne. 28:31.]]

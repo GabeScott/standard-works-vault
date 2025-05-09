@@ -7,4 +7,4 @@
 
 [^a]: [[Numbers 18.3|Num. 18:3]]; [[2 Kings 23.9|2 Kgs. 23:9.]]
 [^b]: [[Ezekiel 41.4|Ezek. 41:4 (1-4)]]; [[Ezekiel 45.3|45:3.]]
-[^c]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^c]: TG [[Shame]].

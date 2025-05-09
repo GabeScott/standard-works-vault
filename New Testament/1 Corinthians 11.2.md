@@ -6,4 +6,4 @@
 
 
 [^a]: GR because.
-[^b]: GR precepts, doctrines, traditions. TG [Ordinance](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng).
+[^b]: GR precepts, doctrines, traditions. TG [[Ordinance]].

@@ -5,5 +5,5 @@
 [Isaiah 56:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/56.5?lang=eng#p5)
 
 
-[^a]: TG [Genealogy and Temple Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/genealogy-and-temple-work?lang=eng)
+[^a]: TG [[Genealogy and Temple Work]].
 [^b]: 1 Jn. 3:1 (1-2).

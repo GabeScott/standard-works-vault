@@ -6,4 +6,4 @@
 
 
 [^a]: [[Romans 2.3|Rom. 2:3.]]
-[^b]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^b]: TG [[Shame]].

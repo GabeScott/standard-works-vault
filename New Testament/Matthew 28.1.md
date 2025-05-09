@@ -6,4 +6,4 @@
 
 
 [^a]: GR After the sabbath.
-[^b]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
+[^b]: TG [[Sabbath]].

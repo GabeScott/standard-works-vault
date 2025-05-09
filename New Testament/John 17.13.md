@@ -5,4 +5,4 @@
 [John 17:13](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.13?lang=eng#p13)
 
 
-[^a]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Joy]].

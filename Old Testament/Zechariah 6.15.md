@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 60.10|Isa. 60:10.]]
-[^b]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^b]: TG [[Obedience, Obedient, Obey]].

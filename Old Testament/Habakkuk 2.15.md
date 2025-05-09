@@ -5,4 +5,4 @@
 [Habakkuk 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/hab/2.15?lang=eng#p15)
 
 
-[^a]: TG [Word of Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/word-of-wisdom?lang=eng)
+[^a]: TG [[Word of Wisdom]].

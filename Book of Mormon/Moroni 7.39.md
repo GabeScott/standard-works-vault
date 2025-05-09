@@ -5,4 +5,4 @@
 [Moroni 7:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p39#p39)
 
 
-[^a]: TG [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
+[^a]: TG [[Worthiness, Worthy]].

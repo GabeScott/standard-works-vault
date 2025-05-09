@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 61.9|Alma 61:9]]; [[D&C 121.39|D&C 121:39.]]
-[^b]: TG [Motivations.](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng)
+[^b]: TG [[Motivations]].

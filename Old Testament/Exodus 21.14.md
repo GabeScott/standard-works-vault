@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 27.24|Deut. 27:24.]]
-[^b]: TG [Guile.](https://www.churchofjesuschrist.org/study/scriptures/tg/guile?lang=eng)
+[^b]: TG [[Guile]].

@@ -5,5 +5,5 @@
 [Alma 37:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37?lang=eng&id=p31#p31)
 
 
-[^a]: [[Alma 45.16|Alma 45:16]]. TG [Earth, Curse of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-curse-of?lang=eng).
+[^a]: [[Alma 45.16|Alma 45:16]]. TG [[Earth, Curse of]].
 [^b]: [[Genesis 15.16|Gen. 15:16]]; [[Helaman 13.14|Hel. 13:14]]; [[D&C 61.31|D&C 61:31]]; [[D&C 101.11|101:11.]]

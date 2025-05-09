@@ -5,6 +5,6 @@
 [3 Nephi 24:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/24?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^a]: TG [[Purification, Purify, Purifying]].
 [^b]: [[Deuteronomy 10.8|Deut. 10:8]]; [[D&C 84.31|D&C 84:31 (31-34)]]; [[D&C 128.24|128:24.]]
 [^c]: D&C 13.

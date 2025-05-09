@@ -7,9 +7,9 @@
 
 
 [^a]: [[Ecclesiastes 8.8|Eccl. 8:8 (6-8).]]
-[^b]: TG [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
-[^c]: TG [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
-[^d]: TG [Fall of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng)
-[^e]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^b]: TG [[Salvation, Plan of]].
+[^c]: TG [[Jesus Christ, Resurrection]].
+[^d]: TG [[Fall of Man]].
+[^e]: TG [[Transgressor]].
 [^f]: [[2 Nephi 2.5|2 Ne. 2:5 (5-8)]]; [[Alma 11.42|Alma 11:42 (40-45).]]
-[^g]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^g]: TG [[God, Presence of]].

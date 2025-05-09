@@ -5,4 +5,4 @@
 [Psalms 102:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/102.16?lang=eng#p16)
 
 
-[^a]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
+[^a]: TG [[Jesus Christ, Second Coming]].

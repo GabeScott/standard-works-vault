@@ -7,4 +7,4 @@
 
 [^a]: [[Ezekiel 44.22|Ezek. 44:22.]]
 [^b]: [[D&C 42.74|D&C 42:74.]]
-[^c]: [[1 Corinthians 7.10|1 Cor. 7:10 (10-11)]]. TG [Fornication](https://www.churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng).
+[^c]: [[1 Corinthians 7.10|1 Cor. 7:10 (10-11)]]. TG [[Fornication]].

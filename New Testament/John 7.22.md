@@ -5,4 +5,4 @@
 [John 7:22](https://www.churchofjesuschrist.org/study/scriptures/nt/john/7.22?lang=eng#p22)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^a]: TG [[Circumcision]].

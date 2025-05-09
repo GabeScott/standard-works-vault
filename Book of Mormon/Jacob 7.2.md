@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 21.8|Alma 21:8]]; [[Alma 30.12|30:12 (12, 22).]]
-[^b]: TG [False Doctrine.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng)
+[^b]: TG [[False Doctrine]].

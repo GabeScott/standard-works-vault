@@ -5,4 +5,4 @@
 [1 Nephi 14:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p16#p16)
 
 
-[^a]: [[1 Nephi 22.13|1 Ne. 22:13 (13-14)]]; [[Mormon 8.30|Morm. 8:30]]. TG [War](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng).
+[^a]: [[1 Nephi 22.13|1 Ne. 22:13 (13-14)]]; [[Mormon 8.30|Morm. 8:30]]. TG [[War]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 30.25|Ex. 30:25 (23-32).]]
-[^b]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^b]: TG [[Genealogy and Temple Work]].

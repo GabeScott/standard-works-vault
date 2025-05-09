@@ -7,4 +7,4 @@
 
 [^a]: [[2 Chronicles 7.20|2 Chr. 7:20.]]
 [^b]: [[Ether 11.21|Ether 11:21 (20-21).]]
-[^c]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^c]: TG [[God, Indignation of]].

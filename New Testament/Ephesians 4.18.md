@@ -5,7 +5,7 @@
 [Ephesians 4:18](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.18?lang=eng#p18)
 
 
-[^a]: [[D&C 10.2|D&C 10:2]]. TG [Understanding](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng).
-[^b]: TG [Ignorance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ignorance?lang=eng)
-[^c]: GR hardness. TG [Spiritual Blindness](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng).
-[^d]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^a]: [[D&C 10.2|D&C 10:2]]. TG [[Understanding]].
+[^b]: TG [[Ignorance, Ignorant]].
+[^c]: GR hardness. TG [[Spiritual Blindness]].
+[^d]: TG [[Hardheartedness, Harden, Hardness]].

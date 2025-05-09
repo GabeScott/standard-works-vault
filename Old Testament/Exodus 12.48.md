@@ -5,5 +5,5 @@
 [Exodus 12:48](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.48?lang=eng#p48)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^a]: TG [[Circumcision]].
 [^b]: [[Leviticus 16.29|Lev. 16:29]]; [[Ezekiel 47.22|Ezek. 47:22.]]

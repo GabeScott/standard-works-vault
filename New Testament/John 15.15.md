@@ -7,4 +7,4 @@
 
 [^a]: [[Luke 12.4|Luke 12:4.]]
 [^b]: [[John 16.12|John 16:12]]; [[3 Nephi 15.16|3 Ne. 15:16 (13-18).]]
-[^c]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^c]: TG [[Revelation]].

@@ -7,4 +7,4 @@
 
 [^a]: JST Heb. 11:40 God having provided some better things for them through their sufferings, for without sufferings they could not be made perfect.
 [^b]: GR provided beforehand.
-[^c]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
+[^c]: TG [[Perfection, Perfect, Perfectly]].

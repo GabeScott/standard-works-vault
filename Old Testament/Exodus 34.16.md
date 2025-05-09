@@ -5,5 +5,5 @@
 [Exodus 34:16](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/34.16?lang=eng#p16)
 
 
-[^a]: TG [Marriage, Interfaith.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng)
+[^a]: TG [[Marriage, Interfaith]].
 [^b]: [[1 Kings 16.31|1 Kgs. 16:31.]]

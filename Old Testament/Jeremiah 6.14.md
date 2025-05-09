@@ -5,4 +5,4 @@
 [Jeremiah 6:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/6.14?lang=eng#p14)
 
 
-[^a]: TG [Peace.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
+[^a]: TG [[Peace of God]].

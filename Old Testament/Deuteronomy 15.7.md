@@ -6,6 +6,6 @@
 
 
 [^a]: IE cities, towns (also v. 22).
-[^b]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
-[^c]: TG [Poor](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng); [Welfare.](https://www.churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng)
-[^d]: TG [Brotherhood and Sisterhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
+[^b]: TG [[Hardheartedness, Harden, Hardness]].
+[^c]: TG [[Poor]]; [[Welfare]].
+[^d]: TG [[Brotherhood and Sisterhood]].

@@ -6,4 +6,4 @@
 
 
 [^a]: GR rigorously discipline.
-[^b]: TG [Chastity.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng)
+[^b]: TG [[Chastity, Chaste]].

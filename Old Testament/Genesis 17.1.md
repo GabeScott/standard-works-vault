@@ -7,6 +7,6 @@
 
 [^a]: [[Abraham 2.6|Abr. 2:6 (6, 8, 19)]]; [[Abraham 3.11|3:11.]]
 [^b]: [[Exodus 6.3|Ex. 6:3 (2-3).]]
-[^c]: TG [God, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng); [Jesus Christ, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng)
-[^d]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
-[^e]: TG [Integrity](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng); [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
+[^c]: TG [[God, Power of]]; [[Jesus Christ, Power of]].
+[^d]: TG [[Walking with God]].
+[^e]: TG [[Integrity]]; [[Perfection, Perfect, Perfectly]].

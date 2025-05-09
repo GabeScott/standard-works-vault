@@ -6,6 +6,6 @@
 
 
 [^a]: [[Mosiah 2.9|Mosiah 2:9.]]
-[^b]: [[Mosiah 3.18|Mosiah 3:18]]; [[Mosiah 4.2|4:2]]. TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng).
-[^c]: TG [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
-[^d]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
+[^b]: [[Mosiah 3.18|Mosiah 3:18]]; [[Mosiah 4.2|4:2]]. TG [[Jesus Christ, Atonement through]].
+[^c]: TG [[Jesus Christ, Redeemer]].
+[^d]: TG [[World, End of]].

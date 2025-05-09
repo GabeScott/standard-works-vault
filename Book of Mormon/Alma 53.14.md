@@ -6,4 +6,4 @@
 
 
 [^a]: [[Numbers 30.2|Num. 30:2.]]
-[^b]: TG [Oath.](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng)
+[^b]: TG [[Oath]].

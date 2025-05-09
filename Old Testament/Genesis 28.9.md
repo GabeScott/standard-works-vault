@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 25.13|Gen. 25:13]]; [[Genesis 36.3|36:3 (1-8).]]
-[^b]: TG [Marriage, Interfaith.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng)
+[^b]: TG [[Marriage, Interfaith]].

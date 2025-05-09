@@ -6,4 +6,4 @@
 
 
 [^a]: [[Judges 6.13|Judg. 6:13 (11-13)]]; [[Ether 12.12|Ether 12:12 (12-18)]]; [[Moroni 7.37|Moro. 7:37.]]
-[^b]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^b]: TG [[Trust in God]].

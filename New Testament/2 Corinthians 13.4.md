@@ -5,4 +5,4 @@
 [2 Corinthians 13:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/13.4?lang=eng#p4)
 
 
-[^a]: TG [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^a]: TG [[Jesus Christ, Crucifixion of]].

@@ -5,4 +5,4 @@
 [Ephesians 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.6?lang=eng#p6)
 
 
-[^a]: Mal. 2:10; [[1 Corinthians 8.6|1 Cor. 8:6]]. TG [God the Father, Elohim](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-father-elohim?lang=eng).
+[^a]: Mal. 2:10; [[1 Corinthians 8.6|1 Cor. 8:6]]. TG [[God the Father, Elohim]].

@@ -5,4 +5,4 @@
 [Romans 9:9](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.9?lang=eng#p9)
 
 
-[^a]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^a]: TG [[Seed of Abraham]].

@@ -5,6 +5,6 @@
 [2 Chronicles 20:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/20.20?lang=eng#p20)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
-[^b]: TG [Sustaining Church Leaders.](https://www.churchofjesuschrist.org/study/scriptures/tg/sustaining-church-leaders?lang=eng)
-[^c]: TG [Abundant Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/abundant-life?lang=eng)
+[^a]: TG [[Faith]].
+[^b]: TG [[Sustaining Church Leaders]].
+[^c]: TG [[Abundant Life]].

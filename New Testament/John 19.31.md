@@ -5,7 +5,7 @@
 [John 19:31](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.31?lang=eng#p31)
 
 
-[^a]: TG [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^a]: TG [[Jesus Christ, Crucifixion of]].
 [^b]: [[Exodus 12.16|Ex. 12:16 (15-17).]]
 [^c]: Jesus arose on the first day of the week. The previous day was the weekly Sabbath. The day before the Sabbath, being also the day after the Passover meal, could be the “high” day. Ex. 12:16; [[Leviticus 23.7|Lev. 23:7]]; [[Mark 15.42|Mark 15:42.]]
 [^d]: [[Exodus 12.14|Ex. 12:14 (12-16).]]

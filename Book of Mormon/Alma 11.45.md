@@ -7,7 +7,7 @@
 
 [^a]: [[Alma 12.12|Alma 12:12.]]
 [^b]: [[Alma 40.23|Alma 40:23]]; [[D&C 88.16|D&C 88:16.]]
-[^c]: TG [Death, Power over.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-power-over?lang=eng)
-[^d]: TG [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
+[^c]: TG [[Death, Power over]].
+[^d]: TG [[Immortality, Immortal]].
 [^e]: [[Revelation 21.4|Rev. 21:4]]; [[Alma 12.18|Alma 12:18 (18, 20)]]; [[D&C 63.49|D&C 63:49]]; [[D&C 88.116|88:116.]]
 [^f]: [[1 Corinthians 15.44|1 Cor. 15:44.]]

@@ -5,4 +5,4 @@
 [Jeremiah 17:23](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.23?lang=eng#p23)
 
 
-[^a]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^a]: TG [[Stiffnecked, Stiffneckedness]].

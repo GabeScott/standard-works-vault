@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 1.28|Ezek. 1:28 (9-11, 28)]]; [[Revelation 4.8|Rev. 4:8 (7-9).]]
-[^b]: TG [Jesus Christ, Glory of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng)
+[^b]: TG [[Jesus Christ, Glory of]].

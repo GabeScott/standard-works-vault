@@ -5,6 +5,6 @@
 [Abraham 3:24](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.24?lang=eng#p24)
 
 
-[^a]: TG [Jesus Christ, Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-firstborn?lang=eng)
-[^b]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
-[^c]: TG [Earth, Purpose of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-purpose-of?lang=eng)
+[^a]: TG [[Jesus Christ, Firstborn]].
+[^b]: TG [[Jesus Christ, Creator]].
+[^c]: TG [[Earth, Purpose of]].

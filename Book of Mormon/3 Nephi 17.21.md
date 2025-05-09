@@ -5,5 +5,5 @@
 [3 Nephi 17:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p21#p21)
 
 
-[^a]: [[John 11.35|John 11:35]]. TG [Sincere](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng).
+[^a]: [[John 11.35|John 11:35]]. TG [[Sincere, Sincerity]].
 [^b]: [[Mark 10.16|Mark 10:16 (14-16).]]

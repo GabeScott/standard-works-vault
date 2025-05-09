@@ -5,6 +5,6 @@
 [Exodus 3:7](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.7?lang=eng#p7)
 
 
-[^a]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
-[^b]: TG [Israel, Bondage of, in Egypt.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-egypt?lang=eng)
+[^a]: TG [[Affliction]].
+[^b]: TG [[Israel, Bondage of, in Egypt]].
 [^c]: [[D&C 38.16|D&C 38:16.]]

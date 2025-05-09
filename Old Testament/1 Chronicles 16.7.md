@@ -5,4 +5,4 @@
 [1 Chronicles 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/16.7?lang=eng#p7)
 
 
-[^b]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^b]: TG [[Thanksgiving]].

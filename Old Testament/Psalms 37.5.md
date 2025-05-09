@@ -5,5 +5,5 @@
 [Psalms 37:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.5?lang=eng#p5)
 
 
-[^a]: TG [Commitment](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng); [Dedication.](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng)
+[^a]: TG [[Commitment]]; [[Dedication, Dedicate]].
 [^b]: [[Alma 37.36|Alma 37:36 (35-37).]]

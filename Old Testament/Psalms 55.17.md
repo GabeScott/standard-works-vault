@@ -5,5 +5,5 @@
 [Psalms 55:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/55.17?lang=eng#p17)
 
 
-[^a]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: TG [[Prayer, Pray]].
 [^b]: [[Psalms 13.3|Ps. 13:3.]]

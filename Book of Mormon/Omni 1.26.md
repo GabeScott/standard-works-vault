@@ -6,6 +6,6 @@
 
 
 [^a]: [[Jacob 1.7|Jacob 1:7]]; [[Alma 29.2|Alma 29:2]]; [[Moroni 10.32|Moro. 10:32.]]
-[^b]: TG [Commitment](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng); [Self-Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng)
+[^b]: TG [[Commitment]]; [[Self-Sacrifice]].
 [^c]: [[3 Nephi 9.20|3 Ne. 9:20.]]
-[^d]: TG [Fast, Fasting.](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
+[^d]: TG [[Fast, Fasting]].

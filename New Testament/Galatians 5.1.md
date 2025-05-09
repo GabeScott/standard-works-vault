@@ -6,7 +6,7 @@
 
 
 [^a]: Philip. 4:1 (1-7).
-[^b]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^b]: TG [[Liberty]].
 [^c]: [[2 Nephi 2.26|2 Ne. 2:26 (26-27)]]; [[Mosiah 5.8|Mosiah 5:8]]; [[Alma 61.9|Alma 61:9 (9, 21).]]
 [^d]: [[D&C 88.86|D&C 88:86.]]
-[^e]: TG [Bondage, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng); [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
+[^e]: TG [[Bondage, Spiritual]]; [[Law of Moses]].

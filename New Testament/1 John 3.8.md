@@ -6,6 +6,6 @@
 
 
 [^a]: JST 1 Jn. 3:8 … continueth in sin …
-[^b]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^b]: TG [[Sin]].
 [^c]: [[Genesis 3.1|Gen. 3:1.]]
-[^d]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^d]: TG [[Devil, Church of]].

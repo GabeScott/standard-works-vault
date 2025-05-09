@@ -5,5 +5,5 @@
 [3 Nephi 28:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p38#p38)
 
 
-[^a]: TG [Translated Beings.](https://www.churchofjesuschrist.org/study/scriptures/tg/translated-beings?lang=eng)
-[^b]: TG [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
+[^a]: TG [[Translated Beings]].
+[^b]: TG [[Suffering]].

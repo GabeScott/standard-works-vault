@@ -5,4 +5,4 @@
 [Revelation 15:1](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/15.1?lang=eng#p1)
 
 
-[^a]: TG [Plague.](https://www.churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng)
+[^a]: TG [[Plague]].

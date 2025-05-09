@@ -6,4 +6,4 @@
 
 
 [^a]: IE grain from the previous year.
-[^b]: TG [Bread, Unleavened.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-unleavened?lang=eng)
+[^b]: TG [[Bread, Unleavened]].

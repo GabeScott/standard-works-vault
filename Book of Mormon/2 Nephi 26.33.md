@@ -7,7 +7,7 @@
 
 [^a]: [[Jude 1.3|Jude 1:3.]]
 [^b]: [[Alma 19.36|Alma 19:36.]]
-[^c]: TG [God, Access to.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-access-to?lang=eng)
-[^d]: [[Acts 10.28|Acts 10:28 (9-35, 44)]]. TG [Justice](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng).
+[^c]: TG [[God, Access to]].
+[^d]: [[Acts 10.28|Acts 10:28 (9-35, 44)]]. TG [[God, Justice of]].
 [^e]: [[Romans 2.11|Rom. 2:11]]; [[1 Nephi 17.35|1 Ne. 17:35 (35-40).]]
-[^f]: [[Jonah 4.11|Jonah 4:11 (10-11)]]; [[2 Nephi 29.12|2 Ne. 29:12]]; [[Alma 26.37|Alma 26:37 (27, 37)]]. TG [Heathen](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng).
+[^f]: [[Jonah 4.11|Jonah 4:11 (10-11)]]; [[2 Nephi 29.12|2 Ne. 29:12]]; [[Alma 26.37|Alma 26:37 (27, 37)]]. TG [[Heathen]].

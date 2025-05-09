@@ -5,4 +5,4 @@
 [Matthew 18:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.21?lang=eng#p21)
 
 
-[^a]: TG [Forbear.](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng)
+[^a]: TG [[Forbear, Forbearance]].

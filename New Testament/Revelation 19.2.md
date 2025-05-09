@@ -5,6 +5,6 @@
 [Revelation 19:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/19.2?lang=eng#p2)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].
 [^b]: [[Revelation 17.1|Rev. 17:1 (1-2).]]
 [^c]: [[D&C 29.21|D&C 29:21.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: HEB unintentionally.
-[^b]: TG [Refuge.](https://www.churchofjesuschrist.org/study/scriptures/tg/refuge?lang=eng)
+[^b]: TG [[Refuge]].

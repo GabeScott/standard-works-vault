@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Chronicles 29.25|2 Chr. 29:25.]]
-[^b]: TG [Record Keeping.](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng)
-[^c]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^b]: TG [[Record Keeping]].
+[^c]: TG [[Thanksgiving]].

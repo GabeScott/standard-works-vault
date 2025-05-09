@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Chronicles 12.19|1 Chr. 12:19.]]
-[^b]: TG [Reconciliation.](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng)
+[^b]: TG [[Reconciliation, Reconcile]].

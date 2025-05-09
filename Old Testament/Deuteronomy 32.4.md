@@ -5,7 +5,7 @@
 [Deuteronomy 32:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.4?lang=eng#p4)
 
 
-[^a]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
-[^b]: TG [God, Perfection of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng); [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
+[^a]: TG [[Rock]].
+[^b]: TG [[God, Perfection of]]; [[Perfection, Perfect, Perfectly]].
 [^c]: HEB just, justice.
-[^d]: TG [God, Justice of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng); [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^d]: TG [[God, Justice of]]; [[God, Justice of]].

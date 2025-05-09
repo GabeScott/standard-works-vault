@@ -5,4 +5,4 @@
 [Jeremiah 11:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.9?lang=eng#p9)
 
 
-[^a]: TG [Conspiracy.](https://www.churchofjesuschrist.org/study/scriptures/tg/conspiracy?lang=eng)
+[^a]: TG [[Conspiracy]].

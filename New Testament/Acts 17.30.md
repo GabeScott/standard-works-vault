@@ -8,4 +8,4 @@
 [^a]: [[Acts 14.16|Acts 14:16 (16-17)]]; [[1 Peter 1.14|1 Pet. 1:14 (1-16)]]; [[2 Nephi 9.25|2 Ne. 9:25 (25-27)]]; [[D&C 76.72|D&C 76:72.]]
 [^b]: OR overlooked, disregarded. Moro. 8:22 (9-26).
 [^c]: [[D&C 18.9|D&C 18:9.]]
-[^d]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^d]: TG [[Repent, Repentance]].

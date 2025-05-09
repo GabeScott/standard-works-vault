@@ -5,8 +5,8 @@
 [2 Nephi 25:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Holy Ghost, Source of Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-source-of-testimony?lang=eng)
-[^b]: TG [Prophecy.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
+[^a]: TG [[Holy Ghost, Source of Testimony]].
+[^b]: TG [[Prophecy]].
 [^c]: [[2 Nephi 31.1|2 Ne. 31:1.]]
 [^d]: [[2 Nephi 31.3|2 Ne. 31:3]]; [[2 Nephi 33.5|33:5]]; [[Jacob 2.11|Jacob 2:11]]; [[Jacob 4.13|4:13.]]
-[^e]: TG [Communication](https://www.churchofjesuschrist.org/study/scriptures/tg/communication?lang=eng); [Plainness.](https://www.churchofjesuschrist.org/study/scriptures/tg/plainness?lang=eng)
+[^e]: TG [[Communication]]; [[Plainness]].

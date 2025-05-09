@@ -6,5 +6,5 @@
 
 
 [^a]: HEB smitten.
-[^b]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^b]: TG [[Rebellion, Rebel]].
 [^c]: HEB diseased.

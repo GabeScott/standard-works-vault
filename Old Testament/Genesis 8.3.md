@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ether 13.2|Ether 13:2.]]
-[^b]: TG [Flood.](https://www.churchofjesuschrist.org/study/scriptures/tg/flood?lang=eng)
+[^b]: TG [[Flood, Noah’s]].
 [^c]: OR had decreased.

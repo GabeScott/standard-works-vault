@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 1.4|Gen. 1:4]]; [[Abraham 4.4|Abr. 4:4.]]
-[^b]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^b]: TG [[Light]].

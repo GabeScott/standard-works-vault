@@ -7,4 +7,4 @@
 
 [^a]: [[Ezekiel 18.25|Ezek. 18:25 (25, 27).]]
 [^b]: HEB right or just.
-[^c]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^c]: TG [[God, Justice of]].

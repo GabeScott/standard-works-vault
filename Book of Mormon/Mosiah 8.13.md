@@ -6,5 +6,5 @@
 
 
 [^a]: Dan. 5:16; [[Omni 1.20|Omni 1:20 (20-22)]]; [[Mosiah 28.17|Mosiah 28:17 (11-17).]]
-[^b]: [[Exodus 28.30|Ex. 28:30]]; [[Mosiah 21.28|Mosiah 21:28 (27-28)]]. TG [Urim and Thummim](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng).
-[^c]: TG [Seer.](https://www.churchofjesuschrist.org/study/scriptures/tg/seer?lang=eng)
+[^b]: [[Exodus 28.30|Ex. 28:30]]; [[Mosiah 21.28|Mosiah 21:28 (27-28)]]. TG [[Urim and Thummim]].
+[^c]: TG [[Seer]].

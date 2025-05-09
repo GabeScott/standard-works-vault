@@ -5,5 +5,5 @@
 [Ecclesiastes 5:10](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/5.10?lang=eng#p10)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
-[^b]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
+[^a]: TG [[Treasure]].
+[^b]: TG [[Vanity]].

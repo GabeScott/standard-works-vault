@@ -6,6 +6,6 @@
 
 
 [^a]: JST John 20:17 … Hold me not …
-[^b]: [[Luke 23.43|Luke 23:43 (39-43)]]; [[Alma 40.11|Alma 40:11 (6-15)]]. TG [Jesus Christ, Ascension of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-ascension-of?lang=eng).
-[^c]: TG [God the Father, Elohim.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-father-elohim?lang=eng)
-[^d]: TG [Godhead.](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng)
+[^b]: [[Luke 23.43|Luke 23:43 (39-43)]]; [[Alma 40.11|Alma 40:11 (6-15)]]. TG [[Jesus Christ, Ascension of]].
+[^c]: TG [[God the Father, Elohim]].
+[^d]: TG [[Godhead]].

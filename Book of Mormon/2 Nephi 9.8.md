@@ -5,9 +5,9 @@
 [2 Nephi 9:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p8#p8)
 
 
-[^a]: [[Job 12.13|Job 12:13 (7-25)]]; [[Abraham 3.21|Abr. 3:21]]. TG [God, Wisdom of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-wisdom-of?lang=eng).
-[^b]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: [[Job 12.13|Job 12:13 (7-25)]]; [[Abraham 3.21|Abr. 3:21]]. TG [[God, Wisdom of]].
+[^b]: TG [[God, Mercy of]].
+[^c]: TG [[Grace]].
 [^d]: [[D&C 93.34|D&C 93:34.]]
 [^e]: [[Isaiah 14.12|Isa. 14:12]]; [[2 Nephi 2.17|2 Ne. 2:17]]; [[Moses 4.3|Moses 4:3 (3-4)]]; [[Abraham 3.28|Abr. 3:28 (27-28).]]
-[^f]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^f]: TG [[Devil, Church of]].

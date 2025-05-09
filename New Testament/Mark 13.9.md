@@ -5,4 +5,4 @@
 [Mark 13:9](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.9?lang=eng#p9)
 
 
-[^a]: TG [Kings, Earthly.](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
+[^a]: TG [[Kings, Earthly]].

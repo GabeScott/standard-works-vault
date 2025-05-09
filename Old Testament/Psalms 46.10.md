@@ -5,6 +5,6 @@
 [Psalms 46:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/46.10?lang=eng#p10)
 
 
-[^a]: TG [Silence.](https://www.churchofjesuschrist.org/study/scriptures/tg/silence?lang=eng)
+[^a]: TG [[Silence, Silent]].
 [^b]: [[Job 37.14|Job 37:14]]; [[D&C 101.16|D&C 101:16.]]
 [^c]: [[Isaiah 2.11|Isa. 2:11 (11, 17).]]

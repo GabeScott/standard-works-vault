@@ -5,4 +5,4 @@
 [Genesis 9:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/9.3?lang=eng#p3)
 
 
-[^a]: HEB food. TG [Food](https://www.churchofjesuschrist.org/study/scriptures/tg/food?lang=eng); [Meat](https://www.churchofjesuschrist.org/study/scriptures/tg/meat?lang=eng); [Word of Wisdom](https://www.churchofjesuschrist.org/study/scriptures/tg/word-of-wisdom?lang=eng).
+[^a]: HEB food. TG [[Food]]; [[Meat]]; [[Word of Wisdom]].

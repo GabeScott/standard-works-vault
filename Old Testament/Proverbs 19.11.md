@@ -5,7 +5,7 @@
 [Proverbs 19:11](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.11?lang=eng#p11)
 
 
-[^a]: TG [Rashness.](https://www.churchofjesuschrist.org/study/scriptures/tg/rashness?lang=eng)
-[^b]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
-[^c]: TG [Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng)
-[^d]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^a]: TG [[Rashness]].
+[^b]: TG [[Anger]].
+[^c]: TG [[Telestial Glory]].
+[^d]: TG [[Transgressor]].

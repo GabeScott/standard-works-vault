@@ -5,4 +5,4 @@
 [Deuteronomy 8:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/8.6?lang=eng#p6)
 
 
-[^a]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^a]: TG [[Walking with God]].

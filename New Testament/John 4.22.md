@@ -5,4 +5,4 @@
 [John 4:22](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.22?lang=eng#p22)
 
 
-[^a]: [[D&C 93.19|D&C 93:19 (1-20)]]. TG [Ignorance](https://www.churchofjesuschrist.org/study/scriptures/tg/ignorance?lang=eng).
+[^a]: [[D&C 93.19|D&C 93:19 (1-20)]]. TG [[Ignorance, Ignorant]].

@@ -6,4 +6,4 @@
 
 
 [^a]: IE They do all the rituals, but lack something yet.
-[^b]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^b]: TG [[Ordinance]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Genesis 29.32|Gen. 29:32]]; [[Genesis 49.3|49:3 (3-4)]]; [[Deuteronomy 33.6|Deut. 33:6.]]
-[^b]: TG [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
+[^b]: TG [[Sexual Immorality]].
 [^c]: [[Joshua 14.4|Josh. 14:4.]]
-[^d]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
+[^d]: TG [[Israel, Joseph, People of]].

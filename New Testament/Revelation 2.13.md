@@ -5,4 +5,4 @@
 [Revelation 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/2.13?lang=eng#p13)
 
 
-[^a]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^a]: TG [[Martyrdom]].

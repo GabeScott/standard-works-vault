@@ -5,4 +5,4 @@
 [Deuteronomy 14:22](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/14.22?lang=eng#p22)
 
 
-[^a]: TG [Tithing.](https://www.churchofjesuschrist.org/study/scriptures/tg/tithing?lang=eng)
+[^a]: TG [[Tithing]].

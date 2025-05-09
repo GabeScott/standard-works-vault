@@ -5,4 +5,4 @@
 [Psalms 118:24](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/118.24?lang=eng#p24)
 
 
-[^a]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Joy]].

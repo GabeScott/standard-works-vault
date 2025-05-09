@@ -5,4 +5,4 @@
 [Luke 21:12](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/21.12?lang=eng#p12)
 
 
-[^a]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
+[^a]: TG [[Persecution, Persecute]].

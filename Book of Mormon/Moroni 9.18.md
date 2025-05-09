@@ -5,5 +5,5 @@
 [Moroni 9:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/9?lang=eng&id=p18#p18)
 
 
-[^a]: TG [Order.](https://www.churchofjesuschrist.org/study/scriptures/tg/order?lang=eng)
-[^b]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^a]: TG [[Order]].
+[^b]: TG [[Strength]].

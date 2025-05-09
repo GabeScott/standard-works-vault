@@ -5,4 +5,4 @@
 [1 Nephi 20:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/20?lang=eng&id=p5#p5)
 
 
-[^a]: TG [God, Omniscience of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng); [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^a]: TG [[God, Omniscience of]]; [[Idolatry, Idol]].

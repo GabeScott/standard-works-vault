@@ -7,7 +7,7 @@
 
 [^a]: [[Psalms 85.12|Ps. 85:12.]]
 [^b]: [[Moroni 7.12|Moro. 7:12 (12-13).]]
-[^c]: [[John 3.27|John 3:27]]; [[2 Corinthians 9.15|2 Cor. 9:15]]. TG [God, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng).
+[^c]: [[John 3.27|John 3:27]]; [[2 Corinthians 9.15|2 Cor. 9:15]]. TG [[God, Gifts of]].
 [^d]: [[D&C 67.9|D&C 67:9.]]
 [^e]: D&C 67:4, 9.
-[^f]: TG [God, Perfection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng)
+[^f]: TG [[God, Perfection of]].

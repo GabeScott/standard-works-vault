@@ -5,4 +5,4 @@
 [Zechariah 10:8](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/10.8?lang=eng#p8)
 
 
-[^a]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[Israel, Gathering of]].

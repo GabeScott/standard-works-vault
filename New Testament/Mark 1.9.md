@@ -5,4 +5,4 @@
 [Mark 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.9?lang=eng#p9)
 
 
-[^a]: TG [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng); [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng), Essential; Jesus Christ, [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng) of.
+[^a]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential; Jesus Christ, [[Holy Ghost, Baptism of]] of.

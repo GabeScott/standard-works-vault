@@ -5,5 +5,5 @@
 [Hosea 7:10](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/7.10?lang=eng#p10)
 
 
-[^a]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^a]: TG [[Rebellion, Rebel]].
 [^b]: [[Isaiah 9.13|Isa. 9:13.]]

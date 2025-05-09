@@ -5,4 +5,4 @@
 [Isaiah 57:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.13?lang=eng#p13)
 
 
-[^a]: TG [Lands of Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
+[^a]: TG [[Lands of Inheritance]].

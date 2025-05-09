@@ -6,7 +6,7 @@
 
 
 [^a]: [[Numbers 14.4|Num. 14:4.]]
-[^b]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^b]: TG [[Forgive, Forgiveness]].
 [^c]: [[1 Chronicles 16.41|1 Chr. 16:41.]]
-[^d]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
-[^e]: TG [Kindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
+[^d]: TG [[Anger]].
+[^e]: TG [[Kindness]].

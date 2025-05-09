@@ -6,4 +6,4 @@
 
 
 [^a]: Lam. 2:21.
-[^b]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^b]: TG [[Israel, Scattering of]].

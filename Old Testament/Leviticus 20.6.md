@@ -6,7 +6,7 @@
 
 
 [^a]: HEB to magic or necromancy.
-[^b]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
-[^c]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^b]: TG [[Spirits, Evil or Unclean]].
+[^c]: TG [[Sorcery]].
 [^d]: [[2 Nephi 18.19|2 Ne. 18:19.]]
-[^e]: TG [Excommunication.](https://www.churchofjesuschrist.org/study/scriptures/tg/excommunication?lang=eng)
+[^e]: TG [[Excommunication]].

@@ -5,4 +5,4 @@
 [Isaiah 55:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/55.13?lang=eng#p13)
 
 
-[^a]: HEB cypress tree. TG [Earth, Renewal of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng).
+[^a]: HEB cypress tree. TG [[Earth, Renewal of]].

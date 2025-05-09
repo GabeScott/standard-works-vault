@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Corinthians 15.26|1 Cor. 15:26 (26, 54).]]
-[^b]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
-[^c]: TG [Death, Spiritual, Second.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng)
+[^b]: TG [[Damnation, Damned]].
+[^c]: TG [[Death, Spiritual, Second]].

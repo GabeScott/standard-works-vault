@@ -7,4 +7,4 @@
 
 [^a]: [[Mosiah 26.6|Mosiah 26:6.]]
 [^b]: [[1 Corinthians 5.2|1 Cor. 5:2.]]
-[^c]: [[Exodus 32.33|Ex. 32:33]]; [[Mosiah 26.36|Mosiah 26:36]]; [[Alma 1.24|Alma 1:24]]; [[Alma 5.57|5:57 (57-58)]]. TG [Excommunication](https://www.churchofjesuschrist.org/study/scriptures/tg/excommunication?lang=eng).
+[^c]: [[Exodus 32.33|Ex. 32:33]]; [[Mosiah 26.36|Mosiah 26:36]]; [[Alma 1.24|Alma 1:24]]; [[Alma 5.57|5:57 (57-58)]]. TG [[Excommunication]].

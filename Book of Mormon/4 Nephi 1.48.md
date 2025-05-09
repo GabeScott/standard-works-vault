@@ -7,5 +7,5 @@
 
 [^a]: [[Words of Mormon 1.2|Morm. 1:2.]]
 [^b]: [[Mormon 2.17|Morm. 2:17.]]
-[^c]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^c]: TG [[Scriptures, Preservation of]].
 [^d]: [[Helaman 3.15|Hel. 3:15 (13, 15-16).]]

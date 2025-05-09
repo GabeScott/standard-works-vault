@@ -5,5 +5,5 @@
 [Alma 18:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p32#p32)
 
 
-[^a]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^a]: TG [[God, Omniscience of]].
 [^b]: [[Amos 4.13|Amos 4:13]]; [[3 Nephi 28.6|3 Ne. 28:6.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 12.7|1 Ne. 12:7]]; [[3 Nephi 12.1|3 Ne. 12:1.]]
-[^b]: [[1 Corinthians 11.16|1 Cor. 11:16 (16-19)]]; [[3 Nephi 18.34|3 Ne. 18:34]]. TG [Disputations](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng).
+[^b]: [[1 Corinthians 11.16|1 Cor. 11:16 (16-19)]]; [[3 Nephi 18.34|3 Ne. 18:34]]. TG [[Disputations, Dispute]].

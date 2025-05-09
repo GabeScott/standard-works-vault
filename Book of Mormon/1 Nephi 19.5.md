@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 5.30|2 Ne. 5:30 (28-33).]]
-[^b]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^b]: TG [[Scriptures, Preservation of]].

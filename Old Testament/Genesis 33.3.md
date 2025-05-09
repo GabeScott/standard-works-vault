@@ -5,4 +5,4 @@
 [Genesis 33:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/33.3?lang=eng#p3)
 
 
-[^a]: TG [Courtesy.](https://www.churchofjesuschrist.org/study/scriptures/tg/courtesy?lang=eng)
+[^a]: TG [[Courtesy]].

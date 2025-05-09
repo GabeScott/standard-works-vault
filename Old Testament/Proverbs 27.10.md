@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Samuel 9.1|2 Sam. 9:1.]]
-[^b]: [[Proverbs 18.24|Prov. 18:24]]. TG [Neighbor](https://www.churchofjesuschrist.org/study/scriptures/tg/neighbor?lang=eng).
+[^b]: [[Proverbs 18.24|Prov. 18:24]]. TG [[Neighbor]].

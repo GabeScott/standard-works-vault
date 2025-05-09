@@ -5,4 +5,4 @@
 [Enos 1:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1?lang=eng&id=p6#p6)
 
 
-[^a]: TG [God, the Standard of Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-standard-of-righteousness?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]].

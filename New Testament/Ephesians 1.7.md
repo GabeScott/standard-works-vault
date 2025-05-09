@@ -5,7 +5,7 @@
 [Ephesians 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.7?lang=eng#p7)
 
 
-[^a]: TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng); [Jesus Christ, Redeemer](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng); [Redemption.](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
-[^b]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
-[^c]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
-[^d]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer]]; [[Redemption]].
+[^b]: TG [[Forgive, Forgiveness]].
+[^c]: TG [[Treasure]].
+[^d]: TG [[Grace]].

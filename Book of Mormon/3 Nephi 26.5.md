@@ -6,5 +6,5 @@
 
 
 [^a]: Dan. 12:2.
-[^b]: TG [God, Justice of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng); [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
-[^c]: [[3 Nephi 1.14|3 Ne. 1:14]]; [[Ether 3.14|Ether 3:14]]. TG [Man, Antemortal Existence of](https://www.churchofjesuschrist.org/study/scriptures/tg/man-antemortal-existence-of?lang=eng).
+[^b]: TG [[God, Justice of]]; [[God, Justice of]].
+[^c]: [[3 Nephi 1.14|3 Ne. 1:14]]; [[Ether 3.14|Ether 3:14]]. TG [[Man, Antemortal Existence of]].

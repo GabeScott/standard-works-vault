@@ -5,4 +5,4 @@
 [1 Samuel 24:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/24.19?lang=eng#p19)
 
 
-[^a]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^a]: TG [[Reward]].

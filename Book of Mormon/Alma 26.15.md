@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 20.20|Prov. 20:20.]]
-[^b]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^b]: TG [[Light]].

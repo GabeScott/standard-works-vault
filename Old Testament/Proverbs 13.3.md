@@ -5,5 +5,5 @@
 [Proverbs 13:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.3?lang=eng#p3)
 
 
-[^a]: TG [Silence.](https://www.churchofjesuschrist.org/study/scriptures/tg/silence?lang=eng)
-[^b]: TG [Gossip.](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng)
+[^a]: TG [[Silence, Silent]].
+[^b]: TG [[Gossip]].

@@ -5,4 +5,4 @@
 [Mark 8:29](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/8.29?lang=eng#p29)
 
 
-[^a]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
+[^a]: TG [[Jesus Christ, Messiah]].

@@ -5,4 +5,4 @@
 [3 Nephi 27:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/27?lang=eng&id=p17#p17)
 
 
-[^a]: TG [God, Justice of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
+[^a]: TG [[God, Justice of]].

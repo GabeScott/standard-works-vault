@@ -5,5 +5,5 @@
 [Psalms 135:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/135.15?lang=eng#p15)
 
 
-[^a]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
-[^b]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^a]: TG [[Idolatry, Idol]].
+[^b]: TG [[Heathen]].

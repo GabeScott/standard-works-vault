@@ -5,6 +5,6 @@
 [Matthew 24:44](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/24.44?lang=eng#p44)
 
 
-[^a]: TG [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
+[^a]: TG [[Procrastination, Procrastinate]].
 [^b]: [[Luke 12.40|Luke 12:40]]; [[D&C 45.2|D&C 45:2]]; [[D&C 51.20|51:20.]]
 [^c]: GR when you do not expect Him.

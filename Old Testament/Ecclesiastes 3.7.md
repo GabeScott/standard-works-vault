@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 44.13|Gen. 44:13.]]
-[^b]: TG [Silence.](https://www.churchofjesuschrist.org/study/scriptures/tg/silence?lang=eng)
+[^b]: TG [[Silence, Silent]].

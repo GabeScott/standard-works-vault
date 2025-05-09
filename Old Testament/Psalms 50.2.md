@@ -6,5 +6,5 @@
 
 
 [^a]: Lam. 2:15.
-[^b]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
+[^b]: TG [[Beauty]].
 [^c]: [[Deuteronomy 33.2|Deut. 33:2.]]

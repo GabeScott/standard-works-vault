@@ -5,7 +5,7 @@
 [Luke 11:39](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.39?lang=eng#p39)
 
 
-[^a]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
-[^b]: [[Titus 1.15|Titus 1:15 (15-16)]]. TG [Hypocrisy](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng).
+[^a]: TG [[Purification, Purify, Purifying]].
+[^b]: [[Titus 1.15|Titus 1:15 (15-16)]]. TG [[Hypocrisy, Hypocrite]].
 [^c]: GR plunder, spoil.
-[^d]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^d]: TG [[Wickedness, Wicked]].

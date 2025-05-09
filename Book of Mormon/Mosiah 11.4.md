@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 29.3|Prov. 29:3.]]
-[^b]: TG [Concubine.](https://www.churchofjesuschrist.org/study/scriptures/tg/concubine?lang=eng)
+[^b]: TG [[Concubine]].

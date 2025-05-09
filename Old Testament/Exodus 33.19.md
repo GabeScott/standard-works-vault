@@ -7,4 +7,4 @@
 
 [^a]: [[Exodus 34.6|Ex. 34:6 (5-7)]]; [[Jeremiah 31.14|Jer. 31:14.]]
 [^b]: [[Exodus 34.5|Ex. 34:5.]]
-[^c]: [[D&C 64.10|D&C 64:10 (9-11)]]. TG [Compassion](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng).
+[^c]: [[D&C 64.10|D&C 64:10 (9-11)]]. TG [[Compassion]].

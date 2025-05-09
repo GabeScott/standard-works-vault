@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Kings 11.14|2 Kgs. 11:14.]]
-[^b]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
-[^c]: [[Jeremiah 36.7|Jer. 36:7]]. TG [Walking with God](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng).
+[^b]: TG [[Commitment]].
+[^c]: [[Jeremiah 36.7|Jer. 36:7]]. TG [[Walking with God]].

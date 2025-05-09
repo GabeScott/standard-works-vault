@@ -5,4 +5,4 @@
 [Mormon 9:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p15#p15)
 
 
-[^a]: [[Mormon 8.26|Morm. 8:26]]; [[Moroni 7.35|Moro. 7:35]]; [[D&C 35.8|D&C 35:8]]. TG [Miracle](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng).
+[^a]: [[Mormon 8.26|Morm. 8:26]]; [[Moroni 7.35|Moro. 7:35]]; [[D&C 35.8|D&C 35:8]]. TG [[Miracle]].

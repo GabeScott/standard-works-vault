@@ -5,4 +5,4 @@
 [Romans 5:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.17?lang=eng#p17)
 
 
-[^a]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: TG [[Grace]].

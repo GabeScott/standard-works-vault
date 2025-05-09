@@ -5,5 +5,5 @@
 [D&C 6:26](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.26?lang=eng#p26)
 
 
-[^a]: [[D&C 8.1|D&C 8:1]]; [[D&C 9.2|9:2]]. TG [Record Keeping](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng); [Scriptures, Writing of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng); [Scriptures to Come Forth](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-to-come-forth?lang=eng).
-[^b]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^a]: [[D&C 8.1|D&C 8:1]]; [[D&C 9.2|9:2]]. TG [[Record Keeping]]; [[Scriptures, Writing of]]; [[Scriptures to Come Forth]].
+[^b]: TG [[Wickedness, Wicked]].

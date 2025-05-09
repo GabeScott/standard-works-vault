@@ -5,4 +5,4 @@
 [Ezekiel 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/8.9?lang=eng#p9)
 
 
-[^a]: TG [Superstitions.](https://www.churchofjesuschrist.org/study/scriptures/tg/superstitions?lang=eng)
+[^a]: TG [[Superstitions]].

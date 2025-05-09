@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 13.13|Deut. 13:13]]; [[Judges 20.13|Judg. 20:13.]]
-[^b]: TG [Holy Ghost, Loss of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-loss-of?lang=eng)
+[^b]: TG [[Holy Ghost, Loss of]].

@@ -5,7 +5,7 @@
 [John 5:24](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.24?lang=eng#p24)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Faith]].
 [^b]: [[John 20.31|John 20:31.]]
 [^c]: [[D&C 20.15|D&C 20:15.]]
 [^d]: [[John 8.51|John 8:51]]; [[John 11.26|11:26]]; [[D&C 63.49|D&C 63:49.]]

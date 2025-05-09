@@ -5,5 +5,5 @@
 [Psalms 106:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.32?lang=eng#p32)
 
 
-[^a]: [[Ezekiel 47.19|Ezek. 47:19]]. TG [Strife](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng).
+[^a]: [[Ezekiel 47.19|Ezek. 47:19]]. TG [[Strife]].
 [^b]: [[Deuteronomy 1.37|Deut. 1:37]]; [[Deuteronomy 3.26|3:26.]]

@@ -5,5 +5,5 @@
 [Ezekiel 44:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.11?lang=eng#p11)
 
 
-[^a]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^a]: TG [[Genealogy and Temple Work]].
 [^b]: [[Ezekiel 45.5|Ezek. 45:5]]; [[Ezekiel 46.24|46:24.]]

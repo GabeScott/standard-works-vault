@@ -7,4 +7,4 @@
 
 [^a]: HEB avenges.
 [^b]: [[Genesis 9.5|Gen. 9:5.]]
-[^c]: TG [Humility.](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng)
+[^c]: TG [[Humility, Humble]].

@@ -5,5 +5,5 @@
 [Mark 6:7](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.7?lang=eng#p7)
 
 
-[^a]: TG [Apostles.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng)
+[^a]: TG [[Apostles]].
 [^b]: [[Luke 10.1|Luke 10:1]]; [[D&C 42.6|D&C 42:6.]]

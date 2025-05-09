@@ -5,4 +5,4 @@
 [Joshua 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/4.4?lang=eng#p4)
 
 
-[^a]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
+[^a]: TG [[Church Organization]].

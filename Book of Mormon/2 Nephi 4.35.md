@@ -5,8 +5,8 @@
 [2 Nephi 4:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/4?lang=eng&id=p35#p35)
 
 
-[^a]: [[James 1.5|James 1:5]]. TG [Abundant Life](https://www.churchofjesuschrist.org/study/scriptures/tg/abundant-life?lang=eng).
-[^b]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: [[James 1.5|James 1:5]]. TG [[Abundant Life]].
+[^b]: TG [[Prayer, Pray]].
 [^c]: [[Helaman 10.5|Hel. 10:5.]]
 [^d]: [[Deuteronomy 32.4|Deut. 32:4.]]
 [^e]: [[Psalms 4.1|Ps. 4:1.]]

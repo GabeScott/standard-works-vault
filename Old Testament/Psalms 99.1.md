@@ -5,4 +5,4 @@
 [Psalms 99:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/99.1?lang=eng#p1)
 
 
-[^a]: TG [Cherubim.](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
+[^a]: TG [[Cherubim]].

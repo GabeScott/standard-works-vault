@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 68.25|D&C 68:25.]]
-[^b]: TG [Baptism, Essential.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-essential?lang=eng)
+[^b]: TG [[Baptism, Essential]].
 [^c]: [[D&C 107.67|D&C 107:67.]]
-[^d]: TG [Hands, Laying on of.](https://www.churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng)
+[^d]: TG [[Hands, Laying on of]].

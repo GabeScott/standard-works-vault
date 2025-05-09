@@ -5,8 +5,8 @@
 [Genesis 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/2.5?lang=eng#p5)
 
 
-[^a]: TG [Nature, Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/nature-earth?lang=eng)
-[^b]: TG [Spirit Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirit-creation?lang=eng)
-[^c]: TG [Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng)
-[^d]: TG [Man, Physical Creation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)
+[^a]: TG [[Nature, Earth]].
+[^b]: TG [[Spirit Creation]].
+[^c]: TG [[Creation, Create]].
+[^d]: TG [[Man, Physical Creation of]].
 [^e]: [[Moses 3.5|Moses 3:5.]]

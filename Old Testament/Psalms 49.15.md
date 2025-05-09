@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hosea 13.14|Hosea 13:14]]; [[Mosiah 27.24|Mosiah 27:24 (24-26)]]; [[D&C 93.38|D&C 93:38]]; [[Moses 5.9|Moses 5:9]]; A of F 1:3.
-[^b]: TG [Eternal Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng)
+[^b]: TG [[Eternal Life]].

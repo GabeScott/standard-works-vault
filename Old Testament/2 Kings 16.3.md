@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 18.21|Lev. 18:21]]; [[2 Kings 17.17|2 Kgs. 17:17.]]
-[^b]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^b]: TG [[Heathen]].

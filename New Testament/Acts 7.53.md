@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moses 5.58|Moses 5:58.]]
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^b]: TG [[Disobedience, Disobey]].

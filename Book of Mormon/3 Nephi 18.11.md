@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moroni 5.1|Moro. 5:1.]]
-[^b]: TG [Blood, Symbolism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng)
+[^b]: TG [[Blood, Symbolism of]].

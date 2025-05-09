@@ -7,4 +7,4 @@
 
 [^a]: [[Exodus 34.6|Ex. 34:6 (5-7)]]; [[2 Nephi 9.10|2 Ne. 9:10]]; [[D&C 86.11|D&C 86:11.]]
 [^b]: [[Romans 7.24|Rom. 7:24.]]
-[^c]: TG [Poor in Spirit](https://www.churchofjesuschrist.org/study/scriptures/tg/poor-in-spirit?lang=eng); [Repent](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng); [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
+[^c]: TG [[Poor in Spirit]]; [[Repent, Repentance]]; [[Sorrow]].

@@ -5,4 +5,4 @@
 [Matthew 18:35](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.35?lang=eng#p35)
 
 
-[^a]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^a]: TG [[Forgive, Forgiveness]].

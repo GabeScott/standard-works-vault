@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moses 5.41|Moses 5:41]]; [[Moses 6.49|6:49.]]
-[^b]: TG [Eden.](https://www.churchofjesuschrist.org/study/scriptures/tg/eden?lang=eng)
+[^b]: TG [[Eden]].

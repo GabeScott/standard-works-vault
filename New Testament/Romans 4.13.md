@@ -5,5 +5,5 @@
 [Romans 4:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.13?lang=eng#p13)
 
 
-[^a]: TG [Birthright.](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng)
-[^b]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^a]: TG [[Birthright]].
+[^b]: TG [[Seed of Abraham]].

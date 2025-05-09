@@ -5,5 +5,5 @@
 [Revelation 9:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/9.21?lang=eng#p21)
 
 
-[^a]: TG [Murder.](https://www.churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng)
-[^b]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^a]: TG [[Murder, Murderer]].
+[^b]: TG [[Sorcery]].

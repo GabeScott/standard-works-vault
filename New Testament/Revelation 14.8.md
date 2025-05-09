@@ -5,7 +5,7 @@
 [Revelation 14:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.8?lang=eng#p8)
 
 
-[^a]: [[Isaiah 21.9|Isa. 21:9]]. TG [Babylon](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng).
+[^a]: [[Isaiah 21.9|Isa. 21:9]]. TG [[Babylon]].
 [^b]: [[D&C 88.105|D&C 88:105.]]
 [^c]: [[Revelation 17.18|Rev. 17:18.]]
 [^d]: [[D&C 88.94|D&C 88:94.]]

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Matthew 5.12|Matt. 5:12.]]
-[^b]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
-[^c]: [[2 Corinthians 7.4|2 Cor. 7:4]]. TG [Prophets, Rejection of](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng).
+[^b]: TG [[Reward]].
+[^c]: [[2 Corinthians 7.4|2 Cor. 7:4]]. TG [[Prophets, Rejection of]].

@@ -7,5 +7,5 @@
 
 [^a]: [[Psalms 110.2|Ps. 110:2.]]
 [^b]: [[Revelation 22.16|Rev. 22:16.]]
-[^c]: TG [Jesus Christ, Condescension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-condescension-of?lang=eng)
+[^c]: TG [[Jesus Christ, Condescension of]].
 [^d]: HEB it is not for His appearance.

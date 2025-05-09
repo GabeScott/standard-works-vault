@@ -7,4 +7,4 @@
 
 [^a]: [[1 Nephi 22.23|1 Ne. 22:23 (22-23).]]
 [^b]: [[Alma 34.35|Alma 34:35.]]
-[^c]: [[Mosiah 23.12|Mosiah 23:12]]; [[Alma 12.11|Alma 12:11]]. TG [Chain](https://www.churchofjesuschrist.org/study/scriptures/tg/chain?lang=eng).
+[^c]: [[Mosiah 23.12|Mosiah 23:12]]; [[Alma 12.11|Alma 12:11]]. TG [[Chain]].

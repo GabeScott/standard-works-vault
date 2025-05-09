@@ -5,7 +5,7 @@
 [Matthew 18:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.20?lang=eng#p20)
 
 
-[^a]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
-[^b]: TG [Unity.](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng)
-[^c]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].
+[^b]: TG [[Unity]].
+[^c]: TG [[Name of the Lord]].
 [^d]: [[D&C 29.5|D&C 29:5]]; [[D&C 32.3|32:3]]; [[D&C 45.59|45:59]]; [[D&C 49.27|49:27.]]

@@ -5,4 +5,4 @@
 [Revelation 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.19?lang=eng#p19)
 
 
-[^a]: GR instruct, admonish. TG [Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng).
+[^a]: GR instruct, admonish. TG [[Chastening]].

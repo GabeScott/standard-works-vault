@@ -5,6 +5,6 @@
 [Nehemiah 8:8](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/8.8?lang=eng#p8)
 
 
-[^a]: TG [Scriptures, Study of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
+[^a]: TG [[Scriptures, Study of]].
 [^b]: [[Jacob 4.13|Jacob 4:13 (13-14).]]
 [^c]: IE gave a commentary by the power of the Holy Ghost. Mosiah 1:2-5.

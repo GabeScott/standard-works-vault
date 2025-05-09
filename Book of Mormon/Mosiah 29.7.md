@@ -5,5 +5,5 @@
 [Mosiah 29:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Contention.](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
+[^a]: TG [[Contention]].
 [^b]: [[Judges 8.23|Judg. 8:23]]; [[Judges 9.2|9:2 (1-55).]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 43.19|Isa. 43:19.]]
-[^b]: TG [Earth, Renewal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
+[^b]: TG [[Earth, Renewal of]].

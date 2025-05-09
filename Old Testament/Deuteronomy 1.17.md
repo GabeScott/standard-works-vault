@@ -6,5 +6,5 @@
 
 
 [^a]: HEB acknowledge faces. The idiom means to favor some unjustifiably. Lev. 19:15; [[Proverbs 24.23|Prov. 24:23]]; [[James 2.9|James 2:9 (1-9)]]; [[D&C 1.35|D&C 1:35 (34-35)]]; [[D&C 38.16|38:16.]]
-[^b]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
+[^b]: TG [[Judgment]].
 [^c]: [[2 Nephi 8.7|2 Ne. 8:7.]]

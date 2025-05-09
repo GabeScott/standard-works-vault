@@ -5,4 +5,4 @@
 [1 Kings 21:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/21.9?lang=eng#p9)
 
 
-[^a]: TG [Fast, Fasting.](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
+[^a]: TG [[Fast, Fasting]].

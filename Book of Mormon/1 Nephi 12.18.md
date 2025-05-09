@@ -7,6 +7,6 @@
 
 [^a]: [[1 Nephi 8.26|1 Ne. 8:26]]; [[1 Nephi 11.35|11:35 (35-36).]]
 [^b]: [[Jeremiah 7.24|Jer. 7:24]]; [[Jeremiah 9.14|9:14.]]
-[^c]: TG [Haughtiness](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng); [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
+[^c]: TG [[Haughtiness, Haughty]]; [[Pride]].
 [^d]: [[Luke 16.26|Luke 16:26]]; [[1 Nephi 15.28|1 Ne. 15:28 (28-30).]]
-[^e]: TG [God, Justice of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
+[^e]: TG [[God, Justice of]].

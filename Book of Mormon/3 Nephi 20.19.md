@@ -6,5 +6,5 @@
 
 
 [^a]: [[Leviticus 26.12|Lev. 26:12]]; [[D&C 63.1|D&C 63:1 (1-6).]]
-[^b]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
+[^b]: TG [[Last Days]].
 [^c]: [[Micah 4.13|Micah 4:13.]]

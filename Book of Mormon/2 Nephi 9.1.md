@@ -5,4 +5,4 @@
 [2 Nephi 9:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Abrahamic Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng); [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^a]: TG [[Abrahamic Covenant]]; [[Israel, Mission of]].

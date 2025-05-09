@@ -5,4 +5,4 @@
 [Ether 9:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/9?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Jealous.](https://www.churchofjesuschrist.org/study/scriptures/tg/jealous?lang=eng)
+[^a]: TG [[Jealous, Jealousy]].

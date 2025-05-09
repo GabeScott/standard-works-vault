@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Kings 2.16|2 Kgs. 2:16.]]
-[^b]: [[Deuteronomy 34.6|Deut. 34:6 (5-6)]]. TG [Translated Beings](https://www.churchofjesuschrist.org/study/scriptures/tg/translated-beings?lang=eng).
+[^b]: [[Deuteronomy 34.6|Deut. 34:6 (5-6)]]. TG [[Translated Beings]].

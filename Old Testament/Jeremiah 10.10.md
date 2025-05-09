@@ -7,5 +7,5 @@
 
 [^a]: [[Joshua 22.34|Josh. 22:34]]; [[D&C 76.1|D&C 76:1.]]
 [^b]: JS—H 1:17.
-[^c]: TG [Kingdom of God, in Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng)
-[^d]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^c]: TG [[Kingdom of God, in Heaven]].
+[^d]: TG [[God, Indignation of]].

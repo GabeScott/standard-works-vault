@@ -5,5 +5,5 @@
 [Isaiah 1:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1.11?lang=eng#p11)
 
 
-[^a]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^a]: TG [[Self-Sacrifice]].
 [^b]: [[1 Samuel 15.22|1 Sam. 15:22.]]

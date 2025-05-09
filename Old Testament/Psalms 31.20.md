@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 27.5|Ps. 27:5.]]
-[^b]: TG [Gossip](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng); [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
+[^b]: TG [[Gossip]]; [[Strife]].

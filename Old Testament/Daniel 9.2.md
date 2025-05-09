@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Chronicles 36.21|2 Chr. 36:21]]; [[Jeremiah 25.12|Jer. 25:12.]]
-[^b]: TG [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
+[^b]: TG [[Israel, Bondage of, in Other Lands]].

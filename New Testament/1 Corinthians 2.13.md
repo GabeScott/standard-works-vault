@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Corinthians 1.12|2 Cor. 1:12.]]
-[^b]: TG [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
+[^b]: TG [[Holy Ghost, Mission of]].

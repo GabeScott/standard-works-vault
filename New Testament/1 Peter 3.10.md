@@ -5,6 +5,6 @@
 [1 Peter 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.10?lang=eng#p10)
 
 
-[^a]: TG [Self-Mastery.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
-[^b]: TG [Gossip](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng); [Slander.](https://www.churchofjesuschrist.org/study/scriptures/tg/slander?lang=eng)
-[^c]: TG [Guile.](https://www.churchofjesuschrist.org/study/scriptures/tg/guile?lang=eng)
+[^a]: TG [[Self-Mastery]].
+[^b]: TG [[Gossip]]; [[Slander]].
+[^c]: TG [[Guile]].

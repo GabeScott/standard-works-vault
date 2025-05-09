@@ -5,4 +5,4 @@
 [Psalms 23:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/23.2?lang=eng#p2)
 
 
-[^a]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^a]: TG [[Guidance, Divine]].

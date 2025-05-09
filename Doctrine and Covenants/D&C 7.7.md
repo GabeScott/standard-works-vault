@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 16.19|Matt. 16:19.]]
-[^b]: [[Acts 15.7|Acts 15:7]]; [[D&C 6.28|D&C 6:28]]; JS—H 1:72. TG [Priesthood, Keys of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-keys-of?lang=eng).
+[^b]: [[Acts 15.7|Acts 15:7]]; [[D&C 6.28|D&C 6:28]]; JS—H 1:72. TG [[Priesthood, Keys of]].

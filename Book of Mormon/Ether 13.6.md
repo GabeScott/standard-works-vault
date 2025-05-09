@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 42.9|D&C 42:9]]; [[D&C 45.66|45:66 (66-67)]]; [[D&C 84.2|84:2 (2-5)]]; A of F 1:10.
-[^b]: [[Ezekiel 48.5|Ezek. 48:5 (4-5)]]; [[D&C 28.8|D&C 28:8]]. TG [Israel, Joseph, People of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng).
-[^c]: [[Alma 46.24|Alma 46:24 (24-26)]]. TG [Symbolism](https://www.churchofjesuschrist.org/study/scriptures/tg/symbolism?lang=eng).
+[^b]: [[Ezekiel 48.5|Ezek. 48:5 (4-5)]]; [[D&C 28.8|D&C 28:8]]. TG [[Israel, Joseph, People of]].
+[^c]: [[Alma 46.24|Alma 46:24 (24-26)]]. TG [[Blood, Symbolism of]].

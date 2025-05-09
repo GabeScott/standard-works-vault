@@ -5,4 +5,4 @@
 [Jeremiah 10:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.21?lang=eng#p21)
 
 
-[^a]: TG [Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)
+[^a]: TG [[Shepherd]].

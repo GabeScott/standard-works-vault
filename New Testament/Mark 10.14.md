@@ -5,4 +5,4 @@
 [Mark 10:14](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.14?lang=eng#p14)
 
 
-[^a]: [[Moroni 8.8|Moro. 8:8 (5-9)]]. TG [Example](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng).
+[^a]: [[Moroni 8.8|Moro. 8:8 (5-9)]]. TG [[Example, Ensample]].

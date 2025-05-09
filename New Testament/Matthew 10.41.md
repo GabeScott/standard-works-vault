@@ -5,5 +5,5 @@
 [Matthew 10:41](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.41?lang=eng#p41)
 
 
-[^a]: TG [Sustaining Church Leaders.](https://www.churchofjesuschrist.org/study/scriptures/tg/sustaining-church-leaders?lang=eng)
-[^b]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^a]: TG [[Sustaining Church Leaders]].
+[^b]: TG [[Reward]].

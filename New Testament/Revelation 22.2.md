@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 2.9|Gen. 2:9]]; [[Revelation 2.7|Rev. 2:7 (1-7)]]; [[1 Nephi 8.10|1 Ne. 8:10 (1-11).]]
-[^b]: TG [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
+[^b]: TG [[Immortality, Immortal]].
 [^c]: [[Ezekiel 47.12|Ezek. 47:12.]]

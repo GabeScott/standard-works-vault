@@ -6,4 +6,4 @@
 
 
 [^a]: [[Joshua 9.14|Josh. 9:14]]; [[Proverbs 15.22|Prov. 15:22]]; [[Isaiah 45.9|Isa. 45:9]]; 2 Ne. 9:28-29; Alma 37:12, 37; D&C 3:4, 13; [[D&C 22.4|22:4.]]
-[^b]: TG [God, Justice of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng); [God, Wisdom of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-wisdom-of?lang=eng)
+[^b]: TG [[God, Justice of]]; [[God, Wisdom of]].

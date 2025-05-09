@@ -7,4 +7,4 @@
 
 [^a]: [[Numbers 32.40|Num. 32:40]]; [[Joshua 17.1|Josh. 17:1.]]
 [^b]: HEB hold the sceptre of the muster-officer, the marshal’s staff.
-[^c]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^c]: TG [[Scribe]].

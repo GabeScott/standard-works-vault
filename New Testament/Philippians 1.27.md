@@ -6,6 +6,6 @@
 
 
 [^a]: Philip. 4:1 (1-7).
-[^b]: TG [Unity.](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng)
-[^c]: TG [Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng)
+[^b]: TG [[Unity]].
+[^c]: TG [[Mind, Minded]].
 [^d]: [[Jude 1.3|Jude 1:3.]]

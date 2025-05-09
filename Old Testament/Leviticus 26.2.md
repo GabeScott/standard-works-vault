@@ -5,4 +5,4 @@
 [Leviticus 26:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.2?lang=eng#p2)
 
 
-[^a]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
+[^a]: TG [[Reverence]].

@@ -6,4 +6,4 @@
 
 
 [^a]: JST John 1:32 And I knew him; for he who sent me …
-[^b]: TG [Holy Ghost, Baptism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-baptism-of?lang=eng)
+[^b]: TG [[Holy Ghost, Baptism of]].

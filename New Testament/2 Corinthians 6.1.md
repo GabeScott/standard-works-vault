@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Corinthians 3.9|1 Cor. 3:9.]]
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^c]: TG [[Grace]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Nephi 22.10|1 Ne. 22:10 (10-11)]]; [[D&C 133.3|D&C 133:3.]]
-[^b]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
-[^c]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
-[^d]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^b]: TG [[God, Power of]].
+[^c]: TG [[Jesus Christ, Second Coming]].
+[^d]: TG [[Salvation for the Dead]].

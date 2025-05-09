@@ -5,5 +5,5 @@
 [Mark 15:43](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.43?lang=eng#p43)
 
 
-[^a]: TG [Counselor.](https://www.churchofjesuschrist.org/study/scriptures/tg/counselor?lang=eng)
+[^a]: TG [[Counselor]].
 [^b]: GR requested, desired.

@@ -5,4 +5,4 @@
 [3 Nephi 13:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/13?lang=eng&id=p20#p20)
 
 
-[^a]: [[Helaman 5.8|Hel. 5:8]]; [[Helaman 8.25|8:25]]. TG [Treasure](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng).
+[^a]: [[Helaman 5.8|Hel. 5:8]]; [[Helaman 8.25|8:25]]. TG [[Treasure]].

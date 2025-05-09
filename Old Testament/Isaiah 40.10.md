@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 1.14|D&C 1:14 (13-14).]]
-[^b]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^b]: TG [[Reward]].

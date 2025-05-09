@@ -5,6 +5,6 @@
 [Leviticus 19:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.9?lang=eng#p9)
 
 
-[^a]: TG [Harvest.](https://www.churchofjesuschrist.org/study/scriptures/tg/harvest?lang=eng)
+[^a]: TG [[Harvest]].
 [^b]: [[Ruth 2.2|Ruth 2:2 (2, 12).]]
 [^c]: [[Ruth 2.8|Ruth 2:8 (2-9)]]; [[Mosiah 4.26|Mosiah 4:26]]; [[D&C 42.31|D&C 42:31.]]

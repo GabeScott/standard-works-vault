@@ -5,4 +5,4 @@
 [1 Corinthians 7:19](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/7.19?lang=eng#p19)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^a]: TG [[Circumcision]].

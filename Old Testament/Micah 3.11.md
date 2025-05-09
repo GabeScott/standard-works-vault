@@ -5,5 +5,5 @@
 [Micah 3:11](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/3.11?lang=eng#p11)
 
 
-[^a]: TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng); [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
-[^b]: TG [Priestcraft.](https://www.churchofjesuschrist.org/study/scriptures/tg/priestcraft?lang=eng)
+[^a]: TG [[Apostasy of Israel]]; [[False Prophets]].
+[^b]: TG [[Priestcraft]].

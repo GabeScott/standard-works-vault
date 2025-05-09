@@ -6,7 +6,7 @@
 
 
 [^a]: [[Romans 1.26|Rom. 1:26 (26-28).]]
-[^b]: TG [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
-[^c]: TG [Honesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
+[^b]: TG [[Sexual Immorality]].
+[^c]: TG [[Honesty]].
 [^d]: GR slanderers.
 [^e]: GR without self-control.

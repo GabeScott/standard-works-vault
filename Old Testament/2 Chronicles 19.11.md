@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 107.87|D&C 107:87 (87-88).]]
-[^b]: TG [Courage.](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng)
+[^b]: TG [[Courage, Courageous]].

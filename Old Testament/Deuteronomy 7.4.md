@@ -5,6 +5,6 @@
 [Deuteronomy 7:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.4?lang=eng#p4)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Apostasy of Israel]].
 [^b]: [[Deuteronomy 6.13|Deut. 6:13 (13-15)]]; [[D&C 4.2|D&C 4:2.]]
-[^c]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^c]: TG [[God, Indignation of]].

@@ -5,4 +5,4 @@
 [Romans 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.12?lang=eng#p12)
 
 
-[^a]: [[Luke 12.48|Luke 12:48]]. TG [Accountability](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng); [Law of Moses](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng).
+[^a]: [[Luke 12.48|Luke 12:48]]. TG [[Accountability]]; [[Law of Moses]].

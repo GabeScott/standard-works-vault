@@ -5,4 +5,4 @@
 [Hebrews 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.14?lang=eng#p14)
 
 
-[^a]: TG [Perseverance](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng); [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
+[^a]: TG [[Perseverance]]; [[Steadfastness, Steadfast]].

@@ -6,7 +6,7 @@
 
 
 [^a]: GR living.
-[^b]: TG [Spirituality.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirituality?lang=eng)
+[^b]: TG [[Spirituality]].
 [^c]: [[Hebrews 3.6|Heb. 3:6.]]
-[^d]: TG [Priesthood, Magnifying Callings within.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng)
-[^e]: TG [Jesus Christ, Types of, in Memory](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-memory?lang=eng); [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^d]: TG [[Priesthood, Magnifying Callings within]].
+[^e]: TG [[Jesus Christ, Types of, in Memory]]; [[Self-Sacrifice]].

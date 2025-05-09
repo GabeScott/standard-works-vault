@@ -5,5 +5,5 @@
 [Daniel 6:3](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.3?lang=eng#p3)
 
 
-[^a]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^a]: TG [[God, Spirit of]].
 [^b]: [[Genesis 41.41|Gen. 41:41 (38-45)]]; [[Esther 10.3|Esth. 10:3]]; Dan. 8:27.

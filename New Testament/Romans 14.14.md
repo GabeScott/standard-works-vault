@@ -5,5 +5,5 @@
 [Romans 14:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.14?lang=eng#p14)
 
 
-[^a]: GR ceremonially unclean. TG [Uncleanness](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng).
-[^b]: TG [Motivations.](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng)
+[^a]: GR ceremonially unclean. TG [[Uncleanness, Unclean]].
+[^b]: TG [[Motivations]].

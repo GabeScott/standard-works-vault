@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 130.7|D&C 130:7 (1-11).]]
-[^b]: TG [Earth, Destiny of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-destiny-of?lang=eng)
+[^b]: TG [[Earth, Destiny of]].

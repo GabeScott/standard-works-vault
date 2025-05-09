@@ -7,4 +7,4 @@
 
 [^a]: [[Jeremiah 23.27|Jer. 23:27 (27-39).]]
 [^b]: [[Job 9.8|Job 9:8.]]
-[^c]: IE Israel’s captors, typifying evil rulers who oppress the righteous; see v. 14. TG [Oppression](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng).
+[^c]: IE Israel’s captors, typifying evil rulers who oppress the righteous; see v. 14. TG [[Oppression, Oppress]].

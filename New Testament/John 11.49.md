@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 26.3|Matt. 26:3 (3-5).]]
-[^b]: TG [Priesthood, Aaronic.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-aaronic?lang=eng)
+[^b]: TG [[Priesthood, Aaronic]].

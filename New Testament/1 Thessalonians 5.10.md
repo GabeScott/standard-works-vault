@@ -5,4 +5,4 @@
 [1 Thessalonians 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.10?lang=eng#p10)
 
 
-[^a]: TG [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
+[^a]: TG [[Immortality, Immortal]].

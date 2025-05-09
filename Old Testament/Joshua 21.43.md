@@ -5,5 +5,5 @@
 [Joshua 21:43](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/21.43?lang=eng#p43)
 
 
-[^a]: TG [Israel, Land of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng); [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^a]: TG [[Israel, Land of]]; [[Promised Lands]].
 [^b]: OR covenanted (also v. 44).

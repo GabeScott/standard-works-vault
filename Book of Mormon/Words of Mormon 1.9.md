@@ -5,4 +5,4 @@
 [Words of Mormon 1:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/w-of-m/1?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^a]: TG [[Understanding]].

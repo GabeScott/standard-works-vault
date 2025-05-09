@@ -5,4 +5,4 @@
 [Proverbs 22:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.3?lang=eng#p3)
 
 
-[^a]: TG [Prudence.](https://www.churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
+[^a]: TG [[Prudence, Prudent]].

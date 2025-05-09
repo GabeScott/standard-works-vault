@@ -5,4 +5,4 @@
 [Helaman 16:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/16?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].

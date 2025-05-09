@@ -6,4 +6,4 @@
 
 
 [^a]: HEB strove with, or complained to. Ex. 32:22.
-[^b]: HEB put the Lord to the test. TG [Doubt](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng); [Test](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng).
+[^b]: HEB put the Lord to the test. TG [[Doubt, Doubtful]]; [[Testament]].

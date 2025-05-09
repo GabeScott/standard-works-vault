@@ -5,6 +5,6 @@
 [Isaiah 58:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/58.8?lang=eng#p8)
 
 
-[^a]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
-[^b]: TG [Health.](https://www.churchofjesuschrist.org/study/scriptures/tg/health?lang=eng)
+[^a]: TG [[Light]].
+[^b]: TG [[Health]].
 [^c]: OR rearguard.

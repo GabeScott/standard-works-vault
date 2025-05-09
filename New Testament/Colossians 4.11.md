@@ -5,4 +5,4 @@
 [Colossians 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/col/4.11?lang=eng#p11)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^a]: TG [[Circumcision]].

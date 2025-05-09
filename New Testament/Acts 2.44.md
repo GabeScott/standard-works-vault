@@ -5,4 +5,4 @@
 [Acts 2:44](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.44?lang=eng#p44)
 
 
-[^a]: TG [Consecration.](https://www.churchofjesuschrist.org/study/scriptures/tg/consecration?lang=eng)
+[^a]: TG [[Consecration]].

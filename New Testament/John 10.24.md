@@ -5,4 +5,4 @@
 [John 10:24](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.24?lang=eng#p24)
 
 
-[^a]: TG [Doubt.](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng)
+[^a]: TG [[Doubt, Doubtful]].

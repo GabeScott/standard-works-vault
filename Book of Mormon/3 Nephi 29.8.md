@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 19.14|1 Ne. 19:14.]]
-[^b]: [[2 Nephi 29.5|2 Ne. 29:5 (4-5)]]. TG [Backbiting](https://www.churchofjesuschrist.org/study/scriptures/tg/backbiting?lang=eng).
-[^c]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^b]: [[2 Nephi 29.5|2 Ne. 29:5 (4-5)]]. TG [[Backbiting]].
+[^c]: TG [[Israel, Judah, People of]].

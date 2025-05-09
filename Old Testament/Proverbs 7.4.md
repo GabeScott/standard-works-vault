@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 37.35|Alma 37:35.]]
-[^b]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^b]: TG [[Understanding]].

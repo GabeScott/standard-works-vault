@@ -5,6 +5,6 @@
 [Titus 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/1.8?lang=eng#p8)
 
 
-[^a]: TG [Hospitality.](https://www.churchofjesuschrist.org/study/scriptures/tg/hospitality?lang=eng)
+[^a]: TG [[Hospitality]].
 [^b]: GR what is good.
-[^c]: GR self-controlled. TG [Temperance](https://www.churchofjesuschrist.org/study/scriptures/tg/temperance?lang=eng).
+[^c]: GR self-controlled. TG [[Temperance, Temperate]].

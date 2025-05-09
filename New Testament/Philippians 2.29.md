@@ -5,6 +5,6 @@
 [Philippians 2:29](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.29?lang=eng#p29)
 
 
-[^a]: TG [Cheerful.](https://www.churchofjesuschrist.org/study/scriptures/tg/cheerful?lang=eng)
+[^a]: TG [[Cheerful, Cheerfulness]].
 [^b]: 1 Thes. 5:13.
 [^c]: GR honor.

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 76.9|Ps. 76:9]]; [[3 Nephi 12.5|3 Ne. 12:5]]; [[D&C 88.17|D&C 88:17 (15-17).]]
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^c]: TG [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
+[^b]: TG [[God, the Standard of Righteousness]].
+[^c]: TG [[World, End of]].

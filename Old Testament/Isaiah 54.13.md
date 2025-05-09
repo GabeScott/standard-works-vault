@@ -5,6 +5,6 @@
 [Isaiah 54:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.13?lang=eng#p13)
 
 
-[^a]: TG [Children](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng); Family, [Children](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng), Responsibilities toward.
-[^b]: TG [Teachable](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng); [Teaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng)
-[^c]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
+[^a]: TG [[Children]]; Family, [[Children]], Responsibilities toward.
+[^b]: TG [[Teachable]]; [[Teaching with the Spirit]].
+[^c]: TG [[Israel, Restoration of]].

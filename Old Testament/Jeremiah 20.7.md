@@ -6,4 +6,4 @@
 
 
 [^a]: HEB persuaded.
-[^b]: Lam. 3:14. TG [Despair](https://www.churchofjesuschrist.org/study/scriptures/tg/despair?lang=eng); [Suffering](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng).
+[^b]: Lam. 3:14. TG [[Despair]]; [[Suffering]].

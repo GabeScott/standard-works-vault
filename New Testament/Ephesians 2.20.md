@@ -5,6 +5,6 @@
 [Ephesians 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.20?lang=eng#p20)
 
 
-[^a]: TG [Apostles](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng); [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
-[^b]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
-[^c]: TG [Cornerstone.](https://www.churchofjesuschrist.org/study/scriptures/tg/cornerstone?lang=eng)
+[^a]: TG [[Apostles]]; [[Church Organization]].
+[^b]: TG [[Prophets, Mission of]].
+[^c]: TG [[Cornerstone]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 14.1|Isa. 14:1.]]
-[^b]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^b]: TG [[Zion, Sion]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 37.6|Isa. 37:6 (6-7).]]
-[^b]: TG [Israel, Bondage of, in Egypt](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-egypt?lang=eng); [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
+[^b]: TG [[Israel, Bondage of, in Egypt]]; [[Israel, Bondage of, in Other Lands]].

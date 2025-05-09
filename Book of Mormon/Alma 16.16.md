@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 18.27|Mosiah 18:27 (19-29)]]; 4 Ne. 1:3.
-[^b]: [[Acts 16.14|Acts 16:14]]. TG [Teachable](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng).
+[^b]: [[Acts 16.14|Acts 16:14]]. TG [[Teachable]].

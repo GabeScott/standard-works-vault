@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 53.5|Isa. 53:5 (3-5).]]
-[^b]: TG [Jesus Christ, Temptation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-temptation-of?lang=eng)
+[^b]: TG [[Jesus Christ, Temptation of]].
 [^c]: [[Mosiah 14.4|Mosiah 14:4 (3-5).]]

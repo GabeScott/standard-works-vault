@@ -5,6 +5,6 @@
 [2 Nephi 26:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Charity.](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng)
+[^a]: TG [[Charity]].
 [^b]: [[Moroni 7.47|Moro. 7:47 (47-48).]]
-[^c]: TG [God, Love of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng); [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^c]: TG [[God, Love of]]; [[Love]].

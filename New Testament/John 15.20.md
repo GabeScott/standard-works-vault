@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 10.24|Matt. 10:24 (24-25).]]
-[^b]: [[D&C 6.29|D&C 6:29]]. TG [Persecution](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng).
+[^b]: [[D&C 6.29|D&C 6:29]]. TG [[Persecution, Persecute]].

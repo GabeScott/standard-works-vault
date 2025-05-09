@@ -5,5 +5,5 @@
 [Alma 11:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Wages.](https://www.churchofjesuschrist.org/study/scriptures/tg/wages?lang=eng)
+[^a]: TG [[Wages]].
 [^b]: [[Alma 10.32|Alma 10:32.]]

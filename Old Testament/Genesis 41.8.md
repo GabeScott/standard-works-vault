@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 2:1 (1-3).
-[^b]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^b]: TG [[Sorcery]].

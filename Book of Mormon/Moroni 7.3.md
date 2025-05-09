@@ -5,7 +5,7 @@
 [Moroni 7:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Jesus Christ, Head of the Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-head-of-the-church?lang=eng)
+[^a]: TG [[Jesus Christ, Head of the Church]].
 [^b]: [[Acts 13.16|Acts 13:16]]; [[Romans 16.20|Rom. 16:20.]]
 [^c]: [[Alma 7.16|Alma 7:16]]; [[Ether 12.4|Ether 12:4]]; [[D&C 138.14|D&C 138:14.]]
-[^d]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^d]: TG [[Restoration of the Gospel]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ephesians 1.11|Eph. 1:11]]; [[Hebrews 6.15|Heb. 6:15 (13-15).]]
-[^b]: [[1 Nephi 2.20|1 Ne. 2:20]]; [[1 Nephi 18.8|18:8 (8, 22-23)]]. TG [Promised Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng).
-[^c]: TG [Faith](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng); [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^b]: [[1 Nephi 2.20|1 Ne. 2:20]]; [[1 Nephi 18.8|18:8 (8, 22-23)]]. TG [[Promised Lands]].
+[^c]: TG [[Faith]]; [[Trust in God]].

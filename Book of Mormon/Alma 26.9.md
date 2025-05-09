@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 28.2|Mosiah 28:2.]]
-[^b]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^b]: TG [[Stranger]].

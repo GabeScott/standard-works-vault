@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Timothy 1.13|1 Tim. 1:13.]]
-[^b]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^b]: TG [[Name of the Lord]].

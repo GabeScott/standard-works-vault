@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 19.22|1 Ne. 19:22]]; [[2 Nephi 4.2|2 Ne. 4:2.]]
-[^b]: TG [Interpretation.](https://www.churchofjesuschrist.org/study/scriptures/tg/interpretation?lang=eng)
-[^c]: TG [Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual?lang=eng)
+[^b]: TG [[Interpretation]].
+[^c]: TG [[Spiritual Blindness]].

@@ -5,6 +5,6 @@
 [Acts 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.20?lang=eng#p20)
 
 
-[^a]: TG [Darkness, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-physical?lang=eng)
+[^a]: TG [[Darkness, Physical]].
 [^b]: GR glorious.
-[^c]: TG [Day of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/day-of-the-lord?lang=eng)
+[^c]: TG [[Day of the Lord]].

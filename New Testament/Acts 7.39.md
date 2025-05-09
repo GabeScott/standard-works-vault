@@ -5,4 +5,4 @@
 [Acts 7:39](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.39?lang=eng#p39)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].

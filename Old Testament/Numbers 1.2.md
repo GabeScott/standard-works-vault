@@ -7,5 +7,5 @@
 
 [^a]: [[Numbers 26.2|Num. 26:2 (1-51).]]
 [^b]: [[Mosiah 6.3|Mosiah 6:3]]; [[Ether 1.41|Ether 1:41]]; [[D&C 48.6|D&C 48:6.]]
-[^c]: TG [Family, Patriarchal.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-patriarchal?lang=eng)
+[^c]: TG [[Family, Patriarchal]].
 [^d]: OR a head count.

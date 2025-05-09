@@ -5,6 +5,6 @@
 [Isaiah 26:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/26.19?lang=eng#p19)
 
 
-[^a]: TG [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
-[^b]: TG [Jesus Christ, Foreordained.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-foreordained?lang=eng)
-[^c]: TG [Jesus Christ, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng); [Jesus Christ, Resurrection](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng); [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^a]: TG [[Immortality, Immortal]].
+[^b]: TG [[Jesus Christ, Foreordained]].
+[^c]: TG [[Jesus Christ, Mission of]]; [[Jesus Christ, Resurrection]]; [[Jesus Christ, Resurrection]].

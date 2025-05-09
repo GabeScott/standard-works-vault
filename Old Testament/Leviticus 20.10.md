@@ -6,6 +6,6 @@
 
 
 [^a]: [[Ezekiel 18.11|Ezek. 18:11.]]
-[^b]: TG [Adulterer](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng); [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
+[^b]: TG [[Adulterer, Adultery]]; [[Sexual Immorality]].
 [^c]: [[John 8.5|John 8:5.]]
-[^d]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^d]: TG [[Capital Punishment]].

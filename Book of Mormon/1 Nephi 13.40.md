@@ -5,8 +5,8 @@
 [1 Nephi 13:40](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p40#p40)
 
 
-[^a]: [[2 Nephi 26.17|2 Ne. 26:17 (16-17)]]; [[2 Nephi 27.6|27:6 (6-26)]]; [[2 Nephi 29.12|29:12]]. TG [Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-mormon?lang=eng).
-[^b]: TG [Scriptures, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng)
-[^c]: See the title page of the Book of Mormon. TG [Bible](https://www.churchofjesuschrist.org/study/scriptures/tg/bible?lang=eng).
+[^a]: [[2 Nephi 26.17|2 Ne. 26:17 (16-17)]]; [[2 Nephi 27.6|27:6 (6-26)]]; [[2 Nephi 29.12|29:12]]. TG [[Book of Mormon]].
+[^b]: TG [[Scriptures, Value of]].
+[^c]: See the title page of the Book of Mormon. TG [[Bible]].
 [^d]: [[1 Nephi 11.29|1 Ne. 11:29]]; [[1 Nephi 12.9|12:9.]]
 [^e]: [[Moses 1.6|Moses 1:6.]]

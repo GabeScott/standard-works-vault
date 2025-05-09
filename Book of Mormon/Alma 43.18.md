@@ -5,4 +5,4 @@
 [Alma 43:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/43?lang=eng&id=p18#p18)
 
 
-[^a]: TG [Weapon.](https://www.churchofjesuschrist.org/study/scriptures/tg/weapon?lang=eng)
+[^a]: TG [[Weapon]].

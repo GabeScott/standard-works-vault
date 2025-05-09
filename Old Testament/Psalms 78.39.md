@@ -5,4 +5,4 @@
 [Psalms 78:39](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.39?lang=eng#p39)
 
 
-[^a]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
+[^a]: TG [[Mortality]].

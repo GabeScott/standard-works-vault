@@ -5,4 +5,4 @@
 [Isaiah 13:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.9?lang=eng#p9)
 
 
-[^a]: TG [Earth, Cleansing of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng); [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
+[^a]: TG [[Earth, Cleansing of]]; [[World, End of]].

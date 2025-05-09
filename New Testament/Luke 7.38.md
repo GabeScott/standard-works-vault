@@ -5,4 +5,4 @@
 [Luke 7:38](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.38?lang=eng#p38)
 
 
-[^a]: TG [Anointing.](https://www.churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng)
+[^a]: TG [[Anointing, Anoint]].

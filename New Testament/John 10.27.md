@@ -5,5 +5,5 @@
 [John 10:27](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.27?lang=eng#p27)
 
 
-[^a]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^a]: TG [[Sheep]].
 [^b]: [[D&C 38.22|D&C 38:22.]]

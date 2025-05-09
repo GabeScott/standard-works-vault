@@ -5,4 +5,4 @@
 [Luke 22:40](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/22.40?lang=eng#p40)
 
 
-[^a]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
+[^a]: TG [[Temptation]].

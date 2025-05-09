@@ -5,4 +5,4 @@
 [Job 14:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/14.22?lang=eng#p22)
 
 
-[^a]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
+[^a]: TG [[Pain]].

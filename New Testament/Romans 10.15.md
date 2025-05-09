@@ -5,8 +5,8 @@
 [Romans 10:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.15?lang=eng#p15)
 
 
-[^a]: TG [Missionary Work](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng); [Preaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
-[^b]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
+[^a]: TG [[Missionary Work]]; [[Preaching, Preach]].
+[^b]: TG [[Called of God]].
 [^c]: [[Nahum 1.15|Nahum 1:15.]]
-[^d]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
-[^e]: TG [Peacemakers](https://www.churchofjesuschrist.org/study/scriptures/tg/peacemakers?lang=eng); [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^d]: TG [[Gospel]].
+[^e]: TG [[Peacemakers]]; [[Peace of God]].

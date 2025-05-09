@@ -5,4 +5,4 @@
 [Psalms 132:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/132.13?lang=eng#p13)
 
 
-[^a]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^a]: TG [[Zion, Sion]].

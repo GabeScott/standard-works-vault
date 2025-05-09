@@ -5,5 +5,5 @@
 [Alma 9:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/9?lang=eng&id=p23#p23)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].
 [^b]: [[Matthew 11.22|Matt. 11:22 (22-24).]]

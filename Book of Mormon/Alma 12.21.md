@@ -5,5 +5,5 @@
 [Alma 12:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p21#p21)
 
 
-[^a]: [[Genesis 3.24|Gen. 3:24]]; [[Alma 42.2|Alma 42:2]]; [[Moses 4.31|Moses 4:31]]. TG [Cherubim](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng).
-[^b]: TG [Eden.](https://www.churchofjesuschrist.org/study/scriptures/tg/eden?lang=eng)
+[^a]: [[Genesis 3.24|Gen. 3:24]]; [[Alma 42.2|Alma 42:2]]; [[Moses 4.31|Moses 4:31]]. TG [[Cherubim]].
+[^b]: TG [[Eden]].

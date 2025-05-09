@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 69.2|Ps. 69:2 (1-2, 14).]]
-[^b]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
+[^b]: TG [[Woman, Women]].

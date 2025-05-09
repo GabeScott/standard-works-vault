@@ -6,6 +6,6 @@
 
 
 [^a]: GR May it not be!
-[^b]: [[D&C 82.3|D&C 82:3 (3-4)]]. TG [Law of Moses](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng).
-[^c]: TG [Lust.](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
-[^d]: GR lust for, set the heart upon. TG [Covet](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng).
+[^b]: [[D&C 82.3|D&C 82:3 (3-4)]]. TG [[Law of Moses]].
+[^c]: TG [[Lust]].
+[^d]: GR lust for, set the heart upon. TG [[Covet, Covetousness]].

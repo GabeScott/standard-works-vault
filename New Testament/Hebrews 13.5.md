@@ -5,6 +5,6 @@
 [Hebrews 13:5](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/13.5?lang=eng#p5)
 
 
-[^a]: TG [Covet.](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
-[^b]: TG [Contentment.](https://www.churchofjesuschrist.org/study/scriptures/tg/contentment?lang=eng)
+[^a]: TG [[Covet, Covetousness]].
+[^b]: TG [[Contentment]].
 [^c]: [[Joshua 1.5|Josh. 1:5]]; [[1 Kings 6.13|1 Kgs. 6:13.]]

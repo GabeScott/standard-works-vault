@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 32.14|Alma 32:14 (14-15).]]
 [^b]: [[Leviticus 26.33|Lev. 26:33 (31-35).]]
-[^c]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^c]: TG [[Curse]].

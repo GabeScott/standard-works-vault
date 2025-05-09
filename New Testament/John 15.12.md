@@ -5,5 +5,5 @@
 [John 15:12](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.12?lang=eng#p12)
 
 
-[^a]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^a]: TG [[Love]].
 [^b]: [[D&C 6.20|D&C 6:20.]]

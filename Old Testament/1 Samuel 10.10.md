@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Samuel 19.20|1 Sam. 19:20.]]
-[^b]: TG [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
+[^b]: TG [[Man, New, Spiritually Reborn]].

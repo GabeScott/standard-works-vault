@@ -6,4 +6,4 @@
 
 
 [^a]: [[Romans 5.13|Rom. 5:13]]; [[2 Nephi 9.25|2 Ne. 9:25]]; [[Alma 42.17|Alma 42:17 (12-24).]]
-[^b]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^b]: TG [[Transgressor]].

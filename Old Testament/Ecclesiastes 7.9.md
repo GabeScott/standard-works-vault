@@ -5,6 +5,6 @@
 [Ecclesiastes 7:9](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/7.9?lang=eng#p9)
 
 
-[^a]: TG [Rashness.](https://www.churchofjesuschrist.org/study/scriptures/tg/rashness?lang=eng)
+[^a]: TG [[Rashness]].
 [^b]: [[Proverbs 29.22|Prov. 29:22 (21-23).]]
-[^c]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^c]: TG [[Anger]].

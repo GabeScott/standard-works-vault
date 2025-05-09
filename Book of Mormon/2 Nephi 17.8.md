@@ -5,4 +5,4 @@
 [2 Nephi 17:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/17?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^a]: TG [[Israel, Scattering of]].

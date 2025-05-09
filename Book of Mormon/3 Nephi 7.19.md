@@ -5,6 +5,6 @@
 [3 Nephi 7:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p19#p19)
 
 
-[^a]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
+[^a]: TG [[Spirits, Evil or Unclean]].
 [^b]: [[3 Nephi 19.4|3 Ne. 19:4.]]
-[^c]: TG [Death, Power over.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-power-over?lang=eng)
+[^c]: TG [[Death, Power over]].

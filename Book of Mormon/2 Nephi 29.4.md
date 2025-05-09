@@ -7,5 +7,5 @@
 
 [^a]: [[Romans 3.2|Rom. 3:2 (1-3).]]
 [^b]: [[Nehemiah 1.10|Neh. 1:10]]; [[1 Nephi 13.25|1 Ne. 13:25 (23-25)]]; [[D&C 3.16|D&C 3:16.]]
-[^c]: TG [Ingratitude](https://www.churchofjesuschrist.org/study/scriptures/tg/ingratitude?lang=eng); [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
-[^d]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^c]: TG [[Ingratitude]]; [[Thanksgiving]].
+[^d]: TG [[Israel, Judah, People of]].

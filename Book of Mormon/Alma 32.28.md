@@ -7,7 +7,7 @@
 
 [^a]: [[Alma 33.1|Alma 33:1.]]
 [^b]: [[Luke 8.11|Luke 8:11 (11-15).]]
-[^c]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
-[^d]: TG [Doubt](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng); [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
-[^e]: TG [Discernment, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/discernment-spiritual?lang=eng); [Edification.](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng)
-[^f]: TG [Intelligence](https://www.churchofjesuschrist.org/study/scriptures/tg/intelligence?lang=eng); [Testimony](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng); [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^c]: TG [[Heart]].
+[^d]: TG [[Doubt, Doubtful]]; [[Unbelief, Unbelievers]].
+[^e]: TG [[Discernment, Spiritual]]; [[Edification, Edify]].
+[^f]: TG [[Intelligence]]; [[Testimony]]; [[Understanding]].

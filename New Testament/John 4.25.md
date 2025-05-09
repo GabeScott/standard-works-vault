@@ -5,5 +5,5 @@
 [John 4:25](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.25?lang=eng#p25)
 
 
-[^a]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
+[^a]: TG [[Jesus Christ, Messiah]].
 [^b]: [[Deuteronomy 18.18|Deut. 18:18.]]

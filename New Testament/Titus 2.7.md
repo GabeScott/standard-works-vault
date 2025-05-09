@@ -6,4 +6,4 @@
 
 
 [^a]: GR dignity, respectfulness.
-[^b]: TG [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
+[^b]: TG [[Sincere, Sincerity]].

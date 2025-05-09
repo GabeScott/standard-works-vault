@@ -6,9 +6,9 @@
 
 
 [^a]: [[Romans 15.10|Rom. 15:10 (8-21).]]
-[^b]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^b]: TG [[Repent, Repentance]].
 [^c]: [[Alma 16.18|Alma 16:18]]; [[3 Nephi 21.19|3 Ne. 21:19 (19-21).]]
 [^d]: [[3 Nephi 16.10|3 Ne. 16:10]]; [[Mormon 8.31|Morm. 8:31.]]
-[^e]: TG [Priestcraft.](https://www.churchofjesuschrist.org/study/scriptures/tg/priestcraft?lang=eng)
-[^f]: TG [Envy.](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
+[^e]: TG [[Priestcraft]].
+[^f]: TG [[Envy, Envious]].
 [^g]: [[Galatians 3.29|Gal. 3:29 (27-29)]]; [[2 Nephi 10.18|2 Ne. 10:18 (18-19)]]; [[3 Nephi 21.22|3 Ne. 21:22 (22-25)]]; [[Abraham 2.10|Abr. 2:10.]]

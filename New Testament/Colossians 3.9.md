@@ -5,5 +5,5 @@
 [Colossians 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/col/3.9?lang=eng#p9)
 
 
-[^a]: TG [Honesty](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng); [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^a]: TG [[Honesty]]; [[Lying, Liar, Lie]].
 [^b]: [[Romans 6.6|Rom. 6:6]]; [[Mosiah 3.19|Mosiah 3:19.]]

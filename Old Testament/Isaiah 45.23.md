@@ -5,5 +5,5 @@
 [Isaiah 45:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.23?lang=eng#p23)
 
 
-[^a]: [[Romans 14.11|Rom. 14:11]]; Philip. 2:10. TG [Jesus Christ, Second Coming](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng).
+[^a]: [[Romans 14.11|Rom. 14:11]]; Philip. 2:10. TG [[Jesus Christ, Second Coming]].
 [^b]: OR take an oath, or covenant. Deut. 6:13.

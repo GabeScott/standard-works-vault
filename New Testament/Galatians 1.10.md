@@ -6,5 +6,5 @@
 
 
 [^a]: GR appease, aspire to the favor of. JST Gal. 1:10 … please …
-[^b]: TG [Peer Influence.](https://www.churchofjesuschrist.org/study/scriptures/tg/peer-influence?lang=eng)
-[^c]: TG [Courage.](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng)
+[^b]: TG [[Peer Influence]].
+[^c]: TG [[Courage, Courageous]].

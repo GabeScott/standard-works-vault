@@ -5,4 +5,4 @@
 [3 Nephi 21:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p17#p17)
 
 
-[^a]: [[Exodus 20.4|Ex. 20:4 (3-4, 23)]]; [[Isaiah 41.29|Isa. 41:29 (24, 29)]]; [[Mosiah 13.12|Mosiah 13:12]]; [[D&C 1.16|D&C 1:16]]. TG [Idolatry](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng).
+[^a]: [[Exodus 20.4|Ex. 20:4 (3-4, 23)]]; [[Isaiah 41.29|Isa. 41:29 (24, 29)]]; [[Mosiah 13.12|Mosiah 13:12]]; [[D&C 1.16|D&C 1:16]]. TG [[Idolatry, Idol]].

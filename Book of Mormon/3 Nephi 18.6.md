@@ -5,4 +5,4 @@
 [3 Nephi 18:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Jesus Christ, Exemplar.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-exemplar?lang=eng)
+[^a]: TG [[Jesus Christ, Exemplar]].

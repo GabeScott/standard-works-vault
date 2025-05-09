@@ -6,4 +6,4 @@
 
 
 [^a]: IE The lookout point.
-[^b]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
+[^b]: TG [[Watch, Watchfulness]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Ezekiel 36.25|Ezek. 36:25.]]
 [^b]: [[Zechariah 9.16|Zech. 9:16.]]
-[^c]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^c]: TG [[Purification, Purify, Purifying]].

@@ -5,5 +5,5 @@
 [Alma 20:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/20?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^a]: TG [[Strength]].
 [^b]: [[Alma 20.22|Alma 20:22]]; [[Alma 22.2|22:2.]]

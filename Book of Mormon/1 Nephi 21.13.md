@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 44.23|Isa. 44:23.]]
-[^b]: TG [Earth, Renewal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
+[^b]: TG [[Earth, Renewal of]].
 [^c]: [[2 Samuel 22.28|2 Sam. 22:28]]; [[Psalms 18.27|Ps. 18:27]]; [[Isaiah 49.13|Isa. 49:13.]]

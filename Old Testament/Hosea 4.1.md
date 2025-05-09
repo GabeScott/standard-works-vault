@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 25.31|Jer. 25:31]]; [[Hosea 12.2|Hosea 12:2 (1-2)]]; [[Micah 6.2|Micah 6:2.]]
-[^b]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
-[^c]: TG [God, Knowledge about.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng)
+[^b]: TG [[Truth]].
+[^c]: TG [[God, Knowledge about]].

@@ -5,8 +5,8 @@
 [Alma 41:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/41?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Honesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
+[^a]: TG [[Honesty]].
 [^b]: [[Matthew 7.1|Matt. 7:1 (1-5)]]; [[D&C 11.12|D&C 11:12.]]
-[^c]: TG [Benevolence.](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng)
-[^d]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
-[^e]: TG [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
+[^c]: TG [[Benevolence]].
+[^d]: TG [[Reward]].
+[^e]: TG [[Mercy, Merciful]].

@@ -5,6 +5,6 @@
 [2 Nephi 1:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p18#p18)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^a]: TG [[Curse]].
 [^b]: [[1 Nephi 12.21|1 Ne. 12:21 (20-23).]]
-[^c]: [[Revelation 12.9|Rev. 12:9 (7-9)]]; [[Moses 1.12|Moses 1:12]]. TG [Devil](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng).
+[^c]: [[Revelation 12.9|Rev. 12:9 (7-9)]]; [[Moses 1.12|Moses 1:12]]. TG [[Devil, Church of]].

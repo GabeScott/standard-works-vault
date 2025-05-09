@@ -5,4 +5,4 @@
 [1 Nephi 13:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/13?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^a]: TG [[Guidance, Divine]].

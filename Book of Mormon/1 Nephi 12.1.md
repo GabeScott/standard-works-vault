@@ -5,5 +5,5 @@
 [1 Nephi 12:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/12?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^a]: TG [[Promised Lands]].
 [^b]: [[Genesis 22.17|Gen. 22:17 (17-18)]]; [[1 Kings 4.20|1 Kgs. 4:20.]]

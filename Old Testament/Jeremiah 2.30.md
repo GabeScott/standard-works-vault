@@ -5,4 +5,4 @@
 [Jeremiah 2:30](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.30?lang=eng#p30)
 
 
-[^a]: TG [Chastening.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng)
+[^a]: TG [[Chastening]].

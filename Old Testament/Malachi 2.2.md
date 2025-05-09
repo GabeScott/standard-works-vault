@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 28.15|Deut. 28:15.]]
-[^b]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^b]: TG [[Curse]].

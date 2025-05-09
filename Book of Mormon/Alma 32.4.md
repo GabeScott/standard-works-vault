@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 47.5|Alma 47:5.]]
-[^b]: TG [Assembly for Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/assembly-for-worship?lang=eng)
-[^c]: TG [Poor in Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/poor-in-spirit?lang=eng)
+[^b]: TG [[Assembly for Worship]].
+[^c]: TG [[Poor in Spirit]].

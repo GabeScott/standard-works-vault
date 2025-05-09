@@ -5,4 +5,4 @@
 [Romans 4:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/4.21?lang=eng#p21)
 
 
-[^a]: [[Genesis 18.14|Gen. 18:14]]; [[Luke 1.37|Luke 1:37]]. TG [Promise](https://www.churchofjesuschrist.org/study/scriptures/tg/promise?lang=eng).
+[^a]: [[Genesis 18.14|Gen. 18:14]]; [[Luke 1.37|Luke 1:37]]. TG [[Promise]].

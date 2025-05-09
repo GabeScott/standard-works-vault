@@ -5,4 +5,4 @@
 [Psalms 8:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/8.2?lang=eng#p2)
 
 
-[^a]: TG [Children.](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng)
+[^a]: TG [[Children]].

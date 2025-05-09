@@ -5,5 +5,5 @@
 [Joseph Smith Matthew 1:44](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.44?lang=eng#p44)
 
 
-[^a]: TG [Earth, Cleansing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng)
+[^a]: TG [[Earth, Cleansing of]].
 [^b]: [[Zechariah 13.8|Zech. 13:8.]]

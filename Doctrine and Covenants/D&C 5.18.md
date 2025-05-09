@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 14.7|1 Ne. 14:7]]; [[D&C 20.13|D&C 20:13 (13-15).]]
-[^b]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^b]: TG [[Hardheartedness, Harden, Hardness]].

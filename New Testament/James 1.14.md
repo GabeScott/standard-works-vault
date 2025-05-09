@@ -5,5 +5,5 @@
 [James 1:14](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.14?lang=eng#p14)
 
 
-[^a]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
-[^b]: TG [Chastity](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng); [Lust](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng); [Motivations](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng); [Sensuality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sensuality?lang=eng)
+[^a]: TG [[Temptation]].
+[^b]: TG [[Chastity, Chaste]]; [[Lust]]; [[Motivations]]; [[Sensuality]].

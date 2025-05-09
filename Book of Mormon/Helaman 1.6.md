@@ -5,4 +5,4 @@
 [Helaman 1:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/1?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Unity.](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng)
+[^a]: TG [[Unity]].

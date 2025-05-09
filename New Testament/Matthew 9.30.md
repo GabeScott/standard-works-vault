@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 146.8|Ps. 146:8 (1-10).]]
-[^b]: TG [Heal](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng); [Miracle.](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
+[^b]: TG [[Health]]; [[Miracle]].
 [^c]: GR warned them sternly.

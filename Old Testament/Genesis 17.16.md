@@ -5,4 +5,4 @@
 [Genesis 17:16](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.16?lang=eng#p16)
 
 
-[^a]: TG [God, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
+[^a]: TG [[God, Gifts of]].

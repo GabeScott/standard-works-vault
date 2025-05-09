@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 30.13|Ex. 30:13]]; [[Exodus 38.26|38:26.]]
-[^b]: TG [Citizenship.](https://www.churchofjesuschrist.org/study/scriptures/tg/citizenship?lang=eng)
+[^b]: TG [[Citizenship]].

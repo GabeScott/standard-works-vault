@@ -6,6 +6,6 @@
 
 
 [^a]: [[Judges 11.30|Judg. 11:30 (30-31).]]
-[^b]: TG [Vow.](https://www.churchofjesuschrist.org/study/scriptures/tg/vow?lang=eng)
+[^b]: TG [[Vow]].
 [^c]: [[Luke 1.48|Luke 1:48 (48-49).]]
 [^d]: [[Numbers 6.5|Num. 6:5 (1-8)]]; [[Judges 13.5|Judg. 13:5.]]

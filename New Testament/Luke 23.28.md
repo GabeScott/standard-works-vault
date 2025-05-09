@@ -5,4 +5,4 @@
 [Luke 23:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.28?lang=eng#p28)
 
 
-[^a]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^a]: TG [[Jerusalem]].

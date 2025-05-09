@@ -5,4 +5,4 @@
 [Psalms 91:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/91.2?lang=eng#p2)
 
 
-[^a]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Trust in God]].

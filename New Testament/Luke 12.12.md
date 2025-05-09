@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 4.12|Ex. 4:12]]; [[D&C 24.6|D&C 24:6.]]
-[^b]: TG [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
+[^b]: TG [[Holy Ghost, Mission of]].

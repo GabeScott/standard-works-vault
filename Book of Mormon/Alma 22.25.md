@@ -5,4 +5,4 @@
 [Alma 22:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p25#p25)
 
 
-[^a]: TG [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)makers.
+[^a]: TG [[Peace of God]]; [[Peace of God]]makers.

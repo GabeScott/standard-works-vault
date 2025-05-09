@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 13.7|Luke 13:7.]]
-[^b]: TG [Death, Spiritual, Second.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng)
+[^b]: TG [[Death, Spiritual, Second]].

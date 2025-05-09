@@ -5,7 +5,7 @@
 [Proverbs 3:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.3?lang=eng#p3)
 
 
-[^a]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^a]: TG [[Truth]].
 [^b]: [[Deuteronomy 6.8|Deut. 6:8 (4-10).]]
 [^c]: [[2 Corinthians 3.3|2 Cor. 3:3 (2-3).]]
-[^d]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^d]: TG [[Heart]].

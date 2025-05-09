@@ -5,5 +5,5 @@
 [John 8:3](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.3?lang=eng#p3)
 
 
-[^a]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
-[^b]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^a]: TG [[Woman, Women]].
+[^b]: TG [[Adulterer, Adultery]].

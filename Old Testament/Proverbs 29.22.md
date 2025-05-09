@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ecclesiastes 7.9|Eccl. 7:9]]; [[Matthew 5.22|Matt. 5:22.]]
-[^b]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
+[^b]: TG [[Strife]].

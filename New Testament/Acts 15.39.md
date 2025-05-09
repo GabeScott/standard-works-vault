@@ -5,4 +5,4 @@
 [Acts 15:39](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.39?lang=eng#p39)
 
 
-[^a]: TG [Contention.](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
+[^a]: TG [[Contention]].

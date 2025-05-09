@@ -5,11 +5,11 @@
 [Philippians 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/4.8?lang=eng#p8)
 
 
-[^a]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
-[^b]: TG [Honesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
-[^c]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^d]: TG [Purity.](https://www.churchofjesuschrist.org/study/scriptures/tg/purity?lang=eng)
-[^e]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
+[^a]: TG [[Truth]].
+[^b]: TG [[Honesty]].
+[^c]: TG [[God, the Standard of Righteousness]].
+[^d]: TG [[Purity, Pure]].
+[^e]: TG [[Beauty]].
 [^f]: A of F 1:13.
-[^g]: TG [Chastity](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng); [Virtue.](https://www.churchofjesuschrist.org/study/scriptures/tg/virtue?lang=eng)
-[^h]: TG [Motivations](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng); [Study.](https://www.churchofjesuschrist.org/study/scriptures/tg/study?lang=eng)
+[^g]: TG [[Chastity, Chaste]]; [[Virtue, Virtuous]].
+[^h]: TG [[Motivations]]; [[Study]].

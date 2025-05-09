@@ -5,4 +5,4 @@
 [Luke 13:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.14?lang=eng#p14)
 
 
-[^a]: TG [Industry.](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng)
+[^a]: TG [[Industry, Industrious]].

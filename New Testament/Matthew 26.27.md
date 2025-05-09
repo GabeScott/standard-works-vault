@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Corinthians 10.16|1 Cor. 10:16 (16-17).]]
-[^b]: GR All of you drink from it. TG [Sacrament](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrament?lang=eng).
+[^b]: GR All of you drink from it. TG [[Sacrament]].

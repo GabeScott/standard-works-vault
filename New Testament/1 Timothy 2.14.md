@@ -5,5 +5,5 @@
 [1 Timothy 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/2.14?lang=eng#p14)
 
 
-[^a]: TG [Fall of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng)
-[^b]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^a]: TG [[Fall of Man]].
+[^b]: TG [[Transgressor]].

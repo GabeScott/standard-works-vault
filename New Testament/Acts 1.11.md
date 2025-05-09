@@ -6,6 +6,6 @@
 
 
 [^a]: 1 Thes. 1:10.
-[^b]: TG [Jesus Christ, Ascension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-ascension-of?lang=eng)
+[^b]: TG [[Jesus Christ, Ascension of]].
 [^c]: [[John 14.3|John 14:3 (1-4).]]
-[^d]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
+[^d]: TG [[Jesus Christ, Second Coming]].

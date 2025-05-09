@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:22](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.22?lang=eng#p22)
 
 
-[^a]: TG [False Christs.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-christs?lang=eng)
+[^a]: TG [[False Christs]].

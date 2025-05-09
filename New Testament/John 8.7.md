@@ -7,4 +7,4 @@
 
 [^a]: [[3 Nephi 14.5|3 Ne. 14:5 (1-5).]]
 [^b]: [[Deuteronomy 17.7|Deut. 17:7.]]
-[^c]: TG [Gossip.](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng)
+[^c]: TG [[Gossip]].

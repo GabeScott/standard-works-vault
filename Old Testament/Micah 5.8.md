@@ -5,7 +5,7 @@
 [Micah 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/5.8?lang=eng#p8)
 
 
-[^a]: TG [Israel, Remnant of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-remnant-of?lang=eng)
-[^b]: TG [Israel, Deliverance of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-deliverance-of?lang=eng)
+[^a]: TG [[Israel, Remnant of]].
+[^b]: TG [[Israel, Deliverance of]].
 [^c]: [[3 Nephi 16.15|3 Ne. 16:15 (7-15)]]; [[3 Nephi 21.12|21:12 (12-21)]]; [[D&C 87.5|D&C 87:5.]]
-[^d]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^d]: TG [[Sheep]].

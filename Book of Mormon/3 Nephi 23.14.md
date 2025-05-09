@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 24.44|Luke 24:44 (27, 44).]]
-[^b]: TG [Scriptures, Study of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng); [Teaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng)
+[^b]: TG [[Scriptures, Study of]]; [[Teaching with the Spirit]].

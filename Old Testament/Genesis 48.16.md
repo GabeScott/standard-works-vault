@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 32.29|Gen. 32:29 (24-30).]]
-[^b]: TG [Israel, Joseph, People of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng); [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^b]: TG [[Israel, Joseph, People of]]; [[Name of the Lord]].

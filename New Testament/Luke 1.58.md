@@ -6,4 +6,4 @@
 
 
 [^a]: GR relatives.
-[^b]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^b]: TG [[God, Mercy of]].

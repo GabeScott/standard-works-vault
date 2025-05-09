@@ -5,4 +5,4 @@
 [Acts 22:13](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.13?lang=eng#p13)
 
 
-[^a]: TG [Sight.](https://www.churchofjesuschrist.org/study/scriptures/tg/sight?lang=eng)
+[^a]: TG [[Sight]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 23.14|Mosiah 23:14.]]
-[^c]: TG [Sacred.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacred?lang=eng)
-[^d]: TG [Uncleanness.](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng)
+[^c]: TG [[Sacred]].
+[^d]: TG [[Uncleanness, Unclean]].

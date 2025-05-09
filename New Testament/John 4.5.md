@@ -5,4 +5,4 @@
 [John 4:5](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.5?lang=eng#p5)
 
 
-[^a]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
+[^a]: TG [[Israel, Joseph, People of]].

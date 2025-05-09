@@ -5,6 +5,6 @@
 [Matthew 13:30](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.30?lang=eng#p30)
 
 
-[^a]: TG [Harvest.](https://www.churchofjesuschrist.org/study/scriptures/tg/harvest?lang=eng)
+[^a]: TG [[Harvest]].
 [^b]: JST Matt. 13:29 … first the wheat into my barn; and the tares are bound in bundles to be burned.
 [^c]: [[D&C 38.12|D&C 38:12.]]

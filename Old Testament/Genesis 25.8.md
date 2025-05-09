@@ -5,5 +5,5 @@
 [Genesis 25:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/25.8?lang=eng#p8)
 
 
-[^a]: TG [Old Age.](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
-[^b]: TG [Family, Eternal.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-eternal?lang=eng)
+[^a]: TG [[Old Age]].
+[^b]: TG [[Family, Eternal]].

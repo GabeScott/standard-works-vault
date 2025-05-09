@@ -5,4 +5,4 @@
 [Hebrews 3:9](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.9?lang=eng#p9)
 
 
-[^a]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^a]: TG [[Testament]].

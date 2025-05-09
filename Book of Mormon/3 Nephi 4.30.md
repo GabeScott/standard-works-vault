@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 29.11|Alma 29:11.]]
 [^b]: [[Genesis 4.26|Gen. 4:26]]; [[Ether 4.15|Ether 4:15]]; [[Moroni 2.2|Moro. 2:2.]]
-[^c]: TG [Protection, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng)
+[^c]: TG [[Protection, Divine]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 1.6|1 Ne. 1:6.]]
-[^b]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^b]: TG [[Angels]].

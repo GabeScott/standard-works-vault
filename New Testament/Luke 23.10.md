@@ -5,4 +5,4 @@
 [Luke 23:10](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.10?lang=eng#p10)
 
 
-[^a]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Scribe]].

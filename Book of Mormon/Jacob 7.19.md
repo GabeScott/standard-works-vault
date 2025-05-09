@@ -5,6 +5,6 @@
 [Jacob 7:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p19#p19)
 
 
-[^a]: TG [Despair.](https://www.churchofjesuschrist.org/study/scriptures/tg/despair?lang=eng)
-[^b]: TG [Holy Ghost, Unpardonable Sin against](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-unpardonable-sin-against?lang=eng); [Sons of Perdition.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-of-perdition?lang=eng)
+[^a]: TG [[Despair]].
+[^b]: TG [[Holy Ghost, Unpardonable Sin against]]; [[Sons of Perdition]].
 [^c]: [[Jacob 6.9|Jacob 6:9]]; [[Mosiah 15.26|Mosiah 15:26.]]

@@ -7,5 +7,5 @@
 
 [^a]: [[Genesis 24.40|Gen. 24:40.]]
 [^b]: [[Genesis 12.1|Gen. 12:1.]]
-[^c]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
-[^d]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^c]: TG [[Promised Lands]].
+[^d]: TG [[Angels]].

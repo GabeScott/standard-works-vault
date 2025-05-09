@@ -5,9 +5,9 @@
 [Genesis 18:19](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.19?lang=eng#p19)
 
 
-[^a]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
-[^b]: TG [Family, Children, Responsibilities toward](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng); [Teaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng)
-[^c]: TG [Children](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng); [Family.](https://www.churchofjesuschrist.org/study/scriptures/tg/family?lang=eng)
+[^a]: TG [[God, Omniscience of]].
+[^b]: TG [[Family, Children, Responsibilities toward]]; [[Teaching with the Spirit]].
+[^c]: TG [[Children]]; [[Family]].
 [^d]: [[Alma 23.3|Alma 23:3.]]
-[^e]: TG [Loyalty](https://www.churchofjesuschrist.org/study/scriptures/tg/loyalty?lang=eng); [Trustworthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/trustworthiness?lang=eng)
-[^f]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
+[^e]: TG [[Loyalty]]; [[Trustworthiness]].
+[^f]: TG [[Judgment]].

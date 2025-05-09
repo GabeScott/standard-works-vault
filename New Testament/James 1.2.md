@@ -6,4 +6,4 @@
 
 
 [^a]: JST James 1:2 … many afflictions;
-[^b]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
+[^b]: TG [[Temptation]].

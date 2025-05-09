@@ -5,4 +5,4 @@
 [Proverbs 23:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.13?lang=eng#p13)
 
 
-[^a]: TG [Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng); [Family, Children, Responsibilities toward.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng)
+[^a]: TG [[Chastening]]; [[Family, Children, Responsibilities toward]].

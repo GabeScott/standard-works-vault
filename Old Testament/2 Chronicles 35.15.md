@@ -5,4 +5,4 @@
 [2 Chronicles 35:15](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/35.15?lang=eng#p15)
 
 
-[^a]: TG [Seer.](https://www.churchofjesuschrist.org/study/scriptures/tg/seer?lang=eng)
+[^a]: TG [[Seer]].

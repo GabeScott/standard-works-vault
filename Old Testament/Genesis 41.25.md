@@ -5,4 +5,4 @@
 [Genesis 41:25](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.25?lang=eng#p25)
 
 
-[^a]: TG [Dream.](https://www.churchofjesuschrist.org/study/scriptures/tg/dream?lang=eng)
+[^a]: TG [[Dream]].

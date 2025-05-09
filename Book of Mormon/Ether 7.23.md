@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ether 9.28|Ether 9:28]]; [[Ether 11.1|11:1 (1, 12, 20).]]
-[^b]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^b]: TG [[Idolatry, Idol]].

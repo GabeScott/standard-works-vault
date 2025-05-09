@@ -5,5 +5,5 @@
 [Amos 8:14](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/8.14?lang=eng#p14)
 
 
-[^a]: TG [Swearing.](https://www.churchofjesuschrist.org/study/scriptures/tg/swearing?lang=eng)
+[^a]: TG [[Swearing, Swear, Sware, Sworn]].
 [^b]: [[1 Kings 12.29|1 Kgs. 12:29 (28-30).]]

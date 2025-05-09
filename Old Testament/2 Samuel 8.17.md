@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Samuel 15.24|2 Sam. 15:24]]; [[1 Kings 2.35|1 Kgs. 2:35]]; [[1 Chronicles 6.8|1 Chr. 6:8]]; [[1 Chronicles 24.3|24:3.]]
-[^b]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^b]: TG [[Scribe]].

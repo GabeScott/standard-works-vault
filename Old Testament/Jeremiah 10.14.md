@@ -5,4 +5,4 @@
 [Jeremiah 10:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/10.14?lang=eng#p14)
 
 
-[^a]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^a]: TG [[Idolatry, Idol]].

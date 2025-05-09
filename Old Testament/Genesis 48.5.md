@@ -6,5 +6,5 @@
 
 
 [^a]: JST Gen. 48:5-11 (Appendix).
-[^b]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
+[^b]: TG [[Israel, Joseph, People of]].
 [^c]: [[Deuteronomy 3.13|Deut. 3:13.]]

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 66.16|Isa. 66:16.]]
-[^b]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^b]: TG [[Mourning, Mourn]].
 [^c]: [[Jeremiah 8.2|Jer. 8:2.]]

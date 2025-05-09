@@ -6,4 +6,4 @@
 
 
 [^a]: [[Romans 15.19|Rom. 15:19 (18-19)]]; [[D&C 63.10|D&C 63:10 (7-10).]]
-[^b]: TG [God, Perfection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng)
+[^b]: TG [[God, Perfection of]].

@@ -5,4 +5,4 @@
 [Psalms 69:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/69.10?lang=eng#p10)
 
 
-[^a]: TG [Fast, Fasting.](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
+[^a]: TG [[Fast, Fasting]].

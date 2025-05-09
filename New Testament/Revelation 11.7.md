@@ -5,5 +5,5 @@
 [Revelation 11:7](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/11.7?lang=eng#p7)
 
 
-[^a]: TG [Apostasy of the Early Christian Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
-[^b]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].
+[^b]: TG [[Martyrdom]].

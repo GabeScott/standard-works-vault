@@ -6,7 +6,7 @@
 
 
 [^a]: [[John 5.17|John 5:17.]]
-[^b]: [[John 4.34|John 4:34]]. TG [Good Works](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng).
+[^b]: [[John 4.34|John 4:34]]. TG [[Good Works]].
 [^c]: JST John 9:4 … while I am with you; the time cometh when I shall have finished my work, then I go unto the Father.
 [^d]: [[Romans 13.12|Rom. 13:12 (11-12)]]; [[Alma 34.33|Alma 34:33.]]
-[^e]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
+[^e]: TG [[Darkness, Spiritual]].

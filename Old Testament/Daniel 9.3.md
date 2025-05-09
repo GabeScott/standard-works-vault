@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 10:12.
-[^b]: TG [Apparel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng)
+[^b]: TG [[Apparel]].

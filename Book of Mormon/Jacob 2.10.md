@@ -5,5 +5,5 @@
 [Jacob 2:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Commandments of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)
-[^b]: [[2 Nephi 9.44|2 Ne. 9:44]]. TG [God, Omniscience of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng).
+[^a]: TG [[Commandments of God]].
+[^b]: [[2 Nephi 9.44|2 Ne. 9:44]]. TG [[God, Omniscience of]].

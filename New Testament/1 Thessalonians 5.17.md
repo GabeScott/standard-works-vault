@@ -5,4 +5,4 @@
 [1 Thessalonians 5:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/5.17?lang=eng#p17)
 
 
-[^a]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: TG [[Prayer, Pray]].

@@ -5,5 +5,5 @@
 [Exodus 24:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/24.17?lang=eng#p17)
 
 
-[^a]: TG [Sight.](https://www.churchofjesuschrist.org/study/scriptures/tg/sight?lang=eng)
-[^b]: TG [Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng)
+[^a]: TG [[Sight]].
+[^b]: TG [[Telestial Glory]].

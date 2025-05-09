@@ -5,6 +5,6 @@
 [Numbers 35:30](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.30?lang=eng#p30)
 
 
-[^a]: See JST Gen. 9:10-13 (Appendix). TG [Murder](https://www.churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng).
-[^b]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
-[^c]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
+[^a]: See JST Gen. 9:10-13 (Appendix). TG [[Murder, Murderer]].
+[^b]: TG [[Capital Punishment]].
+[^c]: TG [[Witness, Witnesses]].

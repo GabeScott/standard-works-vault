@@ -5,6 +5,6 @@
 [1 Corinthians 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.7?lang=eng#p7)
 
 
-[^a]: TG [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
-[^b]: TG [Mysteries of Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/mysteries-of-godliness?lang=eng)
+[^a]: TG [[Wisdom]].
+[^b]: TG [[Mysteries of Godliness]].
 [^d]: GR foreordained.

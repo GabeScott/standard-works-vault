@@ -6,5 +6,5 @@
 
 
 [^a]: [[Romans 14.3|Rom. 14:3 (1-3).]]
-[^b]: TG [Word of Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/word-of-wisdom?lang=eng)
-[^c]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
+[^b]: TG [[Word of Wisdom]].
+[^c]: TG [[Sabbath]].

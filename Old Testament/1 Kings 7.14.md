@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 35.35|Ex. 35:35]]; [[Exodus 36.1|36:1 (1-2).]]
-[^b]: TG [Skill.](https://www.churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng)
+[^b]: TG [[Skill]].

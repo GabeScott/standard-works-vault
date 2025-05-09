@@ -5,5 +5,5 @@
 [Jeremiah 23:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.14?lang=eng#p14)
 
 
-[^a]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^a]: TG [[Adulterer, Adultery]].
 [^b]: [[Ezekiel 16.50|Ezek. 16:50 (49-50).]]

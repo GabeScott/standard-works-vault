@@ -10,6 +10,6 @@
 [^c]: [[Helaman 14.21|Hel. 14:21 (20-27)]]; [[3 Nephi 8.6|3 Ne. 8:6 (5-23).]]
 [^d]: [[Genesis 19.28|Gen. 19:28]]; [[Exodus 19.18|Ex. 19:18]]; [[Mormon 8.29|Morm. 8:29 (29-30)]]; [[D&C 45.41|D&C 45:41 (40-41).]]
 [^e]: [[1 Nephi 12.5|1 Ne. 12:5.]]
-[^f]: [[Luke 23.44|Luke 23:44 (44-45)]]. TG [Darkness, Physical](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-physical?lang=eng).
+[^f]: [[Luke 23.44|Luke 23:44 (44-45)]]. TG [[Darkness, Physical]].
 [^g]: [[Numbers 16.32|Num. 16:32]]; [[2 Nephi 26.5|2 Ne. 26:5.]]
 [^h]: [[3 Nephi 10.13|3 Ne. 10:13 (13-14).]]

@@ -5,6 +5,6 @@
 [Isaiah 40:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/40.15?lang=eng#p15)
 
 
-[^a]: TG [Nations.](https://www.churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng)
+[^a]: TG [[Nations]].
 [^b]: [[Psalms 39.5|Ps. 39:5]]; Dan. 4:35.
-[^c]: TG [Earth, Dividing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-dividing-of?lang=eng)
+[^c]: TG [[Earth, Dividing of]].

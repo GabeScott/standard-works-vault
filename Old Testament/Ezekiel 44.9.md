@@ -5,4 +5,4 @@
 [Ezekiel 44:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/44.9?lang=eng#p9)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^a]: TG [[Circumcision]].

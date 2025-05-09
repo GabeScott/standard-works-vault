@@ -7,4 +7,4 @@
 
 [^a]: Obad. 1:17; [[2 Nephi 24.2|2 Ne. 24:2 (1-2).]]
 [^b]: [[Isaiah 34.5|Isa. 34:5]]; [[Jeremiah 49.17|Jer. 49:17 (7-22)]]; [[Ezekiel 25.14|Ezek. 25:14 (12-14)]]; Obad. 1:18 (8, 18-19, 21).
-[^c]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^c]: TG [[Heathen]].

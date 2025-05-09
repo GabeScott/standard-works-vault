@@ -8,5 +8,5 @@
 [^a]: [[Deuteronomy 17.8|Deut. 17:8 (8-9).]]
 [^b]: [[Moroni 7.15|Moro. 7:15 (15-18).]]
 [^c]: [[Deuteronomy 25.1|Deut. 25:1 (1-3).]]
-[^d]: TG [Meetings.](https://www.churchofjesuschrist.org/study/scriptures/tg/meetings?lang=eng)
+[^d]: TG [[Meetings]].
 [^e]: [[Jeremiah 17.27|Jer. 17:27 (22, 24, 27)]]; [[Ezekiel 22.26|Ezek. 22:26.]]

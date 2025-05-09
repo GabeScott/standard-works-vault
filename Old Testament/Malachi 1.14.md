@@ -5,5 +5,5 @@
 [Malachi 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/1.14?lang=eng#p14)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^a]: TG [[Curse]].
 [^b]: [[D&C 45.70|D&C 45:70 (70-75).]]

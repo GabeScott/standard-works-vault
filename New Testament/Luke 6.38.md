@@ -5,5 +5,5 @@
 [Luke 6:38](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.38?lang=eng#p38)
 
 
-[^a]: TG [Generosity](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng); [Kindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
+[^a]: TG [[Generosity]]; [[Kindness]].
 [^b]: [[D&C 1.10|D&C 1:10 (9-10).]]

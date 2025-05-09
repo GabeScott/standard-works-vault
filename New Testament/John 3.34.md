@@ -5,5 +5,5 @@
 [John 3:34](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.34?lang=eng#p34)
 
 
-[^a]: [[Isaiah 61.1|Isa. 61:1]]. TG [Jesus Christ, Teaching Mode of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-teaching-mode-of?lang=eng).
+[^a]: [[Isaiah 61.1|Isa. 61:1]]. TG [[Jesus Christ, Teaching Mode of]].
 [^b]: JST John 3:34 … for God giveth him not the Spirit by measure, for he dwelleth in him, even the fullness.

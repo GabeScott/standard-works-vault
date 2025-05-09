@@ -5,4 +5,4 @@
 [Luke 16:26](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.26?lang=eng#p26)
 
 
-[^a]: [[1 Nephi 15.28|1 Ne. 15:28 (28-30)]]. TG [Separation](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng).
+[^a]: [[1 Nephi 15.28|1 Ne. 15:28 (28-30)]]. TG [[Separation, Separate]].

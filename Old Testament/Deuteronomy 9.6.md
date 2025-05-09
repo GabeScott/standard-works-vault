@@ -5,4 +5,4 @@
 [Deuteronomy 9:6](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.6?lang=eng#p6)
 
 
-[^a]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^a]: TG [[Stiffnecked, Stiffneckedness]].

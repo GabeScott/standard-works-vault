@@ -5,5 +5,5 @@
 [1 Nephi 15:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p32#p32)
 
 
-[^a]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
-[^b]: TG [Probation.](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng)
+[^a]: TG [[Good Works]].
+[^b]: TG [[Probation, Probationary]].

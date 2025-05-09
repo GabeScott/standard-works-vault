@@ -8,5 +8,5 @@
 [^a]: [[Jeremiah 7.34|Jer. 7:34.]]
 [^b]: [[Isaiah 24.8|Isa. 24:8 (7-11).]]
 [^c]: [[Isaiah 1.14|Isa. 1:14 (10-15).]]
-[^d]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
+[^d]: TG [[Sabbath]].
 [^e]: Lam. 1:4.

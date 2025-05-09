@@ -7,4 +7,4 @@
 
 [^a]: [[2 Chronicles 35.4|2 Chr. 35:4.]]
 [^b]: [[1 Chronicles 23.6|1 Chr. 23:6]]; [[Ezra 6.18|Ezra 6:18.]]
-[^c]: TG [Duty.](https://www.churchofjesuschrist.org/study/scriptures/tg/duty?lang=eng)
+[^c]: TG [[Duty]].

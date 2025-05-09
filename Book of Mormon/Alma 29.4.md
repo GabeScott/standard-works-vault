@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 21.2|Ps. 21:2]]; [[Psalms 37.4|37:4.]]
-[^b]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^b]: TG [[Agency]].

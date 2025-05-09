@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 9.8|2 Ne. 9:8]]; [[Abraham 3.21|Abr. 3:21.]]
-[^b]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^b]: TG [[Strength]].

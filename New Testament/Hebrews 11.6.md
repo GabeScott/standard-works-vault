@@ -5,8 +5,8 @@
 [Hebrews 11:6](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.6?lang=eng#p6)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Faith]].
 [^b]: [[Hebrews 7.25|Heb. 7:25.]]
-[^c]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
-[^d]: TG [Diligence.](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng)
+[^c]: TG [[Reward]].
+[^d]: TG [[Diligence, Diligent, Diligently]].
 [^e]: [[Psalms 34.4|Ps. 34:4 (4, 6, 10)]]; Lam. 3:25; [[Alma 37.37|Alma 37:37 (36-37).]]

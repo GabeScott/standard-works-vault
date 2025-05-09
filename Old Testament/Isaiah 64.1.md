@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 133.40|D&C 133:40.]]
 [^b]: [[Revelation 16.20|Rev. 16:20 (17-21)]]; D&C 133:22, 40 (40-47).
-[^c]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^c]: TG [[God, Presence of]].

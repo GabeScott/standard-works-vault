@@ -5,4 +5,4 @@
 [Alma 11:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^a]: TG [[God, Justice of]].

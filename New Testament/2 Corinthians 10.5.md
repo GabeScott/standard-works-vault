@@ -5,5 +5,5 @@
 [2 Corinthians 10:5](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.5?lang=eng#p5)
 
 
-[^a]: TG [Motivations.](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng)
-[^b]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^a]: TG [[Motivations]].
+[^b]: TG [[Obedience, Obedient, Obey]].

@@ -5,8 +5,8 @@
 [2 Peter 1:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.1?lang=eng#p1)
 
 
-[^a]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
+[^a]: TG [[Servant]].
 [^b]: [[D&C 107.23|D&C 107:23.]]
 [^c]: GR equally precious.
-[^d]: TG [God, the Standard of Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-standard-of-righteousness?lang=eng)
+[^d]: TG [[God, the Standard of Righteousness]].
 [^e]: GR of our God and Savior.

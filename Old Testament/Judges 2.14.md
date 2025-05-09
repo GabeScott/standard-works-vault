@@ -5,5 +5,5 @@
 [Judges 2:14](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/2.14?lang=eng#p14)
 
 
-[^a]: [[D&C 95.2|D&C 95:2 (1-3)]]; [[D&C 98.21|98:21]]. TG [God, Indignation of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng).
+[^a]: [[D&C 95.2|D&C 95:2 (1-3)]]; [[D&C 98.21|98:21]]. TG [[God, Indignation of]].
 [^b]: [[Nehemiah 9.27|Neh. 9:27.]]

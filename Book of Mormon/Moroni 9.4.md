@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 1.26|2 Ne. 1:26 (26-27)]]; W of M 1:17; [[D&C 121.43|D&C 121:43 (41-43).]]
-[^b]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^b]: TG [[Hardheartedness, Harden, Hardness]].
 [^c]: [[Moroni 8.28|Moro. 8:28]]; [[D&C 1.33|D&C 1:33.]]

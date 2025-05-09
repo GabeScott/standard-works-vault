@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 12.18|1 Ne. 12:18.]]
-[^b]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^b]: TG [[Apostasy of Israel]].

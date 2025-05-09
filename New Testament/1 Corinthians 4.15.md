@@ -5,4 +5,4 @@
 [1 Corinthians 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/4.15?lang=eng#p15)
 
 
-[^a]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^a]: TG [[Gospel]].

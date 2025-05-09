@@ -5,5 +5,5 @@
 [Moses 1:23](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.23?lang=eng#p23)
 
 
-[^a]: [[Luke 11.52|Luke 11:52]]. TG [Record Keeping](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng).
+[^a]: [[Luke 11.52|Luke 11:52]]. TG [[Record Keeping]].
 [^b]: [[Moses 1.41|Moses 1:41.]]

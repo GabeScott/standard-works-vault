@@ -5,7 +5,7 @@
 [Leviticus 20:26](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.26?lang=eng#p26)
 
 
-[^a]: TG [Peculiar People.](https://www.churchofjesuschrist.org/study/scriptures/tg/peculiar-people?lang=eng)
-[^b]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
-[^c]: HEB distinguished you from the nations. TG [Separation](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng).
+[^a]: TG [[Peculiar People]].
+[^b]: TG [[Holiness]].
+[^c]: HEB distinguished you from the nations. TG [[Separation, Separate]].
 [^d]: [[3 Nephi 24.17|3 Ne. 24:17.]]

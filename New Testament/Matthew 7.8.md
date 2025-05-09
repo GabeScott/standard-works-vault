@@ -5,4 +5,4 @@
 [Matthew 7:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/7.8?lang=eng#p8)
 
 
-[^a]: TG [Education.](https://www.churchofjesuschrist.org/study/scriptures/tg/education?lang=eng)
+[^a]: TG [[Education]].

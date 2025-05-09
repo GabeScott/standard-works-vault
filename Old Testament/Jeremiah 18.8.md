@@ -5,5 +5,5 @@
 [Jeremiah 18:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/18.8?lang=eng#p8)
 
 
-[^a]: See JST Jer. 26:13, 19 (Jer. 26:13 note a, 19 note a). TG [Repent](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng).
+[^a]: See JST Jer. 26:13, 19 (Jer. 26:13 note a, 19 note a). TG [[Repent, Repentance]].
 [^b]: OR relent regarding the punishment.

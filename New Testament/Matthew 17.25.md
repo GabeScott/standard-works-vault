@@ -6,4 +6,4 @@
 
 
 [^a]: GR spoke to him first.
-[^b]: TG [Kings, Earthly.](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
+[^b]: TG [[Kings, Earthly]].

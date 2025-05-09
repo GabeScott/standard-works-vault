@@ -5,4 +5,4 @@
 [Moroni 10:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p21#p21)
 
 
-[^a]: TG [Charity.](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng)
+[^a]: TG [[Charity]].

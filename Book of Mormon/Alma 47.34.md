@@ -5,4 +5,4 @@
 [Alma 47:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/47?lang=eng&id=p34#p34)
 
 
-[^a]: TG [False](https://www.churchofjesuschrist.org/study/scriptures/tg/false?lang=eng); [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^a]: TG [[False Prophets]]; [[Lying, Liar, Lie]].

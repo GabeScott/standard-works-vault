@@ -5,4 +5,4 @@
 [1 Samuel 29:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/29.9?lang=eng#p9)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Angels]].

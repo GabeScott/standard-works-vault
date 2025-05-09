@@ -5,4 +5,4 @@
 [Luke 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.16?lang=eng#p16)
 
 
-[^a]: TG [Holy Ghost, Gift of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gift-of?lang=eng)
+[^a]: TG [[Holy Ghost, Gift of]].

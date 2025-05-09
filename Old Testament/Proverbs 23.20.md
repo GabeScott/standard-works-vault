@@ -6,4 +6,4 @@
 
 
 [^a]: HEB imbibers of wine.
-[^b]: OR gluttonous eaters of meat. TG [Rioting and Reveling](https://www.churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng).
+[^b]: OR gluttonous eaters of meat. TG [[Rioting and Reveling]].

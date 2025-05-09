@@ -5,4 +5,4 @@
 [Jacob 2:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p33#p33)
 
 
-[^a]: [[Ezekiel 16.25|Ezek. 16:25 (20-34)]]. TG [Sensuality](https://www.churchofjesuschrist.org/study/scriptures/tg/sensuality?lang=eng).
+[^a]: [[Ezekiel 16.25|Ezek. 16:25 (20-34)]]. TG [[Sensuality]].

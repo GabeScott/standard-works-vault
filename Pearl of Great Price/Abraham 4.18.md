@@ -5,4 +5,4 @@
 [Abraham 4:18](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/4.18?lang=eng#p18)
 
 
-[^a]: TG [Order.](https://www.churchofjesuschrist.org/study/scriptures/tg/order?lang=eng)
+[^a]: TG [[Order]].

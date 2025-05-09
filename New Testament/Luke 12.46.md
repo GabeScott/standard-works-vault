@@ -5,4 +5,4 @@
 [Luke 12:46](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.46?lang=eng#p46)
 
 
-[^a]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^a]: TG [[Punish, Punishment]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Genesis 17.8|Gen. 17:8 (1-27)]]; [[Exodus 3.8|Ex. 3:8]]; [[Abraham 2.19|Abr. 2:19 (15-16, 19).]]
-[^b]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^b]: TG [[Promised Lands]].
 [^c]: [[Joshua 13.6|Josh. 13:6]]; [[Ezekiel 47.14|Ezek. 47:14 (14-21)]]; [[Ezekiel 48.29|48:29 (1-29)]]; [[1 Nephi 2.4|1 Ne. 2:4]]; [[1 Nephi 3.16|3:16.]]
 [^d]: HEB and all its territory.

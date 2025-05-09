@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 133.18|D&C 133:18.]]
-[^b]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
-[^c]: [[Revelation 3.12|Rev. 3:12]]; [[Revelation 22.4|22:4 (1-5)]]. TG [Name](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng).
+[^b]: TG [[Zion, Sion]].
+[^c]: [[Revelation 3.12|Rev. 3:12]]; [[Revelation 22.4|22:4 (1-5)]]. TG [[Name of the Lord]].

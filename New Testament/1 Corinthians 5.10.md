@@ -5,5 +5,5 @@
 [1 Corinthians 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/5.10?lang=eng#p10)
 
 
-[^a]: TG [Covet.](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
+[^a]: TG [[Covet, Covetousness]].
 [^b]: GR swindlers, robbers.

@@ -5,6 +5,6 @@
 [1 Samuel 13:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/13.9?lang=eng#p9)
 
 
-[^a]: TG [Unrighteous Dominion.](https://www.churchofjesuschrist.org/study/scriptures/tg/unrighteous-dominion?lang=eng)
-[^b]: TG [Priesthood, Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng)
+[^a]: TG [[Unrighteous Dominion]].
+[^b]: TG [[Priesthood, Authority]].
 [^c]: [[1 Samuel 10.8|1 Sam. 10:8.]]

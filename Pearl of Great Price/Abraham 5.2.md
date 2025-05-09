@@ -5,5 +5,5 @@
 [Abraham 5:2](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.2?lang=eng#p2)
 
 
-[^a]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
-[^b]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
+[^a]: TG [[Restoration of the Gospel]].
+[^b]: TG [[Sabbath]].

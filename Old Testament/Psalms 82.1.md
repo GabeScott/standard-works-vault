@@ -5,4 +5,4 @@
 [Psalms 82:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/82.1?lang=eng#p1)
 
 
-[^a]: TG [God, Access to.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-access-to?lang=eng)
+[^a]: TG [[God, Access to]].

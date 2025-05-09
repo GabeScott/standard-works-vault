@@ -5,4 +5,4 @@
 [Isaiah 57:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.2?lang=eng#p2)
 
 
-[^a]: TG [Paradise.](https://www.churchofjesuschrist.org/study/scriptures/tg/paradise?lang=eng)
+[^a]: TG [[Paradise, Paradisiacal]].

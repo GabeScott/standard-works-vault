@@ -5,5 +5,5 @@
 [Ezekiel 20:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.12?lang=eng#p12)
 
 
-[^a]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
-[^b]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^a]: TG [[Sabbath]].
+[^b]: TG [[Sanctification, Sanctify]].

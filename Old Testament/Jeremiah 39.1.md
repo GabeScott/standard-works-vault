@@ -7,4 +7,4 @@
 
 [^a]: [[2 Kings 25.1|2 Kgs. 25:1]]; [[Jeremiah 52.4|Jer. 52:4]]; [[Ezekiel 24.1|Ezek. 24:1.]]
 [^b]: [[Ezekiel 24.2|Ezek. 24:2.]]
-[^c]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^c]: TG [[Jerusalem]].

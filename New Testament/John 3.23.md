@@ -5,5 +5,5 @@
 [John 3:23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/3.23?lang=eng#p23)
 
 
-[^a]: TG [Baptism, Immersion.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-immersion?lang=eng)
-[^b]: TG [Baptism.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng)
+[^a]: TG [[Baptism, Immersion]].
+[^b]: TG [[Holy Ghost, Baptism of]].

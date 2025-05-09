@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 19.17|Lev. 19:17]]; [[D&C 121.43|D&C 121:43.]]
-[^b]: TG [Chastity.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng)
+[^b]: TG [[Chastity, Chaste]].

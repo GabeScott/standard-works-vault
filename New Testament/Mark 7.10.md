@@ -6,4 +6,4 @@
 
 
 [^a]: JST Mark 7:10-12 (Appendix).
-[^b]: TG [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng); [Honoring Father and Mother.](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng)
+[^b]: TG [[Curse]]; [[Honoring Father and Mother]].

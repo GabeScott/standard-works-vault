@@ -5,5 +5,5 @@
 [Genesis 17:20](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.20?lang=eng#p20)
 
 
-[^a]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^a]: TG [[Seed of Abraham]].
 [^b]: [[Genesis 25.16|Gen. 25:16.]]

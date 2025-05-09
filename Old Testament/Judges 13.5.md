@@ -6,4 +6,4 @@
 
 
 [^a]: [[Numbers 6.5|Num. 6:5 (1-8)]]; [[Judges 16.17|Judg. 16:17]]; [[1 Samuel 1.11|1 Sam. 1:11.]]
-[^b]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^b]: TG [[Deliver, Deliverance]].

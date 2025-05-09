@@ -6,4 +6,4 @@
 
 
 [^a]: IE feed the flock.
-[^b]: TG [Priesthood, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng)
+[^b]: TG [[Priesthood, Power of]].

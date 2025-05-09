@@ -5,4 +5,4 @@
 [2 Nephi 30:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/30?lang=eng&id=p12#p12)
 
 
-[^a]: [[Isaiah 65.25|Isa. 65:25]]. TG [Earth, Renewal of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng).
+[^a]: [[Isaiah 65.25|Isa. 65:25]]. TG [[Earth, Renewal of]].

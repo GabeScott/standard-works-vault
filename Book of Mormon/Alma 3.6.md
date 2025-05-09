@@ -5,4 +5,4 @@
 [Alma 3:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/3?lang=eng&id=p6#p6)
 
 
-[^a]: [[2 Nephi 5.21|2 Ne. 5:21]]; [[2 Nephi 26.33|26:33]]. TG [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng).
+[^a]: [[2 Nephi 5.21|2 Ne. 5:21]]; [[2 Nephi 26.33|26:33]]. TG [[Curse]].

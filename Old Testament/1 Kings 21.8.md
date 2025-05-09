@@ -5,4 +5,4 @@
 [1 Kings 21:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/21.8?lang=eng#p8)
 
 
-[^a]: TG [Seal.](https://www.churchofjesuschrist.org/study/scriptures/tg/seal?lang=eng)
+[^a]: TG [[Seal]].

@@ -7,8 +7,8 @@
 
 [^a]: [[D&C 15.1|D&C 15:1.]]
 [^b]: [[Mark 2.17|Mark 2:17.]]
-[^c]: [[Mark 10.14|Mark 10:14 (13-16)]]. TG [Conceived in Sin](https://www.churchofjesuschrist.org/study/scriptures/tg/conceived-in-sin?lang=eng).
+[^c]: [[Mark 10.14|Mark 10:14 (13-16)]]. TG [[Conceived in Sin]].
 [^d]: [[Mosiah 3.16|Mosiah 3:16]]; [[D&C 29.46|D&C 29:46]]; [[D&C 74.7|74:7.]]
-[^e]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^e]: TG [[Sin]].
 [^f]: [[Mosiah 3.16|Mosiah 3:16]]; [[Mormon 9.12|Morm. 9:12.]]
-[^g]: [[Genesis 17.11|Gen. 17:11 (10-27)]]; [[Acts 15.24|Acts 15:24]]. TG [Circumcision](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng).
+[^g]: [[Genesis 17.11|Gen. 17:11 (10-27)]]; [[Acts 15.24|Acts 15:24]]. TG [[Circumcision]].

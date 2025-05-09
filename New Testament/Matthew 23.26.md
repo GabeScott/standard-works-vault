@@ -5,4 +5,4 @@
 [Matthew 23:26](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.26?lang=eng#p26)
 
 
-[^a]: TG [Purification](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng); [Wash.](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
+[^a]: TG [[Purification, Purify, Purifying]]; [[Wash, Washing]].

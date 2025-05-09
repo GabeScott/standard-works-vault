@@ -5,4 +5,4 @@
 [Genesis 18:24](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/18.24?lang=eng#p24)
 
 
-[^a]: TG [Worth of Souls.](https://www.churchofjesuschrist.org/study/scriptures/tg/worth-of-souls?lang=eng)
+[^a]: TG [[Worth of Souls]].

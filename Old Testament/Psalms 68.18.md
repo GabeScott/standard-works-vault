@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 1.9|Acts 1:9]]; [[Ephesians 4.8|Eph. 4:8]]; [[D&C 88.6|D&C 88:6.]]
-[^b]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^b]: TG [[Jesus Christ, Prophecies about]].

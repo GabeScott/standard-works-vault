@@ -5,4 +5,4 @@
 [Mark 13:26](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.26?lang=eng#p26)
 
 
-[^a]: TG [Jesus Christ, Son of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
+[^a]: TG [[Jesus Christ, Son of Man]].

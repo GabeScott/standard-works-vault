@@ -5,4 +5,4 @@
 [Esther 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/2.12?lang=eng#p12)
 
 
-[^a]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^a]: TG [[Purification, Purify, Purifying]].

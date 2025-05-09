@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 119.62|Ps. 119:62.]]
-[^b]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^b]: TG [[Singing, Sing, Sang, Sung]].

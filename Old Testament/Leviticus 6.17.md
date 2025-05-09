@@ -5,4 +5,4 @@
 [Leviticus 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/6.17?lang=eng#p17)
 
 
-[^a]: TG [Leaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/leaven?lang=eng)
+[^a]: TG [[Leaven]].

@@ -5,6 +5,6 @@
 [Isaiah 56:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/56.11?lang=eng#p11)
 
 
-[^a]: TG [Covet.](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
+[^a]: TG [[Covet, Covetousness]].
 [^b]: [[Ezekiel 34.2|Ezek. 34:2 (2-3).]]
-[^c]: TG [Selfishness.](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
+[^c]: TG [[Selfishness]].

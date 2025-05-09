@@ -5,5 +5,5 @@
 [Acts 8:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.20?lang=eng#p20)
 
 
-[^a]: TG [God, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
-[^b]: TG [Bribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/bribe?lang=eng)
+[^a]: TG [[God, Gifts of]].
+[^b]: TG [[Bribe, Bribery]].

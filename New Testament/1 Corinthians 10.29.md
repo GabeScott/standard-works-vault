@@ -5,4 +5,4 @@
 [1 Corinthians 10:29](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.29?lang=eng#p29)
 
 
-[^a]: TG [Conscience.](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
+[^a]: TG [[Conscience]].

@@ -6,4 +6,4 @@
 
 
 [^a]: HEB in the tent of meeting shall Aaron set it in order.
-[^b]: TG [Order.](https://www.churchofjesuschrist.org/study/scriptures/tg/order?lang=eng)
+[^b]: TG [[Order]].

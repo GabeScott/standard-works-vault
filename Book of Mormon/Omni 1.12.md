@@ -7,7 +7,7 @@
 
 [^a]: [[Omni 1.19|Omni 1:19.]]
 [^b]: [[Alma 4.1|Alma 4:1.]]
-[^c]: TG [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^c]: TG [[Warn, Warnings]].
 [^d]: [[Mosiah 11.13|Mosiah 11:13.]]
 [^e]: [[Omni 1.27|Omni 1:27]]; W of M 1:13.
 [^f]: [[2 Nephi 5.8|2 Ne. 5:8]]; [[Mosiah 7.6|Mosiah 7:6 (6-7).]]

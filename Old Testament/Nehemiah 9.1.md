@@ -5,4 +5,4 @@
 [Nehemiah 9:1](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.1?lang=eng#p1)
 
 
-[^a]: [[Jeremiah 36.6|Jer. 36:6]]. TG [Fast, Fasting](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng).
+[^a]: [[Jeremiah 36.6|Jer. 36:6]]. TG [[Fast, Fasting]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 20.2|John 20:2 (2-9)]]; [[D&C 7.1|D&C 7:1.]]
-[^b]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
+[^b]: TG [[Woman, Women]].

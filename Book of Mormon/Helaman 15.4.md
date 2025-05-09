@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jacob 5.40|Jacob 5:40.]]
-[^b]: [[Ezekiel 20.18|Ezek. 20:18]]; [[Helaman 5.19|Hel. 5:19]]. TG [Traditions of Men](https://www.churchofjesuschrist.org/study/scriptures/tg/traditions-of-men?lang=eng).
+[^b]: [[Ezekiel 20.18|Ezek. 20:18]]; [[Helaman 5.19|Hel. 5:19]]. TG [[Traditions of Men]].
 [^c]: [[Alma 9.16|Alma 9:16.]]

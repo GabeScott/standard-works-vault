@@ -5,5 +5,5 @@
 [Ezekiel 17:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/17.4?lang=eng#p4)
 
 
-[^a]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^a]: TG [[Israel, Scattering of]].
 [^b]: HEB trade or traders.

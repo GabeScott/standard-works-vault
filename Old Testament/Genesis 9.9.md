@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 9.15|JST Gen. 9:15 … I will establish my covenant with you, which I made unto your father Enoch, concerning your seed after you.]]
-[^b]: [[Genesis 6.18|Gen. 6:18]]. TG [Priesthood, History of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-history-of?lang=eng).
+[^b]: [[Genesis 6.18|Gen. 6:18]]. TG [[Priesthood, History of]].

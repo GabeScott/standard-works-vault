@@ -5,6 +5,6 @@
 [Amos 8:10](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/8.10?lang=eng#p10)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Mourning, Mourn]].
 [^b]: [[Isaiah 3.24|Isa. 3:24 (16-26).]]
 [^c]: [[Jeremiah 6.26|Jer. 6:26]]; [[Zechariah 12.10|Zech. 12:10.]]

@@ -5,5 +5,5 @@
 [1 Samuel 12:15](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/12.15?lang=eng#p15)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].
 [^b]: [[Mosiah 7.29|Mosiah 7:29.]]

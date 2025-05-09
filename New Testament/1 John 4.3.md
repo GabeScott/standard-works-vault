@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 50.32|D&C 50:32.]]
-[^b]: TG [Antichrist.](https://www.churchofjesuschrist.org/study/scriptures/tg/antichrist?lang=eng)
+[^b]: TG [[Antichrist]].

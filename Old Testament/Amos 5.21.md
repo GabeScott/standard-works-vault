@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 1.14|Isa. 1:14.]]
 [^b]: IE I will not take heed of your sacrifices, incense, etc.
-[^c]: TG [Solemn Assembly.](https://www.churchofjesuschrist.org/study/scriptures/tg/solemn-assembly?lang=eng)
+[^c]: TG [[Solemn Assembly]].

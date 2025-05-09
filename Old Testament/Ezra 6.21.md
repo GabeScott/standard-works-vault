@@ -6,5 +6,5 @@
 
 
 [^a]: [[Nehemiah 10.28|Neh. 10:28 (28-31)]]; [[Alma 5.57|Alma 5:57]]; [[D&C 133.5|D&C 133:5 (5, 14).]]
-[^b]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
-[^c]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^b]: TG [[Filthiness, Filthy]].
+[^c]: TG [[Heathen]].

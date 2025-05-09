@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 90.5|D&C 90:5.]]
-[^b]: TG [Adversity.](https://www.churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng)
-[^c]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
+[^b]: TG [[Adversity]].
+[^c]: TG [[Rock]].

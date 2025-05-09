@@ -6,4 +6,4 @@
 
 
 [^a]: JST Luke 9:31 … and spake of his death, and also his resurrection, which he …
-[^b]: GR departure. TG [Jesus Christ, Death of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng).
+[^b]: GR departure. TG [[Jesus Christ, Death of]].

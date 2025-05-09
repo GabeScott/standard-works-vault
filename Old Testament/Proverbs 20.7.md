@@ -5,6 +5,6 @@
 [Proverbs 20:7](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.7?lang=eng#p7)
 
 
-[^a]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
-[^b]: TG [Integrity.](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng)
-[^c]: TG [Family.](https://www.churchofjesuschrist.org/study/scriptures/tg/family?lang=eng)
+[^a]: TG [[Walking with God]].
+[^b]: TG [[Integrity]].
+[^c]: TG [[Family]].

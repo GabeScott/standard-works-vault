@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 25.15|Jer. 25:15.]]
-[^b]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^b]: TG [[God, Indignation of]].
 [^c]: [[Zechariah 12.2|Zech. 12:2.]]

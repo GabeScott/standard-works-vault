@@ -6,4 +6,4 @@
 
 
 [^a]: JST Rom. 9:7 Neither, because they are all children of Abraham, are they the seed; but, In Isaac …
-[^b]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^b]: TG [[Seed of Abraham]].

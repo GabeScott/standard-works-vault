@@ -6,4 +6,4 @@
 
 
 [^a]: 4 Ne. 1:12; [[Moroni 6.5|Moro. 6:5 (5-6).]]
-[^b]: [[D&C 85.9|D&C 85:9 (7-9)]]; [[Moses 6.5|Moses 6:5]]. TG [Book of Remembrance](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-remembrance?lang=eng).
+[^b]: [[D&C 85.9|D&C 85:9 (7-9)]]; [[Moses 6.5|Moses 6:5]]. TG [[Book of Remembrance]].

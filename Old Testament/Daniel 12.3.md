@@ -5,7 +5,7 @@
 [Daniel 12:3](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.3?lang=eng#p3)
 
 
-[^a]: TG [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
-[^b]: [[Alma 40.25|Alma 40:25]]. TG [Celestial Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/celestial-glory?lang=eng).
+[^a]: TG [[Wisdom]].
+[^b]: [[Alma 40.25|Alma 40:25]]. TG [[Celestial Glory]].
 [^c]: [[D&C 76.70|D&C 76:70 (51-71).]]
-[^d]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^d]: TG [[God, the Standard of Righteousness]].

@@ -6,7 +6,7 @@
 
 
 [^a]: [[Genesis 19.24|Gen. 19:24]]; 2 Pet. 2:6 (1-9).
-[^b]: TG [Fornication.](https://www.churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng)
-[^c]: TG [Homosexual Behavior.](https://www.churchofjesuschrist.org/study/scriptures/tg/homosexual-behavior?lang=eng)
-[^d]: TG [Example.](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
-[^e]: [[D&C 76.105|D&C 76:105]]. TG [Punish](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng).
+[^b]: TG [[Fornication]].
+[^c]: TG [[Homosexual Behavior]].
+[^d]: TG [[Example, Ensample]].
+[^e]: [[D&C 76.105|D&C 76:105]]. TG [[Punish, Punishment]].

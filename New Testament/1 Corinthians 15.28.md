@@ -6,4 +6,4 @@
 
 
 [^a]: Philip. 3:21; [[D&C 76.106|D&C 76:106.]]
-[^b]: TG [Jesus Christ, Relationships with the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
+[^b]: TG [[Jesus Christ, Relationships with the Father]].

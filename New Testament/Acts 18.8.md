@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Corinthians 1.14|1 Cor. 1:14.]]
-[^b]: TG [Baptism, Qualifications for.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng)
+[^b]: TG [[Baptism, Qualifications for]].

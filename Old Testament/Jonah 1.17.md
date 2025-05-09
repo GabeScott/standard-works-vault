@@ -5,4 +5,4 @@
 [Jonah 1:17](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/1.17?lang=eng#p17)
 
 
-[^a]: [[Matthew 16.4|Matt. 16:4]]. TG [Jesus Christ, Death of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng); [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng).
+[^a]: [[Matthew 16.4|Matt. 16:4]]. TG [[Jesus Christ, Death of]]; [[Jesus Christ, Types of, in Anticipation]].

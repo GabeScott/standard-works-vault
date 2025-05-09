@@ -6,4 +6,4 @@
 
 
 [^a]: JST Matt. 6:38 (Matt. 6:33 note a); JST Luke 12:34 (Luke 12:31 note a).
-[^b]: [[D&C 35.24|D&C 35:24]]. TG [Mission of Latter-day Saints](https://www.churchofjesuschrist.org/study/scriptures/tg/mission-of-latter-day-saints?lang=eng); [Objectives](https://www.churchofjesuschrist.org/study/scriptures/tg/objectives?lang=eng); [Zion](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng).
+[^b]: [[D&C 35.24|D&C 35:24]]. TG [[Mission of Latter-day Saints]]; [[Objectives]]; [[Zion, Sion]].

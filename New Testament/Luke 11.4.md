@@ -5,6 +5,6 @@
 [Luke 11:4](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.4?lang=eng#p4)
 
 
-[^a]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
-[^b]: TG [Debt.](https://www.churchofjesuschrist.org/study/scriptures/tg/debt?lang=eng)
+[^a]: TG [[Forgive, Forgiveness]].
+[^b]: TG [[Debt]].
 [^c]: JST Luke 11:4 … And let us not be led unto temptation; but deliver us from evil; for thine is the kingdom and power. Amen.

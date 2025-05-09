@@ -5,5 +5,5 @@
 [Psalms 31:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.18?lang=eng#p18)
 
 
-[^a]: TG [Honesty](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng); [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
-[^b]: TG [Silence.](https://www.churchofjesuschrist.org/study/scriptures/tg/silence?lang=eng)
+[^a]: TG [[Honesty]]; [[Lying, Liar, Lie]].
+[^b]: TG [[Silence, Silent]].

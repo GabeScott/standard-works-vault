@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 123.12|D&C 123:12.]]
-[^b]: TG [Slander.](https://www.churchofjesuschrist.org/study/scriptures/tg/slander?lang=eng)
+[^b]: TG [[Slander]].

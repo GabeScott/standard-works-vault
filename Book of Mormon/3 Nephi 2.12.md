@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 58.12|Alma 58:12]]; [[3 Nephi 3.2|3 Ne. 3:2.]]
-[^b]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^b]: TG [[Liberty]].

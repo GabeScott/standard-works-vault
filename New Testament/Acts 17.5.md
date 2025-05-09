@@ -7,5 +7,5 @@
 
 [^a]: [[2 Corinthians 11.26|2 Cor. 11:26.]]
 [^b]: GR wicked, evil.
-[^c]: TG [Rioting and Reveling.](https://www.churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng)
+[^c]: TG [[Rioting and Reveling]].
 [^d]: 1 Thes. 1:6; 2:14.

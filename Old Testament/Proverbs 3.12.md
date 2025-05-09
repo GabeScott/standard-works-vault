@@ -6,4 +6,4 @@
 
 
 [^a]: [[Helaman 15.3|Hel. 15:3.]]
-[^b]: TG [Marriage, Fatherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-fatherhood?lang=eng)
+[^b]: TG [[Marriage, Fatherhood]].

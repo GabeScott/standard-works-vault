@@ -7,4 +7,4 @@
 
 [^a]: [[Ezekiel 1.3|Ezek. 1:3.]]
 [^b]: [[1 Kings 18.12|1 Kgs. 18:12]]; [[Luke 4.1|Luke 4:1.]]
-[^c]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^c]: TG [[God, Spirit of]].

@@ -5,7 +5,7 @@
 [Hebrews 6:10](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.10?lang=eng#p10)
 
 
-[^a]: TG [God, Perfection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng)
+[^a]: TG [[God, Perfection of]].
 [^b]: 1 Thes. 1:3.
 [^c]: Col. 1:4.
-[^d]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^d]: TG [[Name of the Lord]].

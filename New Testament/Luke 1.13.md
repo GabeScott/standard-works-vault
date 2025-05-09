@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 10:12.
-[^b]: TG [Foreordination.](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng)
+[^b]: TG [[Foreordination]].

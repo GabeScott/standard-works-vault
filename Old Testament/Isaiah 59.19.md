@@ -7,4 +7,4 @@
 
 [^a]: OR stand in awe of or reverence.
 [^b]: Mal. 1:11.
-[^c]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^c]: TG [[God, Spirit of]].

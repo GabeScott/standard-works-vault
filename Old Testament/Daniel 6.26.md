@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 7.6|Alma 7:6]]; [[D&C 14.9|D&C 14:9]]; [[D&C 20.19|20:19.]]
-[^b]: TG [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
+[^b]: TG [[Steadfastness, Steadfast]].
 [^c]: Dan. 2:44.

@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 8.34|John 8:34.]]
-[^b]: [[Alma 3.27|Alma 3:27 (26-27)]]; [[Alma 34.34|34:34 (33-36)]]; [[Helaman 14.31|Hel. 14:31 (29-31)]]. TG [Obedience](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng).
+[^b]: [[Alma 3.27|Alma 3:27 (26-27)]]; [[Alma 34.34|34:34 (33-36)]]; [[Helaman 14.31|Hel. 14:31 (29-31)]]. TG [[Obedience, Obedient, Obey]].

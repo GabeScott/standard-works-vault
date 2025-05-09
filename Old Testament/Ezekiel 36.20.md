@@ -5,5 +5,5 @@
 [Ezekiel 36:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.20?lang=eng#p20)
 
 
-[^a]: TG [Blaspheme.](https://www.churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng)
+[^a]: TG [[Blaspheme, Blasphemous, Blasphemy]].
 [^b]: JST Ezek. 36:20 … out of this land.

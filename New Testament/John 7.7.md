@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 16.2|1 Ne. 16:2 (1-3).]]
-[^b]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
+[^b]: TG [[Evil]].

@@ -5,6 +5,6 @@
 [Romans 10:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.10?lang=eng#p10)
 
 
-[^a]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^a]: TG [[Heart]].
 [^b]: [[D&C 46.14|D&C 46:14 (11-14).]]
-[^c]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^c]: TG [[Salvation for the Dead]].

@@ -6,4 +6,4 @@
 
 
 [^a]: Gen. 6:14-22; [[Ether 6.7|Ether 6:7 (6-8).]]
-[^b]: TG [Flood](https://www.churchofjesuschrist.org/study/scriptures/tg/flood?lang=eng); [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^b]: TG [[Flood, Noah’s]]; [[Punish, Punishment]].

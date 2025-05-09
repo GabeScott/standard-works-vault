@@ -5,5 +5,5 @@
 [2 Nephi 27:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
-[^b]: [[Isaiah 29.9|Isa. 29:9]]. TG [Abomination](https://www.churchofjesuschrist.org/study/scriptures/tg/abomination?lang=eng); [Iniquity](https://www.churchofjesuschrist.org/study/scriptures/tg/iniquity?lang=eng); [Wickedness](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng).
+[^a]: TG [[Last Days]].
+[^b]: [[Isaiah 29.9|Isa. 29:9]]. TG [[Abomination of Desolation]]; [[Iniquity]]; [[Wickedness, Wicked]].

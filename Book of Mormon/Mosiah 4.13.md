@@ -5,5 +5,5 @@
 [Mosiah 4:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4?lang=eng&id=p13#p13)
 
 
-[^a]: TG [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
-[^b]: TG [Peacemakers.](https://www.churchofjesuschrist.org/study/scriptures/tg/peacemakers?lang=eng)
+[^a]: TG [[Man, New, Spiritually Reborn]].
+[^b]: TG [[Peacemakers]].

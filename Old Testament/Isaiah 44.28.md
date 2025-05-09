@@ -5,7 +5,7 @@
 [Isaiah 44:28](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.28?lang=eng#p28)
 
 
-[^a]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^a]: TG [[Governments]].
 [^b]: [[Jeremiah 50.44|Jer. 50:44.]]
 [^c]: [[Isaiah 46.10|Isa. 46:10.]]
 [^d]: [[Isaiah 45.13|Isa. 45:13.]]

@@ -5,4 +5,4 @@
 [Luke 18:19](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.19?lang=eng#p19)
 
 
-[^a]: TG [God, Perfection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng)
+[^a]: TG [[God, Perfection of]].

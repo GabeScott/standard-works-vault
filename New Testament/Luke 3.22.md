@@ -5,5 +5,5 @@
 [Luke 3:22](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/3.22?lang=eng#p22)
 
 
-[^a]: TG [Godhead.](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng)
-[^b]: TG [Holy Ghost, Dove, Sign of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-dove-sign-of?lang=eng)
+[^a]: TG [[Godhead]].
+[^b]: TG [[Holy Ghost, Dove, Sign of]].

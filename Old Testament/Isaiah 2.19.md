@@ -6,4 +6,4 @@
 
 
 [^a]: [[Revelation 6.15|Rev. 6:15.]]
-[^b]: TG [Courage](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng); [Fearful.](https://www.churchofjesuschrist.org/study/scriptures/tg/fearful?lang=eng)
+[^b]: TG [[Courage, Courageous]]; [[Fearful]].

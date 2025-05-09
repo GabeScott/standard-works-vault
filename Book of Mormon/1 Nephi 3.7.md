@@ -5,6 +5,6 @@
 [1 Nephi 3:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/3?lang=eng&id=p7#p7)
 
 
-[^a]: [[1 Samuel 17.32|1 Sam. 17:32]]; [[1 Kings 17.15|1 Kgs. 17:15 (11-15)]]. TG [Faith](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng); [Loyalty](https://www.churchofjesuschrist.org/study/scriptures/tg/loyalty?lang=eng); [Obedience](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng).
-[^b]: TG [Commandments of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)
+[^a]: [[1 Samuel 17.32|1 Sam. 17:32]]; [[1 Kings 17.15|1 Kgs. 17:15 (11-15)]]. TG [[Faith]]; [[Loyalty]]; [[Obedience, Obedient, Obey]].
+[^b]: TG [[Commandments of God]].
 [^c]: [[Genesis 18.14|Gen. 18:14]]; Philip. 4:13; 1 Ne. 17:3, 50; [[D&C 5.34|D&C 5:34.]]

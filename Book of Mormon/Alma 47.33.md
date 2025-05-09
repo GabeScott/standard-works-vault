@@ -5,4 +5,4 @@
 [Alma 47:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/47?lang=eng&id=p33#p33)
 
 
-[^a]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
+[^a]: TG [[Witness, Witnesses]].

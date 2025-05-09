@@ -6,6 +6,6 @@
 
 
 [^a]: “Abram” in 1:16-17; 2:3, 6, 14, 17, in Times and Seasons, March 1, 1842, but “Abraham” in all publications since Millennial Star, July 1842.
-[^b]: [[Jeremiah 16.21|Jer. 16:21]]. TG [Jesus Christ, Jehovah](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng).
+[^b]: [[Jeremiah 16.21|Jer. 16:21]]. TG [[Jesus Christ, Jehovah]].
 [^c]: [[Genesis 12.1|Gen. 12:1.]]
-[^d]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^d]: TG [[Promised Lands]].

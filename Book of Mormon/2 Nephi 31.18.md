@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Nephi 8.20|1 Ne. 8:20.]]
-[^b]: [[Proverbs 4.18|Prov. 4:18]]. TG [Gate](https://www.churchofjesuschrist.org/study/scriptures/tg/gate?lang=eng); [Path](https://www.churchofjesuschrist.org/study/scriptures/tg/path?lang=eng); [Way](https://www.churchofjesuschrist.org/study/scriptures/tg/way?lang=eng).
-[^c]: TG [Holy Ghost, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng); [Holy Ghost, Source of Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-source-of-testimony?lang=eng)
+[^b]: [[Proverbs 4.18|Prov. 4:18]]. TG [[Gate]]; [[Path]]; [[Way]].
+[^c]: TG [[Holy Ghost, Mission of]]; [[Holy Ghost, Source of Testimony]].
 [^d]: [[3 Nephi 28.11|3 Ne. 28:11]]; [[Moses 6.66|Moses 6:66.]]

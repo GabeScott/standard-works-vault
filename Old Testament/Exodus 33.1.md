@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 10.11|Deut. 10:11.]]
-[^b]: [[Genesis 12.7|Gen. 12:7]]; [[Abraham 2.6|Abr. 2:6 (3-6, 19)]]. TG [Seed of Abraham](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng).
+[^b]: [[Genesis 12.7|Gen. 12:7]]; [[Abraham 2.6|Abr. 2:6 (3-6, 19)]]. TG [[Seed of Abraham]].

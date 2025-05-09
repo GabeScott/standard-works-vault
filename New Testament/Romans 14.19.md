@@ -5,5 +5,5 @@
 [Romans 14:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.19?lang=eng#p19)
 
 
-[^a]: TG [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)makers.
-[^b]: TG [Edification.](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng)
+[^a]: TG [[Peace of God]]; [[Peace of God]]makers.
+[^b]: TG [[Edification, Edify]].

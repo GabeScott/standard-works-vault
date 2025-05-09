@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 14.1|Isa. 14:1 (1-32).]]
 [^b]: [[Zechariah 1.17|Zech. 1:17]]; [[Zechariah 2.12|2:12.]]
-[^c]: [[Isaiah 60.3|Isa. 60:3 (3-5, 10)]]. TG [Stranger](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng).
+[^c]: [[Isaiah 60.3|Isa. 60:3 (3-5, 10)]]. TG [[Stranger]].

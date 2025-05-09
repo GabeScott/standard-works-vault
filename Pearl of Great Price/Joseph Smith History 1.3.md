@@ -5,5 +5,5 @@
 [Joseph Smith History 1:3](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.3?lang=eng#p3)
 
 
-[^a]: TG [Joseph Smith.](https://www.churchofjesuschrist.org/study/scriptures/tg/joseph-smith?lang=eng)
+[^a]: TG [[Joseph Smith]].
 [^b]: [[2 Nephi 3.15|2 Ne. 3:15.]]

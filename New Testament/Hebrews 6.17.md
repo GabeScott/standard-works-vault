@@ -5,6 +5,6 @@
 [Hebrews 6:17](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/6.17?lang=eng#p17)
 
 
-[^a]: GR design, purpose. TG [Counselor](https://www.churchofjesuschrist.org/study/scriptures/tg/counselor?lang=eng).
-[^b]: TG [Vow.](https://www.churchofjesuschrist.org/study/scriptures/tg/vow?lang=eng)
-[^c]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^a]: GR design, purpose. TG [[Counselor]].
+[^b]: TG [[Vow]].
+[^c]: TG [[Covenants]].

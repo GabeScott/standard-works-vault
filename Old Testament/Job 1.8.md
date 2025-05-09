@@ -5,4 +5,4 @@
 [Job 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/job/1.8?lang=eng#p8)
 
 
-[^a]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
+[^a]: TG [[Servant]].

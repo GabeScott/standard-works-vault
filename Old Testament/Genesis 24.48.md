@@ -5,5 +5,5 @@
 [Genesis 24:48](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/24.48?lang=eng#p48)
 
 
-[^a]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
+[^a]: TG [[Reverence]].
 [^b]: [[Genesis 22.23|Gen. 22:23.]]

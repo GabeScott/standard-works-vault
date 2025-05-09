@@ -5,4 +5,4 @@
 [Galatians 4:3](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/4.3?lang=eng#p3)
 
 
-[^a]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^a]: TG [[Bondage, Spiritual]].

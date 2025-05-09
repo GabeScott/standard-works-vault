@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jacob 5.63|Jacob 5:63.]]
-[^b]: TG [Called of God](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng); [Foreordination.](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng)
+[^b]: TG [[Called of God]]; [[Foreordination]].

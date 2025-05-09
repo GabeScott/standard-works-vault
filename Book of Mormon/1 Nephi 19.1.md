@@ -5,6 +5,6 @@
 [1 Nephi 19:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/19?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Plate](https://www.churchofjesuschrist.org/study/scriptures/tg/plate?lang=eng); [Record Keeping.](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng)
-[^b]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Plate]]; [[Record Keeping]].
+[^b]: TG [[Scribe]].
 [^c]: [[1 Nephi 1.17|1 Ne. 1:17 (16-17)]]; [[1 Nephi 6.1|6:1 (1-3)]]; [[Jacob 7.26|Jacob 7:26 (26-27).]]

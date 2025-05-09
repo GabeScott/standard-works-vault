@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 1.4|1 Ne. 1:4 (4, 13).]]
-[^b]: TG [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
+[^b]: TG [[Israel, Bondage of, in Other Lands]].
 [^c]: [[Deuteronomy 28.50|Deut. 28:50.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 26.16|2 Ne. 26:16]]; [[Mormon 8.23|Morm. 8:23 (23, 26).]]
-[^b]: TG [Book of Mormon.](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-mormon?lang=eng)
+[^b]: TG [[Book of Mormon]].

@@ -5,4 +5,4 @@
 [Jude 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/jude/1.13?lang=eng#p13)
 
 
-[^a]: TG [Astronomy.](https://www.churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng)
+[^a]: TG [[Astronomy]].

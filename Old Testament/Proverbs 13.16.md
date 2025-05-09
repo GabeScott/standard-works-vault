@@ -5,4 +5,4 @@
 [Proverbs 13:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/13.16?lang=eng#p16)
 
 
-[^a]: TG [Prudence.](https://www.churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
+[^a]: TG [[Prudence, Prudent]].

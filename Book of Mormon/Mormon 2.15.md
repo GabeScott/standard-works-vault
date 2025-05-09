@@ -6,7 +6,7 @@
 
 
 [^a]: [[Helaman 13.38|Hel. 13:38.]]
-[^b]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^b]: TG [[Grace]].
 [^c]: [[Jeremiah 8.20|Jer. 8:20.]]
-[^d]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^d]: TG [[Rebellion, Rebel]].
 [^e]: [[Jeremiah 8.2|Jer. 8:2 (1-3).]]

@@ -5,5 +5,5 @@
 [James 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.14?lang=eng#p14)
 
 
-[^a]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
+[^a]: TG [[Strife]].
 [^b]: GR do not assume superiority over.

@@ -5,6 +5,6 @@
 [Mosiah 3:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/3?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Conceived in Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/conceived-in-sin?lang=eng)
-[^b]: TG [Salvation of Little Children.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-of-little-children?lang=eng)
-[^c]: [[Moroni 8.8|Moro. 8:8 (8-9)]]; [[Moses 6.54|Moses 6:54 (54-56)]]. TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng).
+[^a]: TG [[Conceived in Sin]].
+[^b]: TG [[Salvation of Little Children]].
+[^c]: [[Moroni 8.8|Moro. 8:8 (8-9)]]; [[Moses 6.54|Moses 6:54 (54-56)]]. TG [[Jesus Christ, Atonement through]].

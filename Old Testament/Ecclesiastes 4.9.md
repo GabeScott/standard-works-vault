@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moses 3.24|Moses 3:24.]]
-[^b]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^b]: TG [[Reward]].

@@ -5,4 +5,4 @@
 [Matthew 28:17](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/28.17?lang=eng#p17)
 
 
-[^a]: TG [Doubt.](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng)
+[^a]: TG [[Doubt, Doubtful]].

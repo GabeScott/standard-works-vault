@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 26.21|Acts 26:21]]; [[2 Corinthians 11.26|2 Cor. 11:26.]]
-[^b]: TG [Rioting and Reveling.](https://www.churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng)
+[^b]: TG [[Rioting and Reveling]].

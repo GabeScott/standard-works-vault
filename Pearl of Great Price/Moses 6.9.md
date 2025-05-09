@@ -6,8 +6,8 @@
 
 
 [^a]: [[Genesis 1.26|Gen. 1:26 (26-28)]]; [[Moses 2.26|Moses 2:26 (26-29)]]; [[Abraham 4.26|Abr. 4:26 (26-31).]]
-[^b]: TG [God, Body of, Corporeal Nature.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
-[^c]: TG [Man, Physical Creation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)
+[^b]: TG [[God, Body of, Corporeal Nature]].
+[^c]: TG [[Man, Physical Creation of]].
 [^d]: [[Moses 1.34|Moses 1:34]]; [[Moses 4.26|4:26.]]
-[^e]: TG [Soul.](https://www.churchofjesuschrist.org/study/scriptures/tg/soul?lang=eng)
+[^e]: TG [[Soul]].
 [^f]: [[Moses 6.44|Moses 6:44]]; [[Abraham 2.7|Abr. 2:7.]]

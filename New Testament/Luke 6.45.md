@@ -5,7 +5,7 @@
 [Luke 6:45](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.45?lang=eng#p45)
 
 
-[^a]: TG [Motivations.](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng)
-[^b]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
-[^c]: TG [Gossip.](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng)
+[^a]: TG [[Motivations]].
+[^b]: TG [[Heart]].
+[^c]: TG [[Gossip]].
 [^d]: [[Matthew 12.34|Matt. 12:34]]; [[James 3.10|James 3:10 (10-12).]]

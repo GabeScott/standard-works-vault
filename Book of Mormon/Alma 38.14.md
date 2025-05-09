@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 31.16|Alma 31:16.]]
-[^b]: [[Luke 18.13|Luke 18:13 (10-14)]]. TG [Ingratitude](https://www.churchofjesuschrist.org/study/scriptures/tg/ingratitude?lang=eng); [Poor in Spirit](https://www.churchofjesuschrist.org/study/scriptures/tg/poor-in-spirit?lang=eng).
+[^b]: [[Luke 18.13|Luke 18:13 (10-14)]]. TG [[Ingratitude]]; [[Poor in Spirit]].

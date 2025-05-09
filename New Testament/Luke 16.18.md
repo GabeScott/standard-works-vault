@@ -5,4 +5,4 @@
 [Luke 16:18](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/16.18?lang=eng#p18)
 
 
-[^a]: TG [Divorce.](https://www.churchofjesuschrist.org/study/scriptures/tg/divorce?lang=eng)
+[^a]: TG [[Divorce, Divorcement]].

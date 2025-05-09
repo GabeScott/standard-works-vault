@@ -6,5 +6,5 @@
 
 
 [^a]: [[Proverbs 10.19|Prov. 10:19]]; [[James 1.19|James 1:19.]]
-[^b]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^b]: TG [[Understanding]].
 [^c]: HEB is cool of spirit (i.e., reserved).

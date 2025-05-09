@@ -5,4 +5,4 @@
 [Alma 5:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^a]: TG [[Conversion, Convert]].

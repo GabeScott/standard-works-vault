@@ -5,4 +5,4 @@
 [Daniel 6:23](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.23?lang=eng#p23)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Faith]].

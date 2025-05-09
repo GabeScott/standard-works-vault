@@ -5,4 +5,4 @@
 [Exodus 7:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.2?lang=eng#p2)
 
 
-[^a]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
+[^a]: TG [[Authority]].

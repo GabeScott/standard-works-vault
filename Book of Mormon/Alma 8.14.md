@@ -5,5 +5,5 @@
 [Alma 8:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/8?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Tribulation.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
+[^a]: TG [[Tribulation]].
 [^b]: [[Mosiah 3.2|Mosiah 3:2 (2-3)]]; [[Alma 10.20|Alma 10:20 (7-10, 20).]]

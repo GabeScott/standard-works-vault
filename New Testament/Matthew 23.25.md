@@ -6,4 +6,4 @@
 
 
 [^a]: GR rapacity, greediness.
-[^b]: GR self-indulgence, lack of self-control. TG [Temperance](https://www.churchofjesuschrist.org/study/scriptures/tg/temperance?lang=eng).
+[^b]: GR self-indulgence, lack of self-control. TG [[Temperance, Temperate]].

@@ -6,7 +6,7 @@
 
 
 [^a]: [[Ephesians 4.22|Eph. 4:22 (22-24).]]
-[^b]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
-[^c]: TG [Malice.](https://www.churchofjesuschrist.org/study/scriptures/tg/malice?lang=eng)
-[^d]: TG [Blaspheme.](https://www.churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng)
-[^e]: TG [Profanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng)
+[^b]: TG [[Anger]].
+[^c]: TG [[Malice]].
+[^d]: TG [[Blaspheme, Blasphemous, Blasphemy]].
+[^e]: TG [[Profanity]].

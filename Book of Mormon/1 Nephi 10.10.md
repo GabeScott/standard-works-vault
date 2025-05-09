@@ -5,4 +5,4 @@
 [1 Nephi 10:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/10?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Jesus Christ, Lamb of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lamb-of-god?lang=eng)
+[^a]: TG [[Jesus Christ, Lamb of God]].

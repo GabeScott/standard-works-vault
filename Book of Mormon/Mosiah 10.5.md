@@ -5,4 +5,4 @@
 [Mosiah 10:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/10?lang=eng&id=p5#p5)
 
 
-[^a]: [[Alma 1.29|Alma 1:29]]; [[Helaman 6.13|Hel. 6:13]]. TG [Clothing](https://www.churchofjesuschrist.org/study/scriptures/tg/clothing?lang=eng).
+[^a]: [[Alma 1.29|Alma 1:29]]; [[Helaman 6.13|Hel. 6:13]]. TG [[Clothing]].

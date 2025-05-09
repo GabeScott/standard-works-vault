@@ -5,4 +5,4 @@
 [Revelation 1:17](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.17?lang=eng#p17)
 
 
-[^a]: TG [God, Privilege of Seeing](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng); [Jesus Christ, Appearances, Postmortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-postmortal?lang=eng)
+[^a]: TG [[God, Privilege of Seeing]]; [[Jesus Christ, Appearances, Postmortal]].

@@ -5,5 +5,5 @@
 [Luke 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.10?lang=eng#p10)
 
 
-[^a]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
-[^b]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Gospel]].
+[^b]: TG [[Joy]].

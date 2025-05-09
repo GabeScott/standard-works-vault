@@ -5,5 +5,5 @@
 [Exodus 28:38](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.38?lang=eng#p38)
 
 
-[^a]: OR atone for. TG [Accountability](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng).
+[^a]: OR atone for. TG [[Accountability]].
 [^b]: [[Leviticus 1.4|Lev. 1:4 (1-4)]]; [[Leviticus 22.27|22:27.]]

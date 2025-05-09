@@ -5,4 +5,4 @@
 [Moses 8:21](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.21?lang=eng#p21)
 
 
-[^a]: [[Matthew 24.38|Matt. 24:38]]; JS—M 1:41. TG [Disobedience](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng).
+[^a]: [[Matthew 24.38|Matt. 24:38]]; JS—M 1:41. TG [[Disobedience, Disobey]].

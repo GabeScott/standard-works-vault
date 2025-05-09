@@ -6,4 +6,4 @@
 
 
 [^a]: IE before he is mature. Isa. 8:4.
-[^b]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
+[^b]: TG [[Evil]].

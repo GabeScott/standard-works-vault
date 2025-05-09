@@ -5,5 +5,5 @@
 [3 Nephi 15:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/15?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Gentiles.](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng)
+[^a]: TG [[Gentiles]].
 [^b]: [[Acts 10.45|Acts 10:45 (34-48).]]

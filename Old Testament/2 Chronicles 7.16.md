@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 110.7|D&C 110:7]]; [[D&C 124.51|124:51.]]
-[^b]: TG [Dedication](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng); [Sacred.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacred?lang=eng)
+[^b]: TG [[Dedication, Dedicate]]; [[Sacred]].

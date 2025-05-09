@@ -6,5 +6,5 @@
 
 
 [^a]: [[Romans 2.4|Rom. 2:4 (1-4).]]
-[^b]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
-[^c]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^b]: TG [[God, Spirit of]].
+[^c]: TG [[Joy]].

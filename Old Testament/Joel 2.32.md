@@ -5,12 +5,12 @@
 [Joel 2:32](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/2.32?lang=eng#p32)
 
 
-[^a]: [[D&C 93.1|D&C 93:1]]; [[D&C 100.17|100:17]]. TG [Prayer](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng).
+[^a]: [[D&C 93.1|D&C 93:1]]; [[D&C 100.17|100:17]]. TG [[Prayer, Pray]].
 [^b]: HEB Jehovah.
-[^c]: TG [Jesus Christ, Savior](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng); [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^c]: TG [[Jesus Christ, Savior]]; [[Salvation for the Dead]].
 [^d]: [[D&C 76.66|D&C 76:66.]]
-[^e]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
-[^f]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
+[^e]: TG [[Zion, Sion]].
+[^f]: TG [[Jerusalem]].
 [^g]: Obad. 1:17 (15-17).
-[^h]: TG [Israel, Remnant of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-remnant-of?lang=eng)
-[^i]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^h]: TG [[Israel, Remnant of]].
+[^i]: TG [[Israel, Gathering of]].

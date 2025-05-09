@@ -7,5 +7,5 @@
 
 [^a]: [[Exodus 33.1|Ex. 33:1.]]
 [^b]: [[Nehemiah 9.8|Neh. 9:8.]]
-[^c]: TG [Israel, Land of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng); [Lands of Inheritance](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng); [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^c]: TG [[Israel, Land of]]; [[Lands of Inheritance]]; [[Promised Lands]].
 [^d]: [[Genesis 13.4|Gen. 13:4 (3-4)]]; [[Genesis 26.25|26:25]]; [[1 Nephi 2.7|1 Ne. 2:7]]; [[Abraham 2.17|Abr. 2:17.]]

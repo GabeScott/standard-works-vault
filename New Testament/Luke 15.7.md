@@ -5,6 +5,6 @@
 [Luke 15:7](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.7?lang=eng#p7)
 
 
-[^a]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
-[^b]: TG [Missionary Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng)
-[^c]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Joy]].
+[^b]: TG [[Missionary Work]].
+[^c]: TG [[Repent, Repentance]].

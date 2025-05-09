@@ -5,8 +5,8 @@
 [Deuteronomy 25:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/25.5?lang=eng#p5)
 
 
-[^a]: TG [Widows.](https://www.churchofjesuschrist.org/study/scriptures/tg/widows?lang=eng)
+[^a]: TG [[Widows]].
 [^b]: OR outside the family.
 [^c]: [[Ruth 1.11|Ruth 1:11]]; [[Ruth 3.12|3:12.]]
 [^d]: [[Ruth 4.5|Ruth 4:5]]; [[Matthew 22.24|Matt. 22:24 (23-33)]]; [[Mark 12.19|Mark 12:19]]; [[Luke 20.28|Luke 20:28 (27-38).]]
-[^e]: TG [Marriage, Fatherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-fatherhood?lang=eng)
+[^e]: TG [[Marriage, Fatherhood]].

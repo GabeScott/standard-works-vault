@@ -6,4 +6,4 @@
 
 
 [^a]: OR covenant.
-[^b]: TG [Benevolence.](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng)
+[^b]: TG [[Benevolence]].

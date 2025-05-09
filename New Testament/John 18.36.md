@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 6.15|John 6:15.]]
-[^b]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
+[^b]: TG [[World, End of]].

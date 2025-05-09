@@ -5,4 +5,4 @@
 [3 Nephi 28:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p29#p29)
 
 
-[^a]: TG [Israel, Scattering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng); [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^a]: TG [[Israel, Scattering of]]; [[Israel, Ten Lost Tribes of]].

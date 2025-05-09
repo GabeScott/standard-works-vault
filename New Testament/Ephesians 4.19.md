@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 17.45|1 Ne. 17:45.]]
-[^b]: TG [Conscience.](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
+[^b]: TG [[Conscience]].

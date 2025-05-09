@@ -5,5 +5,5 @@
 [Deuteronomy 29:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.18?lang=eng#p18)
 
 
-[^a]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^a]: TG [[Apostasy of Individuals]].
 [^b]: HEB poisonous and bitter fruit.

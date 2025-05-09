@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ether 12.10|Ether 12:10.]]
-[^b]: TG [Spiritual Blindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng)
+[^b]: TG [[Spiritual Blindness]].
 [^c]: [[1 Nephi 17.35|1 Ne. 17:35 (32-35).]]

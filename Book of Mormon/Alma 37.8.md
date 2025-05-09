@@ -7,4 +7,4 @@
 
 [^a]: [[Mosiah 2.34|Mosiah 2:34]]; [[Alma 33.2|Alma 33:2.]]
 [^b]: [[Mosiah 1.3|Mosiah 1:3 (3-5).]]
-[^c]: TG [Education](https://www.churchofjesuschrist.org/study/scriptures/tg/education?lang=eng); [Scriptures, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng)
+[^c]: TG [[Education]]; [[Scriptures, Value of]].

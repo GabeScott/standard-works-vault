@@ -7,6 +7,6 @@
 
 [^a]: GR reverence as holy.
 [^b]: GR a defense.
-[^c]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
-[^d]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
+[^c]: TG [[Hope]].
+[^d]: TG [[Meek, Meekness]].
 [^e]: GR reverence, awe.

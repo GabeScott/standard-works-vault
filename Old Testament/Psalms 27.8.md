@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ether 12.41|Ether 12:41]]; [[D&C 101.38|D&C 101:38.]]
-[^b]: TG [God, Privilege of Seeing.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng)
+[^b]: TG [[God, Privilege of Seeing]].

@@ -5,5 +5,5 @@
 [Matthew 12:3](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/12.3?lang=eng#p3)
 
 
-[^a]: TG [Jesus Christ, Teaching Mode of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-teaching-mode-of?lang=eng)
+[^a]: TG [[Jesus Christ, Teaching Mode of]].
 [^b]: [[1 Samuel 21.6|1 Sam. 21:6 (3-6).]]

@@ -5,7 +5,7 @@
 [Isaiah 13:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/13.19?lang=eng#p19)
 
 
-[^a]: TG [Babylon.](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng)
+[^a]: TG [[Babylon]].
 [^b]: HEB vainglorious grandeur of the Babylonians.
 [^c]: [[Isaiah 23.13|Isa. 23:13.]]
 [^d]: [[Jeremiah 20.16|Jer. 20:16]]; [[Amos 4.11|Amos 4:11.]]

@@ -6,5 +6,5 @@
 
 
 [^a]: JST 1 Cor. 1:24 … who believe, both Jews and Greeks …
-[^b]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
-[^c]: TG [Jesus Christ, Relationships with the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
+[^b]: TG [[God, Power of]].
+[^c]: TG [[Jesus Christ, Relationships with the Father]].

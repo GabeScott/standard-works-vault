@@ -7,4 +7,4 @@
 
 [^a]: 1 Thes. 1:1.
 [^b]: [[Alma 7.26|Alma 7:26 (16, 26).]]
-[^c]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
+[^c]: TG [[Jesus Christ, Messiah]].

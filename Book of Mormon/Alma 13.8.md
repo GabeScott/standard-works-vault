@@ -5,4 +5,4 @@
 [Alma 13:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/13?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Priesthood, Melchizedek](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-melchizedek?lang=eng); [Priesthood, Oath and Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-oath-and-covenant?lang=eng)
+[^a]: TG [[Priesthood, Melchizedek]]; [[Priesthood, Oath and Covenant]].

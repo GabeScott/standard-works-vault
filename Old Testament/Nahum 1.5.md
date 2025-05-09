@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 97.5|Ps. 97:5.]]
-[^b]: [[D&C 101.66|D&C 101:66]]. TG [Earth, Cleansing of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng).
-[^c]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^b]: [[D&C 101.66|D&C 101:66]]. TG [[Earth, Cleansing of]].
+[^c]: TG [[God, Presence of]].

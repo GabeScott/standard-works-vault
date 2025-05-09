@@ -5,5 +5,5 @@
 [2 Peter 3:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.7?lang=eng#p7)
 
 
-[^a]: TG [Earth, Cleansing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng)
-[^b]: TG [Death, Spiritual, Second](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng); [Sons of Perdition.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-of-perdition?lang=eng)
+[^a]: TG [[Earth, Cleansing of]].
+[^b]: TG [[Death, Spiritual, Second]]; [[Sons of Perdition]].

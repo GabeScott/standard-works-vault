@@ -5,4 +5,4 @@
 [Jacob 2:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p29#p29)
 
 
-[^a]: [[Ether 2.11|Ether 2:11 (8-12)]]. TG [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng).
+[^a]: [[Ether 2.11|Ether 2:11 (8-12)]]. TG [[Curse]].

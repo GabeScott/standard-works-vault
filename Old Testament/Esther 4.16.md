@@ -5,4 +5,4 @@
 [Esther 4:16](https://www.churchofjesuschrist.org/study/scriptures/ot/esth/4.16?lang=eng#p16)
 
 
-[^a]: TG [Fast, Fasting.](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
+[^a]: TG [[Fast, Fasting]].

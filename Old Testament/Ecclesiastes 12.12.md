@@ -5,4 +5,4 @@
 [Ecclesiastes 12:12](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/12.12?lang=eng#p12)
 
 
-[^a]: TG [Study.](https://www.churchofjesuschrist.org/study/scriptures/tg/study?lang=eng)
+[^a]: TG [[Study]].

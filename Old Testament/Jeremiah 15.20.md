@@ -6,4 +6,4 @@
 
 
 [^a]: HEB fortified wall of brass.
-[^b]: TG [Protection, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng)
+[^b]: TG [[Protection, Divine]].

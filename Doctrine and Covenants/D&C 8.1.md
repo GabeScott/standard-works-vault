@@ -6,9 +6,9 @@
 
 
 [^a]: JS—H 1:66.
-[^b]: Dan. 5:16; [[Mosiah 8.13|Mosiah 8:13 (13-18)]]; [[D&C 6.25|D&C 6:25]]; [[D&C 9.5|9:5 (1-5)]]. TG [Testimony](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng).
+[^b]: Dan. 5:16; [[Mosiah 8.13|Mosiah 8:13 (13-18)]]; [[D&C 6.25|D&C 6:25]]; [[D&C 9.5|9:5 (1-5)]]. TG [[Testimony]].
 [^c]: [[Isaiah 58.9|Isa. 58:9 (8-9).]]
-[^d]: TG [Prayer](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng); [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
-[^e]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
+[^d]: TG [[Prayer, Pray]]; [[Sincere, Sincerity]].
+[^e]: TG [[Knowledge]].
 [^f]: [[D&C 6.26|D&C 6:26]]; [[D&C 9.2|9:2.]]
 [^g]: [[D&C 5.16|D&C 5:16.]]

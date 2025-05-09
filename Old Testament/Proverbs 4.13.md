@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 15.24|1 Ne. 15:24 (23-24).]]
-[^b]: TG [Education.](https://www.churchofjesuschrist.org/study/scriptures/tg/education?lang=eng)
+[^b]: TG [[Education]].

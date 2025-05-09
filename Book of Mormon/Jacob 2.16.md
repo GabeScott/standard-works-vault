@@ -5,4 +5,4 @@
 [Jacob 2:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
+[^a]: TG [[Pride]].

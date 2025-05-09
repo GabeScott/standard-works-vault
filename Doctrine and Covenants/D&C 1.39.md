@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Jn. 5:6; [[D&C 20.27|D&C 20:27]]; [[D&C 42.17|42:17.]]
-[^b]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^b]: TG [[Truth]].

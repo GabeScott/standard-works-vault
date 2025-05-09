@@ -5,4 +5,4 @@
 [Ezekiel 16:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.9?lang=eng#p9)
 
 
-[^a]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^a]: TG [[Remission of Sins]].

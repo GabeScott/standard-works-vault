@@ -5,6 +5,6 @@
 [2 Nephi 25:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p12#p12)
 
 
-[^a]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
-[^b]: TG [Jesus Christ, Divine Sonship.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
-[^c]: TG [Jesus Christ, Birth of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-birth-of?lang=eng)
+[^a]: TG [[War]].
+[^b]: TG [[Jesus Christ, Divine Sonship]].
+[^c]: TG [[Jesus Christ, Birth of]].

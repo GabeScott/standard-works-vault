@@ -7,4 +7,4 @@
 
 [^a]: [[James 5.4|James 5:4 (1-6).]]
 [^b]: [[2 Kings 23.37|2 Kgs. 23:37]]; [[Ezekiel 19.6|Ezek. 19:6.]]
-[^c]: TG [Wages.](https://www.churchofjesuschrist.org/study/scriptures/tg/wages?lang=eng)
+[^c]: TG [[Wages]].

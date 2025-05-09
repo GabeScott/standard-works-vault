@@ -5,5 +5,5 @@
 [Ezekiel 36:35](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.35?lang=eng#p35)
 
 
-[^a]: [[Isaiah 51.3|Isa. 51:3]]. TG [Millennium](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium?lang=eng).
+[^a]: [[Isaiah 51.3|Isa. 51:3]]. TG [[Millennium, Preparing a People for]].
 [^b]: OR fortified.

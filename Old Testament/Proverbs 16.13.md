@@ -5,5 +5,5 @@
 [Proverbs 16:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.13?lang=eng#p13)
 
 
-[^a]: TG [Honesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
-[^b]: TG [Communication.](https://www.churchofjesuschrist.org/study/scriptures/tg/communication?lang=eng)
+[^a]: TG [[Honesty]].
+[^b]: TG [[Communication]].

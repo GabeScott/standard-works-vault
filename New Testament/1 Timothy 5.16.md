@@ -5,5 +5,5 @@
 [1 Timothy 5:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.16?lang=eng#p16)
 
 
-[^a]: TG [Welfare.](https://www.churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng)
+[^a]: TG [[Welfare]].
 [^b]: GR burdened down, troubled.

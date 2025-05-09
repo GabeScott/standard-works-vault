@@ -5,8 +5,8 @@
 [Moses 7:13](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.13?lang=eng#p13)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Faith]].
 [^b]: [[Moses 6.32|Moses 6:32.]]
 [^c]: [[Matthew 17.20|Matt. 17:20]]; [[Luke 17.6|Luke 17:6 (5-6).]]
 [^d]: [[Moses 6.34|Moses 6:34.]]
-[^e]: TG [Priesthood, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng)
+[^e]: TG [[Priesthood, Power of]].

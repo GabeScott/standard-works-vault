@@ -5,4 +5,4 @@
 [Mark 13:25](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/13.25?lang=eng#p25)
 
 
-[^a]: TG [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
+[^a]: TG [[World, End of]].

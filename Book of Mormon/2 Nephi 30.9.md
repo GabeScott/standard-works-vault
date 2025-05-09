@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 11.4|Isa. 11:4 (4-9).]]
 [^b]: [[Psalms 19.9|Ps. 19:9]]; [[2 Nephi 9.15|2 Ne. 9:15.]]
-[^c]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
+[^c]: TG [[Meek, Meekness]].

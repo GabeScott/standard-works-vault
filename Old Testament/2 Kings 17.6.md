@@ -6,6 +6,6 @@
 
 
 [^a]: [[Hosea 13.16|Hosea 13:16]]; [[2 Nephi 18.4|2 Ne. 18:4.]]
-[^b]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
-[^c]: TG [Israel, Joseph, People of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng); [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^b]: TG [[Israel, Scattering of]].
+[^c]: TG [[Israel, Joseph, People of]]; [[Israel, Ten Lost Tribes of]].
 [^d]: [[2 Kings 15.19|2 Kgs. 15:19]]; [[Ezekiel 23.5|Ezek. 23:5]]; [[Hosea 8.9|Hosea 8:9.]]

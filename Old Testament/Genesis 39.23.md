@@ -5,4 +5,4 @@
 [Genesis 39:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.23?lang=eng#p23)
 
 
-[^a]: TG [Blessing.](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)
+[^a]: TG [[Israel, Blessings of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: HEB is lame.
-[^b]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^b]: TG [[Israel, Gathering of]].

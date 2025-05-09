@@ -5,4 +5,4 @@
 [Acts 17:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.21?lang=eng#p21)
 
 
-[^a]: TG [Waste.](https://www.churchofjesuschrist.org/study/scriptures/tg/waste?lang=eng)
+[^a]: TG [[Waste]].

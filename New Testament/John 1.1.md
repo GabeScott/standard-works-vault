@@ -6,7 +6,7 @@
 
 
 [^a]: JST John 1:1-34 (Appendix).
-[^b]: [[D&C 76.39|D&C 76:39]]. TG [Jesus Christ, Firstborn](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-firstborn?lang=eng); [Jesus Christ, Foreordained](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-foreordained?lang=eng).
-[^c]: TG [Jesus Christ, Messenger of the Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messenger-of-the-covenant?lang=eng); [Jesus Christ, Relationships with the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
-[^d]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
-[^e]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
+[^b]: [[D&C 76.39|D&C 76:39]]. TG [[Jesus Christ, Firstborn]]; [[Jesus Christ, Foreordained]].
+[^c]: TG [[Jesus Christ, Messenger of the Covenant]]; [[Jesus Christ, Relationships with the Father]].
+[^d]: TG [[Jesus Christ, Jehovah]].
+[^e]: TG [[Jesus Christ, Authority of]].

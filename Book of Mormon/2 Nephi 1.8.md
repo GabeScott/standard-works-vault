@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 5.20|3 Ne. 5:20.]]
-[^b]: TG [Nations.](https://www.churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng)
+[^b]: TG [[Nations]].

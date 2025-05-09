@@ -5,4 +5,4 @@
 [Leviticus 20:2](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.2?lang=eng#p2)
 
 
-[^a]: TG [Superstitions.](https://www.churchofjesuschrist.org/study/scriptures/tg/superstitions?lang=eng)
+[^a]: TG [[Superstitions]].

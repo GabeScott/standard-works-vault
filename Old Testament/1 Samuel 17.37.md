@@ -5,5 +5,5 @@
 [1 Samuel 17:37](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/17.37?lang=eng#p37)
 
 
-[^a]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
-[^b]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
+[^a]: TG [[Deliver, Deliverance]].
+[^b]: TG [[God, Power of]].

@@ -5,6 +5,6 @@
 [Alma 14:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/14?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Mocking.](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng)
+[^a]: TG [[Mocking, Mock, Mocker, Mockery]].
 [^b]: [[Acts 16.23|Acts 16:23 (23-40)]]; [[D&C 122.6|D&C 122:6.]]
 [^c]: [[Genesis 39.20|Gen. 39:20]]; [[Mosiah 7.7|Mosiah 7:7.]]

@@ -5,6 +5,6 @@
 [John 5:30](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.30?lang=eng#p30)
 
 
-[^a]: TG [God, Justice of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
-[^b]: [[2 Nephi 31.7|2 Ne. 31:7 (7-10)]]. TG [Agency](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng).
-[^c]: TG [God, Will of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
+[^a]: TG [[God, Justice of]].
+[^b]: [[2 Nephi 31.7|2 Ne. 31:7 (7-10)]]. TG [[Agency]].
+[^c]: TG [[God, Will of]].

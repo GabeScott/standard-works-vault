@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 6.33|D&C 6:33 (33-34).]]
-[^b]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
-[^c]: TG [Cheerful.](https://www.churchofjesuschrist.org/study/scriptures/tg/cheerful?lang=eng)
-[^d]: TG [Generosity.](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng)
+[^b]: TG [[Hypocrisy, Hypocrite]].
+[^c]: TG [[Cheerful, Cheerfulness]].
+[^d]: TG [[Generosity]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Exodus 25.22|Ex. 25:22.]]
 [^b]: [[Nehemiah 9.6|Neh. 9:6.]]
-[^c]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
+[^c]: TG [[Jesus Christ, Creator]].

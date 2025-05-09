@@ -5,4 +5,4 @@
 [2 Kings 22:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/22.8?lang=eng#p8)
 
 
-[^a]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^a]: TG [[Scriptures, Preservation of]].

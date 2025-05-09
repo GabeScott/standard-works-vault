@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 7.42|Acts 7:42]]; [[Romans 1.28|Rom. 1:28.]]
-[^b]: HEB stubbornness. TG [Lust](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng).
+[^b]: HEB stubbornness. TG [[Lust]].

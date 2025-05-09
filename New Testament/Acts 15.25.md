@@ -5,4 +5,4 @@
 [Acts 15:25](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/15.25?lang=eng#p25)
 
 
-[^a]: TG [Common Consent.](https://www.churchofjesuschrist.org/study/scriptures/tg/common-consent?lang=eng)
+[^a]: TG [[Common Consent]].

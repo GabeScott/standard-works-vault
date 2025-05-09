@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 2:47.
-[^b]: TG [Jesus Christ, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng)
+[^b]: TG [[Jesus Christ, Power of]].

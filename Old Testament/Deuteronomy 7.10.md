@@ -5,6 +5,6 @@
 [Deuteronomy 7:10](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.10?lang=eng#p10)
 
 
-[^a]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^a]: TG [[Punish, Punishment]].
 [^b]: [[1 Nephi 17.35|1 Ne. 17:35 (32-38).]]
-[^c]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
+[^c]: TG [[Hate]].

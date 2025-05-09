@@ -7,4 +7,4 @@
 
 [^a]: [[Matthew 21.28|Matt. 21:28]]; [[Jacob 6.2|Jacob 6:2 (2-3)]]; [[D&C 33.3|D&C 33:3 (3-4).]]
 [^b]: [[D&C 39.17|D&C 39:17]]; [[D&C 43.28|43:28 (28-30).]]
-[^c]: TG [Millennium, Preparing a People for.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium-preparing-a-people-for?lang=eng)
+[^c]: TG [[Millennium, Preparing a People for]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 8.16|Alma 8:16]]; [[Alma 9.12|9:12 (4, 12, 18, 24).]]
-[^b]: TG [Injustice.](https://www.churchofjesuschrist.org/study/scriptures/tg/injustice?lang=eng)
+[^b]: TG [[Injustice]].
 [^c]: [[Luke 11.46|Luke 11:46 (45-52)]]; [[2 Nephi 28.16|2 Ne. 28:16.]]

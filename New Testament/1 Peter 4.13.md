@@ -6,6 +6,6 @@
 
 
 [^a]: [[Acts 5.41|Acts 5:41.]]
-[^b]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
-[^c]: TG [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
+[^b]: TG [[Persecution, Persecute]].
+[^c]: TG [[Suffering]].
 [^d]: [[D&C 66.2|D&C 66:2.]]

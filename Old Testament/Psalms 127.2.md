@@ -5,4 +5,4 @@
 [Psalms 127:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/127.2?lang=eng#p2)
 
 
-[^a]: TG [Sleep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sleep?lang=eng)
+[^a]: TG [[Sleep, Slept]].

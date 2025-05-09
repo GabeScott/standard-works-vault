@@ -7,4 +7,4 @@
 
 [^a]: [[Mosiah 29.26|Mosiah 29:26]]; [[Alma 29.4|Alma 29:4]]; [[D&C 26.2|D&C 26:2.]]
 [^b]: [[Exodus 16.8|Ex. 16:8]]; [[Hosea 13.11|Hosea 13:11]]; [[D&C 38.21|D&C 38:21.]]
-[^c]: [[Helaman 12.6|Hel. 12:6 (3-6)]]. TG [Governments](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng).
+[^c]: [[Helaman 12.6|Hel. 12:6 (3-6)]]. TG [[Governments]].

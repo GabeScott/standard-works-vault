@@ -5,4 +5,4 @@
 [Alma 48:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/48?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Tyranny.](https://www.churchofjesuschrist.org/study/scriptures/tg/tyranny?lang=eng)
+[^a]: TG [[Tyranny]].

@@ -5,7 +5,7 @@
 [2 Nephi 28:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/28?lang=eng&id=p28#p28)
 
 
-[^a]: [[2 Nephi 9.40|2 Ne. 9:40]]; [[2 Nephi 33.5|33:5]]. TG [Rebellion](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng).
+[^a]: [[2 Nephi 9.40|2 Ne. 9:40]]; [[2 Nephi 33.5|33:5]]. TG [[Rebellion, Rebel]].
 [^b]: [[Matthew 7.25|Matt. 7:25.]]
-[^c]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
-[^d]: TG [Teachable.](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng)
+[^c]: TG [[Rock]].
+[^d]: TG [[Teachable]].

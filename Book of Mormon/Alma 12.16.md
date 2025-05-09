@@ -5,6 +5,6 @@
 [Alma 12:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Death, Spiritual, Second.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng)
+[^a]: TG [[Death, Spiritual, Second]].
 [^b]: [[Alma 11.42|Alma 11:42 (40-45).]]
 [^c]: [[1 Nephi 15.33|1 Ne. 15:33]]; [[Alma 40.26|Alma 40:26.]]

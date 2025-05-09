@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 50.6|Isa. 50:6]]; Philip. 2:7 (5-8).
-[^b]: TG [Compassion](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng); [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
+[^b]: TG [[Compassion]]; [[Jesus Christ, Redeemer]].

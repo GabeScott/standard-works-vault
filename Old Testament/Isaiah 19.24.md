@@ -6,4 +6,4 @@
 
 
 [^a]: IE all three will be allied, with Israel as a blessing in the midst of them.
-[^b]: TG [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^b]: TG [[Israel, Mission of]].

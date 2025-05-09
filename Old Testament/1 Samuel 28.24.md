@@ -5,4 +5,4 @@
 [1 Samuel 28:24](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/28.24?lang=eng#p24)
 
 
-[^a]: TG [Bread, Unleavened.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-unleavened?lang=eng)
+[^a]: TG [[Bread, Unleavened]].

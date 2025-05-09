@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jacob 4.8|Jacob 4:8 (8-13)]]; [[Mosiah 4.9|Mosiah 4:9.]]
-[^b]: [[1 Corinthians 2.16|1 Cor. 2:16]]; [[D&C 22.4|D&C 22:4]]. TG [Counselor](https://www.churchofjesuschrist.org/study/scriptures/tg/counselor?lang=eng).
+[^b]: [[1 Corinthians 2.16|1 Cor. 2:16]]; [[D&C 22.4|D&C 22:4]]. TG [[Counselor]].

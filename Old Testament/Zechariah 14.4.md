@@ -5,6 +5,6 @@
 [Zechariah 14:4](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/14.4?lang=eng#p4)
 
 
-[^a]: TG [God, Manifestations of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-manifestations-of?lang=eng)
-[^b]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
+[^a]: TG [[God, Manifestations of]].
+[^b]: TG [[Jesus Christ, Second Coming]].
 [^c]: [[D&C 45.48|D&C 45:48 (47-53).]]

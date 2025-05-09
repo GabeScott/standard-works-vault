@@ -7,6 +7,6 @@
 
 [^a]: [[Deuteronomy 28.38|Deut. 28:38 (38-40)]]; [[Micah 6.15|Micah 6:15.]]
 [^b]: [[Isaiah 9.20|Isa. 9:20.]]
-[^c]: TG [Family, Managing Finances in.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-managing-finances-in?lang=eng)
-[^d]: TG [Wages.](https://www.churchofjesuschrist.org/study/scriptures/tg/wages?lang=eng)
-[^e]: TG [Waste.](https://www.churchofjesuschrist.org/study/scriptures/tg/waste?lang=eng)
+[^c]: TG [[Family, Managing Finances in]].
+[^d]: TG [[Wages]].
+[^e]: TG [[Waste]].

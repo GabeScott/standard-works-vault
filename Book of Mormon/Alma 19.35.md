@@ -5,4 +5,4 @@
 [Alma 19:35](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p35#p35)
 
 
-[^a]: TG [Baptism, Qualifications for.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng)
+[^a]: TG [[Baptism, Qualifications for]].

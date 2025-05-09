@@ -5,5 +5,5 @@
 [Revelation 3:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.18?lang=eng#p18)
 
 
-[^a]: TG [Counsel.](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng)
+[^a]: TG [[Counsel]].
 [^b]: [[Matthew 13.46|Matt. 13:46 (44-46)]]; [[D&C 6.7|D&C 6:7.]]

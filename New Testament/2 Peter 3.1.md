@@ -5,5 +5,5 @@
 [2 Peter 3:1](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/3.1?lang=eng#p1)
 
 
-[^a]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^a]: TG [[Scriptures, Writing of]].
 [^b]: [[Alma 5.6|Alma 5:6 (3-13).]]

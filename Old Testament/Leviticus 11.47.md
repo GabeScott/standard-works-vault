@@ -6,4 +6,4 @@
 
 
 [^a]: HEB To differentiate.
-[^b]: TG [Uncleanness.](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng)
+[^b]: TG [[Uncleanness, Unclean]].

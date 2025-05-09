@@ -5,4 +5,4 @@
 [Daniel 6:17](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/6.17?lang=eng#p17)
 
 
-[^a]: TG [Seal.](https://www.churchofjesuschrist.org/study/scriptures/tg/seal?lang=eng)
+[^a]: TG [[Seal]].

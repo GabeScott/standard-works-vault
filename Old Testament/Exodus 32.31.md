@@ -5,4 +5,4 @@
 [Exodus 32:31](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/32.31?lang=eng#p31)
 
 
-[^a]: TG [Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/worship?lang=eng)
+[^a]: TG [[Assembly for Worship]].

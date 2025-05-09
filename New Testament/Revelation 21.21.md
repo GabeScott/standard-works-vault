@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 137.4|D&C 137:4 (2-4).]]
-[^b]: TG [Earth, Destiny of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-destiny-of?lang=eng)
+[^b]: TG [[Earth, Destiny of]].

@@ -5,6 +5,6 @@
 [Daniel 9:27](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.27?lang=eng#p27)
 
 
-[^a]: TG [Abomination of Desolation.](https://www.churchofjesuschrist.org/study/scriptures/tg/abomination-of-desolation?lang=eng)
+[^a]: TG [[Abomination of Desolation]].
 [^b]: [[Luke 21.24|Luke 21:24 (20-24)]]; [[D&C 88.85|D&C 88:85.]]
 [^c]: [[Isaiah 28.22|Isa. 28:22]]; Dan. 12:1; [[2 Nephi 20.23|2 Ne. 20:23.]]

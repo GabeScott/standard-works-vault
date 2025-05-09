@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 29.5|D&C 29:5.]]
-[^b]: TG [Tribulation.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
-[^c]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
+[^b]: TG [[Tribulation]].
+[^c]: TG [[Persecution, Persecute]].

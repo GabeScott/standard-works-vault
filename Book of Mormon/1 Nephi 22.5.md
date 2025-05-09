@@ -5,5 +5,5 @@
 [1 Nephi 22:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^a]: TG [[Hardheartedness, Harden, Hardness]].
 [^b]: Luke 23:28-31; [[1 Nephi 19.14|1 Ne. 19:14.]]

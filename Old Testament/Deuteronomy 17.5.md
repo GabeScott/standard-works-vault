@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 20.4|Lev. 20:4.]]
-[^b]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^b]: TG [[Capital Punishment]].

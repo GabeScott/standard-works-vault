@@ -5,5 +5,5 @@
 [Matthew 10:42](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/10.42?lang=eng#p42)
 
 
-[^a]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^a]: TG [[Name of the Lord]].
 [^b]: [[Mark 9.41|Mark 9:41]]; [[D&C 84.90|D&C 84:90.]]

@@ -5,4 +5,4 @@
 [Deuteronomy 30:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/30.2?lang=eng#p2)
 
 
-[^a]: [[1 Samuel 7.3|1 Sam. 7:3]]; [[Zechariah 10.9|Zech. 10:9]]. TG [Israel, Restoration of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng).
+[^a]: [[1 Samuel 7.3|1 Sam. 7:3]]; [[Zechariah 10.9|Zech. 10:9]]. TG [[Israel, Restoration of]].

@@ -5,6 +5,6 @@
 [Genesis 10:32](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/10.32?lang=eng#p32)
 
 
-[^a]: TG [Nations.](https://www.churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng)
+[^a]: TG [[Nations]].
 [^b]: HEB from.
-[^c]: TG [Nations.](https://www.churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng)
+[^c]: TG [[Nations]].

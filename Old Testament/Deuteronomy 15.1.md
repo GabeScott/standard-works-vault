@@ -5,5 +5,5 @@
 [Deuteronomy 15:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15.1?lang=eng#p1)
 
 
-[^a]: TG [Sabbatical Year.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbatical-year?lang=eng)
+[^a]: TG [[Sabbatical Year]].
 [^b]: IE pardoning or cancellation of debts.

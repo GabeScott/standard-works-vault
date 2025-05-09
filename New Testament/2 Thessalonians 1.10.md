@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 66.5|Isa. 66:5.]]
-[^b]: TG [Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng)
+[^b]: TG [[Mission of Latter-day Saints]].

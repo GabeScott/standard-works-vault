@@ -5,5 +5,5 @@
 [Luke 2:7](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.7?lang=eng#p7)
 
 
-[^a]: TG [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
+[^a]: TG [[Firstborn]].
 [^b]: JST Luke 2:7 … inns.

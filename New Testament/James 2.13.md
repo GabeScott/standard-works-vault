@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 109.7|Ps. 109:7.]]
-[^b]: TG [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
+[^b]: TG [[Mercy, Merciful]].

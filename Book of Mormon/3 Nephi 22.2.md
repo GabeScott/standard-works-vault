@@ -5,4 +5,4 @@
 [3 Nephi 22:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/22?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Stake.](https://www.churchofjesuschrist.org/study/scriptures/tg/stake?lang=eng)
+[^a]: TG [[Stake]].

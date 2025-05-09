@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 57.25|Alma 57:25]]; [[Alma 58.39|58:39.]]
-[^b]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^b]: TG [[Strength]].

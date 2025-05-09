@@ -5,4 +5,4 @@
 [Jeremiah 7:28](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/7.28?lang=eng#p28)
 
 
-[^a]: TG [Teachable.](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng)
+[^a]: TG [[Teachable]].

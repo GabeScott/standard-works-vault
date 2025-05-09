@@ -5,5 +5,5 @@
 [Ezekiel 13:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/13.22?lang=eng#p22)
 
 
-[^a]: TG [False Doctrine](https://www.churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng); [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^a]: TG [[False Doctrine]]; [[Lying, Liar, Lie]].
 [^b]: HEB to save his life.

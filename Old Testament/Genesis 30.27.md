@@ -5,5 +5,5 @@
 [Genesis 30:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/30.27?lang=eng#p27)
 
 
-[^a]: TG [Blessing.](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)
+[^a]: TG [[Israel, Blessings of]].
 [^b]: [[Genesis 39.5|Gen. 39:5 (3-5).]]

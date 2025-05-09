@@ -5,4 +5,4 @@
 [D&C 5:27](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.27?lang=eng#p27)
 
 
-[^a]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^a]: TG [[Covenants]].

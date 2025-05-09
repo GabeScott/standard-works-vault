@@ -5,5 +5,5 @@
 [Acts 8:1](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.1?lang=eng#p1)
 
 
-[^a]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
-[^b]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Persecution, Persecute]].
+[^b]: TG [[Apostasy of the Early Christian Church]].

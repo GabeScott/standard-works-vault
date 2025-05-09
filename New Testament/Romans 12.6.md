@@ -5,5 +5,5 @@
 [Romans 12:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.6?lang=eng#p6)
 
 
-[^a]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Grace]].
+[^b]: TG [[Faith]].

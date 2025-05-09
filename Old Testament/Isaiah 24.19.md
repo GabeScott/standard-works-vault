@@ -5,4 +5,4 @@
 [Isaiah 24:19](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.19?lang=eng#p19)
 
 
-[^a]: TG [Earth, Renewal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
+[^a]: TG [[Earth, Renewal of]].

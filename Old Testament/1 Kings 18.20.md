@@ -5,4 +5,4 @@
 [1 Kings 18:20](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/18.20?lang=eng#p20)
 
 
-[^a]: TG [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
+[^a]: TG [[False Prophets]].

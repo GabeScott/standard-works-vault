@@ -6,7 +6,7 @@
 
 
 [^a]: [[2 Nephi 9.41|2 Ne. 9:41 (41, 45, 51)]]; [[Omni 1.26|Omni 1:26 (25-26)]]; [[Moroni 10.32|Moro. 10:32.]]
-[^b]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^b]: TG [[Restoration of the Gospel]].
 [^c]: [[Numbers 14.23|Num. 14:23]]; [[Deuteronomy 1.35|Deut. 1:35 (35-37)]]; [[D&C 84.24|D&C 84:24 (23-25).]]
 [^d]: [[Hebrews 3.8|Heb. 3:8.]]
 [^e]: [[Numbers 26.65|Num. 26:65]]; [[1 Nephi 17.31|1 Ne. 17:31 (23-31).]]

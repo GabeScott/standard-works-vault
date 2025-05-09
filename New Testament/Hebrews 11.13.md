@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 13.17|Matt. 13:17]]; [[1 Peter 1.10|1 Pet. 1:10 (10-11).]]
-[^b]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^b]: TG [[Stranger]].

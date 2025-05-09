@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 1.13|Lev. 1:13 (11, 13).]]
-[^b]: TG [Flesh and Blood.](https://www.churchofjesuschrist.org/study/scriptures/tg/flesh-and-blood?lang=eng)
+[^b]: TG [[Flesh and Blood]].

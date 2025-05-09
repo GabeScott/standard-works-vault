@@ -5,5 +5,5 @@
 [Mormon 9:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^a]: TG [[Judgment, the Last]].
 [^b]: [[Alma 7.21|Alma 7:21]]; [[D&C 88.35|D&C 88:35.]]

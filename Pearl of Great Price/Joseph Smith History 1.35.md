@@ -6,5 +6,5 @@
 
 
 [^a]: [[Exodus 25.7|Ex. 25:7]]; [[Leviticus 8.8|Lev. 8:8 (7-9).]]
-[^b]: [[Exodus 28.30|Ex. 28:30]]. TG [Urim and Thummim](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng).
+[^b]: [[Exodus 28.30|Ex. 28:30]]. TG [[Urim and Thummim]].
 [^c]: [[1 Samuel 9.9|1 Sam. 9:9.]]

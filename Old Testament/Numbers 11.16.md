@@ -5,6 +5,6 @@
 [Numbers 11:16](https://www.churchofjesuschrist.org/study/scriptures/ot/num/11.16?lang=eng#p16)
 
 
-[^a]: TG [Church Organization](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng); [Seventy.](https://www.churchofjesuschrist.org/study/scriptures/tg/seventy?lang=eng)
-[^b]: [[Deuteronomy 16.18|Deut. 16:18]]; [[D&C 88.127|D&C 88:127]]; [[D&C 107.21|107:21]]. TG [Delegation of Responsibility](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng).
+[^a]: TG [[Church Organization]]; [[Seventy]].
+[^b]: [[Deuteronomy 16.18|Deut. 16:18]]; [[D&C 88.127|D&C 88:127]]; [[D&C 107.21|107:21]]. TG [[Delegation of Responsibility]].
 [^c]: HEB tent of meeting.

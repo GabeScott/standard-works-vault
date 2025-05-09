@@ -6,5 +6,5 @@
 
 
 [^a]: [[Moroni 10.23|Moro. 10:23.]]
-[^b]: [[Galatians 2.16|Gal. 2:16]]. TG [Faith](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng).
+[^b]: [[Galatians 2.16|Gal. 2:16]]. TG [[Faith]].
 [^c]: [[D&C 88.64|D&C 88:64 (64-65).]]

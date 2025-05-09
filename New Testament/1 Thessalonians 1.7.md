@@ -5,4 +5,4 @@
 [1 Thessalonians 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/1.7?lang=eng#p7)
 
 
-[^a]: TG [Example.](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
+[^a]: TG [[Example, Ensample]].

@@ -5,4 +5,4 @@
 [Hebrews 2:17](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.17?lang=eng#p17)
 
 
-[^a]: TG [Jesus Christ, Redeemer](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng); [Reconciliation.](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng)
+[^a]: TG [[Jesus Christ, Redeemer]]; [[Reconciliation, Reconcile]].

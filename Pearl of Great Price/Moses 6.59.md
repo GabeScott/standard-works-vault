@@ -7,9 +7,9 @@
 
 [^a]: 1 Jn. 5:8.
 [^b]: [[Genesis 2.7|Gen. 2:7]]; [[Moses 3.7|Moses 3:7]]; [[Moses 4.25|4:25 (25-29)]]; [[Abraham 5.7|Abr. 5:7.]]
-[^c]: TG [Holy Ghost, Baptism of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-baptism-of?lang=eng); [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
-[^d]: TG [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng); [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng), Essential.
+[^c]: TG [[Holy Ghost, Baptism of]]; [[Man, New, Spiritually Reborn]].
+[^d]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential.
 [^e]: [[2 Nephi 4.15|2 Ne. 4:15 (15-16).]]
 [^f]: [[John 6.68|John 6:68.]]
 [^g]: [[Abraham 2.11|Abr. 2:11.]]
-[^h]: TG [Celestial Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/celestial-glory?lang=eng); [Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng)
+[^h]: TG [[Celestial Glory]]; [[Telestial Glory]].

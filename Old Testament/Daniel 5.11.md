@@ -5,4 +5,4 @@
 [Daniel 5:11](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.11?lang=eng#p11)
 
 
-[^a]: TG [God, Spirit of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng); [Inspiration.](https://www.churchofjesuschrist.org/study/scriptures/tg/inspiration?lang=eng)
+[^a]: TG [[God, Spirit of]]; [[Inspiration, Inspire]].

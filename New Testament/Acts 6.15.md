@@ -6,4 +6,4 @@
 
 
 [^a]: [[Helaman 5.36|Hel. 5:36.]]
-[^b]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^b]: TG [[Angels]].

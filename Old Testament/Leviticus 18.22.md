@@ -6,4 +6,4 @@
 
 
 [^a]: OR With the male you shall not lie as one lies with the woman.
-[^b]: TG [Homosexual Behavior.](https://www.churchofjesuschrist.org/study/scriptures/tg/homosexual-behavior?lang=eng)
+[^b]: TG [[Homosexual Behavior]].

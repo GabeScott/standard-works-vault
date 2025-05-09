@@ -5,6 +5,6 @@
 [Matthew 22:37](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/22.37?lang=eng#p37)
 
 
-[^a]: TG [Dedication](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng); [God, Love of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng); [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
-[^b]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
-[^c]: TG [Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng)
+[^a]: TG [[Dedication, Dedicate]]; [[God, Love of]]; [[Love]].
+[^b]: TG [[Heart]].
+[^c]: TG [[Mind, Minded]].

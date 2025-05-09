@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 106.45|Ps. 106:45]]; [[D&C 1.22|D&C 1:22]]; [[D&C 49.9|49:9.]]
-[^b]: TG [Cruelty.](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
+[^b]: TG [[Cruelty, Cruel]].

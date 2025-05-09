@@ -5,5 +5,5 @@
 [1 John 2:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.18?lang=eng#p18)
 
 
-[^a]: TG [Antichrist](https://www.churchofjesuschrist.org/study/scriptures/tg/antichrist?lang=eng); [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
-[^b]: TG [Apostasy of the Early Christian Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
+[^a]: TG [[Antichrist]]; [[False Prophets]].
+[^b]: TG [[Apostasy of the Early Christian Church]].

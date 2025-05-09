@@ -5,4 +5,4 @@
 [Jeremiah 31:36](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.36?lang=eng#p36)
 
 
-[^a]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^a]: TG [[Ordinance]].

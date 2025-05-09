@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 9.8|D&C 9:8 (7-9).]]
-[^b]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^b]: TG [[God, Omniscience of]].
 [^c]: GR which one.
-[^d]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
+[^d]: TG [[Called of God]].

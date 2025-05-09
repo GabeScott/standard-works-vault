@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 106.33|Ps. 106:33.]]
-[^b]: TG [Rashness.](https://www.churchofjesuschrist.org/study/scriptures/tg/rashness?lang=eng)
+[^b]: TG [[Rashness]].

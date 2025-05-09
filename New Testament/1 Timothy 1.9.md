@@ -5,7 +5,7 @@
 [1 Timothy 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/1.9?lang=eng#p9)
 
 
-[^a]: TG [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
-[^b]: TG [Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/godliness?lang=eng)
+[^a]: TG [[Law of Moses]].
+[^b]: TG [[Mysteries of Godliness]].
 [^c]: [[Galatians 3.19|Gal. 3:19.]]
-[^d]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^d]: TG [[Disobedience, Disobey]].

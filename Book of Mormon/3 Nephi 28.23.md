@@ -5,5 +5,5 @@
 [3 Nephi 28:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p23#p23)
 
 
-[^a]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^a]: TG [[Gospel]].
 [^b]: [[3 Nephi 27.31|3 Ne. 27:31 (30-31).]]

@@ -5,4 +5,4 @@
 [Proverbs 31:11](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/31.11?lang=eng#p11)
 
 
-[^a]: TG [Dependability.](https://www.churchofjesuschrist.org/study/scriptures/tg/dependability?lang=eng)
+[^a]: TG [[Dependability]].

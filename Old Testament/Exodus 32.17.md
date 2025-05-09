@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 17.9|Ex. 17:9]]; [[Exodus 24.13|24:13]]; [[Exodus 33.11|33:11.]]
-[^b]: TG [Rioting and Reveling.](https://www.churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng)
+[^b]: TG [[Rioting and Reveling]].

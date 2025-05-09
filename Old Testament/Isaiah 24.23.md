@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 133.49|D&C 133:49.]]
-[^b]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^b]: TG [[Zion, Sion]].
 [^c]: OR His elders in glory.

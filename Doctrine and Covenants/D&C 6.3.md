@@ -6,5 +6,5 @@
 
 
 [^a]: [[Joel 3.13|Joel 3:13]]; [[D&C 101.64|D&C 101:64.]]
-[^b]: TG [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
-[^c]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^b]: TG [[Procrastination, Procrastinate]].
+[^c]: TG [[Treasure]].

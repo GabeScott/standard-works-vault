@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 61.18|Alma 61:18.]]
-[^b]: [[Alma 62.6|Alma 62:6]]. TG [Tyranny](https://www.churchofjesuschrist.org/study/scriptures/tg/tyranny?lang=eng).
+[^b]: [[Alma 62.6|Alma 62:6]]. TG [[Tyranny]].
 [^c]: [[Mosiah 7.21|Mosiah 7:21.]]

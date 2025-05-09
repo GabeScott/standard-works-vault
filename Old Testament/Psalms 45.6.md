@@ -5,4 +5,4 @@
 [Psalms 45:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/45.6?lang=eng#p6)
 
 
-[^a]: TG [Kingdom of God, in Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng)
+[^a]: TG [[Kingdom of God, in Heaven]].

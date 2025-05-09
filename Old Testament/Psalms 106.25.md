@@ -5,4 +5,4 @@
 [Psalms 106:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/106.25?lang=eng#p25)
 
 
-[^a]: TG [Murmuring.](https://www.churchofjesuschrist.org/study/scriptures/tg/murmuring?lang=eng)
+[^a]: TG [[Murmuring, Murmur]].

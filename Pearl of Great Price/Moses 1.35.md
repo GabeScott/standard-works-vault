@@ -5,4 +5,4 @@
 [Moses 1:35](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1.35?lang=eng#p35)
 
 
-[^a]: [[1 Nephi 9.6|1 Ne. 9:6]]; [[D&C 38.2|D&C 38:2]]; [[D&C 88.41|88:41]]; [[Moses 1.6|Moses 1:6]]; [[Moses 7.36|7:36]]; [[Abraham 3.2|Abr. 3:2 (1-16)]]. TG [God, Omniscience of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng).
+[^a]: [[1 Nephi 9.6|1 Ne. 9:6]]; [[D&C 38.2|D&C 38:2]]; [[D&C 88.41|88:41]]; [[Moses 1.6|Moses 1:6]]; [[Moses 7.36|7:36]]; [[Abraham 3.2|Abr. 3:2 (1-16)]]. TG [[God, Omniscience of]].

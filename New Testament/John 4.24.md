@@ -7,4 +7,4 @@
 
 [^a]: JST John 4:26 For unto such hath God promised his Spirit. And they who worship him, must worship in spirit and in truth.
 [^b]: [[D&C 93.33|D&C 93:33]]; [[D&C 130.22|130:22.]]
-[^c]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^c]: TG [[Truth]].

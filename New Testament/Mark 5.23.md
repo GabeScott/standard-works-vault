@@ -5,4 +5,4 @@
 [Mark 5:23](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/5.23?lang=eng#p23)
 
 
-[^a]: TG [Administrations to the Sick](https://www.churchofjesuschrist.org/study/scriptures/tg/administrations-to-the-sick?lang=eng); [Hands, Laying on of.](https://www.churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng)
+[^a]: TG [[Administrations to the Sick]]; [[Hands, Laying on of]].

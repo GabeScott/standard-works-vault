@@ -5,4 +5,4 @@
 [Isaiah 18:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/18.3?lang=eng#p3)
 
 
-[^a]: TG [Ensign.](https://www.churchofjesuschrist.org/study/scriptures/tg/ensign?lang=eng)
+[^a]: TG [[Ensign]].

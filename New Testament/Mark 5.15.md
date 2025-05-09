@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 11.31|1 Ne. 11:31]]; [[Mormon 9.24|Morm. 9:24.]]
-[^b]: TG [Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng)
+[^b]: TG [[Mind, Minded]].

@@ -5,7 +5,7 @@
 [Isaiah 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/9.4?lang=eng#p4)
 
 
-[^a]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^a]: TG [[Bondage, Spiritual]].
 [^b]: [[Isaiah 10.27|Isa. 10:27 (24-27).]]
 [^c]: [[Isaiah 14.5|Isa. 14:5.]]
 [^d]: HEB was broken in the day of Midian.

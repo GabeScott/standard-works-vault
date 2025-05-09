@@ -5,6 +5,6 @@
 [Exodus 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.2?lang=eng#p2)
 
 
-[^a]: [[Exodus 3.2|JST Ex. 3:2 … presence of the Lord … Acts 7:30]]. TG [Angels](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng).
+[^a]: [[Exodus 3.2|JST Ex. 3:2 … presence of the Lord … Acts 7:30]]. TG [[Angels]].
 [^b]: [[Exodus 19.18|Ex. 19:18]]; [[Deuteronomy 5.4|Deut. 5:4 (4-5)]]; [[1 Nephi 1.6|1 Ne. 1:6 (5-6)]]; [[D&C 29.12|D&C 29:12.]]
 [^c]: [[Deuteronomy 33.16|Deut. 33:16]]; [[Luke 20.37|Luke 20:37 (37-38)]]; [[Moses 1.17|Moses 1:17.]]

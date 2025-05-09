@@ -5,4 +5,4 @@
 [Matthew 6:28](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.28?lang=eng#p28)
 
 
-[^a]: TG [Meditation.](https://www.churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng)
+[^a]: TG [[Meditation, Meditate]].

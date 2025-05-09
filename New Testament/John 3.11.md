@@ -6,4 +6,4 @@
 
 
 [^a]: The Greek construction suggests that verses 11-21 contain a direct quotation. This testimony of Jesus was given to a member of the Sanhedrin.
-[^b]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^b]: TG [[Testimony]].

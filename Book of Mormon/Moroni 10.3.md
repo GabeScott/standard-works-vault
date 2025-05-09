@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 19.16|Gen. 19:16.]]
-[^b]: [[Deuteronomy 11.18|Deut. 11:18]]. TG [Meditation](https://www.churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng); [Study](https://www.churchofjesuschrist.org/study/scriptures/tg/study?lang=eng).
+[^b]: [[Deuteronomy 11.18|Deut. 11:18]]. TG [[Meditation, Meditate]]; [[Study]].
 [^c]: [[Deuteronomy 6.6|Deut. 6:6.]]

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Proverbs 2.9|Prov. 2:9 (9-11)]]; [[Isaiah 28.13|Isa. 28:13 (9-13)]]; [[D&C 98.12|D&C 98:12.]]
-[^b]: [[Proverbs 14.8|Prov. 14:8]]. TG [Wisdom](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng).
+[^b]: [[Proverbs 14.8|Prov. 14:8]]. TG [[Wisdom]].
 [^c]: [[Luke 8.18|Luke 8:18.]]
 [^d]: [[Alma 12.10|Alma 12:10]]; [[D&C 50.24|D&C 50:24.]]

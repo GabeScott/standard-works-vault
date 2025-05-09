@@ -5,6 +5,6 @@
 [Revelation 11:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/11.15?lang=eng#p15)
 
 
-[^a]: TG [Kings, Earthly.](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
+[^a]: TG [[Kings, Earthly]].
 [^c]: Dan. 7:13 (9-14).
-[^d]: TG [Jesus Christ, Millennial Reign.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-millennial-reign?lang=eng)
+[^d]: TG [[Jesus Christ, Millennial Reign]].

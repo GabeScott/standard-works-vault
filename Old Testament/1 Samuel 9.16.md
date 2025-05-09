@@ -5,5 +5,5 @@
 [1 Samuel 9:16](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/9.16?lang=eng#p16)
 
 
-[^a]: TG [Anointing](https://www.churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng); [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
+[^a]: TG [[Anointing, Anoint]]; [[Called of God]].
 [^b]: [[D&C 88.63|D&C 88:63 (63-65).]]

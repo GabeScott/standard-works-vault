@@ -6,6 +6,6 @@
 
 
 [^a]: IE Philistia.
-[^b]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
-[^c]: TG [Poor.](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng)
+[^b]: TG [[Zion, Sion]].
+[^c]: TG [[Poor]].
 [^d]: OR seek refuge in it.

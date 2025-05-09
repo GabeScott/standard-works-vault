@@ -5,5 +5,5 @@
 [Song of Solomon 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/song/2.12?lang=eng#p12)
 
 
-[^a]: TG [Nature, Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/nature-earth?lang=eng)
+[^a]: TG [[Nature, Earth]].
 [^b]: IE turtle-dove. Jer. 8:7.

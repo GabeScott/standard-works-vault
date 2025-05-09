@@ -5,11 +5,11 @@
 [Malachi 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/4.6?lang=eng#p6)
 
 
-[^a]: TG [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
-[^b]: [[D&C 98.17|D&C 98:17 (16-17)]]; [[D&C 138.47|138:47 (46-48)]]. TG [Heart](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng).
-[^c]: TG [Family, Eternal](https://www.churchofjesuschrist.org/study/scriptures/tg/family-eternal?lang=eng); [Family, Love within](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng); [Genealogy and Temple Work](https://www.churchofjesuschrist.org/study/scriptures/tg/genealogy-and-temple-work?lang=eng); [Honoring Father and Mother](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng); [Marriage, Fatherhood](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-fatherhood?lang=eng); [Salvation for the Dead.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-for-the-dead?lang=eng)
-[^d]: TG [Family, Children, Responsibilities toward.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng)
-[^e]: TG [Children](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng); Family, [Children](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng), Duties of.
+[^a]: TG [[Restoration of the Gospel]].
+[^b]: [[D&C 98.17|D&C 98:17 (16-17)]]; [[D&C 138.47|138:47 (46-48)]]. TG [[Heart]].
+[^c]: TG [[Family, Eternal]]; [[Family, Love within]]; [[Genealogy and Temple Work]]; [[Honoring Father and Mother]]; [[Marriage, Fatherhood]]; [[Salvation for the Dead]].
+[^d]: TG [[Family, Children, Responsibilities toward]].
+[^e]: TG [[Children]]; Family, [[Children]], Duties of.
 [^f]: [[3 Nephi 25.6|3 Ne. 25:6 (5-6)]]; [[D&C 110.15|D&C 110:15 (13-16).]]
-[^g]: TG [Earth, Destiny of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-destiny-of?lang=eng)
-[^h]: TG [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng); Earth, [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng) of.
+[^g]: TG [[Earth, Destiny of]].
+[^h]: TG [[Curse]]; Earth, [[Curse]] of.

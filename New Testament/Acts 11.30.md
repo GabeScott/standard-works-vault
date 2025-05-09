@@ -5,4 +5,4 @@
 [Acts 11:30](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/11.30?lang=eng#p30)
 
 
-[^a]: TG [Elder, Melchizedek Priesthood.](https://www.churchofjesuschrist.org/study/scriptures/tg/elder-melchizedek-priesthood?lang=eng)
+[^a]: TG [[Elder, Melchizedek Priesthood]].

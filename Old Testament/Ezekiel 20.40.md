@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 56.7|Isa. 56:7.]]
-[^b]: TG [Israel, Twelve Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-twelve-tribes-of?lang=eng)
+[^b]: TG [[Israel, Twelve Tribes of]].
 [^c]: [[Isaiah 60.7|Isa. 60:7]]; Mal. 3:4.

@@ -5,4 +5,4 @@
 [Ephesians 5:9](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.9?lang=eng#p9)
 
 
-[^a]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
+[^a]: TG [[Good Works]].

@@ -5,4 +5,4 @@
 [1 Peter 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.13?lang=eng#p13)
 
 
-[^a]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
+[^a]: TG [[Commitment]].

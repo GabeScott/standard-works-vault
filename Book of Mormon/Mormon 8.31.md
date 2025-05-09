@@ -5,9 +5,9 @@
 [Mormon 8:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p31#p31)
 
 
-[^a]: TG [Pollution.](https://www.churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng)
+[^a]: TG [[Pollution, Pollute]].
 [^b]: [[3 Nephi 16.10|3 Ne. 16:10]]; [[3 Nephi 30.2|30:2.]]
 [^c]: [[2 Nephi 28.21|2 Ne. 28:21]]; [[Alma 1.4|Alma 1:4]]; [[Alma 30.17|30:17.]]
 [^d]: [[2 Nephi 28.8|2 Ne. 28:8.]]
 [^e]: [[Acts 8.23|Acts 8:23]]; [[Alma 41.11|Alma 41:11.]]
-[^f]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^f]: TG [[Bondage, Spiritual]].

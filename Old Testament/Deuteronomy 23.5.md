@@ -5,6 +5,6 @@
 [Deuteronomy 23:5](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.5?lang=eng#p5)
 
 
-[^a]: [[Numbers 23.11|Num. 23:11]]. TG [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng).
+[^a]: [[Numbers 23.11|Num. 23:11]]. TG [[Curse]].
 [^b]: [[D&C 90.24|D&C 90:24.]]
-[^c]: TG [God, Love of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng)
+[^c]: TG [[God, Love of]].

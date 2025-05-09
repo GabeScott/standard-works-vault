@@ -7,4 +7,4 @@
 
 [^a]: [[Exodus 12.2|Ex. 12:2.]]
 [^b]: [[Hebrews 8.2|Heb. 8:2 (2-5).]]
-[^c]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^c]: TG [[Apostasy of the Early Christian Church]].

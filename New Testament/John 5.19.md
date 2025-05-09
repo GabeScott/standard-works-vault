@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 8.28|John 8:28.]]
-[^b]: TG [Godhead.](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng)
+[^b]: TG [[Godhead]].

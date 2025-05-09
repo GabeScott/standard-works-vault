@@ -5,4 +5,4 @@
 [Isaiah 49:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.18?lang=eng#p18)
 
 
-[^a]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[Israel, Gathering of]].

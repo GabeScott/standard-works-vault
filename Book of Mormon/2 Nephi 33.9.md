@@ -6,9 +6,9 @@
 
 
 [^a]: [[Ephesians 3.6|Eph. 3:6 (1-7)]]; [[2 Nephi 10.18|2 Ne. 10:18]]; [[3 Nephi 21.14|3 Ne. 21:14.]]
-[^b]: TG [Reconciliation.](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng)
+[^b]: TG [[Reconciliation, Reconcile]].
 [^c]: [[2 Nephi 9.41|2 Ne. 9:41]]; [[Helaman 3.29|Hel. 3:29 (29-30).]]
 [^d]: [[Matthew 7.14|Matt. 7:14.]]
-[^e]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^e]: TG [[Walking with God]].
 [^f]: [[D&C 132.22|D&C 132:22.]]
-[^g]: TG [Probation.](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng)
+[^g]: TG [[Probation, Probationary]].

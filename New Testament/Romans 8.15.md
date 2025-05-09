@@ -5,5 +5,5 @@
 [Romans 8:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.15?lang=eng#p15)
 
 
-[^a]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^a]: TG [[Bondage, Spiritual]].
 [^b]: [[Isaiah 56.3|Isa. 56:3 (3-8).]]

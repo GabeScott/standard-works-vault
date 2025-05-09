@@ -7,4 +7,4 @@
 
 [^a]: [[Romans 1.20|Rom. 1:20.]]
 [^b]: [[Leviticus 26.4|Lev. 26:4 (3-4).]]
-[^c]: TG [Food.](https://www.churchofjesuschrist.org/study/scriptures/tg/food?lang=eng)
+[^c]: TG [[Food]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Psalms 146.8|Ps. 146:8]]; [[Isaiah 42.7|Isa. 42:7.]]
-[^b]: TG [Sight.](https://www.churchofjesuschrist.org/study/scriptures/tg/sight?lang=eng)
-[^c]: TG [Leprosy.](https://www.churchofjesuschrist.org/study/scriptures/tg/leprosy?lang=eng)
+[^b]: TG [[Sight]].
+[^c]: TG [[Leprosy, Leper, Leprous]].
 [^d]: [[D&C 35.15|D&C 35:15.]]

@@ -5,5 +5,5 @@
 [Isaiah 29:15](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/29.15?lang=eng#p15)
 
 
-[^a]: TG [Counselor.](https://www.churchofjesuschrist.org/study/scriptures/tg/counselor?lang=eng)
+[^a]: TG [[Counselor]].
 [^b]: [[Isaiah 47.10|Isa. 47:10.]]

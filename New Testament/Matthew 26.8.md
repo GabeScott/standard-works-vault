@@ -5,4 +5,4 @@
 [Matthew 26:8](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.8?lang=eng#p8)
 
 
-[^a]: TG [Waste.](https://www.churchofjesuschrist.org/study/scriptures/tg/waste?lang=eng)
+[^a]: TG [[Waste]].

@@ -5,5 +5,5 @@
 [John 15:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/15.26?lang=eng#p26)
 
 
-[^a]: TG [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng); Holy Ghost, [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng)er.
-[^b]: TG [Holy Ghost, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng); [Holy Ghost, Source of Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-source-of-testimony?lang=eng)
+[^a]: TG [[Holy Ghost, Comforter]]; Holy Ghost, [[Holy Ghost, Comforter]]er.
+[^b]: TG [[Holy Ghost, Mission of]]; [[Holy Ghost, Source of Testimony]].

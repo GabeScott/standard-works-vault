@@ -6,5 +6,5 @@
 
 
 [^a]: HEB lay prostrate (also v. 25). Ex. 32:11.
-[^b]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
-[^c]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^b]: TG [[Evil]].
+[^c]: TG [[Anger]].

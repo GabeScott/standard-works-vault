@@ -5,4 +5,4 @@
 [Mosiah 3:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/3?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
+[^a]: TG [[Good Works]].

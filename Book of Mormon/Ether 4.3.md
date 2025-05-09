@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mormon 8.3|Morm. 8:3 (2-3).]]
-[^b]: [[Mormon 8.14|Morm. 8:14]]. TG [Scriptures, Preservation of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng).
+[^b]: [[Mormon 8.14|Morm. 8:14]]. TG [[Scriptures, Preservation of]].

@@ -5,4 +5,4 @@
 [1 Kings 11:41](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.41?lang=eng#p41)
 
 
-[^a]: TG [Scriptures, Lost.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng)
+[^a]: TG [[Scriptures, Lost]].

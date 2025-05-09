@@ -5,4 +5,4 @@
 [1 Kings 16:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/16.7?lang=eng#p7)
 
 
-[^a]: TG [Provoking.](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng)
+[^a]: TG [[Provoking, Provoke]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Job 23.7|Job 23:7]]; [[D&C 108.8|D&C 108:8.]]
 [^b]: [[1 Nephi 15.35|1 Ne. 15:35.]]
-[^c]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^c]: TG [[Hell]].

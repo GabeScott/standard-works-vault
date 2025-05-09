@@ -5,5 +5,5 @@
 [Matthew 11:23](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.23?lang=eng#p23)
 
 
-[^a]: TG [Haughtiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng)
-[^b]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^a]: TG [[Haughtiness, Haughty]].
+[^b]: TG [[Hell]].

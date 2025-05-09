@@ -5,4 +5,4 @@
 [Mark 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/2.10?lang=eng#p10)
 
 
-[^a]: TG [Jesus Christ, Son of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
+[^a]: TG [[Jesus Christ, Son of Man]].

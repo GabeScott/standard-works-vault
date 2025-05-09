@@ -5,5 +5,5 @@
 [Joel 1:14](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/1.14?lang=eng#p14)
 
 
-[^a]: TG [Fast, Fasting.](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
-[^b]: TG [Solemn Assembly.](https://www.churchofjesuschrist.org/study/scriptures/tg/solemn-assembly?lang=eng)
+[^a]: TG [[Fast, Fasting]].
+[^b]: TG [[Solemn Assembly]].

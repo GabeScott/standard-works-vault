@@ -5,4 +5,4 @@
 [Ezekiel 14:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/14.22?lang=eng#p22)
 
 
-[^a]: TG [Israel, Remnant of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-remnant-of?lang=eng)
+[^a]: TG [[Israel, Remnant of]].

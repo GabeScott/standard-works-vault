@@ -5,7 +5,7 @@
 [Exodus 3:8](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.8?lang=eng#p8)
 
 
-[^a]: TG [God, Access to.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-access-to?lang=eng)
-[^b]: TG [Deliver](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng); Israel, [Deliver](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)ance of.
+[^a]: TG [[God, Access to]].
+[^b]: TG [[Deliver, Deliverance]]; Israel, [[Deliver, Deliverance]]ance of.
 [^c]: [[Deuteronomy 8.7|Deut. 8:7 (7-9)]]; [[Jeremiah 11.5|Jer. 11:5]]; [[D&C 38.18|D&C 38:18.]]
 [^d]: [[Genesis 17.8|Gen. 17:8 (1-27)]]; [[Exodus 13.11|Ex. 13:11 (1-16)]]; [[Numbers 34.2|Num. 34:2]]; [[Abraham 2.19|Abr. 2:19 (4, 6, 18-19).]]

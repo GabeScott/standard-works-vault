@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mark 10.24|Mark 10:24 (17-27).]]
-[^b]: [[1 Kings 3.11|1 Kgs. 3:11 (11-13)]]; [[Proverbs 27.24|Prov. 27:24 (24-27)]]; [[2 Nephi 26.31|2 Ne. 26:31]]; [[Alma 39.14|Alma 39:14]]; [[D&C 6.7|D&C 6:7]]. TG [Worldliness](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng).
+[^b]: [[1 Kings 3.11|1 Kgs. 3:11 (11-13)]]; [[Proverbs 27.24|Prov. 27:24 (24-27)]]; [[2 Nephi 26.31|2 Ne. 26:31]]; [[Alma 39.14|Alma 39:14]]; [[D&C 6.7|D&C 6:7]]. TG [[Worldliness]].
 [^c]: [[Luke 12.31|Luke 12:31 (22-31).]]

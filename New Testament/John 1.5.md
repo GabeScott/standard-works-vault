@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 6.21|D&C 6:21]]; [[D&C 34.2|34:2]]; [[D&C 45.7|45:7.]]
-[^b]: TG [Darkness, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
+[^b]: TG [[Darkness, Spiritual]].
 [^c]: [[1 Corinthians 2.11|1 Cor. 2:11 (10-14)]]; [[D&C 45.29|D&C 45:29.]]

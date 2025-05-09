@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 3.12|Ex. 3:12]]; [[1 Nephi 17.55|1 Ne. 17:55]]; [[Alma 38.4|Alma 38:4.]]
-[^b]: [[Mosiah 25.10|Mosiah 25:10]]. TG [Bondage, Physical](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng).
+[^b]: [[Mosiah 25.10|Mosiah 25:10]]. TG [[Bondage, Physical]].

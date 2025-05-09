@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 25.36|Matt. 25:36]]; Col. 4:18.
-[^b]: TG [Compassion.](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
+[^b]: TG [[Compassion]].

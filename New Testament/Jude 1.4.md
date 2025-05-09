@@ -6,6 +6,6 @@
 
 
 [^a]: 2 Pet. 2:19; [[D&C 29.45|D&C 29:45]]; JS—H 1:19.
-[^b]: TG [Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/godliness?lang=eng)
+[^b]: TG [[Mysteries of Godliness]].
 [^c]: GR licentiousness.
-[^d]: TG [Apostasy of the Early Christian Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
+[^d]: TG [[Apostasy of the Early Christian Church]].

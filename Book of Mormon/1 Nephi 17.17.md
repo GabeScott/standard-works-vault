@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 17.49|1 Ne. 17:49 (8, 49-51)]]; [[1 Nephi 18.1|18:1 (1-6).]]
-[^b]: TG [Murmuring.](https://www.churchofjesuschrist.org/study/scriptures/tg/murmuring?lang=eng)
+[^b]: TG [[Murmuring, Murmur]].

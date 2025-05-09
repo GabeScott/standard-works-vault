@@ -5,6 +5,6 @@
 [Acts 1:14](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1.14?lang=eng#p14)
 
 
-[^a]: TG [Unity.](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng)
+[^a]: TG [[Unity]].
 [^b]: [[Moroni 6.5|Moro. 6:5 (1-5).]]
-[^c]: TG [Jesus Christ, Family of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-family-of?lang=eng)
+[^c]: TG [[Jesus Christ, Family of]].

@@ -5,5 +5,5 @@
 [Ecclesiastes 5:12](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/5.12?lang=eng#p12)
 
 
-[^a]: TG [Sleep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sleep?lang=eng)
-[^b]: TG [Industry](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng); [Labor.](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
+[^a]: TG [[Sleep, Slept]].
+[^b]: TG [[Industry, Industrious]]; [[Labor]].

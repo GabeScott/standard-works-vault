@@ -5,5 +5,5 @@
 [1 Peter 4:18](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.18?lang=eng#p18)
 
 
-[^a]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^b]: TG [Godliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/godliness?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]].
+[^b]: TG [[Mysteries of Godliness]].

@@ -6,6 +6,6 @@
 
 
 [^a]: GR stumble, err.
-[^b]: TG [Offense.](https://www.churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng)
+[^b]: TG [[Offense, Offend, Offender]].
 [^c]: [[Psalms 39.1|Ps. 39:1]]; [[Proverbs 21.23|Prov. 21:23.]]
-[^d]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
+[^d]: TG [[Perfection, Perfect, Perfectly]].

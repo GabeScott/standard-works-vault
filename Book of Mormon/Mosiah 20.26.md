@@ -5,4 +5,4 @@
 [Mosiah 20:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/20?lang=eng&id=p26#p26)
 
 
-[^a]: TG [Compassion.](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
+[^a]: TG [[Compassion]].

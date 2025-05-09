@@ -6,5 +6,5 @@
 
 
 [^a]: [[Galatians 5.14|Gal. 5:14.]]
-[^b]: TG [Charity.](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng)
+[^b]: TG [[Charity]].
 [^c]: 2 Tim. 2:22.

@@ -5,5 +5,5 @@
 [4 Nephi 1:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p29#p29)
 
 
-[^a]: TG [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
-[^b]: TG [Jesus Christ, Head of the Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-head-of-the-church?lang=eng)
+[^a]: TG [[Persecution, Persecute]].
+[^b]: TG [[Jesus Christ, Head of the Church]].

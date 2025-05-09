@@ -5,6 +5,6 @@
 [Jeremiah 3:14](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.14?lang=eng#p14)
 
 
-[^a]: TG [Abrahamic Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng)
-[^b]: TG [Missionary Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng)
-[^c]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^a]: TG [[Abrahamic Covenant]].
+[^b]: TG [[Missionary Work]].
+[^c]: TG [[Zion, Sion]].

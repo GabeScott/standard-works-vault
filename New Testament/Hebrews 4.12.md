@@ -10,6 +10,6 @@
 [^c]: [[Isaiah 49.2|Isa. 49:2]]; [[Revelation 2.12|Rev. 2:12 (12-17).]]
 [^d]: [[Hosea 6.5|Hosea 6:5]]; [[D&C 85.6|D&C 85:6.]]
 [^e]: JST Heb. 4:12 … body …
-[^f]: [[1 Corinthians 14.25|1 Cor. 14:25 (24-25)]]. TG [God, Omniscience of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng).
+[^f]: [[1 Corinthians 14.25|1 Cor. 14:25 (24-25)]]. TG [[God, Omniscience of]].
 [^g]: [[D&C 6.16|D&C 6:16.]]
-[^h]: TG [Motivations.](https://www.churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng)
+[^h]: TG [[Motivations]].

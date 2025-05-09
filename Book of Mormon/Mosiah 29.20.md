@@ -8,4 +8,4 @@
 [^a]: [[Mosiah 21.14|Mosiah 21:14.]]
 [^b]: [[Exodus 2.23|Ex. 2:23 (23-25)]]; [[Alma 43.49|Alma 43:49 (49-50).]]
 [^c]: [[Ezekiel 33.11|Ezek. 33:11 (11, 15-16)]]; [[Mosiah 26.30|Mosiah 26:30.]]
-[^d]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^d]: TG [[Trust in God]].

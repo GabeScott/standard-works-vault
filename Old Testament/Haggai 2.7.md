@@ -5,5 +5,5 @@
 [Haggai 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/2.7?lang=eng#p7)
 
 
-[^a]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
+[^a]: TG [[Jesus Christ, Second Coming]].
 [^b]: [[Exodus 40.34|Ex. 40:34]]; [[Isaiah 60.7|Isa. 60:7]]; [[D&C 97.15|D&C 97:15.]]

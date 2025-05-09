@@ -5,5 +5,5 @@
 [Moses 8:13](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/8.13?lang=eng#p13)
 
 
-[^a]: [[Genesis 6.8|Gen. 6:8]]; [[Genesis 7.5|7:5]]; [[D&C 138.41|D&C 138:41]]. TG [Obedience](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng).
-[^b]: TG [Sons and Daughters of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)
+[^a]: [[Genesis 6.8|Gen. 6:8]]; [[Genesis 7.5|7:5]]; [[D&C 138.41|D&C 138:41]]. TG [[Obedience, Obedient, Obey]].
+[^b]: TG [[Sons and Daughters of God]].

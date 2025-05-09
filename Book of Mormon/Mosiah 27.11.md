@@ -5,7 +5,7 @@
 [Mosiah 27:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/27?lang=eng&id=p11#p11)
 
 
-[^a]: TG [Disobedience](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng); [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^a]: TG [[Disobedience, Disobey]]; [[Rebellion, Rebel]].
 [^b]: [[Alma 21.5|Alma 21:5.]]
 [^c]: [[Acts 9.3|Acts 9:3 (1-9)]]; [[Mosiah 27.15|Mosiah 27:15]]; [[Alma 8.15|Alma 8:15]]; [[Alma 17.2|17:2.]]
 [^d]: [[Exodus 19.9|Ex. 19:9 (9, 16).]]

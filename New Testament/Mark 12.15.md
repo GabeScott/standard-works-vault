@@ -5,4 +5,4 @@
 [Mark 12:15](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.15?lang=eng#p15)
 
 
-[^a]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^a]: TG [[Testament]].

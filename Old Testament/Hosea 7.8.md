@@ -5,5 +5,5 @@
 [Hosea 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/7.8?lang=eng#p8)
 
 
-[^a]: TG [Separation.](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng)
+[^a]: TG [[Separation, Separate]].
 [^b]: [[Leviticus 24.5|Lev. 24:5.]]

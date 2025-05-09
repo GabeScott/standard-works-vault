@@ -7,4 +7,4 @@
 
 [^a]: [[1 Chronicles 14.8|1 Chr. 14:8.]]
 [^b]: [[2 Samuel 2.4|2 Sam. 2:4 (3-4)]]; [[1 Chronicles 12.23|1 Chr. 12:23.]]
-[^c]: TG [Kings, Earthly.](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
+[^c]: TG [[Kings, Earthly]].

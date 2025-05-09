@@ -5,4 +5,4 @@
 [Ecclesiastes 9:4](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/9.4?lang=eng#p4)
 
 
-[^a]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
+[^a]: TG [[Hope]].

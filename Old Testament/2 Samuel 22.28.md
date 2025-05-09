@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 18.27|Ps. 18:27]]; [[Isaiah 49.13|Isa. 49:13]]; [[1 Nephi 21.13|1 Ne. 21:13.]]
-[^b]: TG [Haughtiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng)
+[^b]: TG [[Haughtiness, Haughty]].

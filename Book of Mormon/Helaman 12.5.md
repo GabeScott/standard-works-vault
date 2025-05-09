@@ -6,5 +6,5 @@
 
 
 [^a]: [[Proverbs 29.23|Prov. 29:23.]]
-[^b]: TG [Boast.](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng)
-[^c]: TG [Walking in Darkness](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-in-darkness?lang=eng); [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^b]: TG [[Boast, Boasting]].
+[^c]: TG [[Walking in Darkness]]; [[Walking with God]].

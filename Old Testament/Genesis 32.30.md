@@ -6,5 +6,5 @@
 
 
 [^a]: IE The face of God.
-[^b]: See JST Ex. 33:20, 23 (Appendix). TG [God, Knowledge about](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng); [God, Privilege of Seeing](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng).
-[^c]: [[Ether 12.39|Ether 12:39]]; [[D&C 17.1|D&C 17:1]]; [[Moses 1.11|Moses 1:11 (2, 11, 31)]]; [[Moses 7.4|7:4]]. TG [God, Body of, Corporeal Nature](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng); [God, Manifestations of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-manifestations-of?lang=eng).
+[^b]: See JST Ex. 33:20, 23 (Appendix). TG [[God, Knowledge about]]; [[God, Privilege of Seeing]].
+[^c]: [[Ether 12.39|Ether 12:39]]; [[D&C 17.1|D&C 17:1]]; [[Moses 1.11|Moses 1:11 (2, 11, 31)]]; [[Moses 7.4|7:4]]. TG [[God, Body of, Corporeal Nature]]; [[God, Manifestations of]].

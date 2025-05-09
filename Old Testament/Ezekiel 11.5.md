@@ -5,6 +5,6 @@
 [Ezekiel 11:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/11.5?lang=eng#p5)
 
 
-[^a]: TG [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
-[^b]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
-[^c]: [[Ezekiel 20.32|Ezek. 20:32]]. TG [Mind](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng).
+[^a]: TG [[Holy Ghost, Mission of]].
+[^b]: TG [[God, Omniscience of]].
+[^c]: [[Ezekiel 20.32|Ezek. 20:32]]. TG [[Mind, Minded]].

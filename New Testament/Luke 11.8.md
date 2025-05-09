@@ -5,4 +5,4 @@
 [Luke 11:8](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11.8?lang=eng#p8)
 
 
-[^a]: TG [Brotherhood and Sisterhood](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng); [Friendship.](https://www.churchofjesuschrist.org/study/scriptures/tg/friendship?lang=eng)
+[^a]: TG [[Brotherhood and Sisterhood]]; [[Friendship, Friend]].

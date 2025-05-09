@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 45.27|D&C 45:27.]]
-[^b]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^b]: TG [[Apostasy of Individuals]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 60.13|Isa. 60:13.]]
-[^b]: TG [Millennium.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium?lang=eng)
+[^b]: TG [[Millennium, Preparing a People for]].

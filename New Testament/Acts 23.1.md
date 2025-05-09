@@ -5,4 +5,4 @@
 [Acts 23:1](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/23.1?lang=eng#p1)
 
 
-[^a]: TG [Conscience.](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
+[^a]: TG [[Conscience]].

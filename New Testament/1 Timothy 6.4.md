@@ -5,9 +5,9 @@
 [1 Timothy 6:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/6.4?lang=eng#p4)
 
 
-[^a]: TG [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
+[^a]: TG [[Pride]].
 [^b]: GR obsessed with questions.
 [^c]: [[1 Timothy 1.4|1 Tim. 1:4.]]
-[^d]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
-[^e]: TG [Envy.](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
+[^d]: TG [[Strife]].
+[^e]: TG [[Envy, Envious]].
 [^f]: GR wicked suspicions.

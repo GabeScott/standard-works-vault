@@ -7,4 +7,4 @@
 
 [^a]: GR narrow; see also 2 Ne. 31:17-21.
 [^b]: [[Luke 13.24|Luke 13:24]]; [[3 Nephi 27.33|3 Ne. 27:33]]; [[D&C 22.4|D&C 22:4 (1-4)]]; [[D&C 43.7|43:7.]]
-[^c]: [[D&C 132.25|D&C 132:25]]. TG [Hell](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng).
+[^c]: [[D&C 132.25|D&C 132:25]]. TG [[Hell]].

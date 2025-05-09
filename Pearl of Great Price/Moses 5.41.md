@@ -5,5 +5,5 @@
 [Moses 5:41](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.41?lang=eng#p41)
 
 
-[^a]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^a]: TG [[Bondage, Spiritual]].
 [^b]: [[Moses 6.49|Moses 6:49.]]

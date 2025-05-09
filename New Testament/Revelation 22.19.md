@@ -5,4 +5,4 @@
 [Revelation 22:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/22.19?lang=eng#p19)
 
 
-[^a]: TG [Book of Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-life?lang=eng)
+[^a]: TG [[Book of Life]].

@@ -5,4 +5,4 @@
 [John 16:9](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.9?lang=eng#p9)
 
 
-[^a]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^a]: TG [[Sin]].

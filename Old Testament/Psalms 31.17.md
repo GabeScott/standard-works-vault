@@ -5,4 +5,4 @@
 [Psalms 31:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/31.17?lang=eng#p17)
 
 
-[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^a]: TG [[Shame]].

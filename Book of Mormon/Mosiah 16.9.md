@@ -5,4 +5,4 @@
 [Mosiah 16:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/16?lang=eng&id=p9#p9)
 
 
-[^a]: [[Ether 3.14|Ether 3:14]]; [[Moroni 7.18|Moro. 7:18]]; [[D&C 88.13|D&C 88:13 (7-13)]]. TG [Jesus Christ, Light of the World](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-light-of-the-world?lang=eng).
+[^a]: [[Ether 3.14|Ether 3:14]]; [[Moroni 7.18|Moro. 7:18]]; [[D&C 88.13|D&C 88:13 (7-13)]]. TG [[Jesus Christ, Light of the World]].

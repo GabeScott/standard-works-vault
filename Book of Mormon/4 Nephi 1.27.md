@@ -5,5 +5,5 @@
 [4 Nephi 1:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1?lang=eng&id=p27#p27)
 
 
-[^a]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^a]: TG [[Apostasy of Individuals]].
 [^b]: [[3 Nephi 18.28|3 Ne. 18:28 (28-29).]]

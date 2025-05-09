@@ -5,4 +5,4 @@
 [Leviticus 25:36](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/25.36?lang=eng#p36)
 
 
-[^a]: TG [Usury.](https://www.churchofjesuschrist.org/study/scriptures/tg/usury?lang=eng)
+[^a]: TG [[Usury]].

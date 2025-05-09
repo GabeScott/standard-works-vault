@@ -5,4 +5,4 @@
 [2 Thessalonians 1:11](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/1.11?lang=eng#p11)
 
 
-[^a]: TG [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
+[^a]: TG [[Worthiness, Worthy]].

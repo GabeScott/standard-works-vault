@@ -5,4 +5,4 @@
 [Acts 8:29](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.29?lang=eng#p29)
 
 
-[^a]: TG [Holy Ghost, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng)
+[^a]: TG [[Holy Ghost, Gifts of]].

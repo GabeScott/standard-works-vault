@@ -5,5 +5,5 @@
 [Deuteronomy 28:58](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.58?lang=eng#p58)
 
 
-[^a]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
-[^b]: [[Psalms 48.10|Ps. 48:10]]. TG [Name](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng).
+[^a]: TG [[Obedience, Obedient, Obey]].
+[^b]: [[Psalms 48.10|Ps. 48:10]]. TG [[Name of the Lord]].

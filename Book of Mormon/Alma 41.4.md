@@ -6,9 +6,9 @@
 
 
 [^a]: [[Alma 42.28|Alma 42:28.]]
-[^b]: [[2 Nephi 9.13|2 Ne. 9:13 (10-13)]]; [[D&C 138.17|D&C 138:17]]. TG [Resurrection](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng).
-[^c]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
-[^d]: TG [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
+[^b]: [[2 Nephi 9.13|2 Ne. 9:13 (10-13)]]; [[D&C 138.17|D&C 138:17]]. TG [[Jesus Christ, Resurrection]].
+[^c]: TG [[Mortality]].
+[^d]: TG [[Immortality, Immortal]].
 [^e]: [[1 Corinthians 15.50|1 Cor. 15:50 (50-53).]]
-[^f]: TG [Eternal Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng)
-[^g]: TG [Exaltation.](https://www.churchofjesuschrist.org/study/scriptures/tg/exaltation?lang=eng)
+[^f]: TG [[Eternal Life]].
+[^g]: TG [[Exaltation]].

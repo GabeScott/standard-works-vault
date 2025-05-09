@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 33.13|Ex. 33:13.]]
-[^b]: TG [Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/inheritance?lang=eng)
+[^b]: TG [[Inheritance]].

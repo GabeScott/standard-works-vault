@@ -5,5 +5,5 @@
 [Mosiah 9:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/9?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^a]: TG [[Strength]].
 [^b]: [[Joshua 21.44|Josh. 21:44]]; [[Alma 46.7|Alma 46:7.]]

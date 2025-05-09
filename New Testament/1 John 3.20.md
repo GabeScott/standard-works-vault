@@ -5,4 +5,4 @@
 [1 John 3:20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/3.20?lang=eng#p20)
 
 
-[^a]: TG [God, Intelligence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-intelligence-of?lang=eng)
+[^a]: TG [[God, Intelligence of]].

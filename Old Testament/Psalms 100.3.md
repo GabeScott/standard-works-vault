@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ephesians 2.10|Eph. 2:10.]]
-[^b]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^b]: TG [[Sheep]].

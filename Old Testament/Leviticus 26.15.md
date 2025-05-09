@@ -5,4 +5,4 @@
 [Leviticus 26:15](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/26.15?lang=eng#p15)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Apostasy of Israel]].

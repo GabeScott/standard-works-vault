@@ -5,9 +5,9 @@
 [Ezekiel 34:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.12?lang=eng#p12)
 
 
-[^a]: TG [Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)
-[^b]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
-[^c]: TG [Jesus Christ, Good Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng)
+[^a]: TG [[Shepherd]].
+[^b]: TG [[Israel, Gathering of]].
+[^c]: TG [[Jesus Christ, Good Shepherd]].
 [^d]: [[2 Nephi 25.15|2 Ne. 25:15 (11-19).]]
 [^e]: [[Ezekiel 30.3|Ezek. 30:3.]]
 [^f]: [[Joel 2.2|Joel 2:2]]; [[Matthew 24.29|Matt. 24:29.]]

@@ -6,5 +6,5 @@
 
 
 [^a]: GR missed the mark.
-[^b]: TG [Apostasy of the Early Christian Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
+[^b]: TG [[Apostasy of the Early Christian Church]].
 [^c]: GR vain, idle, fruitless discussion.

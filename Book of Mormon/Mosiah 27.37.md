@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 12.21|Mosiah 12:21]]; [[Mosiah 15.14|15:14 (14-17).]]
-[^b]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^b]: TG [[Peace of God]].

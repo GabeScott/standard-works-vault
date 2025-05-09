@@ -6,7 +6,7 @@
 
 
 [^a]: [[Luke 10.29|Luke 10:29.]]
-[^b]: TG [God, Intelligence of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-intelligence-of?lang=eng); [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^b]: TG [[God, Intelligence of]]; [[God, Omniscience of]].
 [^c]: [[Proverbs 21.2|Prov. 21:2.]]
 [^d]: [[2 Nephi 9.28|2 Ne. 9:28 (28-30).]]
-[^e]: TG [Man, Natural, Not Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-natural-not-spiritually-reborn?lang=eng)
+[^e]: TG [[Man, Natural, Not Spiritually Reborn]].

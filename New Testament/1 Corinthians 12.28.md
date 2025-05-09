@@ -5,7 +5,7 @@
 [1 Corinthians 12:28](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/12.28?lang=eng#p28)
 
 
-[^a]: TG [Apostles.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng)
-[^b]: TG [Prophets, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
-[^c]: TG [Teacher.](https://www.churchofjesuschrist.org/study/scriptures/tg/teacher?lang=eng)
-[^d]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^a]: TG [[Apostles]].
+[^b]: TG [[Prophets, Mission of]].
+[^c]: TG [[Teacher]].
+[^d]: TG [[Governments]].

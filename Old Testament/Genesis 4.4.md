@@ -5,6 +5,6 @@
 [Genesis 4:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.4?lang=eng#p4)
 
 
-[^a]: [[Numbers 18.17|Num. 18:17]]; [[Mosiah 2.3|Mosiah 2:3]]; [[Moses 5.20|Moses 5:20 (5, 19-23)]]. TG [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng).
+[^a]: [[Numbers 18.17|Num. 18:17]]; [[Mosiah 2.3|Mosiah 2:3]]; [[Moses 5.20|Moses 5:20 (5, 19-23)]]. TG [[Jesus Christ, Types of, in Anticipation]].
 [^b]: [[Hebrews 11.4|Heb. 11:4.]]
-[^c]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^c]: TG [[Self-Sacrifice]].

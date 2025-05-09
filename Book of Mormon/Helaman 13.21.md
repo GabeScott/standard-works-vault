@@ -5,5 +5,5 @@
 [Helaman 13:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/13?lang=eng&id=p21#p21)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Curse]].
+[^b]: TG [[Disobedience, Disobey]].

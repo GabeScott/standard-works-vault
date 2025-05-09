@@ -5,4 +5,4 @@
 [3 Nephi 7:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/7?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Priesthood, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng)
+[^a]: TG [[Priesthood, Power of]].

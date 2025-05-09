@@ -5,4 +5,4 @@
 [Proverbs 19:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.24?lang=eng#p24)
 
 
-[^a]: TG [Laziness.](https://www.churchofjesuschrist.org/study/scriptures/tg/laziness?lang=eng)
+[^a]: TG [[Laziness]].

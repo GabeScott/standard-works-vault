@@ -6,6 +6,6 @@
 
 
 [^a]: [[Genesis 28.3|Gen. 28:3 (3-4).]]
-[^b]: TG [Israel, Blessings of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng); [Israel, Origins of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-origins-of?lang=eng)
+[^b]: TG [[Israel, Blessings of]]; [[Israel, Origins of]].
 [^c]: [[1 Nephi 22.9|1 Ne. 22:9]]; [[3 Nephi 20.25|3 Ne. 20:25 (25, 27).]]
-[^d]: [[Abraham 2.10|Abr. 2:10 (8-11)]]. TG [Name](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng).
+[^d]: [[Abraham 2.10|Abr. 2:10 (8-11)]]. TG [[Name of the Lord]].

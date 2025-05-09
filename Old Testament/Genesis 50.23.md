@@ -5,5 +5,5 @@
 [Genesis 50:23](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/50.23?lang=eng#p23)
 
 
-[^a]: TG [Patriarch.](https://www.churchofjesuschrist.org/study/scriptures/tg/patriarch?lang=eng)
+[^a]: TG [[Family, Patriarchal]].
 [^b]: [[Numbers 32.39|Num. 32:39.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 23.30|Prov. 23:30 (29-32).]]
-[^b]: TG [Drunkenness](https://www.churchofjesuschrist.org/study/scriptures/tg/drunkenness?lang=eng); [Word of Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/word-of-wisdom?lang=eng)
+[^b]: TG [[Drunkenness]]; [[Word of Wisdom]].

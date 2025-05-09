@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 5.18|2 Ne. 5:18]]; [[2 Nephi 6.2|6:2]]; [[Jacob 1.9|Jacob 1:9 (9, 11, 15)]]; [[Mosiah 1.10|Mosiah 1:10.]]
-[^b]: TG [Leadership.](https://www.churchofjesuschrist.org/study/scriptures/tg/leadership?lang=eng)
+[^b]: TG [[Leadership]].
 [^c]: W of M 1:14.

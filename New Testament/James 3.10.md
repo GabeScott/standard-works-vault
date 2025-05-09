@@ -5,4 +5,4 @@
 [James 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/james/3.10?lang=eng#p10)
 
 
-[^a]: [[Matthew 12.34|Matt. 12:34]]; [[Luke 6.45|Luke 6:45]]. TG [Hypocrisy](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng).
+[^a]: [[Matthew 12.34|Matt. 12:34]]; [[Luke 6.45|Luke 6:45]]. TG [[Hypocrisy, Hypocrite]].

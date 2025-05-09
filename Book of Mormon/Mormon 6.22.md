@@ -7,5 +7,5 @@
 
 [^a]: [[2 Samuel 1.27|2 Sam. 1:27 (17-27).]]
 [^b]: [[2 Samuel 7.20|2 Sam. 7:20]]; [[D&C 6.16|D&C 6:16.]]
-[^c]: TG [God, Justice of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
+[^c]: TG [[God, Justice of]].
 [^d]: [[Psalms 36.5|Ps. 36:5 (5-6)]]; [[Alma 26.16|Alma 26:16]]; [[D&C 97.6|D&C 97:6.]]

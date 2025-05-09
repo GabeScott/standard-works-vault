@@ -5,4 +5,4 @@
 [Ezekiel 46:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/46.17?lang=eng#p17)
 
 
-[^a]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^a]: TG [[Liberty]].

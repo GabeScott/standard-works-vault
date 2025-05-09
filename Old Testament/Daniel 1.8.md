@@ -5,6 +5,6 @@
 [Daniel 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/1.8?lang=eng#p8)
 
 
-[^a]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
-[^b]: [[Hosea 9.3|Hosea 9:3 (1-3)]]. TG [Word of Wisdom](https://www.churchofjesuschrist.org/study/scriptures/tg/word-of-wisdom?lang=eng).
-[^c]: TG [Temperance.](https://www.churchofjesuschrist.org/study/scriptures/tg/temperance?lang=eng)
+[^a]: TG [[Commitment]].
+[^b]: [[Hosea 9.3|Hosea 9:3 (1-3)]]. TG [[Word of Wisdom]].
+[^c]: TG [[Temperance, Temperate]].

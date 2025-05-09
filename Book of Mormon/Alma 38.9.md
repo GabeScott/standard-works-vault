@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 21.9|Alma 21:9.]]
-[^b]: TG [Jesus Christ, Light of the World.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-light-of-the-world?lang=eng)
+[^b]: TG [[Jesus Christ, Light of the World]].
 [^c]: [[Ether 4.12|Ether 4:12.]]

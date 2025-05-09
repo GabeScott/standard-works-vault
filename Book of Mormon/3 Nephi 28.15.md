@@ -5,4 +5,4 @@
 [3 Nephi 28:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/28?lang=eng&id=p15#p15)
 
 
-[^a]: [[Moses 1.11|Moses 1:11]]. TG [Transfiguration](https://www.churchofjesuschrist.org/study/scriptures/tg/transfiguration?lang=eng).
+[^a]: [[Moses 1.11|Moses 1:11]]. TG [[Transfiguration, Transfigured]].

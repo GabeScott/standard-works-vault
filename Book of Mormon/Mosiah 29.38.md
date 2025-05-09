@@ -5,4 +5,4 @@
 [Mosiah 29:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p38#p38)
 
 
-[^a]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^a]: TG [[Agency]].

@@ -6,4 +6,4 @@
 
 
 [^a]: JST Matt. 19:28 … resurrection …
-[^b]: [[Mormon 3.18|Morm. 3:18 (18-20)]]; [[D&C 29.12|D&C 29:12]]. TG [Apostles](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng); [Judgment, the Last](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng).
+[^b]: [[Mormon 3.18|Morm. 3:18 (18-20)]]; [[D&C 29.12|D&C 29:12]]. TG [[Apostles]]; [[Judgment, the Last]].

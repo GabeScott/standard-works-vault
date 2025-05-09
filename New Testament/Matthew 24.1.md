@@ -6,4 +6,4 @@
 
 
 [^a]: JS—M 1:2.
-[^b]: [[D&C 45.20|D&C 45:20 (15-21)]]. TG [Temple](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng).
+[^b]: [[D&C 45.20|D&C 45:20 (15-21)]]. TG [[Genealogy and Temple Work]].

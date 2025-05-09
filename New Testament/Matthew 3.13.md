@@ -5,4 +5,4 @@
 [Matthew 3:13](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/3.13?lang=eng#p13)
 
 
-[^a]: TG [Jesus Christ, Baptism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-baptism-of?lang=eng)
+[^a]: TG [[Jesus Christ, Baptism of]].

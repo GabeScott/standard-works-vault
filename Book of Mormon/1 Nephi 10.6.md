@@ -6,4 +6,4 @@
 
 
 [^a]: [[Romans 3.23|Rom. 3:23]]; [[2 Nephi 2.5|2 Ne. 2:5 (5-8).]]
-[^b]: TG [Death, Spiritual, First.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-first?lang=eng)
+[^b]: TG [[Death, Spiritual, First]].

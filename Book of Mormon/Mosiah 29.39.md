@@ -5,7 +5,7 @@
 [Mosiah 29:39](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p39#p39)
 
 
-[^a]: TG [Common Consent.](https://www.churchofjesuschrist.org/study/scriptures/tg/common-consent?lang=eng)
+[^a]: TG [[Common Consent]].
 [^b]: [[Alma 62.47|Alma 62:47.]]
 [^c]: [[Alma 1.14|Alma 1:14.]]
-[^d]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^d]: TG [[Liberty]].

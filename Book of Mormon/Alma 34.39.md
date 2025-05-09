@@ -6,6 +6,6 @@
 
 
 [^a]: [[Hebrews 3.13|Heb. 3:13.]]
-[^b]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
-[^c]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
+[^b]: TG [[Watch, Watchfulness]].
+[^c]: TG [[Temptation]].
 [^d]: [[Alma 30.60|Alma 30:60.]]

@@ -5,6 +5,6 @@
 [Deuteronomy 4:30](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.30?lang=eng#p30)
 
 
-[^a]: TG [Tribulation.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
-[^b]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
-[^c]: HEB return, repent. TG [Israel, Restoration of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng).
+[^a]: TG [[Tribulation]].
+[^b]: TG [[Last Days]].
+[^c]: HEB return, repent. TG [[Israel, Restoration of]].

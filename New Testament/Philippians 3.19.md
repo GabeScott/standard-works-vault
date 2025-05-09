@@ -7,4 +7,4 @@
 
 [^a]: [[2 Corinthians 11.15|2 Cor. 11:15.]]
 [^b]: JST Philip. 3:19 … and who glory in their shame …
-[^c]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^c]: TG [[Shame]].

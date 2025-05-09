@@ -5,4 +5,4 @@
 [Exodus 15:21](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.21?lang=eng#p21)
 
 
-[^a]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^a]: TG [[Singing, Sing, Sang, Sung]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 2.8|2 Ne. 2:8]]; [[Alma 7.12|Alma 7:12]]; [[Alma 42.23|42:23.]]
-[^b]: TG [Redemption.](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
+[^b]: TG [[Redemption]].

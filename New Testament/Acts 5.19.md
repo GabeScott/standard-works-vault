@@ -5,5 +5,5 @@
 [Acts 5:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/5.19?lang=eng#p19)
 
 
-[^a]: [[Acts 12.7|Acts 12:7]]; [[Moroni 7.29|Moro. 7:29 (29-33)]]. TG [Angels](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng).
+[^a]: [[Acts 12.7|Acts 12:7]]; [[Moroni 7.29|Moro. 7:29 (29-33)]]. TG [[Angels]].
 [^b]: [[Acts 16.26|Acts 16:26.]]

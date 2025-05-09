@@ -6,5 +6,5 @@
 
 
 [^a]: JST John 11:2 And Mary, his sister, who anointed the Lord with ointment and wiped his feet with her hair, lived with her sister Martha, in whose house her brother Lazarus was sick.
-[^b]: TG [Jesus Christ, Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lord?lang=eng)
+[^b]: TG [[Jesus Christ, Lord]].
 [^c]: [[Matthew 26.7|Matt. 26:7 (6-13).]]

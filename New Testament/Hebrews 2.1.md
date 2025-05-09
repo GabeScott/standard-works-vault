@@ -5,5 +5,5 @@
 [Hebrews 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.1?lang=eng#p1)
 
 
-[^a]: TG [Zeal.](https://www.churchofjesuschrist.org/study/scriptures/tg/zeal?lang=eng)
+[^a]: TG [[Zeal, Zealous]].
 [^b]: [[D&C 21.4|D&C 21:4.]]

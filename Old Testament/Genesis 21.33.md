@@ -6,5 +6,5 @@
 
 
 [^a]: OR tamarisk.
-[^b]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^b]: TG [[Prayer, Pray]].
 [^c]: [[Isaiah 40.28|Isa. 40:28]]; [[Romans 16.26|Rom. 16:26]]; [[D&C 133.34|D&C 133:34.]]

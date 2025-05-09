@@ -5,5 +5,5 @@
 [Moses 7:20](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.20?lang=eng#p20)
 
 
-[^a]: [[Moses 7.63|Moses 7:63 (62-63)]]. TG [Jerusalem, New](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem-new?lang=eng).
+[^a]: [[Moses 7.63|Moses 7:63 (62-63)]]. TG [[Jerusalem, New]].
 [^b]: [[Moses 7.28|Moses 7:28.]]

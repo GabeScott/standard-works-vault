@@ -5,4 +5,4 @@
 [Ezekiel 34:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/34.18?lang=eng#p18)
 
 
-[^a]: TG [Pollution.](https://www.churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng)
+[^a]: TG [[Pollution, Pollute]].

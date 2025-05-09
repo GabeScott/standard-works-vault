@@ -5,4 +5,4 @@
 [Genesis 16:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/16.10?lang=eng#p10)
 
 
-[^a]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^a]: TG [[Seed of Abraham]].

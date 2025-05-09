@@ -9,4 +9,4 @@
 [^b]: JS—H 1:3.
 [^c]: [[D&C 28.2|D&C 28:2.]]
 [^d]: [[Enos 1.13|Enos 1:13 (12-18)]]; [[Alma 37.19|Alma 37:19 (1-20).]]
-[^e]: TG [Scriptures, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng)
+[^e]: TG [[Scriptures, Value of]].

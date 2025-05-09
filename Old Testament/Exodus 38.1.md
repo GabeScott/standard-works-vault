@@ -5,6 +5,6 @@
 [Exodus 38:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/38.1?lang=eng#p1)
 
 
-[^a]: TG [Skill.](https://www.churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng)
+[^a]: TG [[Skill]].
 [^b]: [[Exodus 27.1|Ex. 27:1]]; [[Exodus 35.16|35:16.]]
 [^c]: HEB acacia (also v. 6).

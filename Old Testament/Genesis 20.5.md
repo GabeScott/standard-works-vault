@@ -7,4 +7,4 @@
 
 [^a]: [[Genesis 12.13|Gen. 12:13 (9-20)]]; [[Genesis 26.7|26:7 (6-11).]]
 [^b]: [[Genesis 20.16|Gen. 20:16.]]
-[^c]: TG [Integrity](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng); [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
+[^c]: TG [[Integrity]]; [[Sincere, Sincerity]].

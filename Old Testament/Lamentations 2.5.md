@@ -5,4 +5,4 @@
 [Lamentations 2:5](https://www.churchofjesuschrist.org/study/scriptures/ot/lam/2.5?lang=eng#p5)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Mourning, Mourn]].

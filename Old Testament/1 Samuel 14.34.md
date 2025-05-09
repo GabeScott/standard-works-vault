@@ -5,4 +5,4 @@
 [1 Samuel 14:34](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/14.34?lang=eng#p34)
 
 
-[^a]: TG [Blood, Eating of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-eating-of?lang=eng)
+[^a]: TG [[Blood, Eating of]].

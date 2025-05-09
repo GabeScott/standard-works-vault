@@ -6,6 +6,6 @@
 
 
 [^a]: [[Luke 6.28|Luke 6:28]]; [[Acts 7.60|Acts 7:60 (53-60).]]
-[^b]: TG [Benevolence](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng); [Forgive](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng); [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
+[^b]: TG [[Benevolence]]; [[Forgive, Forgiveness]]; [[Mercy, Merciful]].
 [^c]: JST Luke 23:35 … they do (Meaning the soldiers who crucified him,) …
 [^d]: [[Psalms 22.18|Ps. 22:18.]]

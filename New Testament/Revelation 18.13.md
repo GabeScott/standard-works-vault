@@ -5,4 +5,4 @@
 [Revelation 18:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/18.13?lang=eng#p13)
 
 
-[^a]: TG [Slavery.](https://www.churchofjesuschrist.org/study/scriptures/tg/slavery?lang=eng)
+[^a]: TG [[Slavery, Slave]].

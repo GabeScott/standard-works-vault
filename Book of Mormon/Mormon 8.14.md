@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ether 4.3|Ether 4:3]]; [[Moroni 10.2|Moro. 10:2 (1-2).]]
-[^b]: JS—H 1:53. TG [Scriptures, Preservation of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng).
+[^b]: JS—H 1:53. TG [[Scriptures, Preservation of]].
 [^c]: [[2 Nephi 3.7|2 Ne. 3:7 (6-9).]]

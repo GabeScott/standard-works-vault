@@ -6,7 +6,7 @@
 
 
 [^a]: [[1 Samuel 21.4|1 Sam. 21:4.]]
-[^b]: TG [Sacrament.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrament?lang=eng)
+[^b]: TG [[Sacrament]].
 [^c]: [[Luke 22.19|Luke 22:19]]; [[3 Nephi 18.7|3 Ne. 18:7]]; [[3 Nephi 20.8|20:8.]]
-[^d]: TG [Jesus Christ, Taking the Name of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-taking-the-name-of?lang=eng)
-[^e]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^d]: TG [[Jesus Christ, Taking the Name of]].
+[^e]: TG [[God, Spirit of]].

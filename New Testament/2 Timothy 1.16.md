@@ -5,4 +5,4 @@
 [2 Timothy 1:16](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/1.16?lang=eng#p16)
 
 
-[^a]: TG [Hospitality.](https://www.churchofjesuschrist.org/study/scriptures/tg/hospitality?lang=eng)
+[^a]: TG [[Hospitality]].

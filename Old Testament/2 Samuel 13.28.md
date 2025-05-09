@@ -5,4 +5,4 @@
 [2 Samuel 13:28](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/13.28?lang=eng#p28)
 
 
-[^a]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^a]: TG [[Hypocrisy, Hypocrite]].

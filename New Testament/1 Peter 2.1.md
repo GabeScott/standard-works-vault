@@ -5,6 +5,6 @@
 [1 Peter 2:1](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.1?lang=eng#p1)
 
 
-[^a]: TG [Malice.](https://www.churchofjesuschrist.org/study/scriptures/tg/malice?lang=eng)
-[^b]: TG [Guile.](https://www.churchofjesuschrist.org/study/scriptures/tg/guile?lang=eng)
-[^c]: TG [Backbiting](https://www.churchofjesuschrist.org/study/scriptures/tg/backbiting?lang=eng); [Slander.](https://www.churchofjesuschrist.org/study/scriptures/tg/slander?lang=eng)
+[^a]: TG [[Malice]].
+[^b]: TG [[Guile]].
+[^c]: TG [[Backbiting]]; [[Slander]].

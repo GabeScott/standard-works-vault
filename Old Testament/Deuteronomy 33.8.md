@@ -6,6 +6,6 @@
 
 
 [^a]: [[Genesis 49.5|Gen. 49:5 (5-7).]]
-[^b]: TG [Urim and Thummim.](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng)
+[^b]: TG [[Urim and Thummim]].
 [^c]: [[Numbers 20.3|Num. 20:3 (1-13).]]
 [^d]: [[Numbers 20.13|Num. 20:13]]; [[Ezekiel 47.19|Ezek. 47:19.]]

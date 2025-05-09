@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 53.11|Alma 53:11.]]
-[^b]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
-[^c]: TG [Self-Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng)
+[^b]: TG [[Covenants]].
+[^c]: TG [[Self-Sacrifice]].

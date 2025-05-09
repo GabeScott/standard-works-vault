@@ -5,4 +5,4 @@
 [Revelation 16:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/16.13?lang=eng#p13)
 
 
-[^a]: TG [Antichrist](https://www.churchofjesuschrist.org/study/scriptures/tg/antichrist?lang=eng); [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
+[^a]: TG [[Antichrist]]; [[False Prophets]].

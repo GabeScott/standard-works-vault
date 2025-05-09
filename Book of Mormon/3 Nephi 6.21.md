@@ -5,4 +5,4 @@
 [3 Nephi 6:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p21#p21)
 
 
-[^a]: [[D&C 121.37|D&C 121:37]]. TG [Apostasy of Individuals](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng).
+[^a]: [[D&C 121.37|D&C 121:37]]. TG [[Apostasy of Individuals]].

@@ -5,4 +5,4 @@
 [Joseph Smith History 1:75](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.75?lang=eng#p75)
 
 
-[^a]: TG [Friendship.](https://www.churchofjesuschrist.org/study/scriptures/tg/friendship?lang=eng)
+[^a]: TG [[Friendship, Friend]].

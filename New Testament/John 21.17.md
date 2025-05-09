@@ -5,5 +5,5 @@
 [John 21:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/21.17?lang=eng#p17)
 
 
-[^a]: TG [Fellowshipping](https://www.churchofjesuschrist.org/study/scriptures/tg/fellowshipping?lang=eng); [Jesus Christ, Teaching Mode of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-teaching-mode-of?lang=eng); [Missionary Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng)
-[^b]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^a]: TG [[Fellowshipping]]; [[Jesus Christ, Teaching Mode of]]; [[Missionary Work]].
+[^b]: TG [[Sheep]].

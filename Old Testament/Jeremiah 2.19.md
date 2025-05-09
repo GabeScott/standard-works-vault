@@ -5,4 +5,4 @@
 [Jeremiah 2:19](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.19?lang=eng#p19)
 
 
-[^a]: TG [Reproof.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproof?lang=eng)
+[^a]: TG [[Reproof, Reprove]].

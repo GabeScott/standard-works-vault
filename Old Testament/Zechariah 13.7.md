@@ -6,6 +6,6 @@
 
 
 [^a]: OR who stands next to me.
-[^b]: [[Matthew 26.31|Matt. 26:31]]; [[Mark 14.27|Mark 14:27 (27-31)]]. TG [Jesus Christ, Good [Shepherd](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng); [Shepherd](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng).
-[^c]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
+[^b]: [[Matthew 26.31|Matt. 26:31]]; [[Mark 14.27|Mark 14:27 (27-31)]]. TG [[Jesus Christ, Good Shepherd]]; [[Shepherd]].
+[^c]: TG [[Sheep]].
 [^d]: [[Zechariah 10.9|Zech. 10:9.]]

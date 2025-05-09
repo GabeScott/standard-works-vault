@@ -5,4 +5,4 @@
 [Genesis 11:7](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/11.7?lang=eng#p7)
 
 
-[^a]: [[Omni 1.22|Omni 1:22]]; [[Mosiah 28.17|Mosiah 28:17]]. TG [Communication](https://www.churchofjesuschrist.org/study/scriptures/tg/communication?lang=eng).
+[^a]: [[Omni 1.22|Omni 1:22]]; [[Mosiah 28.17|Mosiah 28:17]]. TG [[Communication]].

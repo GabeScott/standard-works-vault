@@ -5,5 +5,5 @@
 [Acts 4:33](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4.33?lang=eng#p33)
 
 
-[^a]: [[1 Corinthians 15.15|1 Cor. 15:15]]. TG [Witness](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng).
-[^b]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: [[1 Corinthians 15.15|1 Cor. 15:15]]. TG [[Witness, Witnesses]].
+[^b]: TG [[Grace]].

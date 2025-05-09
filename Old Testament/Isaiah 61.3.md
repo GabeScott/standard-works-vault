@@ -5,8 +5,8 @@
 [Isaiah 61:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/61.3?lang=eng#p3)
 
 
-[^a]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
+[^a]: TG [[Beauty]].
 [^b]: [[Psalms 30.11|Ps. 30:11 (10-12).]]
-[^c]: TG [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
-[^d]: TG [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^c]: TG [[Vineyard of the Lord]].
+[^d]: TG [[Israel, Mission of]].
 [^e]: [[Ezekiel 34.29|Ezek. 34:29 (20-31).]]

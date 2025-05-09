@@ -7,4 +7,4 @@
 
 [^a]: GR grain, seed.
 [^b]: [[1 Corinthians 15.36|1 Cor. 15:36 (35-38).]]
-[^c]: TG [Death.](https://www.churchofjesuschrist.org/study/scriptures/tg/death?lang=eng)
+[^c]: TG [[Death]].

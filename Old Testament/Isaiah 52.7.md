@@ -5,10 +5,10 @@
 [Isaiah 52:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.7?lang=eng#p7)
 
 
-[^a]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
-[^b]: TG [Dispensations.](https://www.churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng)
-[^c]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^a]: TG [[Beauty]].
+[^b]: TG [[Dispensations]].
+[^c]: TG [[Gospel]].
 [^d]: [[Isaiah 40.9|Isa. 40:9]]; [[Mosiah 15.14|Mosiah 15:14 (13-18)]]; [[D&C 128.19|D&C 128:19.]]
-[^e]: TG [Missionary Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng)
-[^f]: TG [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng); [Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)makers.
-[^g]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^e]: TG [[Missionary Work]].
+[^f]: TG [[Peace of God]]; [[Peace of God]]makers.
+[^g]: TG [[Zion, Sion]].

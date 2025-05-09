@@ -5,4 +5,4 @@
 [2 Chronicles 7:5](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.5?lang=eng#p5)
 
 
-[^a]: TG [Dedication.](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng)
+[^a]: TG [[Dedication, Dedicate]].

@@ -5,4 +5,4 @@
 [Numbers 18:24](https://www.churchofjesuschrist.org/study/scriptures/ot/num/18.24?lang=eng#p24)
 
 
-[^a]: TG [Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/inheritance?lang=eng)
+[^a]: TG [[Inheritance]].

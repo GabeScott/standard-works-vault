@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 14.11|Mosiah 14:11.]]
-[^b]: TG [Jesus Christ, Types of, in Anticipation.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng)
+[^b]: TG [[Jesus Christ, Types of, in Anticipation]].

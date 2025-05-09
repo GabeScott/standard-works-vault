@@ -5,5 +5,5 @@
 [2 Nephi 12:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/12?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Haughtiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng)
+[^a]: TG [[Haughtiness, Haughty]].
 [^b]: IE the day of the Lord’s coming in glory; see vv. 17-21.

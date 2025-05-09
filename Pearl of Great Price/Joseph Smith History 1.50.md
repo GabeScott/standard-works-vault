@@ -5,5 +5,5 @@
 [Joseph Smith History 1:50](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.50?lang=eng#p50)
 
 
-[^a]: TG [Honoring Father and Mother.](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng)
-[^b]: TG [Counsel.](https://www.churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng)
+[^a]: TG [[Honoring Father and Mother]].
+[^b]: TG [[Counsel]].

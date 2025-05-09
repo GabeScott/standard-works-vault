@@ -5,6 +5,6 @@
 [Proverbs 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/9.9?lang=eng#p9)
 
 
-[^a]: TG [Teaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng)
+[^a]: TG [[Teaching with the Spirit]].
 [^b]: [[Matthew 13.12|Matt. 13:12 (11-12)]]; [[D&C 88.118|D&C 88:118.]]
-[^c]: TG [Learn.](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng)
+[^c]: TG [[Learn, Learning]].

@@ -5,4 +5,4 @@
 [Leviticus 14:3](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/14.3?lang=eng#p3)
 
 
-[^a]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^a]: TG [[Health]].

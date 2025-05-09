@@ -6,4 +6,4 @@
 
 
 [^a]: JST John 16:23 … nothing but it shall be done unto you. Verily, verily, I say …
-[^b]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^b]: TG [[Prayer, Pray]].

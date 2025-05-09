@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moroni 7.8|Moro. 7:8]]; [[D&C 64.34|D&C 64:34.]]
-[^b]: TG [Initiative.](https://www.churchofjesuschrist.org/study/scriptures/tg/initiative?lang=eng)
+[^b]: TG [[Initiative]].

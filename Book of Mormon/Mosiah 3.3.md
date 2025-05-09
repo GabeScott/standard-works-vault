@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 52.7|Isa. 52:7 (7-10)]]; [[Luke 2.10|Luke 2:10 (10-11)]]; [[Romans 10.15|Rom. 10:15]]; [[D&C 31.3|D&C 31:3.]]
-[^b]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^b]: TG [[Joy]].

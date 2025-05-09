@@ -5,4 +5,4 @@
 [Joshua 24:3](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24.3?lang=eng#p3)
 
 
-[^a]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^a]: TG [[Seed of Abraham]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 59.17|D&C 59:17 (17-20)]]; [[D&C 89.10|89:10.]]
-[^b]: [[Ezekiel 47.12|Ezek. 47:12]]. TG [Health](https://www.churchofjesuschrist.org/study/scriptures/tg/health?lang=eng); [Sickness](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng).
+[^b]: [[Ezekiel 47.12|Ezek. 47:12]]. TG [[Health]]; [[Sickness, Sick]].

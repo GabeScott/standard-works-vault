@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 17.19|Prov. 17:19]]; [[Proverbs 18.12|18:12]]; [[Helaman 12.5|Hel. 12:5 (1-5).]]
-[^b]: TG [Humility.](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng)
+[^b]: TG [[Humility, Humble]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 57.26|Alma 57:26 (25-27).]]
 [^b]: [[Genesis 25.21|Gen. 25:21.]]
-[^c]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^c]: TG [[Trust in God]].

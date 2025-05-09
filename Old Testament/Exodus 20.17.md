@@ -5,5 +5,5 @@
 [Exodus 20:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.17?lang=eng#p17)
 
 
-[^a]: HEB desire, take pleasure in. TG [Covet](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng).
-[^b]: TG [Marriage, Husbands](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-husbands?lang=eng); [Marriage, Wives.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-wives?lang=eng)
+[^a]: HEB desire, take pleasure in. TG [[Covet, Covetousness]].
+[^b]: TG [[Marriage, Husbands]]; [[Marriage, Wives]].

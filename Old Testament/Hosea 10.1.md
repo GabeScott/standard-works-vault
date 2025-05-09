@@ -5,7 +5,7 @@
 [Hosea 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/10.1?lang=eng#p1)
 
 
-[^a]: TG [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
+[^a]: TG [[Vineyard of the Lord]].
 [^b]: [[Jacob 5.32|Jacob 5:32 (1-77).]]
 [^c]: [[Luke 12.21|Luke 12:21 (16-21).]]
 [^d]: [[Hosea 8.11|Hosea 8:11.]]

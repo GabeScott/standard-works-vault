@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 30.10|Deut. 30:10]]; Lam. 5:21; [[Mormon 9.6|Morm. 9:6]]; [[D&C 98.47|D&C 98:47.]]
-[^b]: TG [Diligence.](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng)
+[^b]: TG [[Diligence, Diligent, Diligently]].

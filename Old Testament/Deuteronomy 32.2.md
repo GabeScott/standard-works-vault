@@ -5,6 +5,6 @@
 [Deuteronomy 32:2](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.2?lang=eng#p2)
 
 
-[^a]: TG [Nature, Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/nature-earth?lang=eng)
+[^a]: TG [[Nature, Earth]].
 [^b]: [[Isaiah 55.11|Isa. 55:11.]]
 [^c]: [[Hosea 14.5|Hosea 14:5 (4-6)]]; [[D&C 121.45|D&C 121:45]]; [[D&C 128.19|128:19.]]

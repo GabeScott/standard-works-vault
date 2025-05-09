@@ -5,7 +5,7 @@
 [Alma 5:38](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p38#p38)
 
 
-[^a]: TG [Jesus Christ, Good Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng)
+[^a]: TG [[Jesus Christ, Good Shepherd]].
 [^b]: [[Leviticus 26.14|Lev. 26:14 (14-20)]]; [[D&C 101.7|D&C 101:7.]]
 [^c]: [[3 Nephi 15.24|3 Ne. 15:24]]; [[3 Nephi 18.31|18:31.]]
 [^d]: [[Mosiah 5.8|Mosiah 5:8]]; [[Alma 34.38|Alma 34:38.]]

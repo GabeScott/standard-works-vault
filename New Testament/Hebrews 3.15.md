@@ -5,5 +5,5 @@
 [Hebrews 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.15?lang=eng#p15)
 
 
-[^a]: TG [Contrite Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/contrite-heart?lang=eng)
-[^b]: TG [Provoking.](https://www.churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng)
+[^a]: TG [[Contrite Heart]].
+[^b]: TG [[Provoking, Provoke]].

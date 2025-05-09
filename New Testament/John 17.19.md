@@ -5,4 +5,4 @@
 [John 17:19](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.19?lang=eng#p19)
 
 
-[^a]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^a]: TG [[Jesus Christ, Atonement through]].

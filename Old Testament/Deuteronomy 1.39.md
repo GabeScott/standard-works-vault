@@ -5,4 +5,4 @@
 [Deuteronomy 1:39](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/1.39?lang=eng#p39)
 
 
-[^a]: TG [Man, Natural, Not Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-natural-not-spiritually-reborn?lang=eng)
+[^a]: TG [[Man, Natural, Not Spiritually Reborn]].

@@ -5,4 +5,4 @@
 [Jeremiah 31:1](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.1?lang=eng#p1)
 
 
-[^a]: TG [Family](https://www.churchofjesuschrist.org/study/scriptures/tg/family?lang=eng); [Family](https://www.churchofjesuschrist.org/study/scriptures/tg/family?lang=eng), Eternal.
+[^a]: TG [[Family]]; [[Family]], Eternal.

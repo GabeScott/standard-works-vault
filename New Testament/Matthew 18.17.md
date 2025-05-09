@@ -7,4 +7,4 @@
 
 [^a]: [[1 Corinthians 6.1|1 Cor. 6:1]]; [[D&C 42.81|D&C 42:81.]]
 [^b]: [[Titus 3.10|Titus 3:10.]]
-[^c]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^c]: TG [[Apostasy of the Early Christian Church]].

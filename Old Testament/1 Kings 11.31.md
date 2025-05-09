@@ -5,4 +5,4 @@
 [1 Kings 11:31](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.31?lang=eng#p31)
 
 
-[^a]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^a]: TG [[Israel, Ten Lost Tribes of]].

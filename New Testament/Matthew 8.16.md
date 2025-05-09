@@ -6,5 +6,5 @@
 
 
 [^a]: [[Matthew 4.24|Matt. 4:24]]; [[Matthew 9.32|9:32 (32-34).]]
-[^b]: TG [Spirits, Evil or Unclean.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
-[^c]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^b]: TG [[Spirits, Evil or Unclean]].
+[^c]: TG [[Health]].

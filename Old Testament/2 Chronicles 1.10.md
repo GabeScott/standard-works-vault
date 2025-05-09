@@ -5,5 +5,5 @@
 [2 Chronicles 1:10](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/1.10?lang=eng#p10)
 
 
-[^a]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
+[^a]: TG [[Knowledge]].
 [^b]: OR rule (also v. 11). Mosiah 29:12 (12-13).

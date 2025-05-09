@@ -5,4 +5,4 @@
 [Psalms 52:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/52.6?lang=eng#p6)
 
 
-[^a]: TG [Laughter.](https://www.churchofjesuschrist.org/study/scriptures/tg/laughter?lang=eng)
+[^a]: TG [[Laughter, Laugh]].

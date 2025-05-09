@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Timothy 1.20|1 Tim. 1:20]]; [[D&C 78.12|D&C 78:12 (11-12).]]
-[^b]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^b]: TG [[Punish, Punishment]].
 [^c]: [[D&C 2.1|D&C 2:1]]; [[D&C 19.3|19:3]]; [[D&C 39.21|39:21]]; [[D&C 45.12|45:12 (12-34)]]; [[Moses 7.65|Moses 7:65 (59-67).]]

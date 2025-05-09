@@ -5,4 +5,4 @@
 [2 Thessalonians 2:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/2.4?lang=eng#p4)
 
 
-[^a]: TG [Opposition.](https://www.churchofjesuschrist.org/study/scriptures/tg/opposition?lang=eng)
+[^a]: TG [[Opposition]].

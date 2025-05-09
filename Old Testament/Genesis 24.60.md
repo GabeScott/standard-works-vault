@@ -6,4 +6,4 @@
 
 
 [^b]: [[Genesis 22.17|Gen. 22:17.]]
-[^c]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
+[^c]: TG [[Hate]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Exodus 27.21|Ex. 27:21.]]
-[^b]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
-[^c]: [[Acts 10.35|Acts 10:35 (34-35)]]; [[1 Nephi 17.35|1 Ne. 17:35]]. TG [Honor](https://www.churchofjesuschrist.org/study/scriptures/tg/honor?lang=eng); [Priesthood, Magnifying Callings within](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng); [Respect](https://www.churchofjesuschrist.org/study/scriptures/tg/respect?lang=eng).
+[^b]: TG [[Walking with God]].
+[^c]: [[Acts 10.35|Acts 10:35 (34-35)]]; [[1 Nephi 17.35|1 Ne. 17:35]]. TG [[Honorable]]; [[Priesthood, Magnifying Callings within]]; [[Respecter]].
 [^d]: Mal. 2:9.

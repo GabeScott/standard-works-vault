@@ -5,5 +5,5 @@
 [Mosiah 8:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/8?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Spiritual Blindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng)
+[^a]: TG [[Spiritual Blindness]].
 [^b]: IE Wisdom, a feminine noun in Hebrew and Greek. Prov. 9:1; [[Matthew 11.19|Matt. 11:19.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 123.12|D&C 123:12.]]
-[^b]: TG [Objectives](https://www.churchofjesuschrist.org/study/scriptures/tg/objectives?lang=eng); [Path](https://www.churchofjesuschrist.org/study/scriptures/tg/path?lang=eng); [Way.](https://www.churchofjesuschrist.org/study/scriptures/tg/way?lang=eng)
+[^b]: TG [[Objectives]]; [[Path]]; [[Way]].

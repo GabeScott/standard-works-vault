@@ -5,4 +5,4 @@
 [Matthew 15:20](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/15.20?lang=eng#p20)
 
 
-[^a]: TG [Pollution.](https://www.churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng)
+[^a]: TG [[Pollution, Pollute]].

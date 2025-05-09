@@ -5,4 +5,4 @@
 [2 Samuel 11:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/11.4?lang=eng#p4)
 
 
-[^a]: [[D&C 132.39|D&C 132:39 (38-39)]]. TG [Sensuality](https://www.churchofjesuschrist.org/study/scriptures/tg/sensuality?lang=eng).
+[^a]: [[D&C 132.39|D&C 132:39 (38-39)]]. TG [[Sensuality]].

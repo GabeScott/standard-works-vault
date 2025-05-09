@@ -5,6 +5,6 @@
 [Luke 24:32](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.32?lang=eng#p32)
 
 
-[^a]: [[D&C 9.8|D&C 9:8]]. TG [Heart](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng).
-[^b]: TG [Teaching with the Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching-with-the-spirit?lang=eng)
-[^c]: TG [Jesus Christ, Teaching Mode of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-teaching-mode-of?lang=eng)
+[^a]: [[D&C 9.8|D&C 9:8]]. TG [[Heart]].
+[^b]: TG [[Teaching with the Spirit]].
+[^c]: TG [[Jesus Christ, Teaching Mode of]].

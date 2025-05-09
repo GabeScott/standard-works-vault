@@ -6,6 +6,6 @@
 
 
 [^a]: [[Psalms 107.43|Ps. 107:43.]]
-[^b]: TG [Prudence.](https://www.churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
+[^b]: TG [[Prudence, Prudent]].
 [^c]: [[2 Nephi 1.19|2 Ne. 1:19]]; [[2 Nephi 31.19|31:19 (19-21).]]
-[^d]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^d]: TG [[Walking with God]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 75.4|Ps. 75:4]]; [[Luke 24.25|Luke 24:25]]; [[Acts 7.51|Acts 7:51.]]
-[^b]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^b]: TG [[Stiffnecked, Stiffneckedness]].

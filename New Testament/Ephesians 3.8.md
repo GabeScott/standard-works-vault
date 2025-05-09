@@ -5,5 +5,5 @@
 [Ephesians 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.8?lang=eng#p8)
 
 
-[^a]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
-[^b]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^a]: TG [[Grace]].
+[^b]: TG [[Treasure]].

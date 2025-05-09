@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 55.5|D&C 55:5.]]
-[^b]: [[D&C 77.15|D&C 77:15]]. TG [Promised Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng).
+[^b]: [[D&C 77.15|D&C 77:15]]. TG [[Promised Lands]].
 [^c]: [[3 Nephi 20.29|3 Ne. 20:29.]]

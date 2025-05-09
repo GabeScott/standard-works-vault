@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 61.3|Isa. 61:3.]]
-[^b]: [[Ezekiel 32.24|Ezek. 32:24]]; [[Ezekiel 36.6|36:6]]. TG [Shame](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng).
+[^b]: [[Ezekiel 32.24|Ezek. 32:24]]; [[Ezekiel 36.6|36:6]]. TG [[Shame]].

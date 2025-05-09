@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jacob 5.39|Jacob 5:39.]]
-[^b]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
+[^b]: TG [[Israel, Restoration of]].

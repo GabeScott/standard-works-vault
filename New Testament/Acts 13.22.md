@@ -5,4 +5,4 @@
 [Acts 13:22](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.22?lang=eng#p22)
 
 
-[^a]: TG [Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng)
+[^a]: TG [[Heart]].

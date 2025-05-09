@@ -5,5 +5,5 @@
 [Romans 15:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.2?lang=eng#p2)
 
 
-[^a]: TG [Neighbor.](https://www.churchofjesuschrist.org/study/scriptures/tg/neighbor?lang=eng)
-[^b]: TG [Edification.](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng)
+[^a]: TG [[Neighbor]].
+[^b]: TG [[Edification, Edify]].

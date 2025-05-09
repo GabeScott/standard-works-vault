@@ -5,4 +5,4 @@
 [Ether 11:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
+[^a]: TG [[Judgment]].

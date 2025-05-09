@@ -5,5 +5,5 @@
 [Mormon 8:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/8?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Violence.](https://www.churchofjesuschrist.org/study/scriptures/tg/violence?lang=eng)
+[^a]: TG [[Violence]].
 [^b]: [[James 4.12|James 4:12 (11-12).]]

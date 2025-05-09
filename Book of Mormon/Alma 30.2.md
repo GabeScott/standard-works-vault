@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 28.6|Alma 28:6.]]
-[^b]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^b]: TG [[Mourning, Mourn]].

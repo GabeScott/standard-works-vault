@@ -7,4 +7,4 @@
 
 [^a]: [[Nehemiah 3.26|Neh. 3:26.]]
 [^b]: [[Ezra 7.6|Ezra 7:6.]]
-[^c]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^c]: TG [[Scribe]].

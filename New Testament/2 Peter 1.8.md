@@ -5,6 +5,6 @@
 [2 Peter 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.8?lang=eng#p8)
 
 
-[^a]: TG [Abundant Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/abundant-life?lang=eng)
-[^b]: GR idle, unprofitable, injurious. TG [Barren](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng).
+[^a]: TG [[Abundant Life]].
+[^b]: GR idle, unprofitable, injurious. TG [[Barren, Barrenness]].
 [^c]: [[D&C 107.31|D&C 107:31 (30-31).]]

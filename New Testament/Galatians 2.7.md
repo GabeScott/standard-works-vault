@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Corinthians 9.17|1 Cor. 9:17.]]
-[^b]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^b]: TG [[Circumcision]].
 [^c]: [[1 Corinthians 9.1|1 Cor. 9:1.]]

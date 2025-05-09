@@ -5,5 +5,5 @@
 [1 Nephi 8:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p27#p27)
 
 
-[^a]: TG [Haughtiness](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng); [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
-[^b]: [[Matthew 9.24|Matt. 9:24 (20-26)]]. TG [Mocking](https://www.churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng).
+[^a]: TG [[Haughtiness, Haughty]]; [[Pride]].
+[^b]: [[Matthew 9.24|Matt. 9:24 (20-26)]]. TG [[Mocking, Mock, Mocker, Mockery]].

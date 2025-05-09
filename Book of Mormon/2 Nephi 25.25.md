@@ -5,5 +5,5 @@
 [2 Nephi 25:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/25?lang=eng&id=p25#p25)
 
 
-[^a]: TG [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
+[^a]: TG [[Law of Moses]].
 [^b]: [[Romans 7.4|Rom. 7:4 (4-6)]]; [[D&C 74.5|D&C 74:5 (2-6).]]

@@ -5,4 +5,4 @@
 [Ether 15:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/15?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Mourning, Mourn]].

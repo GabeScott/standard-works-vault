@@ -5,5 +5,5 @@
 [Luke 10:7](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.7?lang=eng#p7)
 
 
-[^a]: [[D&C 31.5|D&C 31:5 (3-7)]]. TG [Labor](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng).
-[^b]: [[Numbers 18.31|Num. 18:31]]; [[Matthew 10.10|Matt. 10:10]]. TG [Wages](https://www.churchofjesuschrist.org/study/scriptures/tg/wages?lang=eng).
+[^a]: [[D&C 31.5|D&C 31:5 (3-7)]]. TG [[Labor]].
+[^b]: [[Numbers 18.31|Num. 18:31]]; [[Matthew 10.10|Matt. 10:10]]. TG [[Wages]].

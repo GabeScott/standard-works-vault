@@ -5,6 +5,6 @@
 [Isaiah 44:24](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/44.24?lang=eng#p24)
 
 
-[^a]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
+[^a]: TG [[Jesus Christ, Jehovah]].
 [^b]: [[1 Nephi 21.5|1 Ne. 21:5.]]
-[^c]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
+[^c]: TG [[Jesus Christ, Creator]].

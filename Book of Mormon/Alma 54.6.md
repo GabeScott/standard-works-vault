@@ -5,4 +5,4 @@
 [Alma 54:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/54?lang=eng&id=p6#p6)
 
 
-[^a]: TG [God, Indignation of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng); [God, Justice of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
+[^a]: TG [[God, Indignation of]]; [[God, Justice of]].

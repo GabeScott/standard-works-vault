@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 46.36|Alma 46:36 (12-13, 36).]]
-[^b]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^b]: TG [[Liberty]].

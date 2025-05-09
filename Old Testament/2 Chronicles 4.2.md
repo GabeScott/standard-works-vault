@@ -5,5 +5,5 @@
 [2 Chronicles 4:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/4.2?lang=eng#p2)
 
 
-[^a]: TG [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng); [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^a]: TG [[Holy Ghost, Baptism of]]; [[Genealogy and Temple Work]].
 [^b]: IE shape.

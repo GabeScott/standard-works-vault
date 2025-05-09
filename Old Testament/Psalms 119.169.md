@@ -5,4 +5,4 @@
 [Psalms 119:169](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.169?lang=eng#p169)
 
 
-[^a]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^a]: TG [[Understanding]].

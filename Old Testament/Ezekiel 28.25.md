@@ -5,7 +5,7 @@
 [Ezekiel 28:25](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/28.25?lang=eng#p25)
 
 
-[^a]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
-[^b]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^a]: TG [[Israel, Gathering of]].
+[^b]: TG [[Israel, Ten Lost Tribes of]].
 [^c]: HEB nations or Gentiles.
 [^d]: [[Ezekiel 36.28|Ezek. 36:28]]; [[Ezekiel 37.25|37:25.]]

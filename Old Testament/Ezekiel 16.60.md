@@ -5,4 +5,4 @@
 [Ezekiel 16:60](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/16.60?lang=eng#p60)
 
 
-[^a]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^a]: TG [[Covenants]].

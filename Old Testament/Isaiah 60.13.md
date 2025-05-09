@@ -7,5 +7,5 @@
 
 [^a]: [[Isaiah 35.2|Isa. 35:2.]]
 [^b]: HEB cypress. Isa. 41:19.
-[^c]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
+[^c]: TG [[Beauty]].
 [^d]: [[Ezekiel 43.7|Ezek. 43:7]]; [[Matthew 5.35|Matt. 5:35.]]

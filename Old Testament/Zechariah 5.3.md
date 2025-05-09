@@ -5,5 +5,5 @@
 [Zechariah 5:3](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/5.3?lang=eng#p3)
 
 
-[^a]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^a]: TG [[Stealing, Stolen]].
 [^b]: [[D&C 42.20|D&C 42:20.]]

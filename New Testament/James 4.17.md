@@ -6,5 +6,5 @@
 
 
 [^a]: [[Luke 12.47|Luke 12:47]]; [[2 Nephi 9.25|2 Ne. 9:25 (25-27).]]
-[^b]: TG [Disobedience](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng); [Good Works](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng); [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
-[^c]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^b]: TG [[Disobedience, Disobey]]; [[Good Works]]; [[Obedience, Obedient, Obey]].
+[^c]: TG [[Sin]].

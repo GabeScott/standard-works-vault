@@ -6,4 +6,4 @@
 
 
 [^b]: [[Psalms 119.133|Ps. 119:133.]]
-[^c]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^c]: TG [[Transgressor]].

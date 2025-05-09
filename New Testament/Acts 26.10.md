@@ -6,5 +6,5 @@
 
 
 [^a]: Acts 9:1, 13 (13-14), 21; [[Acts 22.4|22:4 (4-5).]]
-[^b]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^b]: TG [[Martyrdom]].
 [^c]: GR vote.

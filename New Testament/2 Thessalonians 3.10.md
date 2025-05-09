@@ -5,4 +5,4 @@
 [2 Thessalonians 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/3.10?lang=eng#p10)
 
 
-[^a]: TG [Idleness](https://www.churchofjesuschrist.org/study/scriptures/tg/idleness?lang=eng); [Industry](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng); [Labor](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng); [Laziness.](https://www.churchofjesuschrist.org/study/scriptures/tg/laziness?lang=eng)
+[^a]: TG [[Idleness, Idle, Idler]]; [[Industry, Industrious]]; [[Labor]]; [[Laziness]].

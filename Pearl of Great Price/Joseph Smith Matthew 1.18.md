@@ -6,5 +6,5 @@
 
 
 [^a]: Dan. 12:1; JS—M 1:36.
-[^b]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^b]: TG [[Israel, Judah, People of]].
 [^c]: [[Zechariah 12.3|Zech. 12:3 (1-14)]]; [[Zechariah 14.2|14:2 (1-5).]]

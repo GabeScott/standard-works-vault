@@ -7,4 +7,4 @@
 
 [^a]: [[Ezekiel 7.21|Ezek. 7:21 (20-21)]]; Dan. 8:11.
 [^b]: IE the temple.
-[^c]: TG [Abomination of Desolation.](https://www.churchofjesuschrist.org/study/scriptures/tg/abomination-of-desolation?lang=eng)
+[^c]: TG [[Abomination of Desolation]].

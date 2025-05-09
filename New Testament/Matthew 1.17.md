@@ -5,4 +5,4 @@
 [Matthew 1:17](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.17?lang=eng#p17)
 
 
-[^a]: TG [Book of Remembrance.](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-remembrance?lang=eng)
+[^a]: TG [[Book of Remembrance]].

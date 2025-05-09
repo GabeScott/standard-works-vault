@@ -5,4 +5,4 @@
 [Matthew 16:21](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16.21?lang=eng#p21)
 
 
-[^a]: TG [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
+[^a]: TG [[Jesus Christ, Resurrection]].

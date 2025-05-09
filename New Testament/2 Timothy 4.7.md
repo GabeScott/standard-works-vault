@@ -5,5 +5,5 @@
 [2 Timothy 4:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-tim/4.7?lang=eng#p7)
 
 
-[^a]: TG [Contentment.](https://www.churchofjesuschrist.org/study/scriptures/tg/contentment?lang=eng)
-[^b]: TG [Dedication.](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng)
+[^a]: TG [[Contentment]].
+[^b]: TG [[Dedication, Dedicate]].

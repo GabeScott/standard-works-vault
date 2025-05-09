@@ -6,4 +6,4 @@
 
 
 [^a]: [[Job 19.21|Job 19:21.]]
-[^b]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^b]: TG [[Curse]].

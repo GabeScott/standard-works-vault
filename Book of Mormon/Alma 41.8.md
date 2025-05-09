@@ -7,4 +7,4 @@
 
 [^a]: [[Mormon 9.19|Morm. 9:19.]]
 [^b]: [[Alma 42.27|Alma 42:27.]]
-[^c]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^c]: TG [[Walking with God]].

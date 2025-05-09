@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mark 4.40|Mark 4:40]]; [[Mark 16.14|16:14]]; [[Luke 24.25|Luke 24:25.]]
-[^b]: TG [Doubt.](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng)
+[^b]: TG [[Doubt, Doubtful]].

@@ -5,5 +5,5 @@
 [Mormon 9:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^a]: TG [[Gospel]].
 [^b]: [[Matthew 22.29|Matt. 22:29.]]

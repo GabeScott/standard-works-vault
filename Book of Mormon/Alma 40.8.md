@@ -5,4 +5,4 @@
 [Alma 40:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40?lang=eng&id=p8#p8)
 
 
-[^a]: 2 Pet. 3:8. TG [Time](https://www.churchofjesuschrist.org/study/scriptures/tg/time?lang=eng).
+[^a]: 2 Pet. 3:8. TG [[Time]].

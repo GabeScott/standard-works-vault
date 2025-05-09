@@ -5,5 +5,5 @@
 [Jacob 6:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/6?lang=eng&id=p1#p1)
 
 
-[^a]: [[Jacob 5.1|Jacob 5:1]]; [[Alma 33.13|Alma 33:13 (13-15)]]. TG [Scriptures, Lost](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng).
+[^a]: [[Jacob 5.1|Jacob 5:1]]; [[Alma 33.13|Alma 33:13 (13-15)]]. TG [[Scriptures, Lost]].
 [^b]: [[Romans 11.21|Rom. 11:21 (1-36)]]; [[1 Nephi 10.12|1 Ne. 10:12]]; [[Jacob 5.3|Jacob 5:3 (3-77).]]

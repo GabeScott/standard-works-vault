@@ -5,4 +5,4 @@
 [Joshua 16:1](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/16.1?lang=eng#p1)
 
 
-[^a]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
+[^a]: TG [[Israel, Joseph, People of]].

@@ -5,4 +5,4 @@
 [1 Timothy 5:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.17?lang=eng#p17)
 
 
-[^a]: TG [Elder, Melchizedek Priesthood.](https://www.churchofjesuschrist.org/study/scriptures/tg/elder-melchizedek-priesthood?lang=eng)
+[^a]: TG [[Elder, Melchizedek Priesthood]].

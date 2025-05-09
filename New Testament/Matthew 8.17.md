@@ -6,5 +6,5 @@
 
 
 [^a]: GR He Himself.
-[^b]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
-[^c]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
+[^b]: TG [[Jesus Christ, Atonement through]].
+[^c]: TG [[Sickness, Sick]].

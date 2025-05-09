@@ -5,6 +5,6 @@
 [1 John 5:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/5.10?lang=eng#p10)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
-[^b]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^a]: TG [[Faith]].
+[^b]: TG [[Testimony]].
 [^c]: GR testimony, witness.

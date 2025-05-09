@@ -5,5 +5,5 @@
 [3 Nephi 18:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p36#p36)
 
 
-[^a]: TG [Hands, Laying on of.](https://www.churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng)
+[^a]: TG [[Hands, Laying on of]].
 [^b]: [[1 Nephi 12.7|1 Ne. 12:7]]; [[3 Nephi 15.11|3 Ne. 15:11]]; [[3 Nephi 19.4|19:4 (4-12).]]

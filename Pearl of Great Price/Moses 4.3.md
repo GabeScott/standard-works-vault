@@ -5,7 +5,7 @@
 [Moses 4:3](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.3?lang=eng#p3)
 
 
-[^a]: TG [Sons of Perdition.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-of-perdition?lang=eng)
-[^b]: [[Abraham 3.28|Abr. 3:28]]. TG [Council in Heaven](https://www.churchofjesuschrist.org/study/scriptures/tg/council-in-heaven?lang=eng); [Rebellion](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng).
-[^c]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^a]: TG [[Sons of Perdition]].
+[^b]: [[Abraham 3.28|Abr. 3:28]]. TG [[Council in Heaven]]; [[Rebellion, Rebel]].
+[^c]: TG [[Agency]].
 [^d]: [[D&C 76.25|D&C 76:25 (25-27).]]

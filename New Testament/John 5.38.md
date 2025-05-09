@@ -5,4 +5,4 @@
 [John 5:38](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.38?lang=eng#p38)
 
 
-[^a]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
+[^a]: TG [[Unbelief, Unbelievers]].

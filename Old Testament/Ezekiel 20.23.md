@@ -5,4 +5,4 @@
 [Ezekiel 20:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.23?lang=eng#p23)
 
 
-[^a]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^a]: TG [[Israel, Scattering of]].

@@ -5,5 +5,5 @@
 [1 Thessalonians 2:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/2.12?lang=eng#p12)
 
 
-[^a]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^a]: TG [[Walking with God]].
 [^b]: [[1 Peter 1.15|1 Pet. 1:15 (15-16).]]

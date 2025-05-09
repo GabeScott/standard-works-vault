@@ -5,5 +5,5 @@
 [Alma 20:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/20?lang=eng&id=p26#p26)
 
 
-[^a]: [[2 Samuel 1.26|2 Sam. 1:26]]. TG [Loyalty](https://www.churchofjesuschrist.org/study/scriptures/tg/loyalty?lang=eng).
+[^a]: [[2 Samuel 1.26|2 Sam. 1:26]]. TG [[Loyalty]].
 [^b]: [[Alma 22.2|Alma 22:2.]]

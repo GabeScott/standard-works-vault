@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 2.13|2 Ne. 2:13 (13-14).]]
-[^b]: [[Hebrews 3.4|Heb. 3:4 (3-4)]]. TG [Creation](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng); [God, Creator](https://www.churchofjesuschrist.org/study/scriptures/tg/god-creator?lang=eng).
-[^c]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
+[^b]: [[Hebrews 3.4|Heb. 3:4 (3-4)]]. TG [[Creation, Create]]; [[God, Creator]].
+[^c]: TG [[Jesus Christ, Jehovah]].

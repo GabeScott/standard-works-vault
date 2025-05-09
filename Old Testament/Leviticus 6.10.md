@@ -5,5 +5,5 @@
 [Leviticus 6:10](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/6.10?lang=eng#p10)
 
 
-[^a]: [[Exodus 28.39|Ex. 28:39 (39-42)]]. TG [Apparel](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng).
+[^a]: [[Exodus 28.39|Ex. 28:39 (39-42)]]. TG [[Apparel]].
 [^b]: [[Exodus 39.28|Ex. 39:28]]; [[Ezekiel 44.18|Ezek. 44:18.]]

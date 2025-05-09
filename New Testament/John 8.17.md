@@ -5,4 +5,4 @@
 [John 8:17](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.17?lang=eng#p17)
 
 
-[^a]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
+[^a]: TG [[Witness, Witnesses]].

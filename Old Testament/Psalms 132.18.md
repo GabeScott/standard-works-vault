@@ -5,4 +5,4 @@
 [Psalms 132:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/132.18?lang=eng#p18)
 
 
-[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^a]: TG [[Shame]].

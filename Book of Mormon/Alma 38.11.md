@@ -5,4 +5,4 @@
 [Alma 38:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/38?lang=eng&id=p11#p11)
 
 
-[^a]: TG [Boast](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng); [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
+[^a]: TG [[Boast, Boasting]]; [[Pride]].

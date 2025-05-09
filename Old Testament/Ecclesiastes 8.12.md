@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 1.20|Ex. 1:20 (7-20)]]; [[D&C 1.9|D&C 1:9.]]
-[^b]: [[Isaiah 3.10|Isa. 3:10]]. TG [Reverence](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng).
+[^b]: [[Isaiah 3.10|Isa. 3:10]]. TG [[Reverence]].

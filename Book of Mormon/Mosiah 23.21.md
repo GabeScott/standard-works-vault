@@ -5,5 +5,5 @@
 [Mosiah 23:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p21#p21)
 
 
-[^a]: [[Deuteronomy 11.2|Deut. 11:2 (1-8)]]; [[Helaman 12.3|Hel. 12:3]]; [[D&C 98.21|D&C 98:21]]. TG [Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng).
-[^b]: TG [Patience.](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
+[^a]: [[Deuteronomy 11.2|Deut. 11:2 (1-8)]]; [[Helaman 12.3|Hel. 12:3]]; [[D&C 98.21|D&C 98:21]]. TG [[Chastening]].
+[^b]: TG [[Patience, Patient, Patiently]].

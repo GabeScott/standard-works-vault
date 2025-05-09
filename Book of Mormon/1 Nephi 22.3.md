@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 29.34|D&C 29:34 (31-34).]]
-[^b]: [[1 Nephi 10.12|1 Ne. 10:12 (12-14)]]; [[2 Nephi 25.15|2 Ne. 25:15 (14-16)]]. TG [Israel, Scattering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng).
-[^c]: TG [Inspiration.](https://www.churchofjesuschrist.org/study/scriptures/tg/inspiration?lang=eng)
+[^b]: [[1 Nephi 10.12|1 Ne. 10:12 (12-14)]]; [[2 Nephi 25.15|2 Ne. 25:15 (14-16)]]. TG [[Israel, Scattering of]].
+[^c]: TG [[Inspiration, Inspire]].

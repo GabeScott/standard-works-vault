@@ -5,5 +5,5 @@
 [Acts 21:21](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/21.21?lang=eng#p21)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^a]: TG [[Circumcision]].
 [^b]: [[Acts 6.14|Acts 6:14.]]

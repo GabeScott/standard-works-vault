@@ -5,5 +5,5 @@
 [1 Samuel 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/2.9?lang=eng#p9)
 
 
-[^a]: TG [Silence.](https://www.churchofjesuschrist.org/study/scriptures/tg/silence?lang=eng)
-[^b]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^a]: TG [[Silence, Silent]].
+[^b]: TG [[Strength]].

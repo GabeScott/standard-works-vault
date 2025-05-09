@@ -6,4 +6,4 @@
 
 
 [^a]: HEB ransom, fine (also v. 32).
-[^b]: TG [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^b]: TG [[Guiltless]].

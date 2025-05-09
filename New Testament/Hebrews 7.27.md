@@ -6,6 +6,6 @@
 
 
 [^a]: [[Hebrews 10.11|Heb. 10:11.]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].
 [^c]: [[Romans 6.10|Rom. 6:10]]; [[Hebrews 10.10|Heb. 10:10.]]
-[^d]: TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng); [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
+[^d]: TG [[Jesus Christ, Atonement through]]; [[Jesus Christ, Redeemer]].

@@ -5,6 +5,6 @@
 [Luke 14:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14.14?lang=eng#p14)
 
 
-[^a]: TG [Blessing.](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)
+[^a]: TG [[Israel, Blessings of]].
 [^b]: [[Matthew 6.4|Matt. 6:4.]]
-[^c]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^c]: TG [[Jesus Christ, Resurrection]].

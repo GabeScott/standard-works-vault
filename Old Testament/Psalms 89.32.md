@@ -5,5 +5,5 @@
 [Psalms 89:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/89.32?lang=eng#p32)
 
 
-[^a]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^a]: TG [[Transgressor]].
 [^b]: [[2 Samuel 7.14|2 Sam. 7:14.]]

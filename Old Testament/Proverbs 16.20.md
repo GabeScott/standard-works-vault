@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 58.27|D&C 58:27 (27-28).]]
-[^b]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
-[^c]: TG [Happiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng)
+[^b]: TG [[Trust in God]].
+[^c]: TG [[Happiness, Happy]].

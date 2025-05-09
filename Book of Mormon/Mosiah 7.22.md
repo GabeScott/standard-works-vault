@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 9.10|Mosiah 9:10]]; [[Mosiah 10.18|10:18.]]
-[^b]: TG [Tribute.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribute?lang=eng)
+[^b]: TG [[Tribute]].

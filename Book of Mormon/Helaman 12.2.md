@@ -7,7 +7,7 @@
 
 [^a]: [[Alma 46.8|Alma 46:8]]; [[Helaman 4.26|Hel. 4:26]]; [[Helaman 6.32|6:32.]]
 [^b]: [[Psalms 62.10|Ps. 62:10.]]
-[^c]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
-[^d]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^c]: TG [[Treasure]].
+[^d]: TG [[Apostasy of Individuals]].
 [^e]: [[Deuteronomy 8.11|Deut. 8:11 (10-20).]]
-[^f]: [[Alma 5.53|Alma 5:53]]; [[3 Nephi 28.35|3 Ne. 28:35]]. TG [Sacrilege](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng).
+[^f]: [[Alma 5.53|Alma 5:53]]; [[3 Nephi 28.35|3 Ne. 28:35]]. TG [[Sacrilege]].

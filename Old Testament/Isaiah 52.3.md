@@ -5,5 +5,5 @@
 [Isaiah 52:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/52.3?lang=eng#p3)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Apostasy of Israel]].
 [^b]: [[Isaiah 45.13|Isa. 45:13.]]

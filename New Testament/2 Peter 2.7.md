@@ -7,4 +7,4 @@
 
 [^a]: [[Genesis 19.15|Gen. 19:15 (12-22).]]
 [^b]: GR oppressed by the outrageous behavior of the lawless.
-[^c]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^c]: TG [[Filthiness, Filthy]].

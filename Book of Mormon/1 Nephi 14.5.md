@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 13.39|1 Ne. 13:39 (34-42)]]; [[1 Nephi 22.9|22:9.]]
-[^b]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^b]: TG [[Repent, Repentance]].

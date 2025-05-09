@@ -6,4 +6,4 @@
 
 
 [^a]: GR injustice, unrighteousness.
-[^b]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^b]: TG [[Truth]].

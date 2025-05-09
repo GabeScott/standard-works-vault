@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jacob 2.19|Jacob 2:19 (17-19)]]; [[Mosiah 4.26|Mosiah 4:26.]]
-[^b]: TG [Borrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/borrow?lang=eng)
+[^b]: TG [[Borrow, Borrowing]].

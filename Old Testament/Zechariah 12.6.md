@@ -7,5 +7,5 @@
 
 [^a]: Obad. 1:18.
 [^b]: OR nations.
-[^c]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
-[^d]: [[D&C 109.64|D&C 109:64 (62-67)]]. TG [Israel, Gathering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng).
+[^c]: TG [[Jerusalem]].
+[^d]: [[D&C 109.64|D&C 109:64 (62-67)]]. TG [[Israel, Gathering of]].

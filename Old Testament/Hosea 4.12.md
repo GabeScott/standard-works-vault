@@ -5,6 +5,6 @@
 [Hosea 4:12](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.12?lang=eng#p12)
 
 
-[^a]: TG [Superstitions.](https://www.churchofjesuschrist.org/study/scriptures/tg/superstitions?lang=eng)
+[^a]: TG [[Superstitions]].
 [^b]: [[Isaiah 44.20|Isa. 44:20]]; [[Romans 1.21|Rom. 1:21.]]
-[^c]: TG [Whore.](https://www.churchofjesuschrist.org/study/scriptures/tg/whore?lang=eng)
+[^c]: TG [[Whore, Whoredom]].

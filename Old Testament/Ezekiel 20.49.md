@@ -5,4 +5,4 @@
 [Ezekiel 20:49](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.49?lang=eng#p49)
 
 
-[^a]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^a]: TG [[Prophets, Rejection of]].

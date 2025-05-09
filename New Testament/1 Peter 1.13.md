@@ -5,6 +5,6 @@
 [1 Peter 1:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.13?lang=eng#p13)
 
 
-[^a]: TG [Levity.](https://www.churchofjesuschrist.org/study/scriptures/tg/levity?lang=eng)
+[^a]: TG [[Levity]].
 [^b]: GR perfectly, completely.
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^c]: TG [[Grace]].

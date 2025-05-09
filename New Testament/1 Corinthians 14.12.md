@@ -6,4 +6,4 @@
 
 
 [^a]: GR since.
-[^c]: TG [Edification.](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng)
+[^c]: TG [[Edification, Edify]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 1.11|1 Ne. 1:11 (8-15)]]; [[D&C 110.2|D&C 110:2 (2-3)]]; JS—H 1:17.
-[^b]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
+[^b]: TG [[Servant]].

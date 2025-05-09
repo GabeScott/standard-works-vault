@@ -5,8 +5,8 @@
 [Exodus 20:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.20?lang=eng#p20)
 
 
-[^a]: TG [Courage](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng); [Fearful.](https://www.churchofjesuschrist.org/study/scriptures/tg/fearful?lang=eng)
+[^a]: TG [[Courage, Courageous]]; [[Fearful]].
 [^b]: [[Jeremiah 11.3|Jer. 11:3 (1-23).]]
-[^c]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
-[^d]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^c]: TG [[God, Presence of]].
+[^d]: TG [[Testament]].
 [^e]: OR because respect for Him will always be present with you, you will not sin.

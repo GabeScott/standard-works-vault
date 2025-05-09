@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 4.1|Isa. 4:1 (1-6).]]
-[^b]: TG [Reproach.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproach?lang=eng)
+[^b]: TG [[Reproach]].

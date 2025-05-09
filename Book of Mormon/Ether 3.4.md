@@ -5,6 +5,6 @@
 [Ether 3:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p4#p4)
 
 
-[^a]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
+[^a]: TG [[God, Power of]].
 [^b]: [[Ether 12.20|Ether 12:20 (19-21).]]
-[^c]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^c]: TG [[Light]].

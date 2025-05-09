@@ -5,4 +5,4 @@
 [3 Nephi 21:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/21?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Sorcery](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng); [Superstitions.](https://www.churchofjesuschrist.org/study/scriptures/tg/superstitions?lang=eng)
+[^a]: TG [[Sorcery]]; [[Superstitions]].

@@ -5,4 +5,4 @@
 [Jacob 7:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p13#p13)
 
 
-[^a]: [[John 6.30|John 6:30]]; [[Alma 30.43|Alma 30:43 (43-60)]]; [[D&C 46.9|D&C 46:9 (8-9)]]. TG [Sign Seekers](https://www.churchofjesuschrist.org/study/scriptures/tg/sign-seekers?lang=eng).
+[^a]: [[John 6.30|John 6:30]]; [[Alma 30.43|Alma 30:43 (43-60)]]; [[D&C 46.9|D&C 46:9 (8-9)]]. TG [[Sign Seekers]].

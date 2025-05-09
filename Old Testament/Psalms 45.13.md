@@ -5,4 +5,4 @@
 [Psalms 45:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/45.13?lang=eng#p13)
 
 
-[^a]: TG [Apparel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng)
+[^a]: TG [[Apparel]].

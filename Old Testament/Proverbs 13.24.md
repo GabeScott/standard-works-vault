@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 29.15|Prov. 29:15.]]
-[^b]: [[Mosiah 4.14|Mosiah 4:14]]; [[D&C 68.28|D&C 68:28]]. TG [Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng); [Family, Children, Responsibilities toward](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng).
+[^b]: [[Mosiah 4.14|Mosiah 4:14]]; [[D&C 68.28|D&C 68:28]]. TG [[Chastening]]; [[Family, Children, Responsibilities toward]].

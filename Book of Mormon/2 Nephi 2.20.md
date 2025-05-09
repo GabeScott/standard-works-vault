@@ -5,4 +5,4 @@
 [2 Nephi 2:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p20#p20)
 
 
-[^a]: [[1 Corinthians 15.45|1 Cor. 15:45 (45-48)]]; [[D&C 27.11|D&C 27:11]]; [[D&C 138.38|138:38]]; [[Moses 1.34|Moses 1:34]]. TG [Adam](https://www.churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng).
+[^a]: [[1 Corinthians 15.45|1 Cor. 15:45 (45-48)]]; [[D&C 27.11|D&C 27:11]]; [[D&C 138.38|138:38]]; [[Moses 1.34|Moses 1:34]]. TG [[Adam]].

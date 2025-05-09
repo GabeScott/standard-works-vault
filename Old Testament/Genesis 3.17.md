@@ -5,6 +5,6 @@
 [Genesis 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.17?lang=eng#p17)
 
 
-[^a]: TG [Marriage, Wives.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-wives?lang=eng)
-[^b]: TG [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng); Earth, [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng) of.
+[^a]: TG [[Marriage, Wives]].
+[^b]: TG [[Curse]]; Earth, [[Curse]] of.
 [^c]: HEB travail, pain.

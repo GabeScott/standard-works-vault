@@ -5,5 +5,5 @@
 [Deuteronomy 29:20](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/29.20?lang=eng#p20)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^a]: TG [[Curse]].
 [^b]: [[Alma 5.57|Alma 5:57.]]

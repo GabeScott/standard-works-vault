@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Nephi 13.38|1 Ne. 13:38]]; [[2 Nephi 29.6|2 Ne. 29:6 (4-12).]]
-[^b]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^b]: TG [[Scriptures, Preservation of]].
 [^c]: [[2 Nephi 3.12|2 Ne. 3:12.]]
 [^d]: [[1 Nephi 5.10|1 Ne. 5:10 (10-22)]]; [[1 Nephi 19.22|19:22.]]

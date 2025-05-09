@@ -5,4 +5,4 @@
 [Jeremiah 31:13](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.13?lang=eng#p13)
 
 
-[^a]: [[Psalms 30.11|Ps. 30:11]]. TG [Mourning](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng).
+[^a]: [[Psalms 30.11|Ps. 30:11]]. TG [[Mourning, Mourn]].

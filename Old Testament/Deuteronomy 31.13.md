@@ -5,4 +5,4 @@
 [Deuteronomy 31:13](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/31.13?lang=eng#p13)
 
 
-[^a]: TG [Learn.](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng)
+[^a]: TG [[Learn, Learning]].

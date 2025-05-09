@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 13.10|Acts 13:10 (8-12)]]; [[Alma 5.41|Alma 5:41.]]
-[^b]: TG [Temptation](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng); [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^b]: TG [[Temptation]]; [[Testament]].

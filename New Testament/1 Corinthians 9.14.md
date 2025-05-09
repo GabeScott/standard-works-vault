@@ -6,5 +6,5 @@
 
 
 [^a]: [[Romans 2.21|Rom. 2:21 (21-23)]]; [[Alma 39.11|Alma 39:11 (11-12).]]
-[^b]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
+[^b]: TG [[Gospel]].
 [^c]: [[Matthew 10.10|Matt. 10:10.]]

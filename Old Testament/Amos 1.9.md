@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 23.1|Isa. 23:1]]; [[Ezekiel 26.2|Ezek. 26:2.]]
-[^b]: TG [Brotherhood and Sisterhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
+[^b]: TG [[Brotherhood and Sisterhood]].

@@ -5,4 +5,4 @@
 [3 Nephi 20:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p36#p36)
 
 
-[^a]: [[Isaiah 52.1|Isa. 52:1 (1-3)]]; [[D&C 113.7|D&C 113:7 (7-10)]]. TG [Priesthood, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng).
+[^a]: [[Isaiah 52.1|Isa. 52:1 (1-3)]]; [[D&C 113.7|D&C 113:7 (7-10)]]. TG [[Priesthood, Power of]].

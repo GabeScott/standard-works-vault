@@ -5,5 +5,5 @@
 [Hebrews 11:25](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.25?lang=eng#p25)
 
 
-[^a]: TG [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
+[^a]: TG [[Suffering]].
 [^b]: [[Exodus 2.11|Ex. 2:11 (11-15)]]; [[Acts 7.23|Acts 7:23 (22-36).]]

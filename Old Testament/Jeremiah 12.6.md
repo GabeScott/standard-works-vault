@@ -5,4 +5,4 @@
 [Jeremiah 12:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/12.6?lang=eng#p6)
 
 
-[^a]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^a]: TG [[Prophets, Rejection of]].

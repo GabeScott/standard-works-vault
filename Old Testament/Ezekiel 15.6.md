@@ -5,5 +5,5 @@
 [Ezekiel 15:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/15.6?lang=eng#p6)
 
 
-[^a]: TG [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
+[^a]: TG [[Vineyard of the Lord]].
 [^b]: [[1 Nephi 1.13|1 Ne. 1:13.]]

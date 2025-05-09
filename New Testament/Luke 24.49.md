@@ -5,5 +5,5 @@
 [Luke 24:49](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/24.49?lang=eng#p49)
 
 
-[^a]: TG [Promise.](https://www.churchofjesuschrist.org/study/scriptures/tg/promise?lang=eng)
+[^a]: TG [[Promise]].
 [^b]: OR clothed, invested. D&C 20:8; 38:32 (32, 38).

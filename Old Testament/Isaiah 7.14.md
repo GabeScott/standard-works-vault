@@ -5,8 +5,8 @@
 [Isaiah 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/7.14?lang=eng#p14)
 
 
-[^a]: TG [Signs.](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng)
+[^a]: TG [[Signs]].
 [^b]: [[Matthew 1.23|Matt. 1:23.]]
-[^c]: TG [Jesus Christ, Birth of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-birth-of?lang=eng); [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
-[^d]: TG [Jesus Christ, Divine Sonship.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
-[^e]: HEB With us is God. TG [Foreordination](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng).
+[^c]: TG [[Jesus Christ, Birth of]]; [[Jesus Christ, Prophecies about]].
+[^d]: TG [[Jesus Christ, Divine Sonship]].
+[^e]: HEB With us is God. TG [[Foreordination]].

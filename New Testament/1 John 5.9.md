@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 6.23|D&C 6:23 (22-24).]]
-[^b]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
-[^c]: TG [Witness of the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness-of-the-father?lang=eng)
+[^b]: TG [[Witness, Witnesses]].
+[^c]: TG [[Witness of the Father]].

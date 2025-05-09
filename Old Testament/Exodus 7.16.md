@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 5.3|Ex. 5:3.]]
-[^b]: TG [Service.](https://www.churchofjesuschrist.org/study/scriptures/tg/service?lang=eng)
+[^b]: TG [[Service]].

@@ -5,5 +5,5 @@
 [1 Thessalonians 1:9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-thes/1.9?lang=eng#p9)
 
 
-[^a]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^a]: TG [[Idolatry, Idol]].
 [^b]: [[D&C 20.19|D&C 20:19.]]

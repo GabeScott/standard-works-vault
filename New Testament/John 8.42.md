@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 16.28|John 16:28 (27-28, 30)]]; [[John 17.8|17:8]]; [[Galatians 4.4|Gal. 4:4.]]
-[^b]: TG [Jesus Christ, Messenger of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messenger-of-the-covenant?lang=eng)
+[^b]: TG [[Jesus Christ, Messenger of the Covenant]].

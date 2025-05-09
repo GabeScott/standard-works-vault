@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 6.5|Gen. 6:5]]; [[Matthew 15.19|Matt. 15:19]]; [[Helaman 12.4|Hel. 12:4.]]
-[^b]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
-[^c]: GR apostatizing, withdrawing from. TG [Apostasy of Individuals](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng).
+[^b]: TG [[Stiffnecked, Stiffneckedness]].
+[^c]: GR apostatizing, withdrawing from. TG [[Apostasy of Individuals]].

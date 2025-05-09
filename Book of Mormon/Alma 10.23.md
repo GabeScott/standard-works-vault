@@ -5,6 +5,6 @@
 [Alma 10:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/10?lang=eng&id=p23#p23)
 
 
-[^a]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: TG [[Prayer, Pray]].
 [^b]: [[2 Chronicles 13.9|2 Chr. 13:9]]; [[Moroni 9.14|Moro. 9:14.]]
-[^c]: TG [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
+[^c]: TG [[Procrastination, Procrastinate]].

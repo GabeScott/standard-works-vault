@@ -6,7 +6,7 @@
 
 
 [^a]: [[D&C 66.10|D&C 66:10.]]
-[^b]: TG [Murder.](https://www.churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng)
-[^c]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
-[^d]: TG [Fraud.](https://www.churchofjesuschrist.org/study/scriptures/tg/fraud?lang=eng)
-[^e]: TG [Honoring Father and Mother.](https://www.churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng)
+[^b]: TG [[Murder, Murderer]].
+[^c]: TG [[Stealing, Stolen]].
+[^d]: TG [[Fraud]].
+[^e]: TG [[Honoring Father and Mother]].

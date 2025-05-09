@@ -5,5 +5,5 @@
 [Jeremiah 31:8](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.8?lang=eng#p8)
 
 
-[^a]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^a]: TG [[Israel, Ten Lost Tribes of]].
 [^b]: HEB ends.

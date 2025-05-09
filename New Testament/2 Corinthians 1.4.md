@@ -5,5 +5,5 @@
 [2 Corinthians 1:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.4?lang=eng#p4)
 
 
-[^a]: TG [Tribulation.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
+[^a]: TG [[Tribulation]].
 [^b]: Philip. 3:10; 2 Thes. 2:16.

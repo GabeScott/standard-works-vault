@@ -5,4 +5,4 @@
 [Genesis 42:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/42.21?lang=eng#p21)
 
 
-[^a]: TG [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^a]: TG [[Guiltless]].

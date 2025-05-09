@@ -5,4 +5,4 @@
 [Psalms 25:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.9?lang=eng#p9)
 
 
-[^a]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^a]: TG [[Guidance, Divine]].

@@ -5,4 +5,4 @@
 [Ruth 4:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ruth/4.15?lang=eng#p15)
 
 
-[^a]: TG [Old Age.](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
+[^a]: TG [[Old Age]].

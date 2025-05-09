@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 6.23|Ex. 6:23]]; [[Exodus 28.1|28:1.]]
-[^b]: TG [Seventy.](https://www.churchofjesuschrist.org/study/scriptures/tg/seventy?lang=eng)
+[^b]: TG [[Seventy]].

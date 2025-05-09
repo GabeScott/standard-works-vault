@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 49.9|Gen. 49:9.]]
-[^b]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^b]: TG [[Israel, Judah, People of]].
 [^c]: [[Isaiah 11.10|Isa. 11:10]]; [[Revelation 22.16|Rev. 22:16 (6-16).]]

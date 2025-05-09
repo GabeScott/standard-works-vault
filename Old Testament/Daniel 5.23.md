@@ -5,4 +5,4 @@
 [Daniel 5:23](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/5.23?lang=eng#p23)
 
 
-[^a]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^a]: TG [[Idolatry, Idol]].

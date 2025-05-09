@@ -5,4 +5,4 @@
 [James 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.8?lang=eng#p8)
 
 
-[^a]: [[1 Kings 18.21|1 Kgs. 18:21]]; [[Psalms 12.2|Ps. 12:2]]; [[Hosea 10.2|Hosea 10:2]]. TG [Integrity](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng).
+[^a]: [[1 Kings 18.21|1 Kgs. 18:21]]; [[Psalms 12.2|Ps. 12:2]]; [[Hosea 10.2|Hosea 10:2]]. TG [[Integrity]].

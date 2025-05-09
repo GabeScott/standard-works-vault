@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 29.14|Gen. 29:14]]; [[Jacob 2.21|Jacob 2:21]]; [[Moses 3.23|Moses 3:23]]; [[Abraham 5.17|Abr. 5:17.]]
-[^b]: TG [Creation](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng); [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
+[^b]: TG [[Creation, Create]]; [[Woman, Women]].

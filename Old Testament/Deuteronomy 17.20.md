@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 38.24|D&C 38:24.]]
 [^b]: [[Deuteronomy 5.32|Deut. 5:32]]; [[1 Kings 15.5|1 Kgs. 15:5.]]
-[^c]: TG [Family.](https://www.churchofjesuschrist.org/study/scriptures/tg/family?lang=eng)
+[^c]: TG [[Family]].

@@ -6,4 +6,4 @@
 
 
 [^a]: GR listen to, bear with, follow.
-[^b]: TG [Boast.](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng)
+[^b]: TG [[Boast, Boasting]].

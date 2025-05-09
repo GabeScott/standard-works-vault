@@ -5,5 +5,5 @@
 [Alma 18:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/18?lang=eng&id=p18#p18)
 
 
-[^a]: TG [Discernment, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/discernment-spiritual?lang=eng)
-[^b]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^a]: TG [[Discernment, Spiritual]].
+[^b]: TG [[God, Omniscience of]].

@@ -6,7 +6,7 @@
 
 
 [^a]: [[Mosiah 27.13|Mosiah 27:13.]]
-[^b]: TG [Jesus Christ, Head of the Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-head-of-the-church?lang=eng)
+[^b]: TG [[Jesus Christ, Head of the Church]].
 [^c]: [[2 Nephi 9.23|2 Ne. 9:23.]]
-[^d]: TG [Baptism, Qualifications for.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng)
-[^e]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
+[^d]: TG [[Baptism, Qualifications for]].
+[^e]: TG [[Remission of Sins]].

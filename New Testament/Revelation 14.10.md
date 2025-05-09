@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 115.6|D&C 115:6.]]
-[^b]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^b]: TG [[God, Indignation of]].

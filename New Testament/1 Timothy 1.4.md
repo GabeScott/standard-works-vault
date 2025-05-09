@@ -8,4 +8,4 @@
 [^a]: [[Titus 1.14|Titus 1:14]]; 2 Pet. 1:16.
 [^b]: GR offer, present.
 [^c]: [[1 Timothy 6.4|1 Tim. 6:4.]]
-[^d]: TG [Edification.](https://www.churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng)
+[^d]: TG [[Edification, Edify]].

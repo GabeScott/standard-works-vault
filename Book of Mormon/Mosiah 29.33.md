@@ -5,4 +5,4 @@
 [Mosiah 29:33](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/29?lang=eng&id=p33#p33)
 
 
-[^a]: TG [Stewardship.](https://www.churchofjesuschrist.org/study/scriptures/tg/stewardship?lang=eng)
+[^a]: TG [[Stewardship, Steward]].

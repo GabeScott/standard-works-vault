@@ -5,4 +5,4 @@
 [Mosiah 26:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/26?lang=eng&id=p21#p21)
 
 
-[^a]: TG [Jesus Christ, Good Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng)
+[^a]: TG [[Jesus Christ, Good Shepherd]].

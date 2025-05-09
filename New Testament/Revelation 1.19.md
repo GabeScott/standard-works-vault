@@ -5,4 +5,4 @@
 [Revelation 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.19?lang=eng#p19)
 
 
-[^a]: TG [Record Keeping.](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng)
+[^a]: TG [[Record Keeping]].

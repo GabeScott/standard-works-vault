@@ -5,4 +5,4 @@
 [Alma 60:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Laziness.](https://www.churchofjesuschrist.org/study/scriptures/tg/laziness?lang=eng)
+[^a]: TG [[Laziness]].

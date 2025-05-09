@@ -5,4 +5,4 @@
 [Ether 11:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/11?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
+[^a]: TG [[Mercy, Merciful]].

@@ -5,5 +5,5 @@
 [3 Nephi 9:2](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/9?lang=eng&id=p2#p2)
 
 
-[^a]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Repent, Repentance]].
 [^b]: [[Moses 7.26|Moses 7:26.]]

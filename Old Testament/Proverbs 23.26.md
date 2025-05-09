@@ -5,4 +5,4 @@
 [Proverbs 23:26](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/23.26?lang=eng#p26)
 
 
-[^a]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
+[^a]: TG [[Watch, Watchfulness]].

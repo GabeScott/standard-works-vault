@@ -5,5 +5,5 @@
 [Proverbs 29:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/29.6?lang=eng#p6)
 
 
-[^a]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
+[^a]: TG [[Transgressor]].
 [^b]: [[Alma 12.6|Alma 12:6]]; [[D&C 10.26|D&C 10:26.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: HEB dispute.
-[^b]: TG [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^b]: TG [[Warn, Warnings]].

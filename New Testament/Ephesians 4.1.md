@@ -5,5 +5,5 @@
 [Ephesians 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/4.1?lang=eng#p1)
 
 
-[^a]: TG [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
+[^a]: TG [[Worthiness, Worthy]].
 [^b]: GR calling.

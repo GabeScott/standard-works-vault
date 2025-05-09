@@ -5,4 +5,4 @@
 [Luke 18:33](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.33?lang=eng#p33)
 
 
-[^a]: TG [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
+[^a]: TG [[Jesus Christ, Resurrection]].

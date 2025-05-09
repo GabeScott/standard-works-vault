@@ -7,4 +7,4 @@
 
 [^a]: OR Through thee.
 [^b]: Septuagint: be blessed.
-[^c]: [[Jeremiah 31.9|Jer. 31:9]]; [[D&C 133.34|D&C 133:34]]. TG [Birthright](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng).
+[^c]: [[Jeremiah 31.9|Jer. 31:9]]; [[D&C 133.34|D&C 133:34]]. TG [[Birthright]].

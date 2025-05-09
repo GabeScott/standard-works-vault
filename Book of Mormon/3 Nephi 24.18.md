@@ -5,4 +5,4 @@
 [3 Nephi 24:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/24?lang=eng&id=p18#p18)
 
 
-[^a]: TG [Discernment, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/discernment-spiritual?lang=eng)
+[^a]: TG [[Discernment, Spiritual]].

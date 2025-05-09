@@ -5,5 +5,5 @@
 [Jeremiah 20:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/20.11?lang=eng#p11)
 
 
-[^a]: TG [Protection, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng)
+[^a]: TG [[Protection, Divine]].
 [^b]: OR disgrace.

@@ -5,4 +5,4 @@
 [Daniel 3:17](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/3.17?lang=eng#p17)
 
 
-[^a]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^a]: TG [[Deliver, Deliverance]].

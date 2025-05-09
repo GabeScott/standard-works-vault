@@ -6,7 +6,7 @@
 
 
 [^a]: JST 1 Pet. 4:6 Because of this, is the gospel preached to them who are dead, that they might be judged according to men in the flesh, but live in the spirit according to the will of God.
-[^b]: TG [Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/gospel?lang=eng)
-[^c]: TG [Genealogy and Temple Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/genealogy-and-temple-work?lang=eng)
-[^d]: TG [Hell](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng); [Salvation, Plan of](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng); [Salvation for the Dead](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-for-the-dead?lang=eng); [Spirits, Disembodied](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-disembodied?lang=eng); [Spirits in Prison.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-in-prison?lang=eng)
+[^b]: TG [[Gospel]].
+[^c]: TG [[Genealogy and Temple Work]].
+[^d]: TG [[Hell]]; [[Salvation, Plan of]]; [[Salvation for the Dead]]; [[Spirits, Disembodied]]; [[Spirits in Prison]].
 [^e]: [[D&C 88.99|D&C 88:99]]; 138:10, 34.

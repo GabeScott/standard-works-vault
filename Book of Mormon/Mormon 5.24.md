@@ -5,5 +5,5 @@
 [Mormon 5:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/5?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Israel, Remnant of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-remnant-of?lang=eng)
+[^a]: TG [[Israel, Remnant of]].
 [^b]: [[3 Nephi 20.16|3 Ne. 20:16 (15-16).]]

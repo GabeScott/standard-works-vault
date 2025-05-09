@@ -5,7 +5,7 @@
 [Matthew 19:18](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/19.18?lang=eng#p18)
 
 
-[^a]: TG [Blood, Shedding of](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-shedding-of?lang=eng); [Murder.](https://www.churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng)
-[^b]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
-[^c]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^a]: TG [[Blood, Shedding of]]; [[Murder, Murderer]].
+[^b]: TG [[Adulterer, Adultery]].
+[^c]: TG [[Stealing, Stolen]].
 [^d]: [[Proverbs 25.18|Prov. 25:18.]]

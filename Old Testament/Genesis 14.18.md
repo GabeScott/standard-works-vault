@@ -6,7 +6,7 @@
 
 
 [^a]: HEB King of righteousness.
-[^b]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
-[^c]: [[Exodus 18.12|Ex. 18:12]]. TG [Bread](https://www.churchofjesuschrist.org/study/scriptures/tg/bread?lang=eng).
+[^b]: TG [[Jerusalem]].
+[^c]: [[Exodus 18.12|Ex. 18:12]]. TG [[Bread]].
 [^d]: [[Genesis 14.17|JST Gen. 14:17 … and he brake bread and blest it]]; and he blest the wine, he being the priest of the most high God,
-[^e]: TG [Church Organization](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng); [High Priest, Melchizedek Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/high-priest-melchizedek-priesthood?lang=eng); [Priesthood, Melchizedek.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-melchizedek?lang=eng)
+[^e]: TG [[Church Organization]]; [[High Priest, Melchizedek Priesthood]]; [[Priesthood, Melchizedek]].

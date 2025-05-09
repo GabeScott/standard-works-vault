@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 84.45|D&C 84:45]]; [[D&C 88.7|88:7 (6-13).]]
-[^b]: [[Mosiah 15.10|Mosiah 15:10]]; [[Mosiah 27.25|27:25]]. TG [Sons and Daughters of God](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng).
+[^b]: [[Mosiah 15.10|Mosiah 15:10]]; [[Mosiah 27.25|27:25]]. TG [[Sons and Daughters of God]].

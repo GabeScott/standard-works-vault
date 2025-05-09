@@ -5,5 +5,5 @@
 [Jeremiah 3:25](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/3.25?lang=eng#p25)
 
 
-[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
-[^b]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Shame]].
+[^b]: TG [[Apostasy of Israel]].

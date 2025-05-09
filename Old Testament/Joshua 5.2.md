@@ -6,4 +6,4 @@
 
 
 [^a]: HEB flint knives.
-[^b]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
+[^b]: TG [[Circumcision]].

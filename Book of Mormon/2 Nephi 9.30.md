@@ -7,8 +7,8 @@
 
 [^a]: [[Jeremiah 17.11|Jer. 17:11]]; [[Luke 12.34|Luke 12:34]]; [[D&C 56.16|D&C 56:16.]]
 [^b]: [[Matthew 19.23|Matt. 19:23.]]
-[^c]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
-[^d]: TG [Poor.](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng)
-[^e]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
-[^f]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^c]: TG [[World, End of]].
+[^d]: TG [[Poor]].
+[^e]: TG [[Hardheartedness, Harden, Hardness]].
+[^f]: TG [[Treasure]].
 [^g]: [[Proverbs 27.24|Prov. 27:24.]]

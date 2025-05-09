@@ -5,5 +5,5 @@
 [Ezra 9:2](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/9.2?lang=eng#p2)
 
 
-[^a]: TG [Marriage, Interfaith.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng)
+[^a]: TG [[Marriage, Interfaith]].
 [^b]: [[Deuteronomy 7.6|Deut. 7:6.]]

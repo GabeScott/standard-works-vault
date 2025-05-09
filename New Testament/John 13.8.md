@@ -6,4 +6,4 @@
 
 
 [^a]: JST John 13:8-10 (Appendix).
-[^b]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^b]: TG [[Purification, Purify, Purifying]].

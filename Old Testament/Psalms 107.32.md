@@ -5,4 +5,4 @@
 [Psalms 107:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/107.32?lang=eng#p32)
 
 
-[^a]: TG [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Apostasy of the Early Christian Church]].

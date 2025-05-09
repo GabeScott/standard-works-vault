@@ -5,5 +5,5 @@
 [Genesis 28:1](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.1?lang=eng#p1)
 
 
-[^a]: TG [Marriage, Wives.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-wives?lang=eng)
+[^a]: TG [[Marriage, Wives]].
 [^b]: [[Genesis 24.3|Gen. 24:3.]]

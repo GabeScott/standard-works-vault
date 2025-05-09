@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 9.16|2 Ne. 9:16.]]
-[^b]: TG [Harvest.](https://www.churchofjesuschrist.org/study/scriptures/tg/harvest?lang=eng)
+[^b]: TG [[Harvest]].

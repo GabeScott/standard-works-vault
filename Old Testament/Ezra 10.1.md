@@ -5,4 +5,4 @@
 [Ezra 10:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ezra/10.1?lang=eng#p1)
 
 
-[^a]: TG [Confession.](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng)
+[^a]: TG [[Confession]].

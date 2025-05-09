@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 14.15|Acts 14:15 (11-15).]]
-[^b]: TG [Drought.](https://www.churchofjesuschrist.org/study/scriptures/tg/drought?lang=eng)
+[^b]: TG [[Drought]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Jeremiah 2.14|Jer. 2:14.]]
 [^b]: [[Hosea 11.1|Hosea 11:1 (1-4).]]
-[^c]: TG [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
+[^c]: TG [[Firstborn]].

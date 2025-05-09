@@ -6,4 +6,4 @@
 
 
 [^a]: HEB ordinances.
-[^b]: TG [Duty.](https://www.churchofjesuschrist.org/study/scriptures/tg/duty?lang=eng)
+[^b]: TG [[Duty]].

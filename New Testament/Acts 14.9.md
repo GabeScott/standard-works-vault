@@ -5,5 +5,5 @@
 [Acts 14:9](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.9?lang=eng#p9)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
-[^b]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^a]: TG [[Faith]].
+[^b]: TG [[Health]].

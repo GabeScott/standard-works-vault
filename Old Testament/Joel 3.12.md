@@ -5,5 +5,5 @@
 [Joel 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.12?lang=eng#p12)
 
 
-[^a]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
-[^b]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Heathen]].
+[^b]: TG [[Jesus Christ, Judge]].

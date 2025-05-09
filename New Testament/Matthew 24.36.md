@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 39.21|D&C 39:21]]; [[D&C 49.7|49:7.]]
-[^b]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
-[^c]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^b]: TG [[Jesus Christ, Second Coming]].
+[^c]: TG [[Angels]].

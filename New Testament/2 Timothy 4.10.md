@@ -6,5 +6,5 @@
 
 
 [^a]: Col. 4:14; Philem. 1:24.
-[^b]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
-[^c]: TG [Worldliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
+[^b]: TG [[Apostasy of Individuals]].
+[^c]: TG [[Worldliness]].

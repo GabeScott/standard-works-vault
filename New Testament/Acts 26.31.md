@@ -5,4 +5,4 @@
 [Acts 26:31](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.31?lang=eng#p31)
 
 
-[^a]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^a]: TG [[Capital Punishment]].

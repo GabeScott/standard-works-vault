@@ -5,6 +5,6 @@
 [1 Kings 11:33](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/11.33?lang=eng#p33)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Apostasy of Israel]].
 [^b]: Zeph. 1:5.
 [^c]: JST 1 Kgs. 11:33 … and his heart is become as David his father; and he repenteth not as did David his father, that I may forgive him.

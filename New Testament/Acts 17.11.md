@@ -5,4 +5,4 @@
 [Acts 17:11](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/17.11?lang=eng#p11)
 
 
-[^a]: TG [Scriptures, Study of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
+[^a]: TG [[Scriptures, Study of]].

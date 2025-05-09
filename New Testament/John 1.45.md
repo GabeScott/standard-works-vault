@@ -5,5 +5,5 @@
 [John 1:45](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.45?lang=eng#p45)
 
 
-[^a]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
-[^b]: TG [Record Keeping.](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng)
+[^a]: TG [[Jesus Christ, Prophecies about]].
+[^b]: TG [[Record Keeping]].

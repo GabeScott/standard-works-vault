@@ -6,5 +6,5 @@
 
 
 [^a]: IE a satirical song.
-[^b]: TG [Babylon.](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng)
+[^b]: TG [[Babylon]].
 [^c]: HEB (perhaps) insolent, or proud.

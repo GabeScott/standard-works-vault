@@ -5,5 +5,5 @@
 [Genesis 19:3](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/19.3?lang=eng#p3)
 
 
-[^a]: TG [Hospitality.](https://www.churchofjesuschrist.org/study/scriptures/tg/hospitality?lang=eng)
-[^b]: TG [Bread, Unleavened.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-unleavened?lang=eng)
+[^a]: TG [[Hospitality]].
+[^b]: TG [[Bread, Unleavened]].

@@ -5,5 +5,5 @@
 [Jonah 2:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/2.9?lang=eng#p9)
 
 
-[^a]: TG [Vow.](https://www.churchofjesuschrist.org/study/scriptures/tg/vow?lang=eng)
-[^b]: TG [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^a]: TG [[Vow]].
+[^b]: TG [[Salvation for the Dead]].

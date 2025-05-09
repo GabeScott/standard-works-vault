@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ezekiel 33.9|Ezek. 33:9.]]
-[^b]: TG [Probation.](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng)
+[^b]: TG [[Probation, Probationary]].
 [^c]: [[1 Corinthians 6.9|1 Cor. 6:9 (9-10)]]; [[Mormon 7.7|Morm. 7:7]]; [[D&C 76.62|D&C 76:62 (50-62)]]; 138:20, 37; [[Moses 6.57|Moses 6:57.]]

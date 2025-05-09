@@ -6,6 +6,6 @@
 
 
 [^a]: [[Jeremiah 48.47|Jer. 48:47 (46-47).]]
-[^b]: TG [Jesus Christ, Millennial Reign.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-millennial-reign?lang=eng)
-[^c]: TG [Haste.](https://www.churchofjesuschrist.org/study/scriptures/tg/haste?lang=eng)
+[^b]: TG [[Jesus Christ, Millennial Reign]].
+[^c]: TG [[Haste, Hasten, Hasty]].
 [^d]: [[Mosiah 2.11|Mosiah 2:11 (11-14).]]

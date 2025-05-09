@@ -5,4 +5,4 @@
 [Luke 7:32](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/7.32?lang=eng#p32)
 
 
-[^a]: TG [Mourning.](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
+[^a]: TG [[Mourning, Mourn]].

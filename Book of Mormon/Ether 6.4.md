@@ -5,5 +5,5 @@
 [Ether 6:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/6?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Food.](https://www.churchofjesuschrist.org/study/scriptures/tg/food?lang=eng)
+[^a]: TG [[Food]].
 [^b]: [[Ether 2.1|Ether 2:1]]; [[Ether 9.18|9:18 (18-19).]]

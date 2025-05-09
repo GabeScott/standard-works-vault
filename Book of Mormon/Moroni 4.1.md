@@ -6,5 +6,5 @@
 
 
 [^a]: [[3 Nephi 18.5|3 Ne. 18:5 (1-7).]]
-[^b]: TG [Elder.](https://www.churchofjesuschrist.org/study/scriptures/tg/elder?lang=eng)
+[^b]: TG [[Elder, Melchizedek Priesthood]].
 [^c]: [[D&C 20.76|D&C 20:76.]]

@@ -5,6 +5,6 @@
 [Genesis 48:4](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/48.4?lang=eng#p4)
 
 
-[^a]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
-[^b]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^a]: TG [[Seed of Abraham]].
+[^b]: TG [[Promised Lands]].
 [^c]: [[Genesis 17.8|Gen. 17:8]]; [[Abraham 2.6|Abr. 2:6.]]

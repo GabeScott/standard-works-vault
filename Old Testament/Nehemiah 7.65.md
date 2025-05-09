@@ -6,4 +6,4 @@
 
 
 [^a]: OR governor. Neh. 8:9.
-[^b]: TG [Urim and Thummim.](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng)
+[^b]: TG [[Urim and Thummim]].

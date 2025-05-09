@@ -6,5 +6,5 @@
 
 
 [^a]: [[3 Nephi 18.15|3 Ne. 18:15 (15, 18).]]
-[^b]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
-[^c]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^b]: TG [[Devil, Church of]].
+[^c]: TG [[God, the Standard of Righteousness]].

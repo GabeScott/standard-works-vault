@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 104.80|D&C 104:80.]]
-[^b]: [[Matthew 15.28|Matt. 15:28 (25-28)]]. TG [Faith](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng).
-[^c]: [[Mark 2.5|Mark 2:5 (3-9)]]. TG [Forgive](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng).
+[^b]: [[Matthew 15.28|Matt. 15:28 (25-28)]]. TG [[Faith]].
+[^c]: [[Mark 2.5|Mark 2:5 (3-9)]]. TG [[Forgive, Forgiveness]].

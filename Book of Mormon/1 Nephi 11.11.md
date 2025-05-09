@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 40.8|Gen. 40:8.]]
-[^b]: TG [Spirit Body.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirit-body?lang=eng)
+[^b]: TG [[Spirit Body]].

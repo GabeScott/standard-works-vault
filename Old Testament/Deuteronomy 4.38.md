@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 101.80|D&C 101:80 (77-80).]]
-[^b]: TG [Lands of Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
+[^b]: TG [[Lands of Inheritance]].

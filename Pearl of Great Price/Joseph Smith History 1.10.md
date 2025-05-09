@@ -5,4 +5,4 @@
 [Joseph Smith History 1:10](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.10?lang=eng#p10)
 
 
-[^a]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^a]: TG [[Truth]].

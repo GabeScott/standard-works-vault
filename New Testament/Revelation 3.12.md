@@ -6,4 +6,4 @@
 
 
 [^a]: [[Revelation 14.1|Rev. 14:1]]; [[Revelation 22.4|22:4 (1-5).]]
-[^b]: TG [Jerusalem, New](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem-new?lang=eng); [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^b]: TG [[Jerusalem, New]]; [[Zion, Sion]].

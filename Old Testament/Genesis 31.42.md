@@ -5,4 +5,4 @@
 [Genesis 31:42](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/31.42?lang=eng#p42)
 
 
-[^a]: TG [Industry.](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng)
+[^a]: TG [[Industry, Industrious]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 19.34|Lev. 19:34 (33-34).]]
-[^b]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^b]: TG [[Stranger]].

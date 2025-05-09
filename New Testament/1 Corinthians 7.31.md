@@ -6,4 +6,4 @@
 
 
 [^a]: [[James 4.14|James 4:14]]; 1 Jn. 2:17.
-[^b]: TG [Worldliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
+[^b]: TG [[Worldliness]].

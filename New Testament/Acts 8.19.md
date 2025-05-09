@@ -5,4 +5,4 @@
 [Acts 8:19](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/8.19?lang=eng#p19)
 
 
-[^a]: TG [Priesthood, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng); [Selfishness](https://www.churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng); [Unrighteous Dominion.](https://www.churchofjesuschrist.org/study/scriptures/tg/unrighteous-dominion?lang=eng)
+[^a]: TG [[Priesthood, Power of]]; [[Selfishness]]; [[Unrighteous Dominion]].

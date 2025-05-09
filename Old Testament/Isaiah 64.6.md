@@ -5,5 +5,5 @@
 [Isaiah 64:6](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/64.6?lang=eng#p6)
 
 
-[^a]: TG [Uncleanness.](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng)
-[^b]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^a]: TG [[Uncleanness, Unclean]].
+[^b]: TG [[Filthiness, Filthy]].

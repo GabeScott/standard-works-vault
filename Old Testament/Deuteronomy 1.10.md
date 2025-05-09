@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 132.30|D&C 132:30.]]
-[^b]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^b]: TG [[Seed of Abraham]].

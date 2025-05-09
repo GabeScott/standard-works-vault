@@ -5,4 +5,4 @@
 [2 Peter 1:17](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1.17?lang=eng#p17)
 
 
-[^a]: TG [Witness of the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness-of-the-father?lang=eng)
+[^a]: TG [[Witness of the Father]].

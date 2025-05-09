@@ -7,4 +7,4 @@
 
 [^a]: [[Jeremiah 31.33|Jer. 31:33 (31-34)]]; [[Mormon 5.20|Morm. 5:20]]; [[D&C 45.9|D&C 45:9.]]
 [^b]: [[Job 5.23|Job 5:23.]]
-[^c]: TG [Millennium](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium?lang=eng); [Peace.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
+[^c]: TG [[Millennium, Preparing a People for]]; [[Peace of God]].

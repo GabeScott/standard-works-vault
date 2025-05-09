@@ -5,8 +5,8 @@
 [1 Peter 3:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.8?lang=eng#p8)
 
 
-[^a]: TG [Unity.](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng)
-[^b]: TG [Compassion](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng); [Kindness](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng); [Welfare.](https://www.churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng)
-[^c]: TG [Brotherhood and Sisterhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
+[^a]: TG [[Unity]].
+[^b]: TG [[Compassion]]; [[Kindness]]; [[Welfare]].
+[^c]: TG [[Brotherhood and Sisterhood]].
 [^d]: GR tenderhearted, compassionate.
-[^e]: TG [Courtesy.](https://www.churchofjesuschrist.org/study/scriptures/tg/courtesy?lang=eng)
+[^e]: TG [[Courtesy]].

@@ -5,5 +5,5 @@
 [Moses 6:65](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.65?lang=eng#p65)
 
 
-[^a]: TG [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
+[^a]: TG [[Man, New, Spiritually Reborn]].
 [^b]: [[Mosiah 27.25|Mosiah 27:25]]; [[Alma 5.14|Alma 5:14 (12-15).]]

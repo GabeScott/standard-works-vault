@@ -6,5 +6,5 @@
 
 
 [^a]: [[Leviticus 26.14|Lev. 26:14]]; [[Deuteronomy 28.15|Deut. 28:15]]; [[Alma 5.37|Alma 5:37 (37-38)]]; [[D&C 5.5|D&C 5:5.]]
-[^b]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^b]: TG [[Walking with God]].
 [^c]: [[D&C 41.5|D&C 41:5]]; [[D&C 42.2|42:2]]; [[D&C 130.20|130:20.]]

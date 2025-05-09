@@ -5,5 +5,5 @@
 [Exodus 15:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.3?lang=eng#p3)
 
 
-[^a]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
+[^a]: TG [[War]].
 [^b]: [[Jeremiah 16.21|Jer. 16:21.]]

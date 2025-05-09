@@ -5,4 +5,4 @@
 [Titus 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/titus/2.13?lang=eng#p13)
 
 
-[^a]: TG [Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng)
+[^a]: TG [[Telestial Glory]].

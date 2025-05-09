@@ -5,4 +5,4 @@
 [2 Nephi 27:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p28#p28)
 
 
-[^a]: TG [Earth, Renewal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
+[^a]: TG [[Earth, Renewal of]].

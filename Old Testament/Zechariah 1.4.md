@@ -7,4 +7,4 @@
 
 [^a]: [[Psalms 78.8|Ps. 78:8.]]
 [^b]: [[2 Nephi 27.5|2 Ne. 27:5]]; [[Jacob 4.14|Jacob 4:14]]; [[D&C 136.36|D&C 136:36.]]
-[^c]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^c]: TG [[Hardheartedness, Harden, Hardness]].

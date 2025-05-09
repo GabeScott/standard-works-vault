@@ -5,6 +5,6 @@
 [Alma 39:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39?lang=eng&id=p9#p9)
 
 
-[^a]: [[Proverbs 5.8|Prov. 5:8]]. TG [Carnal Mind](https://www.churchofjesuschrist.org/study/scriptures/tg/carnal-mind?lang=eng); [Chastity](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng); [Covet](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng); [Lust](https://www.churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng).
-[^b]: TG [Self-Mastery.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
+[^a]: [[Proverbs 5.8|Prov. 5:8]]. TG [[Carnal Mind]]; [[Chastity, Chaste]]; [[Covet, Covetousness]]; [[Lust]].
+[^b]: TG [[Self-Mastery]].
 [^c]: [[3 Nephi 12.30|3 Ne. 12:30.]]

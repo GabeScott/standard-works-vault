@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 26.33|2 Ne. 26:33]]; [[Helaman 3.28|Hel. 3:28 (27-30).]]
-[^b]: TG [Uncleanness.](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng)
+[^b]: TG [[Uncleanness, Unclean]].

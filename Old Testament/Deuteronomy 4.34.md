@@ -7,7 +7,7 @@
 
 [^a]: OR attempted.
 [^b]: [[1 Nephi 17.34|1 Ne. 17:34 (33-35).]]
-[^c]: HEB trials, tests. TG [Test](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng).
+[^c]: HEB trials, tests. TG [[Testament]].
 [^d]: [[1 Nephi 17.30|1 Ne. 17:30 (26-32).]]
 [^e]: [[Psalms 136.12|Ps. 136:12.]]
 [^f]: [[Jeremiah 21.5|Jer. 21:5.]]

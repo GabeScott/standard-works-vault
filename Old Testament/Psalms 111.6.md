@@ -5,4 +5,4 @@
 [Psalms 111:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/111.6?lang=eng#p6)
 
 
-[^a]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^a]: TG [[Heathen]].

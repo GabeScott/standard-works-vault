@@ -5,4 +5,4 @@
 [Mosiah 16:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/16?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^a]: TG [[Prophets, Rejection of]].

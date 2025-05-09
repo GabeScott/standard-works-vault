@@ -5,4 +5,4 @@
 [Joseph Smith History 1:44](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.44?lang=eng#p44)
 
 
-[^a]: [[D&C 76.19|D&C 76:19]]. TG [Meditation](https://www.churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng).
+[^a]: [[D&C 76.19|D&C 76:19]]. TG [[Meditation, Meditate]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 1.8|Jer. 1:8.]]
-[^b]: TG [Peer Influence.](https://www.churchofjesuschrist.org/study/scriptures/tg/peer-influence?lang=eng)
+[^b]: TG [[Peer Influence]].
 [^c]: OR sit.

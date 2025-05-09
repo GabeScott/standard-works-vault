@@ -5,8 +5,8 @@
 [Enos 1:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1?lang=eng&id=p27#p27)
 
 
-[^a]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^a]: TG [[Restoration of the Gospel]].
 [^b]: [[2 Nephi 33.6|2 Ne. 33:6.]]
-[^c]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
-[^d]: TG [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
+[^c]: TG [[Mortality]].
+[^d]: TG [[Immortality, Immortal]].
 [^e]: [[Psalms 65.4|Ps. 65:4]]; [[John 14.2|John 14:2 (2-3)]]; [[Ether 12.32|Ether 12:32 (32-34)]]; [[D&C 72.4|D&C 72:4]]; [[D&C 98.18|98:18.]]

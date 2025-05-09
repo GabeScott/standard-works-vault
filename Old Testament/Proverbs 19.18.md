@@ -5,4 +5,4 @@
 [Proverbs 19:18](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.18?lang=eng#p18)
 
 
-[^a]: TG [Chastening.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng)
+[^a]: TG [[Chastening]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Kings 18.13|2 Kgs. 18:13 (11-37).]]
-[^b]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^b]: TG [[Israel, Scattering of]].

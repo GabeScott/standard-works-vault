@@ -5,7 +5,7 @@
 [James 4:8](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.8?lang=eng#p8)
 
 
-[^a]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^a]: TG [[God, Presence of]].
 [^b]: [[Psalms 69.18|Ps. 69:18]]; [[D&C 88.63|D&C 88:63.]]
-[^c]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
-[^d]: TG [Purification](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng); [Purity.](https://www.churchofjesuschrist.org/study/scriptures/tg/purity?lang=eng)
+[^c]: TG [[Repent, Repentance]].
+[^d]: TG [[Purification, Purify, Purifying]]; [[Purity, Pure]].

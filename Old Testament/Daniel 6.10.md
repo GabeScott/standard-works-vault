@@ -7,5 +7,5 @@
 
 [^a]: [[1 Kings 8.48|1 Kgs. 8:48 (44-48)]]; [[Psalms 5.7|Ps. 5:7.]]
 [^b]: [[Alma 34.21|Alma 34:21.]]
-[^c]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
-[^d]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^c]: TG [[Prayer, Pray]].
+[^d]: TG [[Thanksgiving]].

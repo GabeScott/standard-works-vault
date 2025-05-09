@@ -6,6 +6,6 @@
 
 
 [^a]: JST John 1:17-18 (Appendix).
-[^b]: TG [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
-[^d]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^b]: TG [[Law of Moses]].
+[^c]: TG [[Grace]].
+[^d]: TG [[Truth]].

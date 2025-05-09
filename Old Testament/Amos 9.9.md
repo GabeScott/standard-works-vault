@@ -5,6 +5,6 @@
 [Amos 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/9.9?lang=eng#p9)
 
 
-[^a]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
-[^b]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^a]: TG [[Israel, Scattering of]].
+[^b]: TG [[Israel, Ten Lost Tribes of]].
 [^c]: Mal. 3:6.

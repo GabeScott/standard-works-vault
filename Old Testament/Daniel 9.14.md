@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 31.28|Jer. 31:28.]]
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^b]: TG [[Disobedience, Disobey]].

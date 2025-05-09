@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 139.2|Ps. 139:2]]; [[Luke 11.17|Luke 11:17]]; [[John 2.25|John 2:25]]; [[Mosiah 24.12|Mosiah 24:12]]; [[D&C 6.16|D&C 6:16.]]
-[^b]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^b]: TG [[Governments]].

@@ -5,4 +5,4 @@
 [2 Kings 17:8](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.8?lang=eng#p8)
 
 
-[^a]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^a]: TG [[Heathen]].

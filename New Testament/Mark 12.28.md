@@ -5,4 +5,4 @@
 [Mark 12:28](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.28?lang=eng#p28)
 
 
-[^a]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Scribe]].

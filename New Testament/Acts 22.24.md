@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 21.34|Acts 21:34.]]
-[^b]: TG [Cruelty.](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
+[^b]: TG [[Cruelty, Cruel]].

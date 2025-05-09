@@ -5,5 +5,5 @@
 [Acts 7:8](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/7.8?lang=eng#p8)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
-[^b]: TG [Patriarch.](https://www.churchofjesuschrist.org/study/scriptures/tg/patriarch?lang=eng)
+[^a]: TG [[Circumcision]].
+[^b]: TG [[Family, Patriarchal]].

@@ -5,5 +5,5 @@
 [Genesis 39:6](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/39.6?lang=eng#p6)
 
 
-[^a]: TG [Talents.](https://www.churchofjesuschrist.org/study/scriptures/tg/talents?lang=eng)
+[^a]: TG [[Talents]].
 [^b]: [[Genesis 29.17|Gen. 29:17.]]

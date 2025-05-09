@@ -5,5 +5,5 @@
 [Ether 10:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/10?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Industry.](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng)
+[^a]: TG [[Industry, Industrious]].
 [^b]: [[Genesis 34.10|Gen. 34:10 (10-21)]]; [[Mosiah 24.7|Mosiah 24:7]]; 4 Ne. 1:46.

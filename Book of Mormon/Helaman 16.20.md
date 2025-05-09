@@ -5,5 +5,5 @@
 [Helaman 16:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/16?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Traditions of Men.](https://www.churchofjesuschrist.org/study/scriptures/tg/traditions-of-men?lang=eng)
+[^a]: TG [[Traditions of Men]].
 [^b]: [[Alma 30.15|Alma 30:15]]; [[Ether 12.5|Ether 12:5 (5-6, 19).]]

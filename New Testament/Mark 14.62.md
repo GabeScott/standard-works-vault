@@ -5,4 +5,4 @@
 [Mark 14:62](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/14.62?lang=eng#p62)
 
 
-[^a]: TG [Jesus Christ, Son of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
+[^a]: TG [[Jesus Christ, Son of Man]].

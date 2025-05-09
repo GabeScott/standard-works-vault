@@ -5,4 +5,4 @@
 [1 Corinthians 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/1.3?lang=eng#p3)
 
 
-[^a]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^a]: TG [[Peace of God]].

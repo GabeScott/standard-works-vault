@@ -5,4 +5,4 @@
 [Proverbs 3:33](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/3.33?lang=eng#p33)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^a]: TG [[Curse]].

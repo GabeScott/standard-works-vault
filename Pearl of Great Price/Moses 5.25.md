@@ -6,4 +6,4 @@
 
 
 [^a]: [[Helaman 6.27|Hel. 6:27 (26-28).]]
-[^b]: [[Moses 5.36|Moses 5:36]]. TG [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng).
+[^b]: [[Moses 5.36|Moses 5:36]]. TG [[Curse]].

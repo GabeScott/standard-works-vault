@@ -5,4 +5,4 @@
 [Psalms 25:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/25.18?lang=eng#p18)
 
 
-[^a]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
+[^a]: TG [[Pain]].

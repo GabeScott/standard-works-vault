@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Samuel 5.5|2 Sam. 5:5]]; [[1 Chronicles 3.4|1 Chr. 3:4.]]
-[^b]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^b]: TG [[Israel, Judah, People of]].

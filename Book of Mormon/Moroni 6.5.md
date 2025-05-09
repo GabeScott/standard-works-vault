@@ -5,6 +5,6 @@
 [Moroni 6:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/6?lang=eng&id=p5#p5)
 
 
-[^a]: [[Acts 1.14|Acts 1:14 (13-14)]]. TG [Church](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng).
+[^a]: [[Acts 1.14|Acts 1:14 (13-14)]]. TG [[Apostasy of the Early Christian Church]].
 [^b]: [[3 Nephi 24.16|3 Ne. 24:16.]]
 [^c]: 4 Ne. 1:12; [[D&C 88.76|D&C 88:76.]]

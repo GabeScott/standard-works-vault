@@ -5,4 +5,4 @@
 [2 Kings 17:34](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.34?lang=eng#p34)
 
 
-[^a]: [[1 Kings 18.31|1 Kgs. 18:31]]. TG [Israel, Origins of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-origins-of?lang=eng).
+[^a]: [[1 Kings 18.31|1 Kgs. 18:31]]. TG [[Israel, Origins of]].

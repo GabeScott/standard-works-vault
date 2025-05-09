@@ -5,4 +5,4 @@
 [Proverbs 16:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/16.19?lang=eng#p19)
 
 
-[^a]: TG [Contrite Heart](https://www.churchofjesuschrist.org/study/scriptures/tg/contrite-heart?lang=eng); [Poor in Spirit.](https://www.churchofjesuschrist.org/study/scriptures/tg/poor-in-spirit?lang=eng)
+[^a]: TG [[Contrite Heart]]; [[Poor in Spirit]].

@@ -7,4 +7,4 @@
 
 [^a]: [[Ether 9.17|Ether 9:17.]]
 [^b]: [[Exodus 25.4|Ex. 25:4 (4-5)]]; [[1 Nephi 13.7|1 Ne. 13:7 (7-8).]]
-[^c]: TG [Clothing.](https://www.churchofjesuschrist.org/study/scriptures/tg/clothing?lang=eng)
+[^c]: TG [[Clothing]].

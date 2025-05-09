@@ -5,5 +5,5 @@
 [Mark 1:22](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.22?lang=eng#p22)
 
 
-[^a]: TG [Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng); Jesus Christ, [Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng) of.
-[^b]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Authority]]; Jesus Christ, [[Authority]] of.
+[^b]: TG [[Scribe]].

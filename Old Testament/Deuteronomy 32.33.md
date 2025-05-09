@@ -5,5 +5,5 @@
 [Deuteronomy 32:33](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.33?lang=eng#p33)
 
 
-[^a]: TG [Word of Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/word-of-wisdom?lang=eng)
+[^a]: TG [[Word of Wisdom]].
 [^b]: HEB serpents.

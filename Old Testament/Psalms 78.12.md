@@ -5,5 +5,5 @@
 [Psalms 78:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.12?lang=eng#p12)
 
 
-[^a]: TG [Miracle.](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
+[^a]: TG [[Miracle]].
 [^b]: [[Numbers 13.22|Num. 13:22.]]

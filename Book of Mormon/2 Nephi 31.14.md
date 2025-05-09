@@ -5,5 +5,5 @@
 [2 Nephi 31:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p14#p14)
 
 
-[^a]: [[Matthew 10.33|Matt. 10:33 (32-33)]]; [[Romans 1.16|Rom. 1:16 (15-18)]]; 2 Tim. 2:12 (10-15); [[Alma 24.30|Alma 24:30]]; [[D&C 101.5|D&C 101:5 (1-5)]]. TG [Holy Ghost, Unpardonable Sin against](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-unpardonable-sin-against?lang=eng).
+[^a]: [[Matthew 10.33|Matt. 10:33 (32-33)]]; [[Romans 1.16|Rom. 1:16 (15-18)]]; 2 Tim. 2:12 (10-15); [[Alma 24.30|Alma 24:30]]; [[D&C 101.5|D&C 101:5 (1-5)]]. TG [[Holy Ghost, Unpardonable Sin against]].
 [^b]: [[Hebrews 6.4|Heb. 6:4 (4-6)]]; 2 Pet. 2:21.

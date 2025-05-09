@@ -5,6 +5,6 @@
 [Revelation 7:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/7.15?lang=eng#p15)
 
 
-[^a]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^a]: TG [[Genealogy and Temple Work]].
 [^b]: [[Psalms 47.8|Ps. 47:8]]; [[D&C 88.13|D&C 88:13.]]
-[^c]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^c]: TG [[God, Presence of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: Mal. 4:5; [[Helaman 12.25|Hel. 12:25]]; [[3 Nephi 28.31|3 Ne. 28:31.]]
-[^b]: [[Mosiah 16.10|Mosiah 16:10 (1-2, 10-11)]]. TG [Judgment, the Last](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng).
+[^b]: [[Mosiah 16.10|Mosiah 16:10 (1-2, 10-11)]]. TG [[Judgment, the Last]].

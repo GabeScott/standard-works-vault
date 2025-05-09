@@ -5,5 +5,5 @@
 [1 Peter 2:23](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2.23?lang=eng#p23)
 
 
-[^a]: [[Isaiah 53.3|Isa. 53:3 (3-6)]]. TG [Jesus Christ, Trials of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-trials-of?lang=eng); [Retribution](https://www.churchofjesuschrist.org/study/scriptures/tg/retribution?lang=eng); [Reviling](https://www.churchofjesuschrist.org/study/scriptures/tg/reviling?lang=eng).
-[^b]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
+[^a]: [[Isaiah 53.3|Isa. 53:3 (3-6)]]. TG [[Jesus Christ, Trials of]]; [[Retribution]]; [[Reviling, Revile]].
+[^b]: TG [[Commitment]].

@@ -5,4 +5,4 @@
 [Psalms 33:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/33.22?lang=eng#p22)
 
 
-[^a]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
+[^a]: TG [[Hope]].

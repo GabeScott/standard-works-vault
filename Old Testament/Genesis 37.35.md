@@ -7,4 +7,4 @@
 
 [^a]: [[Genesis 46.7|Gen. 46:7.]]
 [^b]: [[Psalms 77.2|Ps. 77:2]]; [[Ether 15.3|Ether 15:3]]; [[Moses 7.44|Moses 7:44.]]
-[^c]: [[Genesis 42.38|Gen. 42:38]]. TG [Mourning](https://www.churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng).
+[^c]: [[Genesis 42.38|Gen. 42:38]]. TG [[Mourning, Mourn]].

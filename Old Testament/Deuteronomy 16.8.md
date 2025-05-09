@@ -5,5 +5,5 @@
 [Deuteronomy 16:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/16.8?lang=eng#p8)
 
 
-[^a]: TG [Bread, Unleavened.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-unleavened?lang=eng)
-[^b]: TG [Solemn Assembly.](https://www.churchofjesuschrist.org/study/scriptures/tg/solemn-assembly?lang=eng)
+[^a]: TG [[Bread, Unleavened]].
+[^b]: TG [[Solemn Assembly]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 7.12|Lev. 7:12.]]
-[^b]: TG [Cheerful.](https://www.churchofjesuschrist.org/study/scriptures/tg/cheerful?lang=eng)
+[^b]: TG [[Cheerful, Cheerfulness]].

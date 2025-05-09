@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 65.6|D&C 65:6]]; [[D&C 76.43|76:43 (40-43).]]
-[^b]: [[D&C 19.2|D&C 19:2]]. TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng).
+[^b]: [[D&C 19.2|D&C 19:2]]. TG [[Jesus Christ, Atonement through]].

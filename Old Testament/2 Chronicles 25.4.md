@@ -5,4 +5,4 @@
 [2 Chronicles 25:4](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/25.4?lang=eng#p4)
 
 
-[^a]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
+[^a]: TG [[Accountability]].

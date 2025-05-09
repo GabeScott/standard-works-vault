@@ -5,5 +5,5 @@
 [Daniel 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.13?lang=eng#p13)
 
 
-[^a]: TG [Paradise.](https://www.churchofjesuschrist.org/study/scriptures/tg/paradise?lang=eng)
+[^a]: TG [[Paradise, Paradisiacal]].
 [^b]: OR rise unto your destiny.

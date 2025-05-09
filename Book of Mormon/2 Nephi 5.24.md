@@ -5,5 +5,5 @@
 [2 Nephi 5:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p24#p24)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
-[^b]: [[Alma 22.28|Alma 22:28]]. TG [Idleness](https://www.churchofjesuschrist.org/study/scriptures/tg/idleness?lang=eng).
+[^a]: TG [[Curse]].
+[^b]: [[Alma 22.28|Alma 22:28]]. TG [[Idleness, Idle, Idler]].

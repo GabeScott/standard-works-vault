@@ -5,4 +5,4 @@
 [2 Nephi 31:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p7#p7)
 
 
-[^a]: [[John 5.30|John 5:30]]. TG [Obedience](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng).
+[^a]: [[John 5.30|John 5:30]]. TG [[Obedience, Obedient, Obey]].

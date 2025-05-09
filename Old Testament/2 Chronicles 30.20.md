@@ -5,4 +5,4 @@
 [2 Chronicles 30:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.20?lang=eng#p20)
 
 
-[^a]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^a]: TG [[Health]].

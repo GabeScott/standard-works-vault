@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 44.1|Isa. 44:1 (1-2), 21]]; [[1 Nephi 20.20|1 Ne. 20:20.]]
-[^b]: TG [Election.](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng)
-[^c]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^b]: TG [[Election, Elect]].
+[^c]: TG [[Governments]].

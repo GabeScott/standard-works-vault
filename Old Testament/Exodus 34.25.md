@@ -6,5 +6,5 @@
 
 
 [^a]: [[Exodus 23.18|Ex. 23:18.]]
-[^b]: TG [Leaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/leaven?lang=eng)
+[^b]: TG [[Leaven]].
 [^c]: [[Exodus 12.10|Ex. 12:10]]; [[Deuteronomy 16.4|Deut. 16:4.]]

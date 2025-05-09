@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 9.41|2 Ne. 9:41]]; [[3 Nephi 14.14|3 Ne. 14:14 (13-14)]]; [[D&C 22.4|D&C 22:4]]; [[D&C 43.7|43:7.]]
-[^b]: TG [Example.](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
+[^b]: TG [[Example, Ensample]].

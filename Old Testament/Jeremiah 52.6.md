@@ -5,5 +5,5 @@
 [Jeremiah 52:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/52.6?lang=eng#p6)
 
 
-[^a]: Lam. 4:4 (4, 8-10); [[Amos 4.6|Amos 4:6]]. TG [Famine](https://www.churchofjesuschrist.org/study/scriptures/tg/famine?lang=eng).
+[^a]: Lam. 4:4 (4, 8-10); [[Amos 4.6|Amos 4:6]]. TG [[Famine]].
 [^b]: OR food.

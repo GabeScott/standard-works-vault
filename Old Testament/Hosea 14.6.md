@@ -5,4 +5,4 @@
 [Hosea 14:6](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/14.6?lang=eng#p6)
 
 
-[^a]: TG [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
+[^a]: TG [[Vineyard of the Lord]].

@@ -7,4 +7,4 @@
 
 [^a]: [[John 17.22|John 17:22 (20-23).]]
 [^b]: [[Romans 14.7|Rom. 14:7 (7-9).]]
-[^c]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^c]: TG [[Faith]].

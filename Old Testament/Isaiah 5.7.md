@@ -5,6 +5,6 @@
 [Isaiah 5:7](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/5.7?lang=eng#p7)
 
 
-[^a]: TG [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
+[^a]: TG [[Vineyard of the Lord]].
 [^b]: OR justice.
 [^c]: IE a riotous or raucous outcry.

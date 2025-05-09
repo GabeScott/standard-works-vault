@@ -5,5 +5,5 @@
 [Ephesians 6:18](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/6.18?lang=eng#p18)
 
 
-[^a]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
-[^b]: TG [Perseverance.](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng)
+[^a]: TG [[Prayer, Pray]].
+[^b]: TG [[Perseverance]].

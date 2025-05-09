@@ -5,4 +5,4 @@
 [Isaiah 2:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/2.18?lang=eng#p18)
 
 
-[^a]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^a]: TG [[Idolatry, Idol]].

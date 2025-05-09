@@ -6,5 +6,5 @@
 
 
 [^a]: [[Acts 14.17|Acts 14:17.]]
-[^b]: TG [God, Eternal Nature of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-eternal-nature-of?lang=eng)
-[^c]: TG [Jesus Christ, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng)
+[^b]: TG [[God, Eternal Nature of]].
+[^c]: TG [[Jesus Christ, Power of]].

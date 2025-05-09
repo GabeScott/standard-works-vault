@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 86.15|Ps. 86:15.]]
-[^b]: TG [Good Works](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng); [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^b]: TG [[Good Works]]; [[God, Justice of]].

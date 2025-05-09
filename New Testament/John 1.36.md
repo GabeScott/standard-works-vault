@@ -5,4 +5,4 @@
 [John 1:36](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1.36?lang=eng#p36)
 
 
-[^a]: TG [Passover.](https://www.churchofjesuschrist.org/study/scriptures/tg/passover?lang=eng)
+[^a]: TG [[Passover]].

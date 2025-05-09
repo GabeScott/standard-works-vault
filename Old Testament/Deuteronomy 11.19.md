@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ephesians 6.4|Eph. 6:4 (1-4).]]
-[^b]: TG [Children](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng); Family, [Children](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng), Responsibilities toward.
+[^b]: TG [[Children]]; Family, [[Children]], Responsibilities toward.

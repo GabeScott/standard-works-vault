@@ -5,6 +5,6 @@
 [3 Nephi 22:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/22?lang=eng&id=p10#p10)
 
 
-[^a]: [[Isaiah 40.4|Isa. 40:4 (4-5)]]. TG [Earth, Renewal of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng).
-[^b]: TG [Israel, Blessings of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng)
+[^a]: [[Isaiah 40.4|Isa. 40:4 (4-5)]]. TG [[Earth, Renewal of]].
+[^b]: TG [[Israel, Blessings of]].
 [^c]: [[Psalms 94.14|Ps. 94:14]]; [[D&C 35.25|D&C 35:25.]]

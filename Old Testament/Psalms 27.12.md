@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 15.19|Matt. 15:19 (19-20)]]; [[Helaman 7.21|Hel. 7:21 (21-22).]]
-[^b]: TG [Cruelty.](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
+[^b]: TG [[Cruelty, Cruel]].

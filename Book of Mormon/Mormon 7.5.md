@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 3.12|2 Ne. 3:12]]; [[3 Nephi 5.23|3 Ne. 5:23.]]
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^b]: TG [[Faith]].
 [^c]: [[Isaiah 25.8|Isa. 25:8]]; [[Mosiah 16.8|Mosiah 16:8 (7-8)]]; [[Alma 24.23|Alma 24:23.]]

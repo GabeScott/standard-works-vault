@@ -5,6 +5,6 @@
 [Mosiah 18:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p18#p18)
 
 
-[^a]: [[Mosiah 23.16|Mosiah 23:16]]. TG [Priesthood, Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng).
-[^b]: TG [Priesthood, History of.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-history-of?lang=eng)
+[^a]: [[Mosiah 23.16|Mosiah 23:16]]. TG [[Priesthood, Authority]].
+[^b]: TG [[Priesthood, History of]].
 [^c]: [[Mosiah 2.4|Mosiah 2:4]]; [[Mosiah 23.14|23:14]]; [[Mosiah 24.4|24:4 (4-8).]]

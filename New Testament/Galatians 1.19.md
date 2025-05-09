@@ -5,6 +5,6 @@
 [Galatians 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/1.19?lang=eng#p19)
 
 
-[^a]: TG [Apostles.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng)
+[^a]: TG [[Apostles]].
 [^b]: [[Acts 21.18|Acts 21:18.]]
-[^c]: TG [Jesus Christ, Family of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-family-of?lang=eng)
+[^c]: TG [[Jesus Christ, Family of]].

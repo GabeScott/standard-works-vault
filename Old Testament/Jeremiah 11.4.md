@@ -5,5 +5,5 @@
 [Jeremiah 11:4](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/11.4?lang=eng#p4)
 
 
-[^a]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^a]: TG [[Obedience, Obedient, Obey]].
 [^b]: [[Alma 5.38|Alma 5:38 (37-41).]]

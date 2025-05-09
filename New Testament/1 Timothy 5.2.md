@@ -5,4 +5,4 @@
 [1 Timothy 5:2](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.2?lang=eng#p2)
 
 
-[^a]: TG [Brotherhood and Sisterhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
+[^a]: TG [[Brotherhood and Sisterhood]].

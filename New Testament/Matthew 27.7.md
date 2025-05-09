@@ -6,4 +6,4 @@
 
 
 [^a]: [[Zechariah 11.13|Zech. 11:13 (12-13).]]
-[^b]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^b]: TG [[Stranger]].

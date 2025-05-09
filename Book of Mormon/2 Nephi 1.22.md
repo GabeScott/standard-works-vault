@@ -5,5 +5,5 @@
 [2 Nephi 1:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/1?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
-[^b]: [[D&C 3.4|D&C 3:4]]. TG [Justice](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng).
+[^a]: TG [[Curse]].
+[^b]: [[D&C 3.4|D&C 3:4]]. TG [[God, Justice of]].

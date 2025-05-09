@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 4.26|Mosiah 4:26 (16, 26).]]
-[^b]: TG [Widows.](https://www.churchofjesuschrist.org/study/scriptures/tg/widows?lang=eng)
+[^b]: TG [[Widows]].

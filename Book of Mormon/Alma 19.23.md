@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 28.7|Mosiah 28:7]]; [[Alma 17.35|Alma 17:35.]]
-[^b]: TG [Family, Love within](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng); [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^b]: TG [[Family, Love within]]; [[Trust in God]].

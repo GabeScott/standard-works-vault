@@ -5,5 +5,5 @@
 [Luke 19:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/19.21?lang=eng#p21)
 
 
-[^a]: TG [Courage](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng); [Fearful.](https://www.churchofjesuschrist.org/study/scriptures/tg/fearful?lang=eng)
+[^a]: TG [[Courage, Courageous]]; [[Fearful]].
 [^b]: GR harsh, ungenerous.

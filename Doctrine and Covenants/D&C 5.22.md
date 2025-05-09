@@ -6,6 +6,6 @@
 
 
 [^a]: [[Helaman 7.7|Hel. 7:7.]]
-[^b]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^b]: TG [[Obedience, Obedient, Obey]].
 [^c]: [[D&C 132.49|D&C 132:49.]]
 [^d]: [[Alma 60.13|Alma 60:13]]; [[D&C 6.30|D&C 6:30]]; [[D&C 135.1|135:1 (1-7).]]

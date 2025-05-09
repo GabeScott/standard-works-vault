@@ -7,5 +7,5 @@
 
 [^a]: [[Genesis 32.12|Gen. 32:12]]; [[D&C 132.30|D&C 132:30 (30-33)]]; [[Abraham 3.14|Abr. 3:14.]]
 [^b]: [[1 Nephi 20.19|1 Ne. 20:19.]]
-[^c]: TG [Man, a Spirit Child of Heavenly Father](https://www.churchofjesuschrist.org/study/scriptures/tg/man-a-spirit-child-of-heavenly-father?lang=eng); [Sons and Daughters of God](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng); [Spirit Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirit-creation?lang=eng)
+[^c]: TG [[Man, a Spirit Child of Heavenly Father]]; [[Sons and Daughters of God]]; [[Spirit Creation]].
 [^d]: [[Joshua 3.10|Josh. 3:10]]; [[Psalms 42.2|Ps. 42:2.]]

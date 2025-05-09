@@ -5,4 +5,4 @@
 [Leviticus 24:16](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/24.16?lang=eng#p16)
 
 
-[^a]: [[John 19.7|John 19:7 (6-8)]]. TG [Blaspheme](https://www.churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng).
+[^a]: [[John 19.7|John 19:7 (6-8)]]. TG [[Blaspheme, Blasphemous, Blasphemy]].

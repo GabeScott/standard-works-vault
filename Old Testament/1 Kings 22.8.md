@@ -5,4 +5,4 @@
 [1 Kings 22:8](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/22.8?lang=eng#p8)
 
 
-[^a]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
+[^a]: TG [[Hate]].

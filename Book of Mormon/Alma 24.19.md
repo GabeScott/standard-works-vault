@@ -5,5 +5,5 @@
 [Alma 24:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/24?lang=eng&id=p19#p19)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
-[^b]: TG [Integrity.](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng)
+[^a]: TG [[Faith]].
+[^b]: TG [[Integrity]].

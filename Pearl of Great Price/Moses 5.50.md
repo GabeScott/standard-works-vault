@@ -5,4 +5,4 @@
 [Moses 5:50](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.50?lang=eng#p50)
 
 
-[^a]: TG [Oath.](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng)
+[^a]: TG [[Oath]].

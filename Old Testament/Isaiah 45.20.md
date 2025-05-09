@@ -6,6 +6,6 @@
 
 
 [^a]: [[Isaiah 46.3|Isa. 46:3.]]
-[^b]: TG [Conversion](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng); [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^b]: TG [[Conversion, Convert]]; [[Israel, Mission of]].
 [^c]: [[Isaiah 44.18|Isa. 44:18 (18-19).]]
 [^d]: [[Isaiah 46.7|Isa. 46:7.]]

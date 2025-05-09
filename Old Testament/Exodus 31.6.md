@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 35.10|Ex. 35:10.]]
-[^b]: TG [Talents.](https://www.churchofjesuschrist.org/study/scriptures/tg/talents?lang=eng)
+[^b]: TG [[Talents]].

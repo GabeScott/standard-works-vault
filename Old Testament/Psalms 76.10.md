@@ -5,4 +5,4 @@
 [Psalms 76:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/76.10?lang=eng#p10)
 
 
-[^a]: TG [Self-Mastery.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
+[^a]: TG [[Self-Mastery]].

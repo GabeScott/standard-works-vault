@@ -5,4 +5,4 @@
 [Judges 17:10](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/17.10?lang=eng#p10)
 
 
-[^a]: TG [Apparel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng)
+[^a]: TG [[Apparel]].

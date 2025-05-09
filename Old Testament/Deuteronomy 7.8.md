@@ -5,6 +5,6 @@
 [Deuteronomy 7:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.8?lang=eng#p8)
 
 
-[^a]: TG [God, Love of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng); [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
-[^b]: TG [Covenants](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng); [Oath.](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng)
+[^a]: TG [[God, Love of]]; [[Love]].
+[^b]: TG [[Covenants]]; [[Oath]].
 [^c]: [[Psalms 107.2|Ps. 107:2.]]

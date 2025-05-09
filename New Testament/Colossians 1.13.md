@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 21.6|D&C 21:6]]; [[D&C 38.11|38:11.]]
-[^b]: TG [Kingdom of God, in Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng)
-[^c]: TG [Jesus Christ, Divine Sonship.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
+[^b]: TG [[Kingdom of God, in Heaven]].
+[^c]: TG [[Jesus Christ, Divine Sonship]].

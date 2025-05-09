@@ -5,5 +5,5 @@
 [Romans 10:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.14?lang=eng#p14)
 
 
-[^a]: TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng); [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^a]: TG [[Apostasy of Israel]]; [[Hypocrisy, Hypocrite]].
 [^b]: [[D&C 42.6|D&C 42:6.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 68.9|Ps. 68:9]]; [[Ezekiel 34.26|Ezek. 34:26.]]
-[^b]: TG [God, Indignation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
+[^b]: TG [[God, Indignation of]].

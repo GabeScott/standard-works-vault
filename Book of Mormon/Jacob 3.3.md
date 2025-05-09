@@ -5,6 +5,6 @@
 [Jacob 3:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/3?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Earth, Curse of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-curse-of?lang=eng)
-[^b]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^a]: TG [[Earth, Curse of]].
+[^b]: TG [[Filthiness, Filthy]].
 [^c]: [[1 Nephi 12.23|1 Ne. 12:23.]]

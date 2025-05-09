@@ -5,5 +5,5 @@
 [Jeremiah 5:26](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/5.26?lang=eng#p26)
 
 
-[^a]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^a]: TG [[Wickedness, Wicked]].
 [^b]: [[D&C 10.13|D&C 10:13.]]

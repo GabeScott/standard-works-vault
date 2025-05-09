@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 11.11|Matt. 11:11 (7-15).]]
-[^b]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^b]: TG [[Light]].

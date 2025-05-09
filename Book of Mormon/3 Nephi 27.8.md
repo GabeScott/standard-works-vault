@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Corinthians 1.12|1 Cor. 1:12 (11-13)]]; [[D&C 115.4|D&C 115:4.]]
-[^b]: TG [Jesus Christ, Head of the Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-head-of-the-church?lang=eng)
+[^b]: TG [[Jesus Christ, Head of the Church]].

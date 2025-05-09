@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 38.7|D&C 38:7 (7-8).]]
-[^b]: TG [Jesus Christ, Savior](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng); [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^b]: TG [[Jesus Christ, Savior]]; [[Salvation for the Dead]].

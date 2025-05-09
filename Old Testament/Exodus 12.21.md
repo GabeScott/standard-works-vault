@@ -7,5 +7,5 @@
 
 [^a]: OR Select.
 [^b]: [[Alma 34.14|Alma 34:14 (9-14).]]
-[^c]: TG [Family, Patriarchal.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-patriarchal?lang=eng)
-[^d]: IE passover lamb. TG [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng); [Passover](https://www.churchofjesuschrist.org/study/scriptures/tg/passover?lang=eng).
+[^c]: TG [[Family, Patriarchal]].
+[^d]: IE passover lamb. TG [[Jesus Christ, Types of, in Anticipation]]; [[Passover]].

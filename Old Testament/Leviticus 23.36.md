@@ -5,4 +5,4 @@
 [Leviticus 23:36](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.36?lang=eng#p36)
 
 
-[^a]: TG [Solemn Assembly.](https://www.churchofjesuschrist.org/study/scriptures/tg/solemn-assembly?lang=eng)
+[^a]: TG [[Solemn Assembly]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mormon 5.14|Morm. 5:14 (13-14).]]
-[^b]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^b]: TG [[Israel, Ten Lost Tribes of]].

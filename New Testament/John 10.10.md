@@ -5,6 +5,6 @@
 [John 10:10](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.10?lang=eng#p10)
 
 
-[^a]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^a]: TG [[Stealing, Stolen]].
 [^b]: [[D&C 66.2|D&C 66:2.]]
-[^c]: TG [Abundant Life](https://www.churchofjesuschrist.org/study/scriptures/tg/abundant-life?lang=eng); [Happiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng)
+[^c]: TG [[Abundant Life]]; [[Happiness, Happy]].

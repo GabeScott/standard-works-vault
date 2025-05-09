@@ -5,4 +5,4 @@
 [1 Timothy 5:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/5.8?lang=eng#p8)
 
 
-[^a]: TG [Family, Children, Responsibilities toward](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng); [Family, Managing Finances in](https://www.churchofjesuschrist.org/study/scriptures/tg/family-managing-finances-in?lang=eng); [Marriage, Husbands.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-husbands?lang=eng)
+[^a]: TG [[Family, Children, Responsibilities toward]]; [[Family, Managing Finances in]]; [[Marriage, Husbands]].

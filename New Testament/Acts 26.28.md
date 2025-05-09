@@ -5,5 +5,5 @@
 [Acts 26:28](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/26.28?lang=eng#p28)
 
 
-[^a]: TG [Missionary Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng)
+[^a]: TG [[Missionary Work]].
 [^b]: [[Acts 11.26|Acts 11:26.]]

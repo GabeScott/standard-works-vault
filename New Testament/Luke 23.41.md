@@ -5,4 +5,4 @@
 [Luke 23:41](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.41?lang=eng#p41)
 
 
-[^a]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^a]: TG [[Reward]].

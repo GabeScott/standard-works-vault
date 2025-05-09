@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 7.28|Matt. 7:28.]]
-[^b]: TG [God, Wisdom of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-wisdom-of?lang=eng); [Jesus Christ, Teaching Mode of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-teaching-mode-of?lang=eng)
+[^b]: TG [[God, Wisdom of]]; [[Jesus Christ, Teaching Mode of]].

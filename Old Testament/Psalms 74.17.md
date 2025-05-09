@@ -5,4 +5,4 @@
 [Psalms 74:17](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/74.17?lang=eng#p17)
 
 
-[^a]: TG [Nature, Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/nature-earth?lang=eng)
+[^a]: TG [[Nature, Earth]].

@@ -6,5 +6,5 @@
 
 
 [^a]: Septuagint: them.
-[^b]: TG [Walking with God.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
+[^b]: TG [[Walking with God]].
 [^c]: HEB shepherded; i.e., who was my shepherd.

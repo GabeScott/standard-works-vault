@@ -7,4 +7,4 @@
 
 [^a]: [[Amos 9.1|Amos 9:1.]]
 [^b]: [[Ecclesiastes 9.11|Eccl. 9:11.]]
-[^c]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^c]: TG [[Deliver, Deliverance]].

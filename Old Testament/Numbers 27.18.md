@@ -7,5 +7,5 @@
 
 [^a]: [[Deuteronomy 3.21|Deut. 3:21.]]
 [^b]: [[Numbers 11.28|Num. 11:28]]; [[Joshua 14.1|Josh. 14:1.]]
-[^c]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
-[^d]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
+[^c]: TG [[God, Spirit of]].
+[^d]: TG [[Church Organization]].

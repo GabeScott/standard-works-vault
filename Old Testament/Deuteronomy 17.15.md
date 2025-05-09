@@ -6,5 +6,5 @@
 
 
 [^a]: OR You may indeed.
-[^b]: TG [Governments](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng); [Kings, Earthly.](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
+[^b]: TG [[Governments]]; [[Kings, Earthly]].
 [^c]: OR alien.

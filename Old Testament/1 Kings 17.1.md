@@ -7,5 +7,5 @@
 
 [^a]: HEB Eliyahu or Eliyah; Greek: Helias (Elias). Matt. 17:3 (1-4); [[Luke 4.25|Luke 4:25]]; [[D&C 110.13|D&C 110:13 (13-16).]]
 [^b]: OR from Tishbe in Gilead.
-[^c]: TG [Drought](https://www.churchofjesuschrist.org/study/scriptures/tg/drought?lang=eng); [Famine.](https://www.churchofjesuschrist.org/study/scriptures/tg/famine?lang=eng)
+[^c]: TG [[Drought]]; [[Famine]].
 [^d]: [[Helaman 10.5|Hel. 10:5 (3-7).]]

@@ -5,4 +5,4 @@
 [1 Nephi 22:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p31#p31)
 
 
-[^a]: [[Matthew 19.17|Matt. 19:17]]. TG [Commandments of God](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng).
+[^a]: [[Matthew 19.17|Matt. 19:17]]. TG [[Commandments of God]].

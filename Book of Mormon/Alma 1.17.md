@@ -5,5 +5,5 @@
 [Alma 1:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Honesty](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng); [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^a]: TG [[Honesty]]; [[Lying, Liar, Lie]].
 [^b]: [[Alma 30.7|Alma 30:7 (7-12)]]; A of F 1:11.

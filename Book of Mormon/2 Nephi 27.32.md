@@ -5,6 +5,6 @@
 [2 Nephi 27:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p32#p32)
 
 
-[^a]: [[Luke 11.54|Luke 11:54 (53-54)]]; [[Acts 22.22|Acts 22:22]]. TG [Offense](https://www.churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng).
+[^a]: [[Luke 11.54|Luke 11:54 (53-54)]]; [[Acts 22.22|Acts 22:22]]. TG [[Offense, Offend, Offender]].
 [^b]: [[Amos 5.10|Amos 5:10 (7, 10).]]
 [^c]: [[2 Nephi 28.16|2 Ne. 28:16.]]

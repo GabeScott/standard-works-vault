@@ -6,4 +6,4 @@
 
 
 [^a]: Lam. 2:13.
-[^b]: TG [Laughter.](https://www.churchofjesuschrist.org/study/scriptures/tg/laughter?lang=eng)
+[^b]: TG [[Laughter, Laugh]].

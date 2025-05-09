@@ -5,5 +5,5 @@
 [Genesis 32:10](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/32.10?lang=eng#p10)
 
 
-[^a]: OR I am unworthy of all the mercies … TG [Worthiness](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng).
+[^a]: OR I am unworthy of all the mercies … TG [[Worthiness, Worthy]].
 [^b]: [[Genesis 24.27|Gen. 24:27]]; [[1 Nephi 1.20|1 Ne. 1:20]]; [[Alma 34.38|Alma 34:38]]; [[D&C 46.15|D&C 46:15.]]

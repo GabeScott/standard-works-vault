@@ -5,4 +5,4 @@
 [Ezekiel 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/3.12?lang=eng#p12)
 
 
-[^a]: TG [God, Spirit of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng); [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
+[^a]: TG [[God, Spirit of]]; [[Guidance, Divine]].

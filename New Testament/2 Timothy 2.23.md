@@ -7,4 +7,4 @@
 
 [^a]: [[Titus 3.9|Titus 3:9.]]
 [^b]: [[D&C 19.31|D&C 19:31 (29-31).]]
-[^c]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
+[^c]: TG [[Strife]].

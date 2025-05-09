@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 25.14|Alma 25:14]]; [[Alma 26.32|26:32.]]
-[^b]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^b]: TG [[Purification, Purify, Purifying]].

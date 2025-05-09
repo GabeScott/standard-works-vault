@@ -6,5 +6,5 @@
 
 
 [^a]: IE It is from the lineage of Jacob that the Messiah comes.
-[^b]: TG [Jesus Christ, Good Shepherd](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng); [Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)
-[^c]: [[D&C 50.44|D&C 50:44]]. TG [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng); [Rock](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng).
+[^b]: TG [[Jesus Christ, Good Shepherd]]; [[Shepherd]].
+[^c]: [[D&C 50.44|D&C 50:44]]. TG [[Jesus Christ, Prophecies about]]; [[Rock]].

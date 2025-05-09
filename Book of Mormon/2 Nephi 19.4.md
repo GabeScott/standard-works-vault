@@ -6,4 +6,4 @@
 
 
 [^a]: IE Israel, the nation mentioned in v. 3.
-[^b]: TG [Oppression.](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng)
+[^b]: TG [[Oppression, Oppress]].

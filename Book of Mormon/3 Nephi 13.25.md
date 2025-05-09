@@ -6,6 +6,6 @@
 
 
 [^a]: [[Matthew 6.25|Matt. 6:25]]; [[3 Nephi 12.1|3 Ne. 12:1]]; [[3 Nephi 15.11|15:11.]]
-[^b]: TG [Church Organization](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng); [Delegation of Responsibility.](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng)
+[^b]: TG [[Church Organization]]; [[Delegation of Responsibility]].
 [^c]: [[Alma 31.37|Alma 31:37]]; [[D&C 84.81|D&C 84:81 (79-85).]]
 [^d]: [[Job 27.16|Job 27:16 (16-17).]]

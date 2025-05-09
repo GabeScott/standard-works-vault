@@ -7,4 +7,4 @@
 
 [^a]: 1 Jn. 4:10.
 [^b]: [[2 Corinthians 1.4|2 Cor. 1:4]]; Philip. 3:10.
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^c]: TG [[Grace]].

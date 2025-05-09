@@ -5,4 +5,4 @@
 [Mosiah 11:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p26#p26)
 
 
-[^a]: TG [Prophets, Rejection of](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng); [Protection, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng)
+[^a]: TG [[Prophets, Rejection of]]; [[Protection, Divine]].

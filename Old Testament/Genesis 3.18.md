@@ -5,4 +5,4 @@
 [Genesis 3:18](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.18?lang=eng#p18)
 
 
-[^a]: TG [Opposition.](https://www.churchofjesuschrist.org/study/scriptures/tg/opposition?lang=eng)
+[^a]: TG [[Opposition]].

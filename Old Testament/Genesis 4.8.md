@@ -5,4 +5,4 @@
 [Genesis 4:8](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/4.8?lang=eng#p8)
 
 
-[^a]: TG [Martyrdom](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng); [Murder.](https://www.churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng)
+[^a]: TG [[Martyrdom]]; [[Murder, Murderer]].

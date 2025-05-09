@@ -5,4 +5,4 @@
 [Helaman 3:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/3?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Skill.](https://www.churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng)
+[^a]: TG [[Skill]].

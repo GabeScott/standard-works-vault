@@ -6,5 +6,5 @@
 
 
 [^a]: HEB sanctify.
-[^b]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
-[^c]: TG [Family, Patriarchal.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-patriarchal?lang=eng)
+[^b]: TG [[Liberty]].
+[^c]: TG [[Family, Patriarchal]].

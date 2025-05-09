@@ -5,5 +5,5 @@
 [Proverbs 9:8](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/9.8?lang=eng#p8)
 
 
-[^a]: TG [Chastening.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng)
+[^a]: TG [[Chastening]].
 [^b]: [[Psalms 141.5|Ps. 141:5.]]

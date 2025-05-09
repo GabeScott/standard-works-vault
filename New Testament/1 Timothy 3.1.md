@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Timothy 1.15|1 Tim. 1:15.]]
-[^b]: TG [Bishop.](https://www.churchofjesuschrist.org/study/scriptures/tg/bishop?lang=eng)
+[^b]: TG [[Bishop]].

@@ -5,6 +5,6 @@
 [2 Nephi 2:7](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p7#p7)
 
 
-[^a]: TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng); [Sacrifice](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng); Self-[Sacrifice](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng).
+[^a]: TG [[Jesus Christ, Atonement through]]; [[Self-Sacrifice]]; Self-[[Self-Sacrifice]].
 [^b]: [[1 Samuel 2.2|1 Sam. 2:2 (1-10).]]
 [^c]: [[Romans 10.4|Rom. 10:4.]]

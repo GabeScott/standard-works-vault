@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 31.5|Alma 31:5.]]
 [^b]: [[Matthew 12.41|Matt. 12:41.]]
-[^c]: TG [Fast, Fasting.](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
+[^c]: TG [[Fast, Fasting]].

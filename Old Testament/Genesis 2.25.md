@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 3.7|Gen. 3:7]]; [[2 Nephi 9.14|2 Ne. 9:14]]; [[Moses 4.13|Moses 4:13 (13, 16-17).]]
-[^b]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^b]: TG [[Shame]].

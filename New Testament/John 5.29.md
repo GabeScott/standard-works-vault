@@ -7,6 +7,6 @@
 
 [^a]: [[D&C 29.26|D&C 29:26.]]
 [^b]: JST John 5:29 … they who have done good, in the resurrection of the just; and they who have done evil, in the resurrection of the unjust.
-[^c]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
-[^d]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
-[^e]: TG [Damnation](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng); [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^c]: TG [[Jesus Christ, Resurrection]].
+[^d]: TG [[Sin]].
+[^e]: TG [[Damnation, Damned]]; [[Hell]].

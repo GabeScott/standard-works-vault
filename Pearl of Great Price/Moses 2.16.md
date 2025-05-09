@@ -5,5 +5,5 @@
 [Moses 2:16](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.16?lang=eng#p16)
 
 
-[^a]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^a]: TG [[Light]].
 [^b]: [[Genesis 1.16|Gen. 1:16.]]

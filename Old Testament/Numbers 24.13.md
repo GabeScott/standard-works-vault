@@ -5,5 +5,5 @@
 [Numbers 24:13](https://www.churchofjesuschrist.org/study/scriptures/ot/num/24.13?lang=eng#p13)
 
 
-[^a]: TG [Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng)
+[^a]: TG [[Mind, Minded]].
 [^b]: [[Ezekiel 2.7|Ezek. 2:7 (6-8).]]

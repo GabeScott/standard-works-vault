@@ -5,6 +5,6 @@
 [1 Corinthians 9:17](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.17?lang=eng#p17)
 
 
-[^a]: TG [Initiative.](https://www.churchofjesuschrist.org/study/scriptures/tg/initiative?lang=eng)
-[^b]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
-[^c]: [[Galatians 2.7|Gal. 2:7]]. TG [Dispensations](https://www.churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng).
+[^a]: TG [[Initiative]].
+[^b]: TG [[Reward]].
+[^c]: [[Galatians 2.7|Gal. 2:7]]. TG [[Dispensations]].

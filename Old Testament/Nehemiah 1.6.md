@@ -5,4 +5,4 @@
 [Nehemiah 1:6](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/1.6?lang=eng#p6)
 
 
-[^a]: TG [Confession.](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng)
+[^a]: TG [[Confession]].

@@ -5,6 +5,6 @@
 [Abraham 5:21](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/5.21?lang=eng#p21)
 
 
-[^a]: TG [Language.](https://www.churchofjesuschrist.org/study/scriptures/tg/language?lang=eng)
+[^a]: TG [[Language]].
 [^b]: [[Enos 1.21|Enos 1:21]]; [[Ether 9.18|Ether 9:18.]]
 [^c]: [[Abraham 5.14|Abr. 5:14.]]

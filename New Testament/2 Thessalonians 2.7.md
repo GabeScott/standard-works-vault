@@ -6,6 +6,6 @@
 
 
 [^a]: JST 2 Thes. 2:7-9 (Appendix).
-[^b]: TG [Conspiracy](https://www.churchofjesuschrist.org/study/scriptures/tg/conspiracy?lang=eng); [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
+[^b]: TG [[Conspiracy]]; [[Secret Combinations]].
 [^c]: GR lawlessness.
 [^d]: GR he who now possesses, holds in firm grasp, restrains.

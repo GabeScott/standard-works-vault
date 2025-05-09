@@ -6,6 +6,6 @@
 
 
 [^a]: [[Luke 15.4|Luke 15:4]]; [[Luke 19.10|19:10.]]
-[^b]: TG [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
+[^b]: TG [[Sickness, Sick]].
 [^c]: [[Isaiah 10.16|Isa. 10:16.]]
 [^d]: [[Jeremiah 10.24|Jer. 10:24.]]

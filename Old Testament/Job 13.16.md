@@ -5,4 +5,4 @@
 [Job 13:16](https://www.churchofjesuschrist.org/study/scriptures/ot/job/13.16?lang=eng#p16)
 
 
-[^a]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^a]: TG [[Hypocrisy, Hypocrite]].

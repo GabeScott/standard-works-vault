@@ -5,5 +5,5 @@
 [Jeremiah 31:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/31.6?lang=eng#p6)
 
 
-[^a]: TG [Watchman.](https://www.churchofjesuschrist.org/study/scriptures/tg/watchman?lang=eng)
-[^b]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^a]: TG [[Watchman, Watchmen]].
+[^b]: TG [[Zion, Sion]].

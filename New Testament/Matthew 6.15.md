@@ -5,4 +5,4 @@
 [Matthew 6:15](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6.15?lang=eng#p15)
 
 
-[^a]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^a]: TG [[Forgive, Forgiveness]].

@@ -5,5 +5,5 @@
 [Mark 10:7](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/10.7?lang=eng#p7)
 
 
-[^a]: TG [Marriage, Husbands.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-husbands?lang=eng)
-[^b]: TG [Marriage, Wives.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-wives?lang=eng)
+[^a]: TG [[Marriage, Husbands]].
+[^b]: TG [[Marriage, Wives]].

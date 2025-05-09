@@ -6,4 +6,4 @@
 
 
 [^a]: GR certificate of divorce.
-[^b]: TG [Divorce.](https://www.churchofjesuschrist.org/study/scriptures/tg/divorce?lang=eng)
+[^b]: TG [[Divorce, Divorcement]].

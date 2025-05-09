@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 3.12|D&C 3:12.]]
-[^b]: TG [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
-[^c]: TG [Book of Mormon.](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-mormon?lang=eng)
+[^b]: TG [[Mercy, Merciful]].
+[^c]: TG [[Book of Mormon]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hebrews 3.7|Heb. 3:7.]]
-[^b]: TG [Holy Ghost, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng); [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
+[^b]: TG [[Holy Ghost, Mission of]]; [[Witness, Witnesses]].

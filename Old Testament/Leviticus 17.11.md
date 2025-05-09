@@ -6,6 +6,6 @@
 
 
 [^a]: [[Genesis 9.4|Gen. 9:4.]]
-[^b]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
-[^c]: TG [Blood, Symbolism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng)
-[^d]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^b]: TG [[Mortality]].
+[^c]: TG [[Blood, Symbolism of]].
+[^d]: TG [[Jesus Christ, Atonement through]].

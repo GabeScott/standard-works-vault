@@ -6,6 +6,6 @@
 
 
 [^a]: [[Hosea 5.13|Hosea 5:13.]]
-[^b]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^b]: TG [[Shame]].
 [^c]: [[Jeremiah 48.13|Jer. 48:13.]]
 [^d]: [[Hosea 11.6|Hosea 11:6 (5-7).]]

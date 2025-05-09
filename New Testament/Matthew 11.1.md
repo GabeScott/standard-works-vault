@@ -5,4 +5,4 @@
 [Matthew 11:1](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/11.1?lang=eng#p1)
 
 
-[^a]: TG [Missionary Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng)
+[^a]: TG [[Missionary Work]].

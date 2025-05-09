@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 19.26|Mosiah 19:26.]]
-[^b]: TG [Drunkenness.](https://www.churchofjesuschrist.org/study/scriptures/tg/drunkenness?lang=eng)
+[^b]: TG [[Drunkenness]].

@@ -5,5 +5,5 @@
 [Genesis 49:25](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/49.25?lang=eng#p25)
 
 
-[^a]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
-[^b]: TG [Birth Control.](https://www.churchofjesuschrist.org/study/scriptures/tg/birth-control?lang=eng)
+[^a]: TG [[God, Power of]].
+[^b]: TG [[Birth Control]].

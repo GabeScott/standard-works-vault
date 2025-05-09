@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 13.28|Alma 13:28.]]
-[^b]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^b]: TG [[Bondage, Spiritual]].

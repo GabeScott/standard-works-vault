@@ -5,4 +5,4 @@
 [Revelation 8:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/8.8?lang=eng#p8)
 
 
-[^a]: TG [Blood, Symbolism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng)
+[^a]: TG [[Blood, Symbolism of]].

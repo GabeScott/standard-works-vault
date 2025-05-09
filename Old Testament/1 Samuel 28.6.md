@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Samuel 14.37|1 Sam. 14:37]]; [[Mosiah 11.24|Mosiah 11:24 (23-24)]]; [[D&C 101.7|D&C 101:7 (7-8).]]
-[^b]: TG [Dream.](https://www.churchofjesuschrist.org/study/scriptures/tg/dream?lang=eng)
-[^c]: TG [Urim and Thummim.](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng)
+[^b]: TG [[Dream]].
+[^c]: TG [[Urim and Thummim]].

@@ -7,5 +7,5 @@
 
 [^a]: [[2 Nephi 4.31|2 Ne. 4:31 (31-32).]]
 [^b]: [[Psalms 30.3|Ps. 30:3.]]
-[^c]: TG [Damnation](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng); [Hell](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng); [Spirits in Prison.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-in-prison?lang=eng)
-[^d]: TG [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
+[^c]: TG [[Damnation, Damned]]; [[Hell]]; [[Spirits in Prison]].
+[^d]: TG [[Jesus Christ, Resurrection]].

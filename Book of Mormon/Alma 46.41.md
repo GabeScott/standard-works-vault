@@ -5,5 +5,5 @@
 [Alma 46:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p41#p41)
 
 
-[^a]: TG [Old Age.](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
+[^a]: TG [[Old Age]].
 [^b]: [[Revelation 14.13|Rev. 14:13.]]

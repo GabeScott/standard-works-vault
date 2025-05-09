@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ezekiel 44.2|Ezek. 44:2.]]
-[^b]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^b]: TG [[Genealogy and Temple Work]].
 [^c]: OR which faces.

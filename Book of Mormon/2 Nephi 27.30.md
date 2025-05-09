@@ -5,5 +5,5 @@
 [2 Nephi 27:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/27?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
+[^a]: TG [[Meek, Meekness]].
 [^b]: [[D&C 101.36|D&C 101:36.]]

@@ -5,5 +5,5 @@
 [Matthew 5:37](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/5.37?lang=eng#p37)
 
 
-[^a]: TG [Communication.](https://www.churchofjesuschrist.org/study/scriptures/tg/communication?lang=eng)
+[^a]: TG [[Communication]].
 [^b]: GR from the evil one.

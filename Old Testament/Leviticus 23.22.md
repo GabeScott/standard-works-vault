@@ -5,4 +5,4 @@
 [Leviticus 23:22](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/23.22?lang=eng#p22)
 
 
-[^a]: TG [Poor](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng); [Welfare.](https://www.churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng)
+[^a]: TG [[Poor]]; [[Welfare]].

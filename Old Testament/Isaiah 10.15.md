@@ -6,5 +6,5 @@
 
 
 [^a]: All the metaphors in this verse ask the same question: Can man (e.g., the Assyrian king) prosper against God?
-[^b]: TG [Boast.](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng)
+[^b]: TG [[Boast, Boasting]].
 [^c]: HEB wields, moves.

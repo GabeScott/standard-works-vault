@@ -6,5 +6,5 @@
 
 
 [^a]: [[Exodus 29.1|Ex. 29:1 (1-46)]]; [[Numbers 35.25|Num. 35:25.]]
-[^b]: TG [Priesthood, Aaronic.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-aaronic?lang=eng)
+[^b]: TG [[Priesthood, Aaronic]].
 [^c]: HEB (literally) whose hand is filled; i.e., who is equipped or authorized.

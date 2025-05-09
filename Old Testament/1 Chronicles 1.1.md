@@ -5,4 +5,4 @@
 [1 Chronicles 1:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/1.1?lang=eng#p1)
 
 
-[^a]: TG [Adam.](https://www.churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng)
+[^a]: TG [[Adam]].

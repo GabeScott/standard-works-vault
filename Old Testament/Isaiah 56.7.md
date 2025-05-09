@@ -6,8 +6,8 @@
 
 
 [^a]: [[Ezekiel 20.40|Ezek. 20:40.]]
-[^b]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
-[^c]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^b]: TG [[Genealogy and Temple Work]].
+[^c]: TG [[Prayer, Pray]].
 [^d]: [[Isaiah 60.7|Isa. 60:7]]; Mal. 3:4.
 [^e]: [[Luke 19.46|Luke 19:46.]]
 [^f]: [[Alma 19.36|Alma 19:36]]; [[D&C 38.16|D&C 38:16.]]

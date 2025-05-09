@@ -6,6 +6,6 @@
 
 
 [^a]: [[Proverbs 5.4|Prov. 5:4.]]
-[^b]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
+[^b]: TG [[Woman, Women]].
 [^c]: [[1 Nephi 22.15|1 Ne. 22:15 (15-17).]]
 [^d]: [[Proverbs 2.19|Prov. 2:19.]]

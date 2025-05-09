@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 15.17|Prov. 15:17.]]
-[^b]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
+[^b]: TG [[Strife]].

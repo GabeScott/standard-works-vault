@@ -5,7 +5,7 @@
 [Isaiah 54:5](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/54.5?lang=eng#p5)
 
 
-[^a]: [[Jeremiah 51.5|Jer. 51:5]]; Lam. 1:1; [[Revelation 19.7|Rev. 19:7]]. TG [Abrahamic Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng).
-[^b]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
-[^c]: TG [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
+[^a]: [[Jeremiah 51.5|Jer. 51:5]]; Lam. 1:1; [[Revelation 19.7|Rev. 19:7]]. TG [[Abrahamic Covenant]].
+[^b]: TG [[Jesus Christ, Jehovah]].
+[^c]: TG [[Jesus Christ, Redeemer]].
 [^d]: [[Mosiah 15.1|Mosiah 15:1 (1-4).]]

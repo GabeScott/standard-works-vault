@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 3.7|Prov. 3:7 (5-7)]]; [[2 Nephi 28.15|2 Ne. 28:15.]]
-[^b]: TG [Prudence.](https://www.churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
+[^b]: TG [[Prudence, Prudent]].

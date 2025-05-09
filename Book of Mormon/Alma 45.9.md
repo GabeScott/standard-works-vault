@@ -5,4 +5,4 @@
 [Alma 45:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/45?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Prophecy.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
+[^a]: TG [[Prophecy]].

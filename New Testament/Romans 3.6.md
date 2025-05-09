@@ -6,4 +6,4 @@
 
 
 [^a]: GR May it not be!
-[^b]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^b]: TG [[Jesus Christ, Judge]].

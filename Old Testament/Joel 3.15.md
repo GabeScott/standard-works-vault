@@ -5,5 +5,5 @@
 [Joel 3:15](https://www.churchofjesuschrist.org/study/scriptures/ot/joel/3.15?lang=eng#p15)
 
 
-[^a]: TG [Last Days](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng); [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
+[^a]: TG [[Last Days]]; [[World, End of]].
 [^b]: [[2 Nephi 23.10|2 Ne. 23:10.]]

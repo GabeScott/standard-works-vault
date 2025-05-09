@@ -6,5 +6,5 @@
 
 
 [^a]: [[Jeremiah 17.15|Jer. 17:15.]]
-[^b]: TG [Haste.](https://www.churchofjesuschrist.org/study/scriptures/tg/haste?lang=eng)
-[^c]: TG [Sign Seekers.](https://www.churchofjesuschrist.org/study/scriptures/tg/sign-seekers?lang=eng)
+[^b]: TG [[Haste, Hasten, Hasty]].
+[^c]: TG [[Sign Seekers]].

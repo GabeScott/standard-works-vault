@@ -5,5 +5,5 @@
 [Romans 5:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.19?lang=eng#p19)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
-[^b]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].
+[^b]: TG [[Obedience, Obedient, Obey]].

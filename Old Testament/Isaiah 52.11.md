@@ -8,5 +8,5 @@
 [^a]: [[D&C 38.42|D&C 38:42.]]
 [^b]: 2 Tim. 2:21.
 [^c]: [[Isaiah 48.20|Isa. 48:20]]; [[2 Corinthians 6.17|2 Cor. 6:17 (14-17)]]; [[Revelation 18.4|Rev. 18:4.]]
-[^d]: TG [Separation.](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng)
-[^e]: TG [Chastity](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng); [Priesthood, Qualifying for](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-qualifying-for?lang=eng); [Purity.](https://www.churchofjesuschrist.org/study/scriptures/tg/purity?lang=eng)
+[^d]: TG [[Separation, Separate]].
+[^e]: TG [[Chastity, Chaste]]; [[Priesthood, Qualifying for]]; [[Purity, Pure]].

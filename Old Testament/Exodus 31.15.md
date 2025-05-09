@@ -5,5 +5,5 @@
 [Exodus 31:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/31.15?lang=eng#p15)
 
 
-[^a]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^a]: TG [[Restoration of the Gospel]].
 [^b]: [[Exodus 35.2|Ex. 35:2]]; [[Mosiah 13.18|Mosiah 13:18 (16-19)]]; [[Moses 3.3|Moses 3:3]]; [[Abraham 5.3|Abr. 5:3.]]

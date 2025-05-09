@@ -8,4 +8,4 @@
 [^a]: [[Numbers 6.25|Num. 6:25 (23-27).]]
 [^b]: [[Psalms 4.6|Ps. 4:6.]]
 [^c]: Dan. 9:17.
-[^d]: TG [Transfiguration.](https://www.churchofjesuschrist.org/study/scriptures/tg/transfiguration?lang=eng)
+[^d]: TG [[Transfiguration, Transfigured]].

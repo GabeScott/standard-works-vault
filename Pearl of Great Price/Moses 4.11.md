@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 3.5|Gen. 3:5 (3-6)]]; [[D&C 76.12|D&C 76:12 (12, 19)]]; [[Moses 5.10|Moses 5:10.]]
-[^b]: [[Alma 12.31|Alma 12:31]]. TG [Knowledge](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng).
+[^b]: [[Alma 12.31|Alma 12:31]]. TG [[Knowledge]].

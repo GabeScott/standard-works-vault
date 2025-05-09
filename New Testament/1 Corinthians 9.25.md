@@ -5,7 +5,7 @@
 [1 Corinthians 9:25](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/9.25?lang=eng#p25)
 
 
-[^a]: 2 Tim. 2:5. TG [Self-Mastery](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng).
-[^b]: TG [Temperance.](https://www.churchofjesuschrist.org/study/scriptures/tg/temperance?lang=eng)
-[^c]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
+[^a]: 2 Tim. 2:5. TG [[Self-Mastery]].
+[^b]: TG [[Temperance, Temperate]].
+[^c]: TG [[Reward]].
 [^d]: [[1 Peter 1.4|1 Pet. 1:4 (1-16).]]

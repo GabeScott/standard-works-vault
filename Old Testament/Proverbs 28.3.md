@@ -5,4 +5,4 @@
 [Proverbs 28:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.3?lang=eng#p3)
 
 
-[^a]: TG [Oppression.](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng)
+[^a]: TG [[Oppression, Oppress]].

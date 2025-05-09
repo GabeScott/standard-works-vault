@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 19.19|3 Ne. 19:19 (19, 27).]]
-[^b]: TG [Jesus Christ, Relationships with the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
+[^b]: TG [[Jesus Christ, Relationships with the Father]].

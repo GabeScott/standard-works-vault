@@ -5,5 +5,5 @@
 [Proverbs 19:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/19.22?lang=eng#p22)
 
 
-[^a]: TG [Kindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
-[^b]: TG [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^a]: TG [[Kindness]].
+[^b]: TG [[Lying, Liar, Lie]].

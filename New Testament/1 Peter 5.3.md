@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 121.41|D&C 121:41 (41-42).]]
-[^b]: TG [Example.](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
+[^b]: TG [[Example, Ensample]].

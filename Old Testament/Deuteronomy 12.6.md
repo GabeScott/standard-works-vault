@@ -6,7 +6,7 @@
 
 
 [^a]: [[Ezra 3.2|Ezra 3:2.]]
-[^b]: TG [Tithing.](https://www.churchofjesuschrist.org/study/scriptures/tg/tithing?lang=eng)
+[^b]: TG [[Tithing]].
 [^c]: HEB given contributions (also vv. 11, 17).
 [^d]: OR vowed offerings.
 [^e]: [[Mosiah 2.3|Mosiah 2:3.]]

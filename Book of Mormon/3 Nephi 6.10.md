@@ -5,4 +5,4 @@
 [3 Nephi 6:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/6?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Boast.](https://www.churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng)
+[^a]: TG [[Boast, Boasting]].

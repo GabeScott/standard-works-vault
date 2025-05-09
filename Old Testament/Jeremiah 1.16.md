@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 19.4|Jer. 19:4.]]
-[^b]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^b]: TG [[Idolatry, Idol]].

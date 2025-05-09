@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 3.7|Matt. 3:7]]; [[Matthew 12.34|12:34.]]
-[^b]: TG [Damnation](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng); [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^b]: TG [[Damnation, Damned]]; [[Punish, Punishment]].

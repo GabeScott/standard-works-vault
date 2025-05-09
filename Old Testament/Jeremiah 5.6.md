@@ -7,4 +7,4 @@
 
 [^a]: Zeph. 3:3.
 [^b]: OR plains, wilderness.
-[^c]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^c]: TG [[Wickedness, Wicked]].

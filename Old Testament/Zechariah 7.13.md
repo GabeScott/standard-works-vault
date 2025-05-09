@@ -6,4 +6,4 @@
 
 
 [^a]: Lam. 1:2 (1-3).
-[^b]: TG [God, Access to.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-access-to?lang=eng)
+[^b]: TG [[God, Access to]].

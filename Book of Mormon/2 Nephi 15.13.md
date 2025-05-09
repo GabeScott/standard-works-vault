@@ -6,4 +6,4 @@
 
 
 [^a]: Lam. 1:3 (1-3).
-[^b]: [[Isaiah 1.3|Isa. 1:3]]; [[Hosea 4.6|Hosea 4:6]]. TG [Knowledge](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng).
+[^b]: [[Isaiah 1.3|Isa. 1:3]]; [[Hosea 4.6|Hosea 4:6]]. TG [[Knowledge]].

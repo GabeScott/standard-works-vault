@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 53.7|Isa. 53:7.]]
-[^b]: [[Luke 23.9|Luke 23:9]]; [[John 19.9|John 19:9 (9-10)]]; [[Mosiah 14.7|Mosiah 14:7]]. TG [Jesus Christ, Trials of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-trials-of?lang=eng).
+[^b]: [[Luke 23.9|Luke 23:9]]; [[John 19.9|John 19:9 (9-10)]]; [[Mosiah 14.7|Mosiah 14:7]]. TG [[Jesus Christ, Trials of]].

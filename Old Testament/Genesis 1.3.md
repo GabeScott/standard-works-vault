@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 33.9|Ps. 33:9.]]
-[^b]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^b]: TG [[Light]].

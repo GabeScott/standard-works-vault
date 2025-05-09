@@ -5,4 +5,4 @@
 [Helaman 9:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/9?lang=eng&id=p41#p41)
 
 
-[^a]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^a]: TG [[God, Omniscience of]].

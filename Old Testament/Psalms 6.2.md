@@ -6,4 +6,4 @@
 
 
 [^a]: HEB wretched, in misery.
-[^b]: TG [Heal](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng); [Sickness.](https://www.churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
+[^b]: TG [[Health]]; [[Sickness, Sick]].

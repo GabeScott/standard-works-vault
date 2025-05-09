@@ -6,5 +6,5 @@
 
 
 [^a]: IE are filled, supplied with teachings, alien beliefs. Ps. 106:35.
-[^b]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^b]: TG [[Sorcery]].
 [^c]: HEB strike hands with, or make covenant with.

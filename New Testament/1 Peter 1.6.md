@@ -5,5 +5,5 @@
 [1 Peter 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.6?lang=eng#p6)
 
 
-[^a]: TG [Probation.](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng)
-[^b]: GR trials, afflictions. TG [Temptation](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng).
+[^a]: TG [[Probation, Probationary]].
+[^b]: GR trials, afflictions. TG [[Temptation]].

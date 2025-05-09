@@ -6,5 +6,5 @@
 
 
 [^a]: [[Moses 1.4|Moses 1:4.]]
-[^b]: TG [God, Intelligence of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-intelligence-of?lang=eng); [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
-[^c]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^b]: TG [[God, Intelligence of]]; [[Knowledge]].
+[^c]: TG [[Agency]].

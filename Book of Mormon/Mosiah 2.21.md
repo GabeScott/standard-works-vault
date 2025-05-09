@@ -8,6 +8,6 @@
 [^a]: [[Job 22.3|Job 22:3 (3-4).]]
 [^b]: [[Nehemiah 9.6|Neh. 9:6.]]
 [^c]: [[2 Nephi 9.26|2 Ne. 9:26.]]
-[^d]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
-[^e]: TG [Dedication.](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng)
+[^d]: TG [[Agency]].
+[^e]: TG [[Dedication, Dedicate]].
 [^f]: [[Luke 17.10|Luke 17:10 (7-10)]]; [[Romans 3.12|Rom. 3:12.]]

@@ -6,6 +6,6 @@
 
 
 [^a]: GR to, at.
-[^b]: TG [Godhead.](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng)
+[^b]: TG [[Godhead]].
 [^c]: [[Hebrews 2.9|Heb. 2:9.]]
 [^d]: [[D&C 53.2|D&C 53:2.]]

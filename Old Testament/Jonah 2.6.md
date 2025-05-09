@@ -5,4 +5,4 @@
 [Jonah 2:6](https://www.churchofjesuschrist.org/study/scriptures/ot/jonah/2.6?lang=eng#p6)
 
 
-[^a]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^a]: TG [[Jesus Christ, Prophecies about]].

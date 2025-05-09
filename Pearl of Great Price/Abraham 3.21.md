@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 88.47|D&C 88:47 (45-47)]]; [[Moses 1.27|Moses 1:27 (27-28)]]; [[Moses 7.23|7:23.]]
 [^b]: [[Job 12.13|Job 12:13 (7-25)]]; [[2 Nephi 9.8|2 Ne. 9:8.]]
-[^c]: TG [God, Perfection of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng); [Kingdom of God, in Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng)
+[^c]: TG [[God, Perfection of]]; [[Kingdom of God, in Heaven]].

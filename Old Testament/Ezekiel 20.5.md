@@ -5,5 +5,5 @@
 [Ezekiel 20:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/20.5?lang=eng#p5)
 
 
-[^a]: TG [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^a]: TG [[Israel, Mission of]].
 [^b]: OR covenanted.

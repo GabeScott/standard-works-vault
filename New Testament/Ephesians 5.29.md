@@ -5,5 +5,5 @@
 [Ephesians 5:29](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/5.29?lang=eng#p29)
 
 
-[^a]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
-[^b]: TG [Body, Sanctity of.](https://www.churchofjesuschrist.org/study/scriptures/tg/body-sanctity-of?lang=eng)
+[^a]: TG [[Hate]].
+[^b]: TG [[Body, Sanctity of]].

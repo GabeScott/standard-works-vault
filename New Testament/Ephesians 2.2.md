@@ -5,5 +5,5 @@
 [Ephesians 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2.2?lang=eng#p2)
 
 
-[^a]: TG [Worldliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
-[^b]: [[D&C 121.17|D&C 121:17]]. TG [Disobedience](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng).
+[^a]: TG [[Worldliness]].
+[^b]: [[D&C 121.17|D&C 121:17]]. TG [[Disobedience, Disobey]].

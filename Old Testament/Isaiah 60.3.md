@@ -5,5 +5,5 @@
 [Isaiah 60:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/60.3?lang=eng#p3)
 
 
-[^a]: TG [Conversion](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng); [Gentiles.](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng)
-[^b]: TG [Israel, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng); [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^a]: TG [[Conversion, Convert]]; [[Gentiles]].
+[^b]: TG [[Israel, Mission of]]; [[Light]].

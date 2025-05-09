@@ -5,4 +5,4 @@
 [Mosiah 25:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/25?lang=eng&id=p23#p23)
 
 
-[^a]: TG [Jesus Christ, Taking the Name of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-taking-the-name-of?lang=eng)
+[^a]: TG [[Jesus Christ, Taking the Name of]].

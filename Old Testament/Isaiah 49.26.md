@@ -5,8 +5,8 @@
 [Isaiah 49:26](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/49.26?lang=eng#p26)
 
 
-[^a]: TG [Oppression.](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng)
+[^a]: TG [[Oppression, Oppress]].
 [^b]: [[D&C 63.6|D&C 63:6.]]
-[^c]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
-[^d]: TG [Redemption.](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
+[^c]: TG [[Jesus Christ, Jehovah]].
+[^d]: TG [[Redemption]].
 [^e]: [[Psalms 132.2|Ps. 132:2.]]

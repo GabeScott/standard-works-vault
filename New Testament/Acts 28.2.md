@@ -6,4 +6,4 @@
 
 
 [^a]: [[Romans 1.14|Rom. 1:14.]]
-[^b]: TG [Hospitality.](https://www.churchofjesuschrist.org/study/scriptures/tg/hospitality?lang=eng)
+[^b]: TG [[Hospitality]].

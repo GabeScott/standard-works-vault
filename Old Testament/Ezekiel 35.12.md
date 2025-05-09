@@ -5,4 +5,4 @@
 [Ezekiel 35:12](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/35.12?lang=eng#p12)
 
 
-[^a]: TG [Blaspheme.](https://www.churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng)
+[^a]: TG [[Blaspheme, Blasphemous, Blasphemy]].

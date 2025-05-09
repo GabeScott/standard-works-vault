@@ -5,4 +5,4 @@
 [Haggai 1:12](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/1.12?lang=eng#p12)
 
 
-[^a]: TG [Priesthood, Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng)
+[^a]: TG [[Priesthood, Authority]].

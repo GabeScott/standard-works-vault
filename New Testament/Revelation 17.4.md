@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 10.21|D&C 10:21.]]
-[^b]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^b]: TG [[Filthiness, Filthy]].

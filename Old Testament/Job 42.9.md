@@ -5,4 +5,4 @@
 [Job 42:9](https://www.churchofjesuschrist.org/study/scriptures/ot/job/42.9?lang=eng#p9)
 
 
-[^a]: [[Genesis 19.21|Gen. 19:21]]. TG [Probation](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng).
+[^a]: [[Genesis 19.21|Gen. 19:21]]. TG [[Probation, Probationary]].

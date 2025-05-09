@@ -7,4 +7,4 @@
 
 [^a]: [[Hosea 2.14|Hosea 2:14.]]
 [^b]: [[Ezekiel 17.20|Ezek. 17:20.]]
-[^c]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^c]: TG [[God, Presence of]].

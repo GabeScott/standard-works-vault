@@ -6,6 +6,6 @@
 
 
 [^a]: OR As cattle go.
-[^b]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^b]: TG [[God, Spirit of]].
 [^c]: OR them.
 [^d]: [[Exodus 9.16|Ex. 9:16]]; [[Psalms 106.8|Ps. 106:8]]; [[Ezekiel 20.9|Ezek. 20:9.]]

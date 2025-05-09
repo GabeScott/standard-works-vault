@@ -5,4 +5,4 @@
 [Malachi 2:12](https://www.churchofjesuschrist.org/study/scriptures/ot/mal/2.12?lang=eng#p12)
 
 
-[^a]: TG [Excommunication.](https://www.churchofjesuschrist.org/study/scriptures/tg/excommunication?lang=eng)
+[^a]: TG [[Excommunication]].

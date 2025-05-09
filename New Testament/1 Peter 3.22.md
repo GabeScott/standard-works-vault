@@ -6,5 +6,5 @@
 
 
 [^a]: [[John 7.34|John 7:34.]]
-[^b]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
-[^c]: Col. 1:16; 2:10. TG [Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng).
+[^b]: TG [[Angels]].
+[^c]: Col. 1:16; 2:10. TG [[Authority]].

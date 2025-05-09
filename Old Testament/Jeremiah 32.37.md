@@ -5,5 +5,5 @@
 [Jeremiah 32:37](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/32.37?lang=eng#p37)
 
 
-[^a]: [[D&C 45.69|D&C 45:69]]. TG [Israel, Gathering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng).
+[^a]: [[D&C 45.69|D&C 45:69]]. TG [[Israel, Gathering of]].
 [^b]: [[Jeremiah 16.15|Jer. 16:15.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 14.11|Prov. 14:11.]]
-[^b]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^b]: TG [[Apostasy of Individuals]].

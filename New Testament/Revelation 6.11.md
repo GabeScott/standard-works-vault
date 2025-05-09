@@ -6,5 +6,5 @@
 
 
 [^a]: [[Revelation 3.4|Rev. 3:4.]]
-[^b]: TG [Apparel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng)
-[^c]: TG [Paradise.](https://www.churchofjesuschrist.org/study/scriptures/tg/paradise?lang=eng)
+[^b]: TG [[Apparel]].
+[^c]: TG [[Paradise, Paradisiacal]].

@@ -5,5 +5,5 @@
 [Genesis 17:21](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/17.21?lang=eng#p21)
 
 
-[^a]: TG [Abrahamic Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng)
+[^a]: TG [[Abrahamic Covenant]].
 [^b]: [[Genesis 21.2|Gen. 21:2.]]

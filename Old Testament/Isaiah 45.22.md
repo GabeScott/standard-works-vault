@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 6.36|D&C 6:36]]; [[D&C 43.34|43:34.]]
-[^b]: TG [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
+[^b]: TG [[Salvation, Plan of]].

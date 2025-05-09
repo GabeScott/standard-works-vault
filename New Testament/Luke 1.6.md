@@ -5,4 +5,4 @@
 [Luke 1:6](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.6?lang=eng#p6)
 
 
-[^a]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^a]: TG [[Ordinance]].

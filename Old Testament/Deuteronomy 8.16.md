@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hosea 13.6|Hosea 13:6 (5-8).]]
-[^b]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^b]: TG [[Testament]].

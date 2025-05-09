@@ -6,4 +6,4 @@
 
 
 [^a]: OR land.
-[^b]: [[Ezekiel 24.24|Ezek. 24:24]]. TG [Signs](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng).
+[^b]: [[Ezekiel 24.24|Ezek. 24:24]]. TG [[Signs]].

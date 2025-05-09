@@ -5,6 +5,6 @@
 [Luke 6:13](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/6.13?lang=eng#p13)
 
 
-[^a]: [[1 Nephi 12.7|1 Ne. 12:7 (6-7)]]. TG [Called of God](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng).
-[^b]: TG [Apostles.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng)
-[^c]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
+[^a]: [[1 Nephi 12.7|1 Ne. 12:7 (6-7)]]. TG [[Called of God]].
+[^b]: TG [[Apostles]].
+[^c]: TG [[Church Organization]].

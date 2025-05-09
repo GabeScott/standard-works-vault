@@ -5,5 +5,5 @@
 [Daniel 7:13](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/7.13?lang=eng#p13)
 
 
-[^a]: [[Revelation 11.15|Rev. 11:15]]. TG [Jesus Christ, Second Coming](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng); [Jesus Christ, Son of Man](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng).
+[^a]: [[Revelation 11.15|Rev. 11:15]]. TG [[Jesus Christ, Second Coming]]; [[Jesus Christ, Son of Man]].
 [^b]: [[Luke 21.27|Luke 21:27.]]

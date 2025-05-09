@@ -5,6 +5,6 @@
 [Isaiah 65:25](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/65.25?lang=eng#p25)
 
 
-[^a]: TG [Peace.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
+[^a]: TG [[Peace of God]].
 [^b]: [[2 Nephi 30.12|2 Ne. 30:12 (12-15).]]
 [^c]: [[Isaiah 60.18|Isa. 60:18 (17-22).]]

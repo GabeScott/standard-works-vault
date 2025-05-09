@@ -5,4 +5,4 @@
 [Moses 6:4](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.4?lang=eng#p4)
 
 
-[^a]: [[Genesis 4.26|Gen. 4:26]]; [[Moses 5.4|Moses 5:4]]. TG [Prayer](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng).
+[^a]: [[Genesis 4.26|Gen. 4:26]]; [[Moses 5.4|Moses 5:4]]. TG [[Prayer, Pray]].

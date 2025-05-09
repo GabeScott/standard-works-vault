@@ -5,8 +5,8 @@
 [Isaiah 42:1](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/42.1?lang=eng#p1)
 
 
-[^a]: [[Matthew 12.18|Matt. 12:18 (17-21)]]. TG [Servant](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng); [Witness of the Father](https://www.churchofjesuschrist.org/study/scriptures/tg/witness-of-the-father?lang=eng).
-[^b]: TG [Election.](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng)
+[^a]: [[Matthew 12.18|Matt. 12:18 (17-21)]]. TG [[Servant]]; [[Witness of the Father]].
+[^b]: TG [[Election, Elect]].
 [^c]: [[Proverbs 1.23|Prov. 1:23.]]
-[^d]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^d]: TG [[God, Spirit of]].
 [^e]: [[1 Nephi 13.33|1 Ne. 13:33 (33-34).]]

@@ -6,4 +6,4 @@
 
 
 [^a]: OR fine.
-[^b]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^b]: TG [[Name of the Lord]].

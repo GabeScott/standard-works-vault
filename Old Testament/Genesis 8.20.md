@@ -6,5 +6,5 @@
 
 
 [^a]: JST Gen. 9:4-6 (Appendix).
-[^b]: TG [Food.](https://www.churchofjesuschrist.org/study/scriptures/tg/food?lang=eng)
-[^c]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Food]].
+[^c]: TG [[Self-Sacrifice]].

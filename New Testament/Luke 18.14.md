@@ -5,5 +5,5 @@
 [Luke 18:14](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.14?lang=eng#p14)
 
 
-[^a]: [[2 Corinthians 10.18|2 Cor. 10:18]]. TG [Haughtiness](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng).
+[^a]: [[2 Corinthians 10.18|2 Cor. 10:18]]. TG [[Haughtiness, Haughty]].
 [^b]: [[Ether 12.27|Ether 12:27]]; [[D&C 101.42|D&C 101:42]]; [[D&C 124.114|124:114.]]

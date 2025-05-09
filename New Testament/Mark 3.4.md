@@ -5,5 +5,5 @@
 [Mark 3:4](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/3.4?lang=eng#p4)
 
 
-[^a]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
+[^a]: TG [[Sabbath]].
 [^b]: GR remained silent.

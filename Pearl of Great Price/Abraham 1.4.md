@@ -5,5 +5,5 @@
 [Abraham 1:4](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/1.4?lang=eng#p4)
 
 
-[^a]: TG [Birthright.](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng)
+[^a]: TG [[Birthright]].
 [^b]: [[D&C 84.14|D&C 84:14 (6-17).]]

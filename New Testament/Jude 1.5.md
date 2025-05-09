@@ -7,4 +7,4 @@
 
 [^a]: [[1 Corinthians 10.5|1 Cor. 10:5 (5, 9).]]
 [^b]: [[Deuteronomy 1.35|Deut. 1:35.]]
-[^c]: TG [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
+[^c]: TG [[Unbelief, Unbelievers]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 21.23|1 Ne. 21:23.]]
-[^b]: TG [Gentiles.](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng)
+[^b]: TG [[Gentiles]].
 [^c]: [[1 Nephi 15.13|1 Ne. 15:13]]; [[2 Nephi 30.3|2 Ne. 30:3 (1-7).]]

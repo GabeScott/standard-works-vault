@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Thes. 2:4.
-[^b]: TG [Apostles.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng)
+[^b]: TG [[Apostles]].

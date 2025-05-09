@@ -6,6 +6,6 @@
 
 
 [^a]: [[John 5.19|John 5:19.]]
-[^b]: [[John 7.16|John 7:16 (16-18)]]. TG [Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng).
-[^c]: TG [Delegation of Responsibility.](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng)
+[^b]: [[John 7.16|John 7:16 (16-18)]]. TG [[Authority]].
+[^c]: TG [[Delegation of Responsibility]].
 [^d]: [[Deuteronomy 18.18|Deut. 18:18.]]

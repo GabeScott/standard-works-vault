@@ -5,4 +5,4 @@
 [Zephaniah 3:2](https://www.churchofjesuschrist.org/study/scriptures/ot/zeph/3.2?lang=eng#p2)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].

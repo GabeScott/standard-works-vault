@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 2.20|Alma 2:20]]; [[Alma 6.7|6:7.]]
-[^b]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
+[^b]: TG [[Church Organization]].

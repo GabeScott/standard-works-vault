@@ -5,4 +5,4 @@
 [Romans 8:2](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/8.2?lang=eng#p2)
 
 
-[^a]: [[Romans 6.22|Rom. 6:22 (11-22)]]; [[2 Corinthians 3.17|2 Cor. 3:17]]; [[Mosiah 5.2|Mosiah 5:2 (2-9)]]. TG [Bondage, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng).
+[^a]: [[Romans 6.22|Rom. 6:22 (11-22)]]; [[2 Corinthians 3.17|2 Cor. 3:17]]; [[Mosiah 5.2|Mosiah 5:2 (2-9)]]. TG [[Bondage, Spiritual]].

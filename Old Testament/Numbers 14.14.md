@@ -5,7 +5,7 @@
 [Numbers 14:14](https://www.churchofjesuschrist.org/study/scriptures/ot/num/14.14?lang=eng#p14)
 
 
-[^a]: TG [God, Presence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
+[^a]: TG [[God, Presence of]].
 [^b]: [[Psalms 99.7|Ps. 99:7]]; [[D&C 84.5|D&C 84:5.]]
 [^c]: [[Exodus 33.16|Ex. 33:16.]]
 [^d]: [[Deuteronomy 1.33|Deut. 1:33.]]

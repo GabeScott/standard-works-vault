@@ -5,5 +5,5 @@
 [2 Thessalonians 2:13](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/2.13?lang=eng#p13)
 
 
-[^a]: TG [Election](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng); [Foreordination.](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng)
-[^b]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^a]: TG [[Election, Elect]]; [[Foreordination]].
+[^b]: TG [[Sanctification, Sanctify]].

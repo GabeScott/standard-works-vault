@@ -6,4 +6,4 @@
 
 
 [^a]: GR Lawless one.
-[^b]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
+[^b]: TG [[Jesus Christ, Second Coming]].

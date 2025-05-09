@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hosea 8.12|Hosea 8:12 (11-12).]]
-[^b]: HEB ordinances (also vv. 5, 8, 14, 45). TG [Judgment](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng).
+[^b]: HEB ordinances (also vv. 5, 8, 14, 45). TG [[Judgment]].

@@ -5,6 +5,6 @@
 [John 12:35](https://www.churchofjesuschrist.org/study/scriptures/nt/john/12.35?lang=eng#p35)
 
 
-[^a]: TG [Light of Christ.](https://www.churchofjesuschrist.org/study/scriptures/tg/light-of-christ?lang=eng)
-[^b]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
-[^c]: TG [Darkness, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng); [Walking in Darkness.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-in-darkness?lang=eng)
+[^a]: TG [[Light of Christ]].
+[^b]: TG [[Light]].
+[^c]: TG [[Darkness, Spiritual]]; [[Walking in Darkness]].

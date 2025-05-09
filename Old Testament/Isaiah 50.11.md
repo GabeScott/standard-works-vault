@@ -5,5 +5,5 @@
 [Isaiah 50:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/50.11?lang=eng#p11)
 
 
-[^a]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
-[^b]: TG [Sorrow.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
+[^a]: TG [[Light]].
+[^b]: TG [[Sorrow]].

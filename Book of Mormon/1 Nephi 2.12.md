@@ -8,4 +8,4 @@
 [^a]: Lam. 4:16 (16-17).
 [^b]: [[1 Samuel 3.13|1 Sam. 3:13]]; [[Mosiah 27.8|Mosiah 27:8 (7-37)]]; [[Moses 5.16|Moses 5:16.]]
 [^c]: [[Moses 4.6|Moses 4:6.]]
-[^d]: [[Deuteronomy 32.6|Deut. 32:6]]; [[D&C 43.23|D&C 43:23]]. TG [Man, Physical Creation of](https://www.churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng).
+[^d]: [[Deuteronomy 32.6|Deut. 32:6]]; [[D&C 43.23|D&C 43:23]]. TG [[Man, Physical Creation of]].

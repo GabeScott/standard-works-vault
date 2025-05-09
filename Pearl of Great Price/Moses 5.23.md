@@ -7,5 +7,5 @@
 
 [^a]: [[Genesis 4.7|Gen. 4:7]]; [[D&C 52.15|D&C 52:15]]; [[D&C 97.8|97:8]]; [[D&C 132.50|132:50.]]
 [^b]: [[Genesis 4.7|Gen. 4:7.]]
-[^c]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^c]: TG [[Bondage, Spiritual]].
 [^d]: [[Moses 5.30|Moses 5:30.]]

@@ -5,4 +5,4 @@
 [2 Corinthians 1:8](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/1.8?lang=eng#p8)
 
 
-[^a]: TG [Despair.](https://www.churchofjesuschrist.org/study/scriptures/tg/despair?lang=eng)
+[^a]: TG [[Despair]].

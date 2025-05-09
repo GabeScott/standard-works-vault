@@ -5,5 +5,5 @@
 [Jacob 3:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/3?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Family, Children, Responsibilities toward](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng); [Family, Love within.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng)
-[^b]: TG [Example.](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
+[^a]: TG [[Family, Children, Responsibilities toward]]; [[Family, Love within]].
+[^b]: TG [[Example, Ensample]].

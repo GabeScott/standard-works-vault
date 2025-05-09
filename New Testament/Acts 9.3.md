@@ -5,4 +5,4 @@
 [Acts 9:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.3?lang=eng#p3)
 
 
-[^a]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^a]: TG [[Light]].

@@ -5,4 +5,4 @@
 [Proverbs 6:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/6.16?lang=eng#p16)
 
 
-[^a]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
+[^a]: TG [[Hate]].

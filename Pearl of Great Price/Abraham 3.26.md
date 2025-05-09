@@ -5,7 +5,7 @@
 [Abraham 3:26](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.26?lang=eng#p26)
 
 
-[^a]: TG [Dependability.](https://www.churchofjesuschrist.org/study/scriptures/tg/dependability?lang=eng)
+[^a]: TG [[Dependability]].
 [^b]: [[Jude 1.6|Jude 1:6.]]
-[^c]: TG [Mortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
-[^d]: [[Titus 1.2|Titus 1:2]]. TG [Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng); [Reward](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng).
+[^c]: TG [[Mortality]].
+[^d]: [[Titus 1.2|Titus 1:2]]. TG [[Telestial Glory]]; [[Reward]].

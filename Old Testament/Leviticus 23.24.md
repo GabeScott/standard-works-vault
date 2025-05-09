@@ -7,4 +7,4 @@
 
 [^a]: IE a blast, or a trill, of the ram’s horn.
 [^b]: [[Numbers 10.10|Num. 10:10]]; [[Numbers 29.1|29:1 (1-6)]]; [[Psalms 81.3|Ps. 81:3.]]
-[^c]: TG [Meetings.](https://www.churchofjesuschrist.org/study/scriptures/tg/meetings?lang=eng)
+[^c]: TG [[Meetings]].

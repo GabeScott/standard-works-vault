@@ -5,5 +5,5 @@
 [Isaiah 14:9](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/14.9?lang=eng#p9)
 
 
-[^a]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^a]: TG [[Hell]].
 [^b]: IE disembodied spirits.

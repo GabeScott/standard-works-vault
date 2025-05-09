@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 12.12|1 Ne. 12:12 (10-15)]]; [[Helaman 13.9|Hel. 13:9]]; [[Mormon 8.6|Morm. 8:6.]]
-[^b]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
+[^b]: TG [[Apostasy of Individuals]].

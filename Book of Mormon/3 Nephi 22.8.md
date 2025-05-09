@@ -5,5 +5,5 @@
 [3 Nephi 22:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/22?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Kindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
-[^b]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^a]: TG [[Kindness]].
+[^b]: TG [[God, Mercy of]].

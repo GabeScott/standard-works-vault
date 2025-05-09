@@ -5,4 +5,4 @@
 [1 Chronicles 29:17](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/29.17?lang=eng#p17)
 
 
-[^a]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^a]: TG [[Testament]].

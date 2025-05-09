@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 18.2|D&C 18:2.]]
-[^b]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^b]: TG [[God, Omniscience of]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Nephi 16.2|1 Ne. 16:2 (1-3)]]; [[2 Nephi 33.5|2 Ne. 33:5]]; W of M 1:17.
-[^b]: TG [Preaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
+[^b]: TG [[Preaching, Preach]].
 [^c]: [[Helaman 12.3|Hel. 12:3.]]
 [^d]: [[Jarom 1.12|Jarom 1:12]]; [[Alma 4.19|Alma 4:19]]; [[Alma 31.5|31:5.]]

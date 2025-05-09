@@ -5,4 +5,4 @@
 [Matthew 23:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/23.16?lang=eng#p16)
 
 
-[^a]: TG [Spiritual Blindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng)
+[^a]: TG [[Spiritual Blindness]].

@@ -5,4 +5,4 @@
 [Jacob 7:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7?lang=eng&id=p1#p1)
 
 
-[^a]: TG [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
+[^a]: TG [[False Prophets]].

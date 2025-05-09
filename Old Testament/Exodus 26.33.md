@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Kings 8.6|1 Kgs. 8:6.]]
-[^b]: TG [Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng); [Veil.](https://www.churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng)
+[^b]: TG [[Jesus Christ, Types of, in Anticipation]]; [[Veil]].
 [^c]: [[1 Kings 6.16|1 Kgs. 6:16]]; [[D&C 124.39|D&C 124:39.]]

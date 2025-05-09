@@ -5,5 +5,5 @@
 [Alma 27:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p12#p12)
 
 
-[^a]: TG [Separation.](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng)
-[^b]: TG [Protection, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng)
+[^a]: TG [[Separation, Separate]].
+[^b]: TG [[Protection, Divine]].

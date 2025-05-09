@@ -5,4 +5,4 @@
 [Helaman 5:47](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/5?lang=eng&id=p47#p47)
 
 
-[^a]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
+[^a]: TG [[Peace of God]].

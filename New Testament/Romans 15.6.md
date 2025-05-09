@@ -5,4 +5,4 @@
 [Romans 15:6](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.6?lang=eng#p6)
 
 
-[^a]: TG [Jesus Christ, Divine Sonship.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
+[^a]: TG [[Jesus Christ, Divine Sonship]].

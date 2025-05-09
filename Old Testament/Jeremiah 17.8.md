@@ -7,4 +7,4 @@
 
 [^a]: [[Psalms 1.3|Ps. 1:3 (2-3)]]; [[D&C 97.9|D&C 97:9 (8-9).]]
 [^b]: HEB fear.
-[^c]: TG [Drought.](https://www.churchofjesuschrist.org/study/scriptures/tg/drought?lang=eng)
+[^c]: TG [[Drought]].

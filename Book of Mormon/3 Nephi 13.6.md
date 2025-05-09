@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Kings 4.33|2 Kgs. 4:33.]]
-[^b]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^b]: TG [[God, Omniscience of]].

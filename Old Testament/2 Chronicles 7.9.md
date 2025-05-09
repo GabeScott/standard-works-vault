@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Kings 8.66|1 Kgs. 8:66 (65-66).]]
-[^b]: TG [Solemn Assembly.](https://www.churchofjesuschrist.org/study/scriptures/tg/solemn-assembly?lang=eng)
+[^b]: TG [[Solemn Assembly]].

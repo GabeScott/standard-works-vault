@@ -5,5 +5,5 @@
 [2 Chronicles 26:21](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.21?lang=eng#p21)
 
 
-[^a]: TG [Leprosy.](https://www.churchofjesuschrist.org/study/scriptures/tg/leprosy?lang=eng)
+[^a]: TG [[Leprosy, Leper, Leprous]].
 [^b]: HEB separate.

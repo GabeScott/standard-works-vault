@@ -5,6 +5,6 @@
 [Ezekiel 8:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/8.3?lang=eng#p3)
 
 
-[^a]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
-[^b]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^a]: TG [[God, Spirit of]].
+[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
 [^c]: [[Ezekiel 1.1|Ezek. 1:1]]; [[Ezekiel 40.2|40:2.]]

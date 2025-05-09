@@ -5,6 +5,6 @@
 [Proverbs 18:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.19?lang=eng#p19)
 
 
-[^a]: TG [Brotherhood and Sisterhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
-[^b]: TG [Offense.](https://www.churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng)
-[^c]: TG [Contention.](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
+[^a]: TG [[Brotherhood and Sisterhood]].
+[^b]: TG [[Offense, Offend, Offender]].
+[^c]: TG [[Contention]].

@@ -5,8 +5,8 @@
 [Exodus 15:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.26?lang=eng#p26)
 
 
-[^a]: TG [Diligence](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng); [Perseverance.](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng)
-[^b]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^a]: TG [[Diligence, Diligent, Diligently]]; [[Perseverance]].
+[^b]: TG [[Obedience, Obedient, Obey]].
 [^c]: [[D&C 5.35|D&C 5:35]]; [[D&C 11.20|11:20.]]
 [^d]: [[Deuteronomy 7.15|Deut. 7:15.]]
-[^e]: TG [Heal.](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
+[^e]: TG [[Health]].

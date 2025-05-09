@@ -5,5 +5,5 @@
 [3 Nephi 20:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/20?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
-[^b]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^a]: TG [[Jesus Christ, Authority of]].
+[^b]: TG [[Promised Lands]].

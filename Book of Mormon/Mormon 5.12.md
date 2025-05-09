@@ -6,6 +6,6 @@
 
 
 [^a]: [[1 Nephi 19.19|1 Ne. 19:19]]; [[Enos 1.16|Enos 1:16]]; [[Helaman 15.11|Hel. 15:11 (11-13)]]; [[Mormon 7.1|Morm. 7:1 (1, 9-10).]]
-[^b]: TG [Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-mormon?lang=eng); [Scriptures to Come Forth.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-to-come-forth?lang=eng)
+[^b]: TG [[Book of Mormon]]; [[Scriptures to Come Forth]].
 [^c]: [[2 Nephi 25.8|2 Ne. 25:8]]; [[2 Nephi 27.6|27:6]]; [[Jarom 1.2|Jarom 1:2]]; [[D&C 3.20|D&C 3:20 (16-20).]]
-[^d]: [[Mormon 8.4|Morm. 8:4 (4, 13-14)]]; [[Moroni 10.2|Moro. 10:2 (1-2)]]. TG [Scriptures, Preservation of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng).
+[^d]: [[Mormon 8.4|Morm. 8:4 (4, 13-14)]]; [[Moroni 10.2|Moro. 10:2 (1-2)]]. TG [[Scriptures, Preservation of]].

@@ -5,4 +5,4 @@
 [Romans 5:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.11?lang=eng#p11)
 
 
-[^a]: GR reconciliation, restoration to favor. TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng); [Redemption](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng).
+[^a]: GR reconciliation, restoration to favor. TG [[Jesus Christ, Atonement through]]; [[Redemption]].

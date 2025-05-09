@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Corinthians 6.9|1 Cor. 6:9 (9-10).]]
-[^b]: [[1 Nephi 15.33|1 Ne. 15:33]]; [[Alma 40.26|Alma 40:26]]; [[3 Nephi 27.19|3 Ne. 27:19]]. TG [Uncleanness](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng).
-[^c]: TG [Kingdom of God, in Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng)
+[^b]: [[1 Nephi 15.33|1 Ne. 15:33]]; [[Alma 40.26|Alma 40:26]]; [[3 Nephi 27.19|3 Ne. 27:19]]. TG [[Uncleanness, Unclean]].
+[^c]: TG [[Kingdom of God, in Heaven]].

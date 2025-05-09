@@ -8,4 +8,4 @@
 [^a]: HEB count.
 [^b]: [[Deuteronomy 10.22|Deut. 10:22]]; [[Nehemiah 9.23|Neh. 9:23]]; [[D&C 132.30|D&C 132:30.]]
 [^c]: [[1 Chronicles 27.23|1 Chr. 27:23.]]
-[^d]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^d]: TG [[Seed of Abraham]].

@@ -5,5 +5,5 @@
 [3 Nephi 11:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p25#p25)
 
 
-[^a]: [[Mosiah 18.13|Mosiah 18:13]]; [[Alma 5.3|Alma 5:3]]; [[D&C 20.73|D&C 20:73]]. TG [Delegation of Responsibility](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng); [Priesthood, Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng).
-[^b]: TG [Godhead.](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng)
+[^a]: [[Mosiah 18.13|Mosiah 18:13]]; [[Alma 5.3|Alma 5:3]]; [[D&C 20.73|D&C 20:73]]. TG [[Delegation of Responsibility]]; [[Priesthood, Authority]].
+[^b]: TG [[Godhead]].

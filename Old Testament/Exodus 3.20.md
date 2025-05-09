@@ -5,5 +5,5 @@
 [Exodus 3:20](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/3.20?lang=eng#p20)
 
 
-[^a]: TG [Miracle.](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
+[^a]: TG [[Miracle]].
 [^b]: [[Exodus 12.31|Ex. 12:31.]]

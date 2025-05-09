@@ -5,5 +5,5 @@
 [Jacob 5:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p8#p8)
 
 
-[^a]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^a]: TG [[Israel, Scattering of]].
 [^b]: [[Ezekiel 17.22|Ezek. 17:22 (4-10, 22).]]

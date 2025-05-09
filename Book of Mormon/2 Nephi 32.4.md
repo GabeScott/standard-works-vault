@@ -5,4 +5,4 @@
 [2 Nephi 32:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/32?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Ask.](https://www.churchofjesuschrist.org/study/scriptures/tg/ask?lang=eng)
+[^a]: TG [[Ask]].

@@ -5,4 +5,4 @@
 [John 11:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/11.15?lang=eng#p15)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Faith]].

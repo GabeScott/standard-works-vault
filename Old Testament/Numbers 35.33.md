@@ -5,5 +5,5 @@
 [Numbers 35:33](https://www.churchofjesuschrist.org/study/scriptures/ot/num/35.33?lang=eng#p33)
 
 
-[^a]: TG [Pollution.](https://www.churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng)
-[^b]: HEB atonement cannot be made for blood shed in the land except by the blood of him who shed it. TG [Accountability](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng).
+[^a]: TG [[Pollution, Pollute]].
+[^b]: HEB atonement cannot be made for blood shed in the land except by the blood of him who shed it. TG [[Accountability]].

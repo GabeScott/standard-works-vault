@@ -7,6 +7,6 @@
 
 [^a]: [[Isaiah 51.7|Isa. 51:7]]; [[Jeremiah 1.8|Jer. 1:8 (7-8)]]; [[Luke 12.4|Luke 12:4 (4-5).]]
 [^b]: [[Deuteronomy 13.8|Deut. 13:8 (6-11)]]; [[D&C 3.7|D&C 3:7 (6-8).]]
-[^c]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
-[^d]: TG [Soul.](https://www.churchofjesuschrist.org/study/scriptures/tg/soul?lang=eng)
-[^e]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^c]: TG [[Devil, Church of]].
+[^d]: TG [[Soul]].
+[^e]: TG [[Hell]].

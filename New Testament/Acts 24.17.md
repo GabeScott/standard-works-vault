@@ -5,4 +5,4 @@
 [Acts 24:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/24.17?lang=eng#p17)
 
 
-[^a]: [[1 Corinthians 16.1|1 Cor. 16:1]]. TG [Almsgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/almsgiving?lang=eng).
+[^a]: [[1 Corinthians 16.1|1 Cor. 16:1]]. TG [[Almsgiving]].

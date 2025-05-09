@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:46](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.46?lang=eng#p46)
 
 
-[^a]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
+[^a]: TG [[Watch, Watchfulness]].

@@ -5,4 +5,4 @@
 [Matthew 21:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.24?lang=eng#p24)
 
 
-[^a]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
+[^a]: TG [[Jesus Christ, Authority of]].

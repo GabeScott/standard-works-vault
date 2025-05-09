@@ -5,4 +5,4 @@
 [1 Chronicles 15:1](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/15.1?lang=eng#p1)
 
 
-[^a]: TG [Ark of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/ark-of-the-covenant?lang=eng)
+[^a]: TG [[Ark of the Covenant]].

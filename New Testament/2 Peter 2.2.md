@@ -5,4 +5,4 @@
 [2 Peter 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/2.2?lang=eng#p2)
 
 
-[^a]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^a]: TG [[Truth]].

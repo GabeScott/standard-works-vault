@@ -6,7 +6,7 @@
 
 
 [^b]: [[Jeremiah 25.30|Jer. 25:30.]]
-[^c]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^c]: TG [[Zion, Sion]].
 [^d]: [[D&C 133.21|D&C 133:21.]]
-[^e]: [[D&C 21.6|D&C 21:6]]. TG [Last Days](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng).
-[^f]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
+[^e]: [[D&C 21.6|D&C 21:6]]. TG [[Last Days]].
+[^f]: TG [[Hope]].

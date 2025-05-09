@@ -7,5 +7,5 @@
 
 [^a]: [[Ezekiel 18.24|Ezek. 18:24.]]
 [^b]: [[Ezekiel 33.12|Ezek. 33:12 (12-13, 18).]]
-[^c]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^c]: TG [[God, the Standard of Righteousness]].
 [^d]: [[Jeremiah 6.21|Jer. 6:21]]; [[Ezekiel 14.4|Ezek. 14:4 (3-7)]]; [[2 Nephi 26.20|2 Ne. 26:20.]]

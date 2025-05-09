@@ -5,4 +5,4 @@
 [Deuteronomy 34:4](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34.4?lang=eng#p4)
 
 
-[^a]: TG [Promised Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
+[^a]: TG [[Promised Lands]].

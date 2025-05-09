@@ -6,6 +6,6 @@
 
 
 [^a]: [[Jeremiah 4.23|Jer. 4:23 (23-25).]]
-[^b]: TG [Darkness, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-physical?lang=eng)
-[^c]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^b]: TG [[Darkness, Physical]].
+[^c]: TG [[God, Spirit of]].
 [^d]: [[Genesis 1.2|Gen. 1:2]]; [[Abraham 4.2|Abr. 4:2.]]

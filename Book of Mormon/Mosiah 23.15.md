@@ -5,7 +5,7 @@
 [Mosiah 23:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/23?lang=eng&id=p15#p15)
 
 
-[^a]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
-[^b]: TG [Neighbor.](https://www.churchofjesuschrist.org/study/scriptures/tg/neighbor?lang=eng)
+[^a]: TG [[Love]].
+[^b]: TG [[Neighbor]].
 [^c]: [[Mosiah 18.21|Mosiah 18:21.]]
 [^d]: [[3 Nephi 11.29|3 Ne. 11:29 (28-29).]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 20.7|Deut. 20:7.]]
-[^b]: HEB be happy with. TG [Family, Love within](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng); [Marriage, Husbands](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-husbands?lang=eng).
+[^b]: HEB be happy with. TG [[Family, Love within]]; [[Marriage, Husbands]].

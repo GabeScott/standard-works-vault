@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Timothy 6.15|1 Tim. 6:15 (15-16).]]
-[^b]: TG [God, Eternal Nature of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-eternal-nature-of?lang=eng); [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
+[^b]: TG [[God, Eternal Nature of]]; [[Immortality, Immortal]].

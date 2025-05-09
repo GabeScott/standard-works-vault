@@ -5,6 +5,6 @@
 [Matthew 21:13](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/21.13?lang=eng#p13)
 
 
-[^a]: [[Psalms 27.4|Ps. 27:4]]. TG [Temple](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng).
-[^b]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: [[Psalms 27.4|Ps. 27:4]]. TG [[Genealogy and Temple Work]].
+[^b]: TG [[Prayer, Pray]].
 [^c]: [[Jeremiah 7.11|Jer. 7:11.]]

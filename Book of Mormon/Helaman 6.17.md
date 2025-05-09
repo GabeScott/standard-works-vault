@@ -5,5 +5,5 @@
 [Helaman 6:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^a]: TG [[Treasure]].
 [^b]: [[3 Nephi 6.23|3 Ne. 6:23]]; [[3 Nephi 9.9|9:9.]]

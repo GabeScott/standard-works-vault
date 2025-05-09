@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Samuel 6.17|2 Sam. 6:17]]; [[2 Chronicles 1.4|2 Chr. 1:4.]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].

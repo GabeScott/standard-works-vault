@@ -5,6 +5,6 @@
 [Ether 13:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/13?lang=eng&id=p11#p11)
 
 
-[^a]: TG [Israel, Gathering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng); [Israel, Land of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng); [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
-[^b]: [[D&C 133.26|D&C 133:26 (26-35)]]. TG [Israel, Ten Lost Tribes of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng).
+[^a]: TG [[Israel, Gathering of]]; [[Israel, Land of]]; [[Jerusalem]].
+[^b]: [[D&C 133.26|D&C 133:26 (26-35)]]. TG [[Israel, Ten Lost Tribes of]].
 [^c]: [[Isaiah 27.6|Isa. 27:6.]]

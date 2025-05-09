@@ -7,4 +7,4 @@
 
 [^a]: [[2 Samuel 7.24|2 Sam. 7:24.]]
 [^b]: [[Nehemiah 9.19|Neh. 9:19 (18-26)]]; [[2 Nephi 19.17|2 Ne. 19:17 (17-21)]]; [[2 Nephi 28.32|28:32]]; [[Jacob 5.47|Jacob 5:47.]]
-[^c]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^c]: TG [[Stiffnecked, Stiffneckedness]].

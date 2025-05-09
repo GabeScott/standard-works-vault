@@ -8,5 +8,5 @@
 [^a]: [[2 Nephi 24.1|2 Ne. 24:1 (1-32).]]
 [^b]: [[Psalms 102.13|Ps. 102:13.]]
 [^c]: [[Zechariah 1.17|Zech. 1:17.]]
-[^d]: TG [Israel, Land of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
-[^e]: TG [Conversion](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng); [Israel, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng); [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^d]: TG [[Israel, Land of]].
+[^e]: TG [[Conversion, Convert]]; [[Israel, Mission of]]; [[Stranger]].

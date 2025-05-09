@@ -5,4 +5,4 @@
 [1 Nephi 8:37](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/8?lang=eng&id=p37#p37)
 
 
-[^a]: TG [Family, Children, Responsibilities toward.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng)
+[^a]: TG [[Family, Children, Responsibilities toward]].

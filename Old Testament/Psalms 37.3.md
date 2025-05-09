@@ -5,4 +5,4 @@
 [Psalms 37:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.3?lang=eng#p3)
 
 
-[^a]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Trust in God]].

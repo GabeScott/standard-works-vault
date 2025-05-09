@@ -6,4 +6,4 @@
 
 
 [^a]: [[Numbers 14.14|Num. 14:14.]]
-[^b]: OR special, distinctive people. 1 Kgs. 8:53. TG [Separation](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng).
+[^b]: OR special, distinctive people. 1 Kgs. 8:53. TG [[Separation, Separate]].

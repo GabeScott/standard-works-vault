@@ -5,5 +5,5 @@
 [Hosea 11:7](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/11.7?lang=eng#p7)
 
 
-[^a]: TG [Ingratitude.](https://www.churchofjesuschrist.org/study/scriptures/tg/ingratitude?lang=eng)
+[^a]: TG [[Ingratitude]].
 [^b]: [[Hosea 7.16|Hosea 7:16 (14-16).]]

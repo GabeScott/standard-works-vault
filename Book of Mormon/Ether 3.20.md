@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ether 12.21|Ether 12:21 (19-21).]]
-[^b]: TG [Jesus Christ, Appearances, Antemortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-antemortal?lang=eng)
+[^b]: TG [[Jesus Christ, Appearances, Antemortal]].

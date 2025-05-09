@@ -6,6 +6,6 @@
 
 
 [^a]: [[Ezekiel 13.3|Ezek. 13:3 (1-4).]]
-[^b]: TG [Antichrist.](https://www.churchofjesuschrist.org/study/scriptures/tg/antichrist?lang=eng)
+[^b]: TG [[Antichrist]].
 [^c]: [[Luke 6.26|Luke 6:26]]; [[1 Nephi 22.23|1 Ne. 22:23.]]
 [^d]: [[Mosiah 18.24|Mosiah 18:24 (24, 26)]]; [[Mosiah 27.5|27:5 (3-5).]]

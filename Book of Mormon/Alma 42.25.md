@@ -5,5 +5,5 @@
 [Alma 42:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p25#p25)
 
 
-[^a]: TG [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
-[^b]: TG [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^a]: TG [[Mercy, Merciful]].
+[^b]: TG [[God, Justice of]].

@@ -5,5 +5,5 @@
 [Helaman 6:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/6?lang=eng&id=p22#p22)
 
 
-[^a]: [[Alma 37.27|Alma 37:27]]. TG [Secret Combinations](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng).
+[^a]: [[Alma 37.27|Alma 37:27]]. TG [[Secret Combinations]].
 [^b]: [[Helaman 11.2|Hel. 11:2]]; [[3 Nephi 3.7|3 Ne. 3:7.]]

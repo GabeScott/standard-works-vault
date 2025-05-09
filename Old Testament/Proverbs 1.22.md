@@ -5,6 +5,6 @@
 [Proverbs 1:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.22?lang=eng#p22)
 
 
-[^a]: TG [Malice.](https://www.churchofjesuschrist.org/study/scriptures/tg/malice?lang=eng)
-[^b]: TG [Hate.](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng)
-[^c]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
+[^a]: TG [[Malice]].
+[^b]: TG [[Hate]].
+[^c]: TG [[Knowledge]].

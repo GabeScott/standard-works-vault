@@ -6,6 +6,6 @@
 
 
 [^a]: [[Helaman 3.16|Hel. 3:16.]]
-[^b]: TG [Heathen.](https://www.churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
+[^b]: TG [[Heathen]].
 [^c]: [[Jeremiah 25.34|Jer. 25:34.]]
 [^d]: [[Ezekiel 39.24|Ezek. 39:24.]]

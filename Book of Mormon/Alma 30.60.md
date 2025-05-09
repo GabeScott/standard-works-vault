@@ -5,6 +5,6 @@
 [Alma 30:60](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/30?lang=eng&id=p60#p60)
 
 
-[^a]: TG [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^a]: TG [[Lying, Liar, Lie]].
 [^b]: [[Alma 3.27|Alma 3:27 (26-27)]]; [[Alma 5.42|5:42 (41-42)]]; [[D&C 29.45|D&C 29:45.]]
-[^c]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^c]: TG [[Hell]].

@@ -6,4 +6,4 @@
 
 
 [^a]: 2 Pet. 2:15 (10-22).
-[^b]: TG [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
+[^b]: TG [[Sexual Immorality]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 22.17|Gen. 22:17]]; [[Romans 9.27|Rom. 9:27.]]
-[^b]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
-[^c]: [[Isaiah 28.22|Isa. 28:22]]. TG [World, End of](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng).
+[^b]: TG [[Israel, Gathering of]].
+[^c]: [[Isaiah 28.22|Isa. 28:22]]. TG [[World, End of]].

@@ -5,5 +5,5 @@
 [John 19:15](https://www.churchofjesuschrist.org/study/scriptures/nt/john/19.15?lang=eng#p15)
 
 
-[^a]: TG [Jesus Christ, Trials of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-trials-of?lang=eng)
+[^a]: TG [[Jesus Christ, Trials of]].
 [^b]: [[2 Nephi 10.14|2 Ne. 10:14.]]

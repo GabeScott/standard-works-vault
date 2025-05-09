@@ -5,6 +5,6 @@
 [Numbers 4:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/4.7?lang=eng#p7)
 
 
-[^a]: OR the bread of the presence. TG [Bread, Shewbread](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-shewbread?lang=eng).
+[^a]: OR the bread of the presence. TG [[Bread, Shewbread]].
 [^b]: [[Exodus 25.29|Ex. 25:29.]]
 [^c]: HEB jars for pouring (drink offering).

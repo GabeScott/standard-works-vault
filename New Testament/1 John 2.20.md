@@ -6,4 +6,4 @@
 
 
 [^a]: GR anointing.
-[^b]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
+[^b]: TG [[Holiness]].

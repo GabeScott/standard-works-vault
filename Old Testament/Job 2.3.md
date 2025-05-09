@@ -5,7 +5,7 @@
 [Job 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/job/2.3?lang=eng#p3)
 
 
-[^a]: HEB blameless. TG [Perfection](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng).
+[^a]: HEB blameless. TG [[Perfection, Perfect, Perfectly]].
 [^b]: HEB turns from.
-[^c]: TG [Perseverance.](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng)
-[^d]: TG [Integrity.](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng)
+[^c]: TG [[Perseverance]].
+[^d]: TG [[Integrity]].

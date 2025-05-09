@@ -5,6 +5,6 @@
 [James 4:1](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.1?lang=eng#p1)
 
 
-[^a]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
-[^b]: TG [Apostasy of the Early Christian Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
+[^a]: TG [[War]].
+[^b]: TG [[Apostasy of the Early Christian Church]].
 [^c]: GR pleasures, gratifications, passions.

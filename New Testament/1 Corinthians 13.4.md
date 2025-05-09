@@ -5,7 +5,7 @@
 [1 Corinthians 13:4](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/13.4?lang=eng#p4)
 
 
-[^a]: TG [Charity](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng); [Courtesy.](https://www.churchofjesuschrist.org/study/scriptures/tg/courtesy?lang=eng)
-[^b]: TG [Forbear](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng); [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
-[^c]: TG [Benevolence.](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng)
-[^d]: TG [Envy.](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
+[^a]: TG [[Charity]]; [[Courtesy]].
+[^b]: TG [[Forbear, Forbearance]]; [[Suffering]].
+[^c]: TG [[Benevolence]].
+[^d]: TG [[Envy, Envious]].

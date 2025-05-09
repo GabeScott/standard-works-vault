@@ -5,7 +5,7 @@
 [Isaiah 4:3](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/4.3?lang=eng#p3)
 
 
-[^a]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
-[^b]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
-[^c]: TG [Jerusalem.](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
-[^d]: IE those saved by approval of the Messiah. TG [Record Keeping](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng).
+[^a]: TG [[Israel, Restoration of]].
+[^b]: TG [[Zion, Sion]].
+[^c]: TG [[Jerusalem]].
+[^d]: IE those saved by approval of the Messiah. TG [[Record Keeping]].

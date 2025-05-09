@@ -5,5 +5,5 @@
 [2 Nephi 24:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/24?lang=eng&id=p9#p9)
 
 
-[^a]: [[Ezekiel 32.21|Ezek. 32:21]]. TG [Hell](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng).
-[^b]: TG [Spirits in Prison.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirits-in-prison?lang=eng)
+[^a]: [[Ezekiel 32.21|Ezek. 32:21]]. TG [[Hell]].
+[^b]: TG [[Spirits in Prison]].

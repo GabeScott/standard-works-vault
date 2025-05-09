@@ -5,10 +5,10 @@
 [1 Corinthians 2:14](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.14?lang=eng#p14)
 
 
-[^a]: [[2 Nephi 9.43|2 Ne. 9:43 (42-43)]]. TG [Learn](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng); [Man, Natural, Not Spiritually Reborn](https://www.churchofjesuschrist.org/study/scriptures/tg/man-natural-not-spiritually-reborn?lang=eng).
-[^b]: TG [Teachable.](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng)
-[^c]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
-[^d]: [[Ether 12.25|Ether 12:25 (23-28, 38)]]. TG [Foolishness](https://www.churchofjesuschrist.org/study/scriptures/tg/foolishness?lang=eng).
-[^e]: TG [God, Knowledge about](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng); [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
-[^f]: TG [Spirituality.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirituality?lang=eng)
-[^g]: GR examined, tried, judged. TG [Discernment, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/discernment-spiritual?lang=eng).
+[^a]: [[2 Nephi 9.43|2 Ne. 9:43 (42-43)]]. TG [[Learn, Learning]]; [[Man, Natural, Not Spiritually Reborn]].
+[^b]: TG [[Teachable]].
+[^c]: TG [[God, Spirit of]].
+[^d]: [[Ether 12.25|Ether 12:25 (23-28, 38)]]. TG [[Foolishness]].
+[^e]: TG [[God, Knowledge about]]; [[Knowledge]].
+[^f]: TG [[Spirituality]].
+[^g]: GR examined, tried, judged. TG [[Discernment, Spiritual]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 20.34|3 Ne. 20:34.]]
-[^b]: [[3 Nephi 22.1|3 Ne. 22:1 (1-17)]]. TG [Barren](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng).
+[^b]: [[3 Nephi 22.1|3 Ne. 22:1 (1-17)]]. TG [[Barren, Barrenness]].

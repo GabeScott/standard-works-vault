@@ -5,4 +5,4 @@
 [Amos 2:7](https://www.churchofjesuschrist.org/study/scriptures/ot/amos/2.7?lang=eng#p7)
 
 
-[^a]: TG [Sacrilege.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng)
+[^a]: TG [[Sacrilege]].

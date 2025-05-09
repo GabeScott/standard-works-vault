@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 21.28|Mosiah 21:28 (27-28)]]; [[Mosiah 28.13|28:13.]]
-[^b]: [[Mosiah 8.13|Mosiah 8:13 (13-19)]]; [[Mosiah 28.17|28:17]]. TG [Urim and Thummim](https://www.churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng).
+[^b]: [[Mosiah 8.13|Mosiah 8:13 (13-19)]]; [[Mosiah 28.17|28:17]]. TG [[Urim and Thummim]].

@@ -6,4 +6,4 @@
 
 
 [^a]: GR in accordance with.
-[^b]: TG [Hardheartedness](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng); [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^b]: TG [[Hardheartedness, Harden, Hardness]]; [[Stiffnecked, Stiffneckedness]].

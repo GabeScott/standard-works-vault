@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Kings 6.37|1 Kgs. 6:37.]]
-[^b]: [[2 Chronicles 3.1|2 Chr. 3:1 (1-17)]]. TG [Skill](https://www.churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng).
+[^b]: [[2 Chronicles 3.1|2 Chr. 3:1 (1-17)]]. TG [[Skill]].
 [^c]: [[D&C 88.119|D&C 88:119]]; [[D&C 124.27|124:27 (26-27).]]

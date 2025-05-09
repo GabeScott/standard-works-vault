@@ -5,5 +5,5 @@
 [Ezekiel 2:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/2.3?lang=eng#p3)
 
 
-[^a]: TG [Priesthood, Keys of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-keys-of?lang=eng); [Priesthood, Ordination.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-ordination?lang=eng)
-[^b]: TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng); [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^a]: TG [[Priesthood, Keys of]]; [[Priesthood, Ordination]].
+[^b]: TG [[Apostasy of Israel]]; [[Rebellion, Rebel]].

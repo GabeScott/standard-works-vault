@@ -6,4 +6,4 @@
 
 
 [^a]: OR folly.
-[^b]: TG [Honesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
+[^b]: TG [[Honesty]].

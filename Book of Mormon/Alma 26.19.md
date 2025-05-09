@@ -5,4 +5,4 @@
 [Alma 26:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p19#p19)
 
 
-[^a]: TG [Despair.](https://www.churchofjesuschrist.org/study/scriptures/tg/despair?lang=eng)
+[^a]: TG [[Despair]].

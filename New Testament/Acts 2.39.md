@@ -5,5 +5,5 @@
 [Acts 2:39](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2.39?lang=eng#p39)
 
 
-[^a]: TG [Promise.](https://www.churchofjesuschrist.org/study/scriptures/tg/promise?lang=eng)
+[^a]: TG [[Promise]].
 [^b]: [[Isaiah 57.19|Isa. 57:19.]]

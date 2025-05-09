@@ -5,5 +5,5 @@
 [2 Chronicles 30:9](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/30.9?lang=eng#p9)
 
 
-[^a]: TG [Israel, Restoration of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
-[^b]: TG [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
+[^a]: TG [[Israel, Restoration of]].
+[^b]: TG [[Mercy, Merciful]].

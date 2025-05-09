@@ -5,5 +5,5 @@
 [1 Nephi 4:1](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/4?lang=eng&id=p1#p1)
 
 
-[^a]: TG [Courage](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng); [Dependability](https://www.churchofjesuschrist.org/study/scriptures/tg/dependability?lang=eng); [Faithful.](https://www.churchofjesuschrist.org/study/scriptures/tg/faithful?lang=eng)
-[^b]: [[1 Nephi 7.11|1 Ne. 7:11]]. TG [God, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng).
+[^a]: TG [[Courage, Courageous]]; [[Dependability]]; [[Faithful]].
+[^b]: [[1 Nephi 7.11|1 Ne. 7:11]]. TG [[God, Power of]].

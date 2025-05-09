@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 32.15|Deut. 32:15.]]
-[^b]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^b]: TG [[Adulterer, Adultery]].

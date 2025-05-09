@@ -5,4 +5,4 @@
 [Revelation 11:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/11.8?lang=eng#p8)
 
 
-[^a]: TG [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^a]: TG [[Jesus Christ, Crucifixion of]].

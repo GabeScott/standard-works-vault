@@ -5,4 +5,4 @@
 [2 Samuel 1:27](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/1.27?lang=eng#p27)
 
 
-[^a]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
+[^a]: TG [[War]].

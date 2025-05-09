@@ -5,6 +5,6 @@
 [Daniel 3:28](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/3.28?lang=eng#p28)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
-[^b]: TG [Trustworthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/trustworthiness?lang=eng)
+[^a]: TG [[Angels]].
+[^b]: TG [[Trustworthiness]].
 [^c]: IE were successful in defying the king’s decree.

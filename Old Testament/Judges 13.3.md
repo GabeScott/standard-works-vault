@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moroni 7.29|Moro. 7:29 (29-32).]]
-[^b]: TG [Barren.](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng)
+[^b]: TG [[Barren, Barrenness]].

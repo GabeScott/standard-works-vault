@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Corinthians 5.17|2 Cor. 5:17]]; D&C 130:5-9.
-[^b]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^b]: TG [[Scriptures, Writing of]].
 [^c]: [[D&C 1.37|D&C 1:37.]]

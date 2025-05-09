@@ -5,4 +5,4 @@
 [Jeremiah 2:21](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/2.21?lang=eng#p21)
 
 
-[^a]: TG [Vineyard of the Lord.](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
+[^a]: TG [[Vineyard of the Lord]].

@@ -5,7 +5,7 @@
 [Micah 7:18](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/7.18?lang=eng#p18)
 
 
-[^a]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^a]: TG [[Forgive, Forgiveness]].
 [^b]: [[Isaiah 57.16|Isa. 57:16]]; [[Jeremiah 3.5|Jer. 3:5 (1-5).]]
 [^c]: [[Jeremiah 9.24|Jer. 9:24.]]
-[^d]: TG [God, Mercy of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng); [Mercy.](https://www.churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
+[^d]: TG [[God, Mercy of]]; [[Mercy, Merciful]].

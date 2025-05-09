@@ -7,6 +7,6 @@
 
 [^a]: [[D&C 19.5|D&C 19:5.]]
 [^b]: [[D&C 29.28|D&C 29:28.]]
-[^c]: GR who have come under a curse. (See also 2 Ne. 9:16; D&C 76:31-38, 43-48.) TG [Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng).
-[^d]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^c]: GR who have come under a curse. (See also 2 Ne. 9:16; D&C 76:31-38, 43-48.) TG [[Curse]].
+[^d]: TG [[Hell]].
 [^e]: GR which has been prepared.

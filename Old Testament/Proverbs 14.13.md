@@ -5,5 +5,5 @@
 [Proverbs 14:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/14.13?lang=eng#p13)
 
 
-[^a]: TG [Laughter.](https://www.churchofjesuschrist.org/study/scriptures/tg/laughter?lang=eng)
+[^a]: TG [[Laughter, Laugh]].
 [^b]: [[Ecclesiastes 2.1|Eccl. 2:1.]]

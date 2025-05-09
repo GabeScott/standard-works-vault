@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 3.20|D&C 3:20.]]
-[^b]: TG [Sons and Daughters of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)
-[^c]: [[3 Nephi 18.20|3 Ne. 18:20]]. TG [Prayer](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng).
+[^b]: TG [[Sons and Daughters of God]].
+[^c]: [[3 Nephi 18.20|3 Ne. 18:20]]. TG [[Prayer, Pray]].

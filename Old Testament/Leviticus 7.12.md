@@ -5,5 +5,5 @@
 [Leviticus 7:12](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/7.12?lang=eng#p12)
 
 
-[^a]: [[2 Chronicles 29.31|2 Chr. 29:31]]. TG [Thanksgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng).
+[^a]: [[2 Chronicles 29.31|2 Chr. 29:31]]. TG [[Thanksgiving]].
 [^b]: [[Psalms 107.22|Ps. 107:22.]]

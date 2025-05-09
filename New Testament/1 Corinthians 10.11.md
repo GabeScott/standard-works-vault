@@ -5,7 +5,7 @@
 [1 Corinthians 10:11](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/10.11?lang=eng#p11)
 
 
-[^a]: GR types. TG [Example](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng).
+[^a]: GR types. TG [[Example, Ensample]].
 [^b]: JST 1 Cor. 10:11 … and they were written for our admonition also, and for an admonition for those upon whom the end of the world shall come.
 [^c]: [[Romans 15.4|Rom. 15:4.]]
-[^d]: TG [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^d]: TG [[Warn, Warnings]].

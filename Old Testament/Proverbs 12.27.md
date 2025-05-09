@@ -5,5 +5,5 @@
 [Proverbs 12:27](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/12.27?lang=eng#p27)
 
 
-[^a]: TG [Laziness.](https://www.churchofjesuschrist.org/study/scriptures/tg/laziness?lang=eng)
-[^b]: TG [Diligence.](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng)
+[^a]: TG [[Laziness]].
+[^b]: TG [[Diligence, Diligent, Diligently]].

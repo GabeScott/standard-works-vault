@@ -5,5 +5,5 @@
 [Moses 5:37](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.37?lang=eng#p37)
 
 
-[^a]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^a]: TG [[Strength]].
 [^b]: [[Genesis 4.12|Gen. 4:12 (11-12).]]

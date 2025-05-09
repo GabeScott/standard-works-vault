@@ -5,4 +5,4 @@
 [Helaman 15:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/15?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
+[^a]: TG [[Steadfastness, Steadfast]].

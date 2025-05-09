@@ -6,5 +6,5 @@
 
 
 [^a]: 4 Ne. 1:14.
-[^b]: TG [Election.](https://www.churchofjesuschrist.org/study/scriptures/tg/election?lang=eng)
-[^c]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^b]: TG [[Election, Elect]].
+[^c]: TG [[Restoration of the Gospel]].

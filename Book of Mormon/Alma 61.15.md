@@ -5,6 +5,6 @@
 [Alma 61:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/61?lang=eng&id=p15#p15)
 
 
-[^a]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
-[^b]: [[2 Corinthians 3.17|2 Cor. 3:17]]. TG [God, Spirit of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng).
+[^a]: TG [[War]].
+[^b]: [[2 Corinthians 3.17|2 Cor. 3:17]]. TG [[God, Spirit of]].
 [^c]: [[Alma 60.25|Alma 60:25.]]

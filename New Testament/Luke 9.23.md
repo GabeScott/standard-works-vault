@@ -6,4 +6,4 @@
 
 
 [^a]: See JST Matt. 16:25-26 (Appendix). Matt. 10:38; [[3 Nephi 12.30|3 Ne. 12:30 (29-30).]]
-[^b]: TG [Jesus Christ, Exemplar.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-exemplar?lang=eng)
+[^b]: TG [[Jesus Christ, Exemplar]].

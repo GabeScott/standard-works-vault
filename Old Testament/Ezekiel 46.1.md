@@ -7,5 +7,5 @@
 
 [^a]: [[1 Chronicles 9.18|1 Chr. 9:18.]]
 [^b]: OR faces.
-[^c]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
+[^c]: TG [[Sabbath]].
 [^d]: [[Ezekiel 45.17|Ezek. 45:17.]]

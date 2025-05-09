@@ -5,7 +5,7 @@
 [Psalms 73:26](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.26?lang=eng#p26)
 
 
-[^a]: TG [Flesh and Blood.](https://www.churchofjesuschrist.org/study/scriptures/tg/flesh-and-blood?lang=eng)
+[^a]: TG [[Flesh and Blood]].
 [^b]: [[Psalms 40.12|Ps. 40:12 (12-13).]]
-[^c]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^c]: TG [[Strength]].
 [^d]: [[Psalms 16.5|Ps. 16:5.]]

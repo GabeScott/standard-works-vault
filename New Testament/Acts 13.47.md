@@ -5,5 +5,5 @@
 [Acts 13:47](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.47?lang=eng#p47)
 
 
-[^a]: TG [Example.](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
-[^b]: TG [Jesus Christ, Savior](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng); [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
+[^a]: TG [[Example, Ensample]].
+[^b]: TG [[Jesus Christ, Savior]]; [[Salvation for the Dead]].

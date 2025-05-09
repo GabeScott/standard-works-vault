@@ -5,4 +5,4 @@
 [Mark 1:41](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/1.41?lang=eng#p41)
 
 
-[^a]: TG [Compassion.](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
+[^a]: TG [[Compassion]].

@@ -9,4 +9,4 @@
 [^b]: [[Alma 32.41|Alma 32:41]]; [[D&C 63.23|D&C 63:23.]]
 [^c]: [[Alma 32.43|Alma 32:43.]]
 [^d]: [[Mosiah 24.15|Mosiah 24:15 (13-15)]]; [[Alma 31.38|Alma 31:38.]]
-[^e]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^e]: TG [[Agency]].

@@ -5,5 +5,5 @@
 [Romans 5:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/5.13?lang=eng#p13)
 
 
-[^a]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^a]: TG [[Sin]].
 [^b]: [[Romans 4.15|Rom. 4:15]]; [[2 Nephi 9.25|2 Ne. 9:25]]; [[Alma 42.17|Alma 42:17 (12-24).]]

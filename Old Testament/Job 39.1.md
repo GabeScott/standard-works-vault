@@ -5,4 +5,4 @@
 [Job 39:1](https://www.churchofjesuschrist.org/study/scriptures/ot/job/39.1?lang=eng#p1)
 
 
-[^a]: TG [Nature, Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/nature-earth?lang=eng)
+[^a]: TG [[Nature, Earth]].

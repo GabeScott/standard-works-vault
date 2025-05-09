@@ -5,7 +5,7 @@
 [D&C 5:3](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/5.3?lang=eng#p3)
 
 
-[^a]: TG [Covenants.](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
+[^a]: TG [[Covenants]].
 [^b]: [[Proverbs 25.2|Prov. 25:2.]]
 [^c]: [[2 Nephi 27.13|2 Ne. 27:13. See also “The Testimony of Three Witnesses” and “The Testimony of Eight Witnesses” in the preliminary pages of the Book of Mormon.]]
 [^d]: [[2 Nephi 3.11|2 Ne. 3:11.]]

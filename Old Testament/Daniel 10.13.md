@@ -5,4 +5,4 @@
 [Daniel 10:13](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/10.13?lang=eng#p13)
 
 
-[^a]: TG [Adam.](https://www.churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng)
+[^a]: TG [[Adam]].

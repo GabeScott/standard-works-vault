@@ -6,4 +6,4 @@
 
 
 [^a]: OR elder and man of rank. 2 Ne. 19:15.
-[^b]: TG [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
+[^b]: TG [[False Prophets]].

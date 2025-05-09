@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 42.8|Ps. 42:8]]; [[Psalms 119.55|119:55]]; [[Psalms 149.5|149:5.]]
-[^b]: TG [Meditation.](https://www.churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng)
+[^b]: TG [[Meditation, Meditate]].

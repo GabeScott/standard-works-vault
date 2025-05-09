@@ -5,4 +5,4 @@
 [Mosiah 11:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/11?lang=eng&id=p15#p15)
 
 
-[^a]: TG [Drunkenness](https://www.churchofjesuschrist.org/study/scriptures/tg/drunkenness?lang=eng); [Wine.](https://www.churchofjesuschrist.org/study/scriptures/tg/wine?lang=eng)
+[^a]: TG [[Drunkenness]]; [[Wine]].

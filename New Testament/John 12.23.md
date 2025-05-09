@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 7.30|John 7:30.]]
-[^b]: TG [Jesus Christ, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng)
+[^b]: TG [[Jesus Christ, Mission of]].

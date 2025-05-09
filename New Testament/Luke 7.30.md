@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 5.41|Alma 5:41.]]
 [^b]: GR for.
-[^c]: TG [Baptism, Essential.](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-essential?lang=eng)
+[^c]: TG [[Baptism, Essential]].

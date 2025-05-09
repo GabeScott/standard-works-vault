@@ -6,4 +6,4 @@
 
 
 [^a]: [[Helaman 6.2|Hel. 6:2.]]
-[^b]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^b]: TG [[Stealing, Stolen]].

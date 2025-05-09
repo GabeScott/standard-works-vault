@@ -5,5 +5,5 @@
 [Joseph Smith History 1:29](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.29?lang=eng#p29)
 
 
-[^a]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: TG [[Prayer, Pray]].
 [^b]: [[James 1.6|James 1:6 (5-7).]]

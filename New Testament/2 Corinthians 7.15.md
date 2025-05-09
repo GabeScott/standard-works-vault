@@ -6,4 +6,4 @@
 
 
 [^a]: GR heart, tender affections, compassion.
-[^b]: [[2 Corinthians 2.9|2 Cor. 2:9]]; [[2 Corinthians 10.6|10:6]]. TG [Obedience](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng).
+[^b]: [[2 Corinthians 2.9|2 Cor. 2:9]]; [[2 Corinthians 10.6|10:6]]. TG [[Obedience, Obedient, Obey]].

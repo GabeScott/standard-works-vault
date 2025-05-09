@@ -5,5 +5,5 @@
 [Isaiah 47:13](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/47.13?lang=eng#p13)
 
 
-[^a]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^a]: TG [[Sorcery]].
 [^b]: [[Leviticus 19.26|Lev. 19:26.]]

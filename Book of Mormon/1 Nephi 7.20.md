@@ -5,4 +5,4 @@
 [1 Nephi 7:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/7?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Repent, Repentance]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 12.1|Gen. 12:1]]; [[Abraham 2.3|Abr. 2:3.]]
-[^b]: TG [Kindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
+[^b]: TG [[Kindness]].

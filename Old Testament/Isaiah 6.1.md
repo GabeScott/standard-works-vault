@@ -6,7 +6,7 @@
 
 
 [^a]: [[2 Nephi 16.1|2 Ne. 16:1 (1-13).]]
-[^b]: TG [Jesus Christ, Appearances, Antemortal.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-antemortal?lang=eng)
-[^c]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
-[^d]: [[D&C 137.3|D&C 137:3]]. TG [Kingdom of God, in Heaven](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng).
+[^b]: TG [[Jesus Christ, Appearances, Antemortal]].
+[^c]: TG [[Jesus Christ, Jehovah]].
+[^d]: [[D&C 137.3|D&C 137:3]]. TG [[Kingdom of God, in Heaven]].
 [^e]: IE the hem of His garment, or the skirts thereof.

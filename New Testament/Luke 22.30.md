@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 14.15|Luke 14:15]]; [[Revelation 19.9|Rev. 19:9.]]
-[^b]: [[Mormon 3.18|Morm. 3:18 (18-20)]]; [[D&C 29.12|D&C 29:12]]. TG [Apostles](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng).
+[^b]: [[Mormon 3.18|Morm. 3:18 (18-20)]]; [[D&C 29.12|D&C 29:12]]. TG [[Apostles]].

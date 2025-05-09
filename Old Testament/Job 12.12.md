@@ -5,4 +5,4 @@
 [Job 12:12](https://www.churchofjesuschrist.org/study/scriptures/ot/job/12.12?lang=eng#p12)
 
 
-[^a]: OR old men. TG [Old Age](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng).
+[^a]: OR old men. TG [[Old Age]].

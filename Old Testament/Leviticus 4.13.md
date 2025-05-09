@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 3.11|Mosiah 3:11.]]
-[^b]: TG [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^b]: TG [[Guiltless]].

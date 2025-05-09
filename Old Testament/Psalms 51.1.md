@@ -6,6 +6,6 @@
 
 
 [^a]: [[Psalms 25.7|Ps. 25:7.]]
-[^b]: TG [Kindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
+[^b]: TG [[Kindness]].
 [^c]: [[Acts 3.19|Acts 3:19.]]
-[^d]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^d]: TG [[Sin]].

@@ -6,5 +6,5 @@
 
 
 [^a]: HEB lies with a male.
-[^b]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
-[^c]: TG [Homosexual Behavior.](https://www.churchofjesuschrist.org/study/scriptures/tg/homosexual-behavior?lang=eng)
+[^b]: TG [[Woman, Women]].
+[^c]: TG [[Homosexual Behavior]].

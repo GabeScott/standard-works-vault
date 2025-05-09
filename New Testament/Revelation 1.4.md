@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 77.5|D&C 77:5.]]
-[^b]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
+[^b]: TG [[Jesus Christ, Jehovah]].
 [^c]: [[Revelation 3.1|Rev. 3:1]]; [[Revelation 4.5|4:5.]]

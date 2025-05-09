@@ -5,4 +5,4 @@
 [Acts 9:29](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.29?lang=eng#p29)
 
 
-[^a]: TG [Disputations.](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng)
+[^a]: TG [[Disputations, Dispute]].

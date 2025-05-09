@@ -5,5 +5,5 @@
 [Psalms 119:71](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/119.71?lang=eng#p71)
 
 
-[^a]: TG [Chastening.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng)
-[^b]: TG [Learn.](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng)
+[^a]: TG [[Chastening]].
+[^b]: TG [[Learn, Learning]].

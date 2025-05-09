@@ -6,4 +6,4 @@
 
 
 [^a]: IE people affiliated with evil; see vv. 4-5.
-[^b]: TG [Sexual Immorality.](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
+[^b]: TG [[Sexual Immorality]].

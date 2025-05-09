@@ -5,5 +5,5 @@
 [Words of Mormon 1:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/w-of-m/1?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Strength.](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
+[^a]: TG [[Strength]].
 [^b]: [[Jarom 1.7|Jarom 1:7.]]

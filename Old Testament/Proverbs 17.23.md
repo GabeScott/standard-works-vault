@@ -5,4 +5,4 @@
 [Proverbs 17:23](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.23?lang=eng#p23)
 
 
-[^a]: TG [Bribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/bribe?lang=eng)
+[^a]: TG [[Bribe, Bribery]].

@@ -5,4 +5,4 @@
 [2 Chronicles 19:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/19.2?lang=eng#p2)
 
 
-[^a]: TG [Seer.](https://www.churchofjesuschrist.org/study/scriptures/tg/seer?lang=eng)
+[^a]: TG [[Seer]].

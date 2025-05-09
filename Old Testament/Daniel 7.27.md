@@ -7,4 +7,4 @@
 
 [^a]: [[D&C 136.41|D&C 136:41 (41-42).]]
 [^b]: [[D&C 103.7|D&C 103:7 (7-8).]]
-[^c]: TG [Eternity.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternity?lang=eng)
+[^c]: TG [[Eternity]].

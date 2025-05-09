@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 26.34|Ex. 26:34]]; [[Exodus 30.6|30:6 (6-10).]]
-[^b]: [[Exodus 16.34|Ex. 16:34]]; [[Deuteronomy 31.26|Deut. 31:26]]; [[1 Kings 8.9|1 Kgs. 8:9]]. TG [Record Keeping](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng).
+[^b]: [[Exodus 16.34|Ex. 16:34]]; [[Deuteronomy 31.26|Deut. 31:26]]; [[1 Kings 8.9|1 Kgs. 8:9]]. TG [[Record Keeping]].

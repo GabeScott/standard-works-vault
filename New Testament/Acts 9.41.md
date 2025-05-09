@@ -5,5 +5,5 @@
 [Acts 9:41](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.41?lang=eng#p41)
 
 
-[^a]: TG [Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng)
+[^a]: TG [[Mission of Latter-day Saints]].
 [^b]: [[John 14.12|John 14:12 (12-14).]]

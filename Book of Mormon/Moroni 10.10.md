@@ -5,5 +5,5 @@
 [Moroni 10:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Education.](https://www.churchofjesuschrist.org/study/scriptures/tg/education?lang=eng)
-[^b]: [[1 Corinthians 12.8|1 Cor. 12:8]]. TG [Learn](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng).
+[^a]: TG [[Education]].
+[^b]: [[1 Corinthians 12.8|1 Cor. 12:8]]. TG [[Learn, Learning]].

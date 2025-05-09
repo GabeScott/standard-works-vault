@@ -5,7 +5,7 @@
 [Job 19:25](https://www.churchofjesuschrist.org/study/scriptures/ot/job/19.25?lang=eng#p25)
 
 
-[^a]: TG [Loyalty](https://www.churchofjesuschrist.org/study/scriptures/tg/loyalty?lang=eng); [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
-[^b]: TG [Jesus Christ, Foreordained](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-foreordained?lang=eng); [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
-[^c]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
-[^d]: TG [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
+[^a]: TG [[Loyalty]]; [[Testimony]].
+[^b]: TG [[Jesus Christ, Foreordained]]; [[Jesus Christ, Redeemer]].
+[^c]: TG [[Jesus Christ, Second Coming]].
+[^d]: TG [[Jesus Christ, Resurrection]].

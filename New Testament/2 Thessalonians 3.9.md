@@ -6,4 +6,4 @@
 
 
 [^a]: GR authority.
-[^b]: TG [Example.](https://www.churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
+[^b]: TG [[Example, Ensample]].

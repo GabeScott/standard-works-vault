@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Chronicles 8.13|2 Chr. 8:13 (12-13).]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].

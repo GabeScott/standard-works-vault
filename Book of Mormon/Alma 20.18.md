@@ -5,5 +5,5 @@
 [Alma 20:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/20?lang=eng&id=p18#p18)
 
 
-[^a]: TG [Murder.](https://www.churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng)
+[^a]: TG [[Murder, Murderer]].
 [^b]: [[D&C 42.18|D&C 42:18.]]

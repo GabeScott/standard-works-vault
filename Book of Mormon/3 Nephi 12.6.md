@@ -8,4 +8,4 @@
 [^a]: [[Matthew 5.6|Matt. 5:6]]; [[2 Nephi 9.51|2 Ne. 9:51]]; [[Enos 1.4|Enos 1:4.]]
 [^b]: [[Jeremiah 29.13|Jer. 29:13.]]
 [^c]: [[Proverbs 21.21|Prov. 21:21.]]
-[^d]: TG [Spirituality.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirituality?lang=eng)
+[^d]: TG [[Spirituality]].

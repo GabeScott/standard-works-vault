@@ -6,6 +6,6 @@
 
 
 [^a]: OR pervert justice, nor show partiality nor take a bribe.
-[^b]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
+[^b]: TG [[Judgment]].
 [^c]: [[Exodus 18.21|Ex. 18:21 (21-22).]]
-[^d]: TG [Spiritual Blindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng)
+[^d]: TG [[Spiritual Blindness]].

@@ -5,5 +5,5 @@
 [D&C 6:10](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.10?lang=eng#p10)
 
 
-[^a]: TG [God, Gifts of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
+[^a]: TG [[God, Gifts of]].
 [^b]: [[D&C 63.64|D&C 63:64.]]

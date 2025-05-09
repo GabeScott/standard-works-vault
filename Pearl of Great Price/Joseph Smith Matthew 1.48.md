@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:48](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.48?lang=eng#p48)
 
 
-[^a]: TG [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
+[^a]: TG [[Procrastination, Procrastinate]].

@@ -5,6 +5,6 @@
 [Alma 42:13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p13#p13)
 
 
-[^a]: TG [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
-[^b]: TG [Redemption](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng); [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^a]: TG [[Salvation, Plan of]].
+[^b]: TG [[Redemption]]; [[Repent, Repentance]].
 [^c]: [[2 Nephi 2.13|2 Ne. 2:13 (13-14).]]

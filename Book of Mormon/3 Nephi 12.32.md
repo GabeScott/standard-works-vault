@@ -6,5 +6,5 @@
 
 
 [^a]: [[Matthew 5.32|Matt. 5:32]]; [[Mark 10.11|Mark 10:11 (11-12)]]; [[Luke 16.18|Luke 16:18.]]
-[^b]: TG [Fornication.](https://www.churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng)
-[^c]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^b]: TG [[Fornication]].
+[^c]: TG [[Adulterer, Adultery]].

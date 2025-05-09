@@ -5,4 +5,4 @@
 [Proverbs 30:33](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/30.33?lang=eng#p33)
 
 
-[^a]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
+[^a]: TG [[Strife]].

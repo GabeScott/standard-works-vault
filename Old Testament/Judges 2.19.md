@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 23.32|Matt. 23:32 (30-32).]]
-[^b]: TG [Stubbornness.](https://www.churchofjesuschrist.org/study/scriptures/tg/stubbornness?lang=eng)
+[^b]: TG [[Stubbornness, Stubborn]].

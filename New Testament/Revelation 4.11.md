@@ -5,5 +5,5 @@
 [Revelation 4:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/4.11?lang=eng#p11)
 
 
-[^a]: TG [Jesus Christ, Creator.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
+[^a]: TG [[Jesus Christ, Creator]].
 [^b]: GR through, on account of Thy will.

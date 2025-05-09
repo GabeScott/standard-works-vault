@@ -8,4 +8,4 @@
 [^a]: [[Jeremiah 50.4|Jer. 50:4.]]
 [^b]: [[2 Corinthians 6.18|2 Cor. 6:18.]]
 [^c]: [[Genesis 48.20|Gen. 48:20 (18-20)]]; [[D&C 133.34|D&C 133:34.]]
-[^d]: TG [Birthright](https://www.churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng); [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
+[^d]: TG [[Birthright]]; [[Firstborn]].

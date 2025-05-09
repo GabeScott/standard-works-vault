@@ -5,5 +5,5 @@
 [James 2:18](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2.18?lang=eng#p18)
 
 
-[^a]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^a]: TG [[Faith]].
 [^b]: [[Matthew 7.20|Matt. 7:20 (15-20)]]; [[D&C 20.37|D&C 20:37.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Kings 5.10|2 Kgs. 5:10.]]
-[^b]: TG [Sight.](https://www.churchofjesuschrist.org/study/scriptures/tg/sight?lang=eng)
+[^b]: TG [[Sight]].

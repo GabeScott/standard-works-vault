@@ -6,4 +6,4 @@
 
 
 [^a]: JST Luke 21:24-26 (Appendix).
-[^b]: TG [Astronomy.](https://www.churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng)
+[^b]: TG [[Astronomy]].

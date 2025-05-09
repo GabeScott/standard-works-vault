@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 17.17|Acts 17:17]]; [[Acts 18.4|18:4 (4, 19).]]
-[^b]: TG [Disputations.](https://www.churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng)
+[^b]: TG [[Disputations, Dispute]].

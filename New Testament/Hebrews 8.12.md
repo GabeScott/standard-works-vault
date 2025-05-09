@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 38.14|D&C 38:14.]]
-[^b]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^b]: TG [[Forgive, Forgiveness]].

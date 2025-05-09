@@ -5,5 +5,5 @@
 [Proverbs 18:9](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.9?lang=eng#p9)
 
 
-[^a]: TG [Laziness.](https://www.churchofjesuschrist.org/study/scriptures/tg/laziness?lang=eng)
-[^b]: TG [Waste.](https://www.churchofjesuschrist.org/study/scriptures/tg/waste?lang=eng)
+[^a]: TG [[Laziness]].
+[^b]: TG [[Waste]].

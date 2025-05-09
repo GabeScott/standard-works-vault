@@ -5,4 +5,4 @@
 [Mark 15:32](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/15.32?lang=eng#p32)
 
 
-[^a]: TG [Malice](https://www.churchofjesuschrist.org/study/scriptures/tg/malice?lang=eng); [Reviling.](https://www.churchofjesuschrist.org/study/scriptures/tg/reviling?lang=eng)
+[^a]: TG [[Malice]]; [[Reviling, Revile]].

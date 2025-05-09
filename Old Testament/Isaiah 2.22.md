@@ -6,4 +6,4 @@
 
 
 [^a]: IE Cease depending on mortal man; he is of little power compared to God. Moses 1:10.
-[^b]: TG [Trust Not in the Arm of Flesh.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-not-in-the-arm-of-flesh?lang=eng)
+[^b]: TG [[Trust Not in the Arm of Flesh]].

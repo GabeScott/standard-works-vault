@@ -5,5 +5,5 @@
 [Psalms 132:9](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/132.9?lang=eng#p9)
 
 
-[^a]: TG [Priesthood, Magnifying Callings within.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng)
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^a]: TG [[Priesthood, Magnifying Callings within]].
+[^b]: TG [[God, the Standard of Righteousness]].

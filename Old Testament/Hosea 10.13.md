@@ -5,4 +5,4 @@
 [Hosea 10:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/10.13?lang=eng#p13)
 
 
-[^a]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^a]: TG [[Wickedness, Wicked]].

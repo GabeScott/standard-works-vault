@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Kings 7.38|1 Kgs. 7:38.]]
-[^b]: TG [Wash.](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
+[^b]: TG [[Wash, Washing]].
 [^c]: [[Ezekiel 40.38|Ezek. 40:38.]]

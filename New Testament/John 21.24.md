@@ -6,5 +6,5 @@
 
 
 [^a]: [[John 1.14|John 1:14]]; [[John 13.23|13:23]]; [[John 19.35|19:35]]; [[John 20.2|20:2.]]
-[^b]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^b]: TG [[Scriptures, Writing of]].
 [^c]: [[3 Nephi 8.1|3 Ne. 8:1.]]

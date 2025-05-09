@@ -5,8 +5,8 @@
 [Proverbs 9:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/9.10?lang=eng#p10)
 
 
-[^a]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
-[^b]: TG [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
+[^a]: TG [[Reverence]].
+[^b]: TG [[Wisdom]].
 [^c]: [[Proverbs 30.3|Prov. 30:3.]]
-[^d]: TG [Holiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
-[^e]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
+[^d]: TG [[Holiness]].
+[^e]: TG [[Understanding]].

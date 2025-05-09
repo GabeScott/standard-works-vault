@@ -6,4 +6,4 @@
 
 
 [^a]: JST Matt. 28:2 … two angels …
-[^b]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^b]: TG [[Angels]].

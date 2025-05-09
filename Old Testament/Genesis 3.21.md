@@ -6,4 +6,4 @@
 
 
 [^a]: OR garments, or tunics.
-[^b]: TG [Apparel](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng); [Clothing.](https://www.churchofjesuschrist.org/study/scriptures/tg/clothing?lang=eng)
+[^b]: TG [[Apparel]]; [[Clothing]].

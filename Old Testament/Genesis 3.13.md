@@ -5,4 +5,4 @@
 [Genesis 3:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/3.13?lang=eng#p13)
 
 
-[^a]: [[2 Nephi 9.9|2 Ne. 9:9]]; [[Mosiah 16.3|Mosiah 16:3]]; [[Ether 8.25|Ether 8:25]]; [[Moses 4.19|Moses 4:19 (5-19)]]. TG [Temptation](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng).
+[^a]: [[2 Nephi 9.9|2 Ne. 9:9]]; [[Mosiah 16.3|Mosiah 16:3]]; [[Ether 8.25|Ether 8:25]]; [[Moses 4.19|Moses 4:19 (5-19)]]. TG [[Temptation]].

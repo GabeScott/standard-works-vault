@@ -5,4 +5,4 @@
 [Luke 10:34](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.34?lang=eng#p34)
 
 
-[^a]: TG [Charity](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng); [Welfare.](https://www.churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng)
+[^a]: TG [[Charity]]; [[Welfare]].

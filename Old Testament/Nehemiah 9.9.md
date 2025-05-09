@@ -5,5 +5,5 @@
 [Nehemiah 9:9](https://www.churchofjesuschrist.org/study/scriptures/ot/neh/9.9?lang=eng#p9)
 
 
-[^a]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
+[^a]: TG [[Affliction]].
 [^b]: [[Helaman 8.11|Hel. 8:11.]]

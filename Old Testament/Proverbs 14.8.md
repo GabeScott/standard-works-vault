@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 28.30|2 Ne. 28:30.]]
-[^b]: TG [Deceit.](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng)
+[^b]: TG [[Deceit, Deceive]].

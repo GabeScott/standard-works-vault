@@ -5,5 +5,5 @@
 [Romans 15:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.13?lang=eng#p13)
 
 
-[^a]: TG [Peace of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
-[^b]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
+[^a]: TG [[Peace of God]].
+[^b]: TG [[Hope]].

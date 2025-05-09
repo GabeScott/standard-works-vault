@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 13.23|Mosiah 13:23.]]
-[^b]: TG [Honesty](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng); [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^b]: TG [[Honesty]]; [[Lying, Liar, Lie]].

@@ -5,5 +5,5 @@
 [Mark 6:23](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/6.23?lang=eng#p23)
 
 
-[^a]: TG [Swearing.](https://www.churchofjesuschrist.org/study/scriptures/tg/swearing?lang=eng)
+[^a]: TG [[Swearing, Swear, Sware, Sworn]].
 [^b]: [[Esther 5.3|Esth. 5:3.]]

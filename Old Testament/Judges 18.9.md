@@ -6,4 +6,4 @@
 
 
 [^a]: HEB inactive, quiet.
-[^b]: TG [Laziness.](https://www.churchofjesuschrist.org/study/scriptures/tg/laziness?lang=eng)
+[^b]: TG [[Laziness]].

@@ -5,6 +5,6 @@
 [Leviticus 19:11](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/19.11?lang=eng#p11)
 
 
-[^a]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^a]: TG [[Stealing, Stolen]].
 [^b]: [[D&C 136.25|D&C 136:25.]]
-[^c]: TG [Lying.](https://www.churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
+[^c]: TG [[Lying, Liar, Lie]].

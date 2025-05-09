@@ -5,11 +5,11 @@
 [Moroni 8:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p26#p26)
 
 
-[^a]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
-[^b]: TG [Holy Ghost, Baptism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-baptism-of?lang=eng)
-[^c]: TG [Holy Ghost, Comforter](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-comforter?lang=eng); [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
-[^d]: [[1 Nephi 11.22|1 Ne. 11:22 (22-25)]]. TG [Hope](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng).
+[^a]: TG [[Meek, Meekness]].
+[^b]: TG [[Holy Ghost, Baptism of]].
+[^c]: TG [[Holy Ghost, Comforter]]; [[Holy Ghost, Mission of]].
+[^d]: [[1 Nephi 11.22|1 Ne. 11:22 (22-25)]]. TG [[Hope]].
 [^e]: [[1 Peter 1.22|1 Pet. 1:22.]]
-[^f]: TG [Diligence](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng); [Perseverance.](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng)
-[^g]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
-[^h]: TG [Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng)
+[^f]: TG [[Diligence, Diligent, Diligently]]; [[Perseverance]].
+[^g]: TG [[Prayer, Pray]].
+[^h]: TG [[Mission of Latter-day Saints]].

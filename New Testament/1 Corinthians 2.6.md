@@ -5,4 +5,4 @@
 [1 Corinthians 2:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/2.6?lang=eng#p6)
 
 
-[^a]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
+[^a]: TG [[Perfection, Perfect, Perfectly]].

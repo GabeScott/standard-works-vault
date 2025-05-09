@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 28.19|2 Ne. 28:19 (19-23).]]
-[^b]: [[2 Nephi 9.9|2 Ne. 9:9]]; [[3 Nephi 2.10|3 Ne. 2:10]]. TG [Devil](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng); [Sealing](https://www.churchofjesuschrist.org/study/scriptures/tg/sealing?lang=eng).
+[^b]: [[2 Nephi 9.9|2 Ne. 9:9]]; [[3 Nephi 2.10|3 Ne. 2:10]]. TG [[Devil, Church of]]; [[Sealing, Sealed]].

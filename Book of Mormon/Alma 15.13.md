@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 4.20|Alma 4:20 (7, 16, 18, 20)]]; [[Alma 16.18|16:18.]]
-[^b]: TG [Teacher.](https://www.churchofjesuschrist.org/study/scriptures/tg/teacher?lang=eng)
+[^b]: TG [[Teacher]].

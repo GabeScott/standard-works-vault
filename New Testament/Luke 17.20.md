@@ -5,4 +5,4 @@
 [Luke 17:20](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/17.20?lang=eng#p20)
 
 
-[^a]: TG [Kingdom of God, on Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-on-earth?lang=eng)
+[^a]: TG [[Kingdom of God, on Earth]].

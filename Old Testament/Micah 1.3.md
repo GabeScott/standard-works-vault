@@ -5,4 +5,4 @@
 [Micah 1:3](https://www.churchofjesuschrist.org/study/scriptures/ot/micah/1.3?lang=eng#p3)
 
 
-[^b]: TG [Dispensations.](https://www.churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng)
+[^b]: TG [[Dispensations]].

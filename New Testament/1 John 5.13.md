@@ -5,5 +5,5 @@
 [1 John 5:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/5.13?lang=eng#p13)
 
 
-[^a]: [[John 20.31|John 20:31]]. TG [Record Keeping](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng).
+[^a]: [[John 20.31|John 20:31]]. TG [[Record Keeping]].
 [^b]: [[2 Nephi 31.20|2 Ne. 31:20.]]

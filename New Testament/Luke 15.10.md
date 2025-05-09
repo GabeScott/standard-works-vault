@@ -5,5 +5,5 @@
 [Luke 15:10](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/15.10?lang=eng#p10)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
-[^b]: TG [Worth of Souls.](https://www.churchofjesuschrist.org/study/scriptures/tg/worth-of-souls?lang=eng)
+[^a]: TG [[Angels]].
+[^b]: TG [[Worth of Souls]].

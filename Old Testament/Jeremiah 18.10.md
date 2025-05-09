@@ -6,6 +6,6 @@
 
 
 [^a]: [[Alma 9.12|Alma 9:12.]]
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^b]: TG [[Disobedience, Disobey]].
 [^c]: See JST Jer. 26:13, 19 (Jer. 26:13 note a, 19 note a).
 [^d]: [[D&C 56.4|D&C 56:4 (3-4)]]; [[D&C 58.32|58:32 (31-33).]]

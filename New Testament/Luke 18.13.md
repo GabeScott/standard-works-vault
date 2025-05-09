@@ -5,4 +5,4 @@
 [Luke 18:13](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/18.13?lang=eng#p13)
 
 
-[^a]: [[Alma 38.14|Alma 38:14 (13-14)]]. TG [Contrite Heart](https://www.churchofjesuschrist.org/study/scriptures/tg/contrite-heart?lang=eng).
+[^a]: [[Alma 38.14|Alma 38:14 (13-14)]]. TG [[Contrite Heart]].

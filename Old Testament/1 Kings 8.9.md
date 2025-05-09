@@ -5,6 +5,6 @@
 [1 Kings 8:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.9?lang=eng#p9)
 
 
-[^a]: TG [Ark of the Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/ark-of-the-covenant?lang=eng)
-[^b]: [[Exodus 25.21|Ex. 25:21]]; [[Exodus 40.20|40:20]]; [[1 Kings 8.21|1 Kgs. 8:21]]. TG [Law of Moses](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng); [Scriptures, Preservation of](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng).
+[^a]: TG [[Ark of the Covenant]].
+[^b]: [[Exodus 25.21|Ex. 25:21]]; [[Exodus 40.20|40:20]]; [[1 Kings 8.21|1 Kgs. 8:21]]. TG [[Law of Moses]]; [[Scriptures, Preservation of]].
 [^c]: [[Exodus 3.12|Ex. 3:12 (1, 12)]]; [[Deuteronomy 1.6|Deut. 1:6 (5-8)]]; [[Deuteronomy 4.10|4:10 (10-13).]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Kings 21.4|2 Kgs. 21:4 (4, 7).]]
-[^b]: TG [Sacrilege.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng)
+[^b]: TG [[Sacrilege]].

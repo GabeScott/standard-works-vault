@@ -6,4 +6,4 @@
 
 
 [^a]: IE Though you may reprove a neighbor and not tolerate his sin, do not hate him. Jacob 2:7; [[D&C 121.43|D&C 121:43.]]
-[^b]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^b]: TG [[Hardheartedness, Harden, Hardness]].

@@ -5,6 +5,6 @@
 [Luke 1:32](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.32?lang=eng#p32)
 
 
-[^a]: TG [Godhead](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng); [Jesus Christ, Divine Sonship.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
-[^b]: TG [Jesus Christ, Millennial Reign.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-millennial-reign?lang=eng)
-[^c]: TG [Jesus Christ, Davidic Descent of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-davidic-descent-of?lang=eng)
+[^a]: TG [[Godhead]]; [[Jesus Christ, Divine Sonship]].
+[^b]: TG [[Jesus Christ, Millennial Reign]].
+[^c]: TG [[Jesus Christ, Davidic Descent of]].

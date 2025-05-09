@@ -6,5 +6,5 @@
 
 
 [^a]: 4 Ne. 1:37 (14, 37); [[Mormon 8.10|Morm. 8:10 (10-12)]]; [[Ether 12.17|Ether 12:17.]]
-[^b]: [[Luke 9.27|Luke 9:27]]. TG [Translated Beings](https://www.churchofjesuschrist.org/study/scriptures/tg/translated-beings?lang=eng).
+[^b]: [[Luke 9.27|Luke 9:27]]. TG [[Translated Beings]].
 [^c]: [[3 Nephi 20.22|3 Ne. 20:22.]]

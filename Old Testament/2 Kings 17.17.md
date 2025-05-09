@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Kings 16.3|2 Kgs. 16:3.]]
-[^b]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
-[^c]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
+[^b]: TG [[Sorcery]].
+[^c]: TG [[Evil]].

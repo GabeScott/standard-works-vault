@@ -6,6 +6,6 @@
 
 
 [^a]: [[Moses 1.20|Moses 1:20.]]
-[^b]: [[Isaiah 6.5|Isa. 6:5 (1-7)]]. TG [Despair](https://www.churchofjesuschrist.org/study/scriptures/tg/despair?lang=eng).
+[^b]: [[Isaiah 6.5|Isa. 6:5 (1-7)]]. TG [[Despair]].
 [^c]: [[Acts 26.13|Acts 26:13.]]
 [^d]: [[Revelation 1.16|Rev. 1:16.]]

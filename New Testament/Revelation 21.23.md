@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 60.19|Isa. 60:19]]; [[Revelation 22.5|Rev. 22:5.]]
-[^b]: TG [Jesus Christ, Lamb of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lamb-of-god?lang=eng)
-[^c]: TG [Jesus Christ, Light of the World.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-light-of-the-world?lang=eng)
+[^b]: TG [[Jesus Christ, Lamb of God]].
+[^c]: TG [[Jesus Christ, Light of the World]].

@@ -5,4 +5,4 @@
 [Matthew 13:40](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/13.40?lang=eng#p40)
 
 
-[^a]: TG [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
+[^a]: TG [[World, End of]].

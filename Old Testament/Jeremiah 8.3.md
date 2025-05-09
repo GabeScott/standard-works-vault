@@ -6,4 +6,4 @@
 
 
 [^a]: [[Revelation 9.6|Rev. 9:6.]]
-[^b]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^b]: TG [[Agency]].

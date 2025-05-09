@@ -5,5 +5,5 @@
 [3 Nephi 26:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/26?lang=eng&id=p15#p15)
 
 
-[^a]: [[3 Nephi 17.9|3 Ne. 17:9]]. TG [Administrations to the Sick](https://www.churchofjesuschrist.org/study/scriptures/tg/administrations-to-the-sick?lang=eng); [Heal](https://www.churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng).
-[^b]: TG [Death, Power over.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-power-over?lang=eng)
+[^a]: [[3 Nephi 17.9|3 Ne. 17:9]]. TG [[Administrations to the Sick]]; [[Health]].
+[^b]: TG [[Death, Power over]].

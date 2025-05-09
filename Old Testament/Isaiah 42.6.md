@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 49.8|Isa. 49:8.]]
-[^b]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^b]: TG [[Light]].
 [^c]: [[D&C 45.9|D&C 45:9]]; [[D&C 88.84|88:84 (84-85)]]; JS—H 1:41.

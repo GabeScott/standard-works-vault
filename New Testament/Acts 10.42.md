@@ -5,6 +5,6 @@
 [Acts 10:42](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/10.42?lang=eng#p42)
 
 
-[^a]: TG [Missionary Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng)
-[^b]: TG [Jesus Christ, Authority of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng); [Priesthood, Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng)
-[^c]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Missionary Work]].
+[^b]: TG [[Jesus Christ, Authority of]]; [[Priesthood, Authority]].
+[^c]: TG [[Jesus Christ, Judge]].

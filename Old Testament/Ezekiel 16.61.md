@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ezekiel 36.31|Ezek. 36:31.]]
-[^b]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^b]: TG [[Repent, Repentance]].

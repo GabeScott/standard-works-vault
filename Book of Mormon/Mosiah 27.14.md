@@ -7,7 +7,7 @@
 
 [^a]: Dan. 10:12; [[Abraham 1.16|Abr. 1:16 (15-16).]]
 [^b]: [[2 Corinthians 1.11|2 Cor. 1:11]]; [[Alma 10.22|Alma 10:22.]]
-[^c]: TG [Family, Love within.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng)
+[^c]: TG [[Family, Love within]].
 [^d]: [[Hosea 4.6|Hosea 4:6.]]
 [^e]: [[Alma 29.10|Alma 29:10.]]
 [^f]: [[Alma 19.17|Alma 19:17]]; [[Mormon 9.36|Morm. 9:36 (36-37).]]

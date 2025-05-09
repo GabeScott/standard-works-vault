@@ -5,4 +5,4 @@
 [Luke 8:25](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/8.25?lang=eng#p25)
 
 
-[^a]: TG [Nature, Earth.](https://www.churchofjesuschrist.org/study/scriptures/tg/nature-earth?lang=eng)
+[^a]: TG [[Nature, Earth]].

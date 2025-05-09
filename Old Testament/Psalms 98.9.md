@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 22.21|1 Ne. 22:21 (21-24)]]; [[Moses 6.57|Moses 6:57.]]
-[^b]: TG [World.](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)
+[^b]: TG [[World, End of]].

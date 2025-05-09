@@ -10,4 +10,4 @@
 [^c]: [[Ezekiel 18.26|Ezek. 18:26]]; [[1 Nephi 15.33|1 Ne. 15:33 (32-33)]]; [[Moroni 10.26|Moro. 10:26.]]
 [^d]: [[Alma 40.19|Alma 40:19.]]
 [^e]: [[D&C 76.85|D&C 76:85.]]
-[^f]: TG [Telestial Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/telestial-glory?lang=eng)
+[^f]: TG [[Telestial Glory]].

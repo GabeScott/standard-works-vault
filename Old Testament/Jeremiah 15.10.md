@@ -5,6 +5,6 @@
 [Jeremiah 15:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/15.10?lang=eng#p10)
 
 
-[^a]: TG [Despair.](https://www.churchofjesuschrist.org/study/scriptures/tg/despair?lang=eng)
-[^b]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
-[^c]: TG [Usury.](https://www.churchofjesuschrist.org/study/scriptures/tg/usury?lang=eng)
+[^a]: TG [[Despair]].
+[^b]: TG [[Strife]].
+[^c]: TG [[Usury]].

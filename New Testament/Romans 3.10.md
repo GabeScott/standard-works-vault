@@ -6,4 +6,4 @@
 
 
 [^a]: Ps. 14:2-3; [[Psalms 53.1|53:1 (1-3).]]
-[^b]: TG [Man, Natural, Not Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-natural-not-spiritually-reborn?lang=eng)
+[^b]: TG [[Man, Natural, Not Spiritually Reborn]].

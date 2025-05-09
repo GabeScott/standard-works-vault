@@ -6,7 +6,7 @@
 
 
 [^a]: [[Isaiah 60.18|Isa. 60:18]]; [[D&C 101.26|D&C 101:26.]]
-[^b]: TG [Peace.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
-[^c]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
-[^d]: Hab. 2:14. TG [Earth, Renewal of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng).
-[^e]: TG [God, [Knowledge](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng) about](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng); [Knowledge](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng); [Millennium.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium?lang=eng)
+[^b]: TG [[Peace of God]].
+[^c]: TG [[Zion, Sion]].
+[^d]: Hab. 2:14. TG [[Earth, Renewal of]].
+[^e]: TG [[God, Knowledge about]]; [[Knowledge]]; [[Millennium, Preparing a People for]].

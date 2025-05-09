@@ -5,6 +5,6 @@
 [Matthew 26:41](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26.41?lang=eng#p41)
 
 
-[^a]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
-[^b]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
-[^c]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
+[^a]: TG [[Watch, Watchfulness]].
+[^b]: TG [[Prayer, Pray]].
+[^c]: TG [[Temptation]].

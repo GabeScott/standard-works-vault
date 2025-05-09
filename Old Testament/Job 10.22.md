@@ -5,5 +5,5 @@
 [Job 10:22](https://www.churchofjesuschrist.org/study/scriptures/ot/job/10.22?lang=eng#p22)
 
 
-[^a]: TG [Order.](https://www.churchofjesuschrist.org/study/scriptures/tg/order?lang=eng)
-[^b]: TG [Light [noun].](https://www.churchofjesuschrist.org/study/scriptures/tg/light-[noun]?lang=eng)
+[^a]: TG [[Order]].
+[^b]: TG [[Light]].

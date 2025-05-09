@@ -5,4 +5,4 @@
 [Genesis 29:31](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/29.31?lang=eng#p31)
 
 
-[^a]: TG [Barren.](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng)
+[^a]: TG [[Barren, Barrenness]].

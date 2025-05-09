@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moses 1.10|Moses 1:10.]]
-[^b]: [[Alma 22.15|Alma 22:15]]; [[Alma 38.6|38:6]]. TG [Conversion](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng).
+[^b]: [[Alma 22.15|Alma 22:15]]; [[Alma 38.6|38:6]]. TG [[Conversion, Convert]].

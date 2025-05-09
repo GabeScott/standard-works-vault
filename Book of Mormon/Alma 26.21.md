@@ -5,6 +5,6 @@
 [Alma 26:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p21#p21)
 
 
-[^a]: TG [Man, Natural, Not Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-natural-not-spiritually-reborn?lang=eng)
+[^a]: TG [[Man, Natural, Not Spiritually Reborn]].
 [^b]: [[Alma 36.5|Alma 36:5.]]
 [^c]: [[1 Corinthians 2.11|1 Cor. 2:11 (9-16)]]; [[Jacob 4.8|Jacob 4:8 (8-10, 13).]]

@@ -5,4 +5,4 @@
 [Matthew 1:25](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1.25?lang=eng#p25)
 
 
-[^a]: TG [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
+[^a]: TG [[Firstborn]].

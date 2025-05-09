@@ -5,5 +5,5 @@
 [Alma 1:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/1?lang=eng&id=p25#p25)
 
 
-[^a]: TG [Commitment](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng); [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
-[^b]: TG [Patience.](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
+[^a]: TG [[Commitment]]; [[Steadfastness, Steadfast]].
+[^b]: TG [[Patience, Patient, Patiently]].

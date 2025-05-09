@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 7.58|Acts 7:58]]; [[Acts 22.20|22:20.]]
-[^b]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
+[^b]: TG [[Commitment]].

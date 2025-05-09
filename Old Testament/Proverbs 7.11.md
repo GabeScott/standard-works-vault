@@ -5,4 +5,4 @@
 [Proverbs 7:11](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/7.11?lang=eng#p11)
 
 
-[^a]: TG [Stubbornness.](https://www.churchofjesuschrist.org/study/scriptures/tg/stubbornness?lang=eng)
+[^a]: TG [[Stubbornness, Stubborn]].

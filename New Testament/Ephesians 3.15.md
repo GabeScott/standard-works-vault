@@ -5,4 +5,4 @@
 [Ephesians 3:15](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/3.15?lang=eng#p15)
 
 
-[^a]: TG [Family.](https://www.churchofjesuschrist.org/study/scriptures/tg/family?lang=eng)
+[^a]: TG [[Family]].

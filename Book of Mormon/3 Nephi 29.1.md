@@ -7,4 +7,4 @@
 
 [^a]: [[2 Nephi 30.3|2 Ne. 30:3 (3-8)]]; [[Mormon 3.17|Morm. 3:17.]]
 [^b]: [[Ezekiel 20.37|Ezek. 20:37]]; [[Mormon 5.14|Morm. 5:14 (14, 20).]]
-[^c]: TG [Lands of Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
+[^c]: TG [[Lands of Inheritance]].

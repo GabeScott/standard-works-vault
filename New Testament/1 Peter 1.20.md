@@ -6,4 +6,4 @@
 
 
 [^a]: GR Having been foreknown before the foundation.
-[^b]: TG [Foreordination](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng); [Jesus Christ, Authority of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng); [Jesus Christ, Foreordained](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-foreordained?lang=eng); [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
+[^b]: TG [[Foreordination]]; [[Jesus Christ, Authority of]]; [[Jesus Christ, Foreordained]]; [[Salvation, Plan of]].

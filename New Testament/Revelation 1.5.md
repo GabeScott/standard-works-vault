@@ -5,6 +5,6 @@
 [Revelation 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.5?lang=eng#p5)
 
 
-[^a]: TG [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
-[^b]: TG [Jesus Christ, Redeemer.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
-[^c]: TG [Blood, Symbolism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng)
+[^a]: TG [[Jesus Christ, Resurrection]].
+[^b]: TG [[Jesus Christ, Redeemer]].
+[^c]: TG [[Blood, Symbolism of]].

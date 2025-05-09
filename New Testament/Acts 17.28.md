@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 30.20|Deut. 30:20]]; [[D&C 45.1|D&C 45:1.]]
-[^b]: TG [Man, Antemortal Existence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-antemortal-existence-of?lang=eng)
+[^b]: TG [[Man, Antemortal Existence of]].

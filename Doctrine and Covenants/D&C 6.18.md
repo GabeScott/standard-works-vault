@@ -5,5 +5,5 @@
 [D&C 6:18](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/6.18?lang=eng#p18)
 
 
-[^a]: TG [Diligence](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng); [Loyalty.](https://www.churchofjesuschrist.org/study/scriptures/tg/loyalty?lang=eng)
+[^a]: TG [[Diligence, Diligent, Diligently]]; [[Loyalty]].
 [^b]: [[D&C 124.95|D&C 124:95.]]

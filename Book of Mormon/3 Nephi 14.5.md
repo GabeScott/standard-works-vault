@@ -5,5 +5,5 @@
 [3 Nephi 14:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/14?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^a]: TG [[Hypocrisy, Hypocrite]].
 [^b]: [[John 8.7|John 8:7 (3-11).]]

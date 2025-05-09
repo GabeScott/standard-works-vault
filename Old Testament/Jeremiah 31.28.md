@@ -8,4 +8,4 @@
 [^a]: [[Jeremiah 44.27|Jer. 44:27.]]
 [^b]: [[Jeremiah 45.4|Jer. 45:4.]]
 [^c]: Dan. 9:14.
-[^d]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
+[^d]: TG [[Watch, Watchfulness]].

@@ -5,7 +5,7 @@
 [Acts 9:17](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/9.17?lang=eng#p17)
 
 
-[^a]: TG [Administrations to the Sick](https://www.churchofjesuschrist.org/study/scriptures/tg/administrations-to-the-sick?lang=eng); [Hands, Laying on of.](https://www.churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng)
+[^a]: TG [[Administrations to the Sick]]; [[Hands, Laying on of]].
 [^b]: [[1 Corinthians 9.1|1 Cor. 9:1.]]
-[^c]: TG [Called of God](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng); [Delegation of Responsibility.](https://www.churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng)
-[^d]: TG [Holy Ghost, Gift of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gift-of?lang=eng)
+[^c]: TG [[Called of God]]; [[Delegation of Responsibility]].
+[^d]: TG [[Holy Ghost, Gift of]].

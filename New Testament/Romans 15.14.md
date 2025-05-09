@@ -5,5 +5,5 @@
 [Romans 15:14](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15.14?lang=eng#p14)
 
 
-[^a]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
-[^b]: TG [Warn.](https://www.churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
+[^a]: TG [[Knowledge]].
+[^b]: TG [[Warn, Warnings]].

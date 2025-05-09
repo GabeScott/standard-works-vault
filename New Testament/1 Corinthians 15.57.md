@@ -5,5 +5,5 @@
 [1 Corinthians 15:57](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/15.57?lang=eng#p57)
 
 
-[^a]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^a]: TG [[Thanksgiving]].
 [^b]: 1 Jn. 5:4 (4-5).

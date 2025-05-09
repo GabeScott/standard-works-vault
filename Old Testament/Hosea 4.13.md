@@ -5,4 +5,4 @@
 [Hosea 4:13](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.13?lang=eng#p13)
 
 
-[^a]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^a]: TG [[Adulterer, Adultery]].

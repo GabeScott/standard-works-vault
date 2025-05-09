@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 1.26|Gen. 1:26]]; [[Abraham 5.7|Abr. 5:7.]]
-[^b]: TG [God, Body of, Corporeal Nature.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
+[^b]: TG [[God, Body of, Corporeal Nature]].

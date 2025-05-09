@@ -6,8 +6,8 @@
 
 
 [^a]: GR Women in like manner.
-[^b]: TG [Marriage, Wives.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-wives?lang=eng)
+[^b]: TG [[Marriage, Wives]].
 [^c]: GR honorable, dignified.
-[^d]: TG [Slander.](https://www.churchofjesuschrist.org/study/scriptures/tg/slander?lang=eng)
+[^d]: TG [[Slander]].
 [^e]: GR temperate, vigilant, circumspect.
-[^f]: TG [Trustworthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/trustworthiness?lang=eng)
+[^f]: TG [[Trustworthiness]].

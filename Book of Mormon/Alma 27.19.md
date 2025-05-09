@@ -5,4 +5,4 @@
 [Alma 27:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p19#p19)
 
 
-[^a]: TG [Friendship.](https://www.churchofjesuschrist.org/study/scriptures/tg/friendship?lang=eng)
+[^a]: TG [[Friendship, Friend]].

@@ -5,4 +5,4 @@
 [Alma 51:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/51?lang=eng&id=p14#p14)
 
 
-[^a]: TG [Stubbornness.](https://www.churchofjesuschrist.org/study/scriptures/tg/stubbornness?lang=eng)
+[^a]: TG [[Stubbornness, Stubborn]].

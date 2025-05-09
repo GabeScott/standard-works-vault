@@ -5,4 +5,4 @@
 [Haggai 2:21](https://www.churchofjesuschrist.org/study/scriptures/ot/hag/2.21?lang=eng#p21)
 
 
-[^a]: TG [Earth, Destiny of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-destiny-of?lang=eng)
+[^a]: TG [[Earth, Destiny of]].

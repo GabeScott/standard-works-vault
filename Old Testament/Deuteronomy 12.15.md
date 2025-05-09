@@ -5,7 +5,7 @@
 [Deuteronomy 12:15](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/12.15?lang=eng#p15)
 
 
-[^a]: TG [Food](https://www.churchofjesuschrist.org/study/scriptures/tg/food?lang=eng); [Meat.](https://www.churchofjesuschrist.org/study/scriptures/tg/meat?lang=eng)
+[^a]: TG [[Food]]; [[Meat]].
 [^b]: HEB of whatever meat you desire.
 [^c]: [[Deuteronomy 15.22|Deut. 15:22.]]
 [^d]: OR gazelle.

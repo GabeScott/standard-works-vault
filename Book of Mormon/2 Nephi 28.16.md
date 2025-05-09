@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 27.32|2 Ne. 27:32.]]
-[^b]: Mal. 2:17. TG [Reviling](https://www.churchofjesuschrist.org/study/scriptures/tg/reviling?lang=eng).
+[^b]: Mal. 2:17. TG [[Reviling, Revile]].
 [^c]: [[Ether 2.10|Ether 2:10 (8-11).]]

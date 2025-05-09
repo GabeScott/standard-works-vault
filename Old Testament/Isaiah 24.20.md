@@ -5,4 +5,4 @@
 [Isaiah 24:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/24.20?lang=eng#p20)
 
 
-[^a]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
+[^a]: TG [[Last Days]].

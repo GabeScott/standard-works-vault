@@ -6,5 +6,5 @@
 
 
 [^a]: HEB forger, sharpener.
-[^b]: TG [Skill.](https://www.churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng)
+[^b]: TG [[Skill]].
 [^c]: HEB bronze, brass, or copper. 2 Ne. 5:15; [[Ether 10.23|Ether 10:23.]]

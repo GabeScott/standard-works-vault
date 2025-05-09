@@ -7,7 +7,7 @@
 
 [^a]: [[Ezekiel 18.26|Ezek. 18:26]]; [[Mosiah 15.26|Mosiah 15:26]]; [[Moroni 10.26|Moro. 10:26.]]
 [^b]: [[Alma 12.16|Alma 12:16]]; [[Alma 40.26|40:26.]]
-[^c]: TG [Jesus Christ, Judge](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng); [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^c]: TG [[Jesus Christ, Judge]]; [[Judgment, the Last]].
 [^d]: [[Psalms 33.15|Ps. 33:15 (13-15)]]; [[3 Nephi 27.25|3 Ne. 27:25 (23-27).]]
 [^e]: [[2 Nephi 9.16|2 Ne. 9:16]]; [[D&C 88.35|D&C 88:35.]]
 [^f]: [[Psalms 15.1|Ps. 15:1 (1-5)]]; [[Psalms 24.3|24:3 (3-4)]]; [[Mosiah 15.23|Mosiah 15:23]]; [[Alma 11.37|Alma 11:37]]; [[D&C 76.62|D&C 76:62 (50-70)]]; [[Moses 6.57|Moses 6:57 (55-59).]]

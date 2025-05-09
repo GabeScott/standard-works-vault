@@ -5,6 +5,6 @@
 [Moses 6:6](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/6.6?lang=eng#p6)
 
 
-[^a]: TG [Education](https://www.churchofjesuschrist.org/study/scriptures/tg/education?lang=eng); [Family, Children, Responsibilities toward.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng)
-[^b]: TG [Language.](https://www.churchofjesuschrist.org/study/scriptures/tg/language?lang=eng)
+[^a]: TG [[Education]]; [[Family, Children, Responsibilities toward]].
+[^b]: TG [[Language]].
 [^c]: Zeph. 3:9.

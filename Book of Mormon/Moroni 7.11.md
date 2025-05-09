@@ -7,4 +7,4 @@
 
 [^a]: [[Proverbs 13.14|Prov. 13:14]]; [[James 3.11|James 3:11.]]
 [^b]: [[Matthew 6.24|Matt. 6:24]]; [[Matthew 8.19|8:19]]; [[2 Nephi 31.10|2 Ne. 31:10 (10-13)]]; [[D&C 56.2|D&C 56:2.]]
-[^c]: TG [Servant.](https://www.churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
+[^c]: TG [[Servant]].

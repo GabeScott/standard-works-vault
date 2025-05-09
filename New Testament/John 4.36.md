@@ -5,5 +5,5 @@
 [John 4:36](https://www.churchofjesuschrist.org/study/scriptures/nt/john/4.36?lang=eng#p36)
 
 
-[^a]: TG [Wages.](https://www.churchofjesuschrist.org/study/scriptures/tg/wages?lang=eng)
+[^a]: TG [[Wages]].
 [^b]: [[D&C 18.16|D&C 18:16 (13-16)]]; [[D&C 50.22|50:22 (17-22).]]

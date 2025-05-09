@@ -5,4 +5,4 @@
 [Isaiah 11:12](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.12?lang=eng#p12)
 
 
-[^a]: TG [Dispensations](https://www.churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng); [Ensign](https://www.churchofjesuschrist.org/study/scriptures/tg/ensign?lang=eng); [Kingdom of God, on Earth](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-on-earth?lang=eng); [Mission of Latter-day Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/mission-of-latter-day-saints?lang=eng)
+[^a]: TG [[Dispensations]]; [[Ensign]]; [[Kingdom of God, on Earth]]; [[Mission of Latter-day Saints]].

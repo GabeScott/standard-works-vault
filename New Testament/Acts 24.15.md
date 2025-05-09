@@ -5,4 +5,4 @@
 [Acts 24:15](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/24.15?lang=eng#p15)
 
 
-[^a]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^a]: TG [[Jesus Christ, Resurrection]].

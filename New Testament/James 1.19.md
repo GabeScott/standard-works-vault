@@ -6,5 +6,5 @@
 
 
 [^a]: [[Proverbs 17.27|Prov. 17:27.]]
-[^b]: TG [Patience.](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
-[^c]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^b]: TG [[Patience, Patient, Patiently]].
+[^c]: TG [[Anger]].

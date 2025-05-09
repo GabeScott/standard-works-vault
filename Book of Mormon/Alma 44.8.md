@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 43.20|Alma 43:20.]]
-[^b]: TG [Oath.](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng)
+[^b]: TG [[Oath]].

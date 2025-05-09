@@ -5,8 +5,8 @@
 [Moses 4:6](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.6?lang=eng#p6)
 
 
-[^a]: TG [Devil.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil?lang=eng)
+[^a]: TG [[Devil, Church of]].
 [^b]: [[D&C 29.36|D&C 29:36.]]
-[^c]: TG [Honesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
+[^c]: TG [[Honesty]].
 [^d]: [[John 16.3|John 16:3 (1-3).]]
-[^e]: [[1 Corinthians 2.16|1 Cor. 2:16]]. TG [Mind](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng).
+[^e]: [[1 Corinthians 2.16|1 Cor. 2:16]]. TG [[Mind, Minded]].

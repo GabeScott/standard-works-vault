@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 8.12|Alma 8:12.]]
 [^b]: [[Mosiah 29.42|Mosiah 29:42]]; [[Alma 5.3|Alma 5:3 (3, 44, 49).]]
-[^c]: TG [Preaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
+[^c]: TG [[Preaching, Preach]].

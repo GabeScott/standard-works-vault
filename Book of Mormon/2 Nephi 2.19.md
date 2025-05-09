@@ -5,5 +5,5 @@
 [2 Nephi 2:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p19#p19)
 
 
-[^a]: [[Genesis 2.17|Gen. 2:17 (16-17)]]; [[Alma 12.31|Alma 12:31]]. TG [Fall of Man](https://www.churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng).
-[^b]: TG [Eden.](https://www.churchofjesuschrist.org/study/scriptures/tg/eden?lang=eng)
+[^a]: [[Genesis 2.17|Gen. 2:17 (16-17)]]; [[Alma 12.31|Alma 12:31]]. TG [[Fall of Man]].
+[^b]: TG [[Eden]].

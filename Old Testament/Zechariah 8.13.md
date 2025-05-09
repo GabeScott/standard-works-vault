@@ -5,6 +5,6 @@
 [Zechariah 8:13](https://www.churchofjesuschrist.org/study/scriptures/ot/zech/8.13?lang=eng#p13)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
+[^a]: TG [[Curse]].
 [^b]: JST Zech. 8:13 … gather …
-[^c]: [[Genesis 18.18|Gen. 18:18 (18-19)]]. TG [Israel, Blessings of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng).
+[^c]: [[Genesis 18.18|Gen. 18:18 (18-19)]]. TG [[Israel, Blessings of]].

@@ -5,5 +5,5 @@
 [Judges 3:10](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/3.10?lang=eng#p10)
 
 
-[^a]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^a]: TG [[God, Spirit of]].
 [^b]: Hab. 3:7.

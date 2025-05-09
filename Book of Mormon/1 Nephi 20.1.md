@@ -6,6 +6,6 @@
 
 
 [^a]: [[Isaiah 48.1|Isa. 48:1 (1-22).]]
-[^b]: TG [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng); [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^b]: TG [[Holy Ghost, Baptism of]]; [[Conversion, Convert]].
 [^c]: [[Deuteronomy 6.13|Deut. 6:13.]]
 [^d]: [[Jeremiah 4.2|Jer. 4:2]]; [[Jeremiah 5.2|5:2.]]

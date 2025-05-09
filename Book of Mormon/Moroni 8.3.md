@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 34.6|Ex. 34:6 (5-7)]]; [[Mosiah 4.11|Mosiah 4:11.]]
-[^b]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^b]: TG [[Grace]].

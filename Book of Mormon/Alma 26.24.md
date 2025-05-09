@@ -7,5 +7,5 @@
 
 [^a]: [[Mosiah 1.5|Mosiah 1:5]]; [[Mosiah 28.2|28:2.]]
 [^b]: [[Alma 23.3|Alma 23:3]]; [[Alma 25.6|25:6.]]
-[^c]: TG [Stiffnecked.](https://www.churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
+[^c]: TG [[Stiffnecked, Stiffneckedness]].
 [^d]: [[Jacob 7.24|Jacob 7:24]]; [[Jarom 1.6|Jarom 1:6.]]

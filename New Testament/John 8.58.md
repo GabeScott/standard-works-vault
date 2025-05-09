@@ -5,5 +5,5 @@
 [John 8:58](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.58?lang=eng#p58)
 
 
-[^a]: TG [Man, Antemortal Existence of.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-antemortal-existence-of?lang=eng)
-[^b]: The term I Am used here in the Greek is identical with the Septuagint usage in Ex. 3:14 which identifies Jehovah. (See also John 4:26.) TG [Jesus Christ, Jehovah](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng).
+[^a]: TG [[Man, Antemortal Existence of]].
+[^b]: The term I Am used here in the Greek is identical with the Septuagint usage in Ex. 3:14 which identifies Jehovah. (See also John 4:26.) TG [[Jesus Christ, Jehovah]].

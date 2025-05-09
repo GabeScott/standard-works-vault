@@ -6,4 +6,4 @@
 
 
 [^a]: JST Rev. 2:1 … servant … (Note: JST uses “servant” in place of “angel” in vv. 1, 8, 12, and 18.)
-[^b]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^b]: TG [[Scriptures, Writing of]].

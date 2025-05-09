@@ -5,4 +5,4 @@
 [John 17:25](https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.25?lang=eng#p25)
 
 
-[^a]: TG [God, Knowledge about.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng)
+[^a]: TG [[God, Knowledge about]].

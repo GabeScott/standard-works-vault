@@ -5,6 +5,6 @@
 [Ezekiel 21:27](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/21.27?lang=eng#p27)
 
 
-[^a]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
+[^a]: TG [[Jesus Christ, Second Coming]].
 [^b]: The Hebrew word shiloh may be a short form of asher-lo, which can be rendered “whose right it is.”
 [^c]: [[Genesis 49.10|Gen. 49:10.]]

@@ -7,4 +7,4 @@
 
 [^a]: [[Numbers 11.1|Num. 11:1 (1, 10)]]; [[D&C 35.14|D&C 35:14.]]
 [^b]: [[Psalms 106.40|Ps. 106:40.]]
-[^c]: [[Genesis 7.10|Gen. 7:10 (4, 10)]]; [[Moses 8.17|Moses 8:17 (17, 24)]]. TG [Flood](https://www.churchofjesuschrist.org/study/scriptures/tg/flood?lang=eng).
+[^c]: [[Genesis 7.10|Gen. 7:10 (4, 10)]]; [[Moses 8.17|Moses 8:17 (17, 24)]]. TG [[Flood, Noah’s]].

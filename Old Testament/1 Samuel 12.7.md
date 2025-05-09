@@ -5,4 +5,4 @@
 [1 Samuel 12:7](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/12.7?lang=eng#p7)
 
 
-[^a]: TG [Teachable.](https://www.churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng)
+[^a]: TG [[Teachable]].

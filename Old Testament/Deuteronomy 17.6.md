@@ -6,5 +6,5 @@
 
 
 [^a]: IE On the evidence.
-[^b]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
-[^c]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^b]: TG [[Witness, Witnesses]].
+[^c]: TG [[Capital Punishment]].

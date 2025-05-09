@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 57.10|Isa. 57:10]]; [[Jeremiah 2.25|Jer. 2:25.]]
-[^b]: TG [Walking in Darkness.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-in-darkness?lang=eng)
+[^b]: TG [[Walking in Darkness]].

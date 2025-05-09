@@ -5,4 +5,4 @@
 [Romans 9:26](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/9.26?lang=eng#p26)
 
 
-[^a]: GR sons. TG [Sons and Daughters of God](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng).
+[^a]: GR sons. TG [[Sons and Daughters of God]].

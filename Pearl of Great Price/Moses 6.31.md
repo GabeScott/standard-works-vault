@@ -7,5 +7,5 @@
 
 [^a]: [[Exodus 34.8|Ex. 34:8.]]
 [^b]: [[Exodus 3.11|Ex. 3:11 (10-21).]]
-[^c]: [[Jeremiah 11.19|Jer. 11:19]]; [[Matthew 10.22|Matt. 10:22]]; JS—H 1:20. TG [Hate](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng).
+[^c]: [[Jeremiah 11.19|Jer. 11:19]]; [[Matthew 10.22|Matt. 10:22]]; JS—H 1:20. TG [[Hate]].
 [^d]: [[Exodus 4.10|Ex. 4:10]]; [[Jeremiah 1.6|Jer. 1:6 (6-9).]]

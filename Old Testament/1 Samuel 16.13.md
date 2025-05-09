@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 89.20|Ps. 89:20.]]
-[^b]: TG [Holy Ghost, Gift of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gift-of?lang=eng); [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
+[^b]: TG [[Holy Ghost, Gift of]]; [[Holy Ghost, Mission of]].
 [^c]: [[1 Samuel 17.12|1 Sam. 17:12]]; [[1 Chronicles 2.15|1 Chr. 2:15]]; [[Psalms 78.70|Ps. 78:70.]]

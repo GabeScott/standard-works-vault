@@ -8,5 +8,5 @@
 [^a]: [[D&C 35.23|D&C 35:23.]]
 [^b]: [[D&C 25.7|D&C 25:7]]; [[D&C 35.19|35:19.]]
 [^c]: [[D&C 89.2|D&C 89:2.]]
-[^d]: TG [Wisdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
-[^e]: [[Moroni 10.10|Moro. 10:10]]. TG [Holy Ghost, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng); [Knowledge](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng).
+[^d]: TG [[Wisdom]].
+[^e]: [[Moroni 10.10|Moro. 10:10]]. TG [[Holy Ghost, Gifts of]]; [[Knowledge]].

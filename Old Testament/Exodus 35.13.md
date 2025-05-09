@@ -7,4 +7,4 @@
 
 [^a]: [[Exodus 25.23|Ex. 25:23 (23-29).]]
 [^b]: OR its utensils.
-[^c]: TG [Bread, Shewbread.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-shewbread?lang=eng)
+[^c]: TG [[Bread, Shewbread]].

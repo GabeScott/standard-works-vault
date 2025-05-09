@@ -5,6 +5,6 @@
 [Mark 8:38](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/8.38?lang=eng#p38)
 
 
-[^a]: [[1 Nephi 8.28|1 Ne. 8:28 (24-28)]]. TG [Shame](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng).
-[^b]: TG [Jesus Christ, Son of Man.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
+[^a]: [[1 Nephi 8.28|1 Ne. 8:28 (24-28)]]. TG [[Shame]].
+[^b]: TG [[Jesus Christ, Son of Man]].
 [^c]: JST Mark 8:42-43 (Appendix).

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Ezekiel 17.20|Ezek. 17:20]]; [[Ezekiel 32.3|32:3]]; [[Hosea 7.12|Hosea 7:12.]]
-[^b]: TG [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
+[^b]: TG [[Israel, Bondage of, in Other Lands]].
 [^c]: [[Jeremiah 39.7|Jer. 39:7]]; [[Jeremiah 52.11|52:11.]]

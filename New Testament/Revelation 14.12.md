@@ -5,4 +5,4 @@
 [Revelation 14:12](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/14.12?lang=eng#p12)
 
 
-[^a]: TG [Patience.](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
+[^a]: TG [[Patience, Patient, Patiently]].

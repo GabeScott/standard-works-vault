@@ -5,7 +5,7 @@
 [Revelation 1:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.11?lang=eng#p11)
 
 
-[^a]: TG [Jesus Christ, Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-firstborn?lang=eng)
-[^b]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^a]: TG [[Jesus Christ, Firstborn]].
+[^b]: TG [[Scriptures, Writing of]].
 [^c]: [[Revelation 2.18|Rev. 2:18.]]
 [^d]: Col. 2:1; 4:15 (12-16).

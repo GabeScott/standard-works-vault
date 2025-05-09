@@ -8,4 +8,4 @@
 [^a]: [[Isaiah 38.17|Isa. 38:17.]]
 [^b]: [[Isaiah 58.6|Isa. 58:6.]]
 [^c]: [[Mosiah 2.38|Mosiah 2:38.]]
-[^d]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
+[^d]: TG [[Pain]].

@@ -5,4 +5,4 @@
 [Leviticus 27:26](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/27.26?lang=eng#p26)
 
 
-[^a]: TG [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
+[^a]: TG [[Firstborn]].

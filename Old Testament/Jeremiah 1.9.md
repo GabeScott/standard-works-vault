@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 6.7|Isa. 6:7.]]
-[^b]: TG [Prophecy.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
+[^b]: TG [[Prophecy]].
 [^c]: [[Exodus 4.12|Ex. 4:12 (12-16).]]

@@ -5,4 +5,4 @@
 [Proverbs 28:16](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/28.16?lang=eng#p16)
 
 
-[^a]: TG [Covet.](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
+[^a]: TG [[Covet, Covetousness]].

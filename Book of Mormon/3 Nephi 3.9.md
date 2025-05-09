@@ -6,6 +6,6 @@
 
 
 [^a]: [[3 Nephi 4.14|3 Ne. 4:14.]]
-[^b]: TG [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
+[^b]: TG [[Secret Combinations]].
 [^c]: [[Alma 30.53|Alma 30:53.]]
 [^d]: [[Helaman 6.26|Hel. 6:26 (26-30)]]; [[Ether 8.9|Ether 8:9 (9-19)]]; [[Moses 5.29|Moses 5:29 (29, 49-52).]]

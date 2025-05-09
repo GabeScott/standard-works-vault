@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 64.24|D&C 64:24.]]
-[^b]: TG [Worldliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
+[^b]: TG [[Worldliness]].

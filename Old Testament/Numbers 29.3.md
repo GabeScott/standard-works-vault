@@ -6,4 +6,4 @@
 
 
 [^a]: HEB meal, cereal (also vv. 6-39).
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].

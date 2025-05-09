@@ -5,4 +5,4 @@
 [Proverbs 21:29](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/21.29?lang=eng#p29)
 
 
-[^a]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^a]: TG [[Hardheartedness, Harden, Hardness]].

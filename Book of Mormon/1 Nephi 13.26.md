@@ -8,6 +8,6 @@
 [^a]: [[Luke 1.1|Luke 1:1 (1-4)]]; 2 Tim. 4:13.
 [^b]: [[Matthew 21.43|Matt. 21:43.]]
 [^c]: [[1 Nephi 13.4|1 Ne. 13:4 (4-6)]]; [[1 Nephi 14.10|14:10 (3, 9-17).]]
-[^d]: TG [Apostasy of the Early Christian Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
-[^e]: [[Mormon 8.33|Morm. 8:33]]; [[Moses 1.41|Moses 1:41]]. TG [False Doctrine](https://www.churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng); [Scriptures, Lost](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng).
+[^d]: TG [[Apostasy of the Early Christian Church]].
+[^e]: [[Mormon 8.33|Morm. 8:33]]; [[Moses 1.41|Moses 1:41]]. TG [[False Doctrine]]; [[Scriptures, Lost]].
 [^f]: [[1 Nephi 14.21|1 Ne. 14:21 (20-26)]]; A of F 1:8.

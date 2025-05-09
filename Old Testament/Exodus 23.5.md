@@ -5,4 +5,4 @@
 [Exodus 23:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.5?lang=eng#p5)
 
 
-[^a]: TG [Charity](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng); [Reconciliation](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng); [Service.](https://www.churchofjesuschrist.org/study/scriptures/tg/service?lang=eng)
+[^a]: TG [[Charity]]; [[Reconciliation, Reconcile]]; [[Service]].

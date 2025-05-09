@@ -5,5 +5,5 @@
 [Romans 7:19](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/7.19?lang=eng#p19)
 
 
-[^a]: TG [Opposition.](https://www.churchofjesuschrist.org/study/scriptures/tg/opposition?lang=eng)
+[^a]: TG [[Opposition]].
 [^b]: GR intend, choose.

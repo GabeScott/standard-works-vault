@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 7.14|Ps. 7:14]]; [[Isaiah 59.4|Isa. 59:4.]]
-[^b]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
+[^b]: TG [[Vanity]].

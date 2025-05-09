@@ -5,5 +5,5 @@
 [Moses 7:41](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.41?lang=eng#p41)
 
 
-[^a]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
-[^b]: [[Mosiah 28.3|Mosiah 28:3]]. TG [Compassion](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng).
+[^a]: TG [[God, Omniscience of]].
+[^b]: [[Mosiah 28.3|Mosiah 28:3]]. TG [[Compassion]].

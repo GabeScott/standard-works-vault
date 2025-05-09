@@ -5,4 +5,4 @@
 [Exodus 20:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/20.10?lang=eng#p10)
 
 
-[^a]: OR sojourner. TG [Stranger](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng).
+[^a]: OR sojourner. TG [[Stranger]].

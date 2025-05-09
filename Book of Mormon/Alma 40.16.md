@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jacob 4.11|Jacob 4:11]]; [[Mosiah 15.21|Mosiah 15:21 (21-23)]]; [[Mosiah 18.9|18:9.]]
-[^b]: TG [Jesus Christ, Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
+[^b]: TG [[Jesus Christ, Resurrection]].

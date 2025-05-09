@@ -5,4 +5,4 @@
 [Proverbs 11:3](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.3?lang=eng#p3)
 
 
-[^a]: TG [Integrity.](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng)
+[^a]: TG [[Integrity]].

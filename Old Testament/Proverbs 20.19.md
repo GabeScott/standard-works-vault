@@ -5,5 +5,5 @@
 [Proverbs 20:19](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/20.19?lang=eng#p19)
 
 
-[^a]: TG [Gossip.](https://www.churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng)
-[^b]: TG [Flatter.](https://www.churchofjesuschrist.org/study/scriptures/tg/flatter?lang=eng)
+[^a]: TG [[Gossip]].
+[^b]: TG [[Flatter, Flattery]].

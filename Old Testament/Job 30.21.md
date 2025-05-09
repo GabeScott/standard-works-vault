@@ -5,4 +5,4 @@
 [Job 30:21](https://www.churchofjesuschrist.org/study/scriptures/ot/job/30.21?lang=eng#p21)
 
 
-[^a]: TG [Cruelty.](https://www.churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
+[^a]: TG [[Cruelty, Cruel]].

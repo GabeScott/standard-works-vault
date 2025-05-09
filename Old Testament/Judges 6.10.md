@@ -6,4 +6,4 @@
 
 
 [^a]: HEB (also) do not reverence, honor. 2 Kgs. 17:35.
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^b]: TG [[Disobedience, Disobey]].

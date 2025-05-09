@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 98.16|D&C 98:16 (16-17).]]
-[^b]: TG [Family, Eternal](https://www.churchofjesuschrist.org/study/scriptures/tg/family-eternal?lang=eng); [Salvation for the Dead.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-for-the-dead?lang=eng)
+[^b]: TG [[Family, Eternal]]; [[Salvation for the Dead]].
 [^c]: Mal. 4:6; [[D&C 110.15|D&C 110:15 (13-16).]]

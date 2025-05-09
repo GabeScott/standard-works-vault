@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 31.35|Jer. 31:35.]]
-[^b]: TG [Heaven.](https://www.churchofjesuschrist.org/study/scriptures/tg/heaven?lang=eng)
+[^b]: TG [[Man, a Spirit Child of Heavenly Father]].

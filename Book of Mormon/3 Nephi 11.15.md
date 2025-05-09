@@ -5,4 +5,4 @@
 [3 Nephi 11:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=p15#p15)
 
 
-[^a]: [[3 Nephi 18.25|3 Ne. 18:25]]. TG [Jesus Christ, Appearances, Postmortal](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-postmortal?lang=eng).
+[^a]: [[3 Nephi 18.25|3 Ne. 18:25]]. TG [[Jesus Christ, Appearances, Postmortal]].

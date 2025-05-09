@@ -5,9 +5,9 @@
 [2 Nephi 26:32](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/26?lang=eng&id=p32#p32)
 
 
-[^a]: TG [Commandments of God](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng); [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
-[^b]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
-[^c]: TG [Profanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng)
-[^d]: TG [Envy.](https://www.churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
-[^e]: TG [Malice.](https://www.churchofjesuschrist.org/study/scriptures/tg/malice?lang=eng)
-[^f]: TG [Chastity](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng); [Whore.](https://www.churchofjesuschrist.org/study/scriptures/tg/whore?lang=eng)
+[^a]: TG [[Commandments of God]]; [[Law of Moses]].
+[^b]: TG [[Stealing, Stolen]].
+[^c]: TG [[Profanity]].
+[^d]: TG [[Envy, Envious]].
+[^e]: TG [[Malice]].
+[^f]: TG [[Chastity, Chaste]]; [[Whore, Whoredom]].

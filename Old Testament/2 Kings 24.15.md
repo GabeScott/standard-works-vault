@@ -7,5 +7,5 @@
 
 [^a]: [[Jeremiah 29.2|Jer. 29:2.]]
 [^b]: [[Ezekiel 17.13|Ezek. 17:13.]]
-[^c]: TG [Israel, Bondage of, in Other Lands.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
+[^c]: TG [[Israel, Bondage of, in Other Lands]].
 [^d]: [[Jeremiah 24.1|Jer. 24:1]]; [[Ezekiel 19.13|Ezek. 19:13.]]

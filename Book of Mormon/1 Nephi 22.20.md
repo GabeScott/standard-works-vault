@@ -5,6 +5,6 @@
 [1 Nephi 22:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/22?lang=eng&id=p20#p20)
 
 
-[^a]: TG [Millennium, Preparing a People for.](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium-preparing-a-people-for?lang=eng)
+[^a]: TG [[Millennium, Preparing a People for]].
 [^b]: [[John 4.19|John 4:19]]; [[John 7.40|7:40.]]
 [^c]: [[D&C 133.63|D&C 133:63.]]

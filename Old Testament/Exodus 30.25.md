@@ -8,4 +8,4 @@
 [^a]: [[Exodus 31.11|Ex. 31:11]]; [[Exodus 35.15|35:15]]; [[1 Kings 1.39|1 Kgs. 1:39.]]
 [^b]: OR anointing.
 [^c]: HEB perfumer.
-[^d]: TG [Anointing.](https://www.churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng)
+[^d]: TG [[Anointing, Anoint]].

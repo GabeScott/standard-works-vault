@@ -5,4 +5,4 @@
 [Isaiah 57:20](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/57.20?lang=eng#p20)
 
 
-[^a]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^a]: TG [[Wickedness, Wicked]].

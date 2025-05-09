@@ -5,4 +5,4 @@
 [1 Kings 14:9](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/14.9?lang=eng#p9)
 
 
-[^a]: TG [Unrighteous Dominion.](https://www.churchofjesuschrist.org/study/scriptures/tg/unrighteous-dominion?lang=eng)
+[^a]: TG [[Unrighteous Dominion]].

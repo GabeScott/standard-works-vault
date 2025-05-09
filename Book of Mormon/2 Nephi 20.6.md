@@ -5,4 +5,4 @@
 [2 Nephi 20:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/20?lang=eng&id=p6#p6)
 
 
-[^a]: IE against Israel. TG [Hypocrisy](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng).
+[^a]: IE against Israel. TG [[Hypocrisy, Hypocrite]].

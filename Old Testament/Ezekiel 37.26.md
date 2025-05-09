@@ -6,6 +6,6 @@
 
 
 [^a]: [[Ezekiel 34.25|Ezek. 34:25.]]
-[^b]: TG [New and Everlasting Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/new-and-everlasting-covenant?lang=eng)
-[^c]: TG [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
-[^d]: TG [God, Presence of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng); [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^b]: TG [[New and Everlasting Covenant]].
+[^c]: TG [[Restoration of the Gospel]].
+[^d]: TG [[God, Presence of]]; [[Genealogy and Temple Work]].

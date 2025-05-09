@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 15.16|Prov. 15:16.]]
-[^b]: TG [Silence.](https://www.churchofjesuschrist.org/study/scriptures/tg/silence?lang=eng)
+[^b]: TG [[Silence, Silent]].

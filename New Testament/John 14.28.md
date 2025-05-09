@@ -5,5 +5,5 @@
 [John 14:28](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.28?lang=eng#p28)
 
 
-[^a]: TG [Jesus Christ, Ascension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-ascension-of?lang=eng)
-[^b]: TG [Godhead.](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng)
+[^a]: TG [[Jesus Christ, Ascension of]].
+[^b]: TG [[Godhead]].

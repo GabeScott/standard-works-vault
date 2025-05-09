@@ -5,6 +5,6 @@
 [Romans 10:3](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/10.3?lang=eng#p3)
 
 
-[^a]: TG [God, the Standard of Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-standard-of-righteousness?lang=eng)
+[^a]: TG [[God, the Standard of Righteousness]].
 [^b]: GR desiring, endeavoring.
-[^c]: TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng); [Submissiveness.](https://www.churchofjesuschrist.org/study/scriptures/tg/submissiveness?lang=eng)
+[^c]: TG [[Apostasy of Israel]]; [[Submissiveness, Submit]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Chronicles 16.4|1 Chr. 16:4.]]
-[^b]: TG [Seer.](https://www.churchofjesuschrist.org/study/scriptures/tg/seer?lang=eng)
+[^b]: TG [[Seer]].
 [^c]: [[2 Samuel 12.1|2 Sam. 12:1.]]

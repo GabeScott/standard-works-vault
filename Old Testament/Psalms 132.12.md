@@ -7,5 +7,5 @@
 
 [^a]: [[1 Kings 2.4|1 Kgs. 2:4.]]
 [^b]: [[D&C 90.24|D&C 90:24.]]
-[^c]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^c]: TG [[Testimony]].
 [^d]: [[1 Kings 9.5|1 Kgs. 9:5.]]

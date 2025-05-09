@@ -5,5 +5,5 @@
 [Isaiah 41:8](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/41.8?lang=eng#p8)
 
 
-[^a]: TG [Peculiar People.](https://www.churchofjesuschrist.org/study/scriptures/tg/peculiar-people?lang=eng)
+[^a]: TG [[Peculiar People]].
 [^b]: [[James 2.23|James 2:23.]]

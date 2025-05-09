@@ -8,7 +8,7 @@
 [^a]: [[Alma 16.21|Alma 16:21.]]
 [^b]: [[Ezra 10.1|Ezra 10:1 (1-5).]]
 [^c]: [[Psalms 150.1|Ps. 150:1]]; [[Alma 16.13|Alma 16:13.]]
-[^d]: TG [Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/worship?lang=eng)
+[^d]: TG [[Assembly for Worship]].
 [^e]: [[Exodus 27.1|Ex. 27:1 (1-8).]]
-[^f]: TG [Watch.](https://www.churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
-[^g]: TG [Death, Spiritual, First.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-first?lang=eng)
+[^f]: TG [[Watch, Watchfulness]].
+[^g]: TG [[Death, Spiritual, First]].

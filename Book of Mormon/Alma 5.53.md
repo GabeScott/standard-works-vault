@@ -5,7 +5,7 @@
 [Alma 5:53](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p53#p53)
 
 
-[^a]: TG [Sacrilege.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng)
+[^a]: TG [[Sacrilege]].
 [^b]: [[1 Corinthians 5.2|1 Cor. 5:2.]]
 [^c]: [[2 Nephi 28.13|2 Ne. 28:13 (11-14)]]; [[Mormon 8.36|Morm. 8:36 (36-39).]]
 [^d]: [[Psalms 62.10|Ps. 62:10]]; [[D&C 56.16|D&C 56:16 (16-18).]]

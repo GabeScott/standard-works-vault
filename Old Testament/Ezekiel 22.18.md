@@ -5,5 +5,5 @@
 [Ezekiel 22:18](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/22.18?lang=eng#p18)
 
 
-[^a]: [[Psalms 119.119|Ps. 119:119]]. TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng); [Wickedness](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng).
+[^a]: [[Psalms 119.119|Ps. 119:119]]. TG [[Apostasy of Israel]]; [[Wickedness, Wicked]].
 [^b]: [[Isaiah 48.10|Isa. 48:10.]]

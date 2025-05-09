@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moroni 7.37|Moro. 7:37.]]
-[^b]: TG [Doubt](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng); [Unbelief.](https://www.churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
+[^b]: TG [[Doubt, Doubtful]]; [[Unbelief, Unbelievers]].

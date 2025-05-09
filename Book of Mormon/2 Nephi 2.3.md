@@ -7,4 +7,4 @@
 
 [^a]: [[Enos 1.1|Enos 1:1.]]
 [^b]: [[2 Nephi 11.3|2 Ne. 11:3.]]
-[^c]: TG [Fulness.](https://www.churchofjesuschrist.org/study/scriptures/tg/fulness?lang=eng)
+[^c]: TG [[Fulness]].

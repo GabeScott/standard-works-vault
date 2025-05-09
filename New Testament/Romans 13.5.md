@@ -5,4 +5,4 @@
 [Romans 13:5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/13.5?lang=eng#p5)
 
 
-[^a]: TG [Conscience.](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
+[^a]: TG [[Conscience]].

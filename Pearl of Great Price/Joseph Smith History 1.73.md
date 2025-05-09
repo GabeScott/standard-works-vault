@@ -5,4 +5,4 @@
 [Joseph Smith History 1:73](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.73?lang=eng#p73)
 
 
-[^a]: TG [Holy Ghost, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng); [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
+[^a]: TG [[Holy Ghost, Gifts of]]; [[Holy Ghost, Mission of]].

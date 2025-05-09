@@ -5,5 +5,5 @@
 [Moses 7:27](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.27?lang=eng#p27)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
-[^b]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
+[^a]: TG [[Angels]].
+[^b]: TG [[Testimony]].

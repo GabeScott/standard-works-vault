@@ -6,5 +6,5 @@
 
 
 [^a]: [[Alma 7.5|Alma 7:5.]]
-[^b]: TG [Tribulation.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
+[^b]: TG [[Tribulation]].
 [^c]: [[2 Nephi 9.16|2 Ne. 9:16.]]

@@ -5,5 +5,5 @@
 [1 Nephi 12:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/12?lang=eng&id=p19#p19)
 
 
-[^a]: TG [Temptation.](https://www.churchofjesuschrist.org/study/scriptures/tg/temptation?lang=eng)
+[^a]: TG [[Temptation]].
 [^b]: [[Jarom 1.10|Jarom 1:10]]; W of M 1:2 (1-2).

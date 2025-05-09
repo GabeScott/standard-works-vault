@@ -8,5 +8,5 @@
 [^a]: [[Genesis 28.19|Gen. 28:19 (16-19)]]; [[Joshua 16.2|Josh. 16:2 (1-2)]]; [[2 Kings 2.2|2 Kgs. 2:2.]]
 [^b]: [[Genesis 13.3|Gen. 13:3.]]
 [^c]: OR Ai.
-[^d]: [[Abraham 2.20|Abr. 2:20]]. TG [Prayer](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng).
-[^e]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^d]: [[Abraham 2.20|Abr. 2:20]]. TG [[Prayer, Pray]].
+[^e]: TG [[Name of the Lord]].

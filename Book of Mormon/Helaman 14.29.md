@@ -5,4 +5,4 @@
 [Helaman 14:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p29#p29)
 
 
-[^a]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
+[^a]: TG [[Judgment]].

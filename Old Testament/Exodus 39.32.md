@@ -5,4 +5,4 @@
 [Exodus 39:32](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/39.32?lang=eng#p32)
 
 
-[^a]: TG [Commandments of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)
+[^a]: TG [[Commandments of God]].

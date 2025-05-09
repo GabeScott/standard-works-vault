@@ -6,7 +6,7 @@
 
 
 [^a]: [[1 Chronicles 6.49|1 Chr. 6:49]]; [[Moses 5.7|Moses 5:7 (6-7).]]
-[^b]: TG [Blood, Symbolism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng)
+[^b]: TG [[Blood, Symbolism of]].
 [^c]: [[2 Nephi 9.7|2 Ne. 9:7.]]
 [^d]: [[Isaiah 45.17|Isa. 45:17]]; [[Hebrews 5.9|Heb. 5:9.]]
-[^e]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^e]: TG [[Self-Sacrifice]].

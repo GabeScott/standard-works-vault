@@ -6,5 +6,5 @@
 
 
 [^a]: Mal. 3:5; Col. 4:1.
-[^b]: TG [Leadership.](https://www.churchofjesuschrist.org/study/scriptures/tg/leadership?lang=eng)
+[^b]: TG [[Leadership]].
 [^c]: [[Moroni 8.12|Moro. 8:12]]; [[D&C 38.16|D&C 38:16.]]

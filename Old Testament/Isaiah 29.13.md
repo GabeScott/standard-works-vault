@@ -6,9 +6,9 @@
 
 
 [^a]: JS—H 1:19 (5-26).
-[^b]: [[Ezekiel 33.31|Ezek. 33:31 (30-33)]]. TG [Apostasy of the Early Christian Church](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng); [Hypocrisy](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng).
+[^b]: [[Ezekiel 33.31|Ezek. 33:31 (30-33)]]. TG [[Apostasy of the Early Christian Church]]; [[Hypocrisy, Hypocrite]].
 [^c]: [[Isaiah 48.1|Isa. 48:1]]; [[Matthew 15.8|Matt. 15:8 (7-9).]]
-[^d]: [[Isaiah 1.13|Isa. 1:13]]. TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng).
-[^e]: TG [Hardheartedness](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng); [Heart](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng); [Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/worship?lang=eng)
+[^d]: [[Isaiah 1.13|Isa. 1:13]]. TG [[Apostasy of Israel]].
+[^e]: TG [[Hardheartedness, Harden, Hardness]]; [[Heart]]; [[Assembly for Worship]].
 [^f]: OR regard, reverence for me.
-[^g]: TG [Traditions of Men.](https://www.churchofjesuschrist.org/study/scriptures/tg/traditions-of-men?lang=eng)
+[^g]: TG [[Traditions of Men]].

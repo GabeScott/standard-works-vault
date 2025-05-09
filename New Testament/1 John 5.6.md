@@ -5,6 +5,6 @@
 [1 John 5:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/5.6?lang=eng#p6)
 
 
-[^a]: TG [Jesus Christ, Condescension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-condescension-of?lang=eng)
+[^a]: TG [[Jesus Christ, Condescension of]].
 [^b]: [[D&C 1.39|D&C 1:39.]]
-[^c]: TG [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
+[^c]: TG [[Holy Ghost, Mission of]].

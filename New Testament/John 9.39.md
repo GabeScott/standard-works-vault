@@ -5,5 +5,5 @@
 [John 9:39](https://www.churchofjesuschrist.org/study/scriptures/nt/john/9.39?lang=eng#p39)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].
 [^b]: [[Luke 5.32|Luke 5:32]]; 1 Tim. 1:13, 15.

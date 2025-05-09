@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 3.7|1 Ne. 3:7]]; [[D&C 124.90|D&C 124:90.]]
-[^b]: TG [Courage.](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng)
+[^b]: TG [[Courage, Courageous]].

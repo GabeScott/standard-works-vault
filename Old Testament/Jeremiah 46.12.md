@@ -5,4 +5,4 @@
 [Jeremiah 46:12](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/46.12?lang=eng#p12)
 
 
-[^a]: TG [Shame.](https://www.churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
+[^a]: TG [[Shame]].

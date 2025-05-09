@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 63.64|D&C 63:64.]]
-[^b]: TG [Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng)
+[^b]: TG [[Mind, Minded]].
 [^c]: [[Proverbs 17.28|Prov. 17:28 (27-28).]]

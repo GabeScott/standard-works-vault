@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 27.16|Gen. 27:16]]; [[Alma 49.6|Alma 49:6.]]
-[^b]: TG [Apparel](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng); [Clothing](https://www.churchofjesuschrist.org/study/scriptures/tg/clothing?lang=eng); [Modesty.](https://www.churchofjesuschrist.org/study/scriptures/tg/modesty?lang=eng)
+[^b]: TG [[Apparel]]; [[Clothing]]; [[Modesty]].

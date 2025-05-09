@@ -5,4 +5,4 @@
 [Psalms 26:10](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/26.10?lang=eng#p10)
 
 
-[^a]: TG [Bribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/bribe?lang=eng)
+[^a]: TG [[Bribe, Bribery]].

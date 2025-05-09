@@ -5,5 +5,5 @@
 [Proverbs 18:24](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.24?lang=eng#p24)
 
 
-[^a]: [[Proverbs 27.10|Prov. 27:10]]. TG [Friendship](https://www.churchofjesuschrist.org/study/scriptures/tg/friendship?lang=eng).
-[^b]: TG [Brotherhood and Sisterhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
+[^a]: [[Proverbs 27.10|Prov. 27:10]]. TG [[Friendship, Friend]].
+[^b]: TG [[Brotherhood and Sisterhood]].

@@ -6,9 +6,9 @@
 
 
 [^a]: [[D&C 49.11|D&C 49:11 (11-14).]]
-[^b]: TG [Baptism, Qualifications for](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng); [Repent](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng); [Salvation.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
-[^c]: TG [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng); [Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng), Essential.
-[^d]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
-[^e]: TG [Remission of Sins.](https://www.churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
-[^f]: TG [Holy Ghost, Gift of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gift-of?lang=eng)
-[^g]: [[Acts 8.17|Acts 8:17 (14-17)]]. TG [Holy Ghost, Baptism of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-baptism-of?lang=eng).
+[^b]: TG [[Baptism, Qualifications for]]; [[Repent, Repentance]]; [[Salvation for the Dead]].
+[^c]: TG [[Holy Ghost, Baptism of]]; [[Holy Ghost, Baptism of]], Essential.
+[^d]: TG [[Name of the Lord]].
+[^e]: TG [[Remission of Sins]].
+[^f]: TG [[Holy Ghost, Gift of]].
+[^g]: [[Acts 8.17|Acts 8:17 (14-17)]]. TG [[Holy Ghost, Baptism of]].

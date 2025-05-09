@@ -5,6 +5,6 @@
 [1 Samuel 10:25](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/10.25?lang=eng#p25)
 
 
-[^a]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
-[^b]: TG [Scribe](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng); [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
-[^c]: TG [Scriptures, Lost.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng)
+[^a]: TG [[Governments]].
+[^b]: TG [[Scribe]]; [[Scriptures, Writing of]].
+[^c]: TG [[Scriptures, Lost]].

@@ -5,5 +5,5 @@
 [Proverbs 1:8](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/1.8?lang=eng#p8)
 
 
-[^a]: TG [Education.](https://www.churchofjesuschrist.org/study/scriptures/tg/education?lang=eng)
-[^b]: TG [Family, Children, Duties of.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-duties-of?lang=eng)
+[^a]: TG [[Education]].
+[^b]: TG [[Family, Children, Duties of]].

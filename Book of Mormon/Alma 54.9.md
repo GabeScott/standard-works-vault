@@ -5,4 +5,4 @@
 [Alma 54:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/54?lang=eng&id=p9#p9)
 
 
-[^a]: TG [Punish.](https://www.churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
+[^a]: TG [[Punish, Punishment]].

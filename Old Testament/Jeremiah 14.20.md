@@ -5,5 +5,5 @@
 [Jeremiah 14:20](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/14.20?lang=eng#p20)
 
 
-[^a]: TG [Confession.](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng)
+[^a]: TG [[Confession]].
 [^b]: [[Psalms 106.6|Ps. 106:6.]]

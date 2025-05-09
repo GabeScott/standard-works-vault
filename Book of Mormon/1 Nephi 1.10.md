@@ -5,4 +5,4 @@
 [1 Nephi 1:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/1?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Apostles.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng)
+[^a]: TG [[Apostles]].

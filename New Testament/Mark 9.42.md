@@ -5,4 +5,4 @@
 [Mark 9:42](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/9.42?lang=eng#p42)
 
 
-[^a]: TG [Offense.](https://www.churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng)
+[^a]: TG [[Offense, Offend, Offender]].

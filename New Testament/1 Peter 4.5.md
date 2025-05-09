@@ -5,5 +5,5 @@
 [1 Peter 4:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.5?lang=eng#p5)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].
 [^b]: OR living.

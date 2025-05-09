@@ -7,4 +7,4 @@
 
 [^a]: [[Ether 4.8|Ether 4:8 (8-12).]]
 [^b]: [[Matthew 10.5|Matt. 10:5 (5-42).]]
-[^c]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^c]: TG [[Prophets, Rejection of]].

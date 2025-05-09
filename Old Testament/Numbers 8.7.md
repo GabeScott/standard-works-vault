@@ -6,4 +6,4 @@
 
 
 [^a]: [[Nehemiah 12.30|Neh. 12:30.]]
-[^b]: TG [Purification.](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
+[^b]: TG [[Purification, Purify, Purifying]].

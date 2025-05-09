@@ -5,4 +5,4 @@
 [1 Nephi 3:25](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/3?lang=eng&id=p25#p25)
 
 
-[^a]: TG [Covet.](https://www.churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
+[^a]: TG [[Covet, Covetousness]].

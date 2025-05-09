@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 43.30|Alma 43:30.]]
-[^b]: TG [Governments.](https://www.churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
+[^b]: TG [[Governments]].

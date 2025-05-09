@@ -5,9 +5,9 @@
 [Hebrews 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1.3?lang=eng#p3)
 
 
-[^a]: [[John 1.14|John 1:14]]. TG [Celestial Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/celestial-glory?lang=eng).
-[^b]: TG [God, Body of, Corporeal Nature.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
-[^c]: TG [God, Power of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
+[^a]: [[John 1.14|John 1:14]]. TG [[Celestial Glory]].
+[^b]: TG [[God, Body of, Corporeal Nature]].
+[^c]: TG [[God, Power of]].
 [^d]: GR made purification, expiation for.
 [^e]: [[Acts 7.55|Acts 7:55 (55-56)]]; [[D&C 76.23|D&C 76:23.]]
 [^f]: [[Hebrews 12.2|Heb. 12:2.]]

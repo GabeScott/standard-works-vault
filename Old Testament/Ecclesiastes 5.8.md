@@ -5,5 +5,5 @@
 [Ecclesiastes 5:8](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/5.8?lang=eng#p8)
 
 
-[^a]: TG [Oppression.](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng)
-[^b]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
+[^a]: TG [[Oppression, Oppress]].
+[^b]: TG [[Judgment]].

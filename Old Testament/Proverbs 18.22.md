@@ -5,4 +5,4 @@
 [Proverbs 18:22](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/18.22?lang=eng#p22)
 
 
-[^b]: TG [Marriage, Wives.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-wives?lang=eng)
+[^b]: TG [[Marriage, Wives]].

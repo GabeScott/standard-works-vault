@@ -8,5 +8,5 @@
 [^a]: IE Israel.
 [^b]: [[Helaman 7.20|Hel. 7:20 (17-22).]]
 [^c]: [[Psalms 68.20|Ps. 68:20 (19-20).]]
-[^d]: TG [Rock.](https://www.churchofjesuschrist.org/study/scriptures/tg/rock?lang=eng)
+[^d]: TG [[Rock]].
 [^e]: HEB thou dost plant … ; i.e., practice idolatrous things.

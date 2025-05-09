@@ -5,4 +5,4 @@
 [2 Kings 20:6](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/20.6?lang=eng#p6)
 
 
-[^a]: TG [Time.](https://www.churchofjesuschrist.org/study/scriptures/tg/time?lang=eng)
+[^a]: TG [[Time]].

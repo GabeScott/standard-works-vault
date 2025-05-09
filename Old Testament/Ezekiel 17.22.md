@@ -7,4 +7,4 @@
 
 [^a]: [[Omni 1.15|Omni 1:15 (14-17)]]; [[Mosiah 25.2|Mosiah 25:2]]; [[Helaman 8.21|Hel. 8:21.]]
 [^b]: [[Jacob 5.24|Jacob 5:24 (22-24).]]
-[^c]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
+[^c]: TG [[Israel, Scattering of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 18.13|John 18:13 (13-24).]]
-[^b]: TG [Priesthood, Aaronic.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-aaronic?lang=eng)
+[^b]: TG [[Priesthood, Aaronic]].

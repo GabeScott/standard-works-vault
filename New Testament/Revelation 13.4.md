@@ -5,5 +5,5 @@
 [Revelation 13:4](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/13.4?lang=eng#p4)
 
 
-[^a]: TG [Babylon.](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng)
-[^b]: TG [Worship.](https://www.churchofjesuschrist.org/study/scriptures/tg/worship?lang=eng)
+[^a]: TG [[Babylon]].
+[^b]: TG [[Assembly for Worship]].

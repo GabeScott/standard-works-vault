@@ -7,4 +7,4 @@
 
 [^a]: [[Numbers 6.3|Num. 6:3 (2-8)]]; [[D&C 89.7|D&C 89:7 (5, 7).]]
 [^b]: [[D&C 84.27|D&C 84:27.]]
-[^c]: TG [Holy Ghost, Gift of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gift-of?lang=eng); [Holy Ghost, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
+[^c]: TG [[Holy Ghost, Gift of]]; [[Holy Ghost, Mission of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 15.12|Deut. 15:12 (12-18).]]
-[^b]: TG [Bondage, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng)
+[^b]: TG [[Bondage, Physical]].

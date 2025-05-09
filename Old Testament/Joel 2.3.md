@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 29.21|D&C 29:21.]]
-[^b]: TG [Eden.](https://www.churchofjesuschrist.org/study/scriptures/tg/eden?lang=eng)
+[^b]: TG [[Eden]].

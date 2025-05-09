@@ -5,6 +5,6 @@
 [Philippians 2:2](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.2?lang=eng#p2)
 
 
-[^a]: TG [Benevolence.](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng)
-[^b]: TG [Unity.](https://www.churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng)
+[^a]: TG [[Benevolence]].
+[^b]: TG [[Unity]].
 [^c]: [[Romans 12.10|Rom. 12:10 (10-18)]]; [[Moses 7.18|Moses 7:18 (18-21).]]

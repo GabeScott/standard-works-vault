@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 27.9|Jer. 27:9.]]
-[^b]: TG [Dream.](https://www.churchofjesuschrist.org/study/scriptures/tg/dream?lang=eng)
+[^b]: TG [[Dream]].

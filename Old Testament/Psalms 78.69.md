@@ -5,4 +5,4 @@
 [Psalms 78:69](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/78.69?lang=eng#p69)
 
 
-[^a]: TG [Earth, Purpose of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-purpose-of?lang=eng)
+[^a]: TG [[Earth, Purpose of]].

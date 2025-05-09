@@ -5,6 +5,6 @@
 [Genesis 6:13](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/6.13?lang=eng#p13)
 
 
-[^a]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
+[^a]: TG [[War]].
 [^b]: [[1 Nephi 17.31|1 Ne. 17:31]]; [[2 Nephi 1.17|2 Ne. 1:17]]; [[Mosiah 12.8|Mosiah 12:8]]; [[3 Nephi 9.9|3 Ne. 9:9]]; [[D&C 56.3|D&C 56:3]]; [[D&C 64.35|64:35]]; [[Moses 8.30|Moses 8:30 (26, 30).]]
 [^c]: Some Hebrew texts: from the earth.

@@ -6,6 +6,6 @@
 
 
 [^a]: [[Isaiah 11.5|Isa. 11:5.]]
-[^b]: TG [Truth.](https://www.churchofjesuschrist.org/study/scriptures/tg/truth?lang=eng)
+[^b]: TG [[Truth]].
 [^c]: [[Isaiah 59.17|Isa. 59:17]]; [[Isaiah 61.10|61:10.]]
-[^d]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^d]: TG [[God, the Standard of Righteousness]].

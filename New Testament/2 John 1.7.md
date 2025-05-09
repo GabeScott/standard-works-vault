@@ -5,5 +5,5 @@
 [2 John 1:7](https://www.churchofjesuschrist.org/study/scriptures/nt/2-jn/1.7?lang=eng#p7)
 
 
-[^a]: TG [Deceit.](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng)
-[^b]: TG [Antichrist.](https://www.churchofjesuschrist.org/study/scriptures/tg/antichrist?lang=eng)
+[^a]: TG [[Deceit, Deceive]].
+[^b]: TG [[Antichrist]].

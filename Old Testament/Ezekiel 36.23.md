@@ -5,5 +5,5 @@
 [Ezekiel 36:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/36.23?lang=eng#p23)
 
 
-[^a]: TG [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
-[^b]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^a]: TG [[Conversion, Convert]].
+[^b]: TG [[Sanctification, Sanctify]].

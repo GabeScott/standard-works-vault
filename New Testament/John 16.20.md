@@ -5,5 +5,5 @@
 [John 16:20](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.20?lang=eng#p20)
 
 
-[^a]: TG [Pain](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng); [Patience.](https://www.churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
-[^b]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Pain]]; [[Patience, Patient, Patiently]].
+[^b]: TG [[Joy]].

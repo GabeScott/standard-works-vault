@@ -6,6 +6,6 @@
 
 
 [^a]: [[Isaiah 52.1|Isa. 52:1 (1-2).]]
-[^b]: [[D&C 113.8|D&C 113:8 (7-8)]]. TG [Strength](https://www.churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng).
-[^c]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^b]: [[D&C 113.8|D&C 113:8 (7-8)]]. TG [[Strength]].
+[^c]: TG [[Zion, Sion]].
 [^d]: [[Joel 3.17|Joel 3:17]]; [[Zechariah 14.21|Zech. 14:21.]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Acts 20.34|Acts 20:34]]; 1 Thes. 2:9.
-[^b]: TG [Skill.](https://www.churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng)
+[^b]: TG [[Skill]].

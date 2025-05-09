@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Chronicles 13.5|2 Chr. 13:5.]]
-[^b]: TG [Salt.](https://www.churchofjesuschrist.org/study/scriptures/tg/salt?lang=eng)
+[^b]: TG [[Salt]].

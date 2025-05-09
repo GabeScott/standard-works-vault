@@ -5,7 +5,7 @@
 [Deuteronomy 10:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/10.8?lang=eng#p8)
 
 
-[^a]: OR set apart. TG [Setting Apart](https://www.churchofjesuschrist.org/study/scriptures/tg/setting-apart?lang=eng).
+[^a]: OR set apart. TG [[Setting Apart]].
 [^b]: [[Numbers 3.6|Num. 3:6 (5-13)]]; [[Ezekiel 44.15|Ezek. 44:15]]; [[3 Nephi 24.3|3 Ne. 24:3]]; D&C 13; 107:6; 124:39; 128:24; JS—H 1:69.
 [^c]: [[Numbers 4.15|Num. 4:15 (2-15)]]; [[1 Chronicles 15.2|1 Chr. 15:2.]]
 [^d]: [[Numbers 6.23|Num. 6:23 (23-27).]]

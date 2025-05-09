@@ -5,4 +5,4 @@
 [2 Corinthians 10:3](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/10.3?lang=eng#p3)
 
 
-[^a]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
+[^a]: TG [[War]].

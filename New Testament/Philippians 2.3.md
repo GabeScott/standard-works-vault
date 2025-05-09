@@ -5,5 +5,5 @@
 [Philippians 2:3](https://www.churchofjesuschrist.org/study/scriptures/nt/philip/2.3?lang=eng#p3)
 
 
-[^a]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
-[^b]: TG [Humility](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng); [Love](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng); [Respect.](https://www.churchofjesuschrist.org/study/scriptures/tg/respect?lang=eng)
+[^a]: TG [[Strife]].
+[^b]: TG [[Humility, Humble]]; [[Love]]; [[Respecter]].

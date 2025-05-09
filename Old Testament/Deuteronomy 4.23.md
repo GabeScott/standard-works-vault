@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Kings 17.38|2 Kgs. 17:38.]]
-[^b]: TG [Covenants](https://www.churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng); [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^b]: TG [[Covenants]]; [[Obedience, Obedient, Obey]].

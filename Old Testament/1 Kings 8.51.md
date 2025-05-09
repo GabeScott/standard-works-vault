@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 33.13|Ex. 33:13]]; [[2 Nephi 3.9|2 Ne. 3:9]]; [[2 Nephi 8.16|8:16]]; [[2 Nephi 29.14|29:14]]; [[3 Nephi 16.8|3 Ne. 16:8 (8-15)]]; [[3 Nephi 20.21|20:21 (15-21, 39)]]; [[3 Nephi 21.23|21:23 (12-24).]]
-[^b]: TG [Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/inheritance?lang=eng)
+[^b]: TG [[Inheritance]].

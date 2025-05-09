@@ -5,4 +5,4 @@
 [Romans 12:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/12.13?lang=eng#p13)
 
 
-[^a]: TG [Hospitality.](https://www.churchofjesuschrist.org/study/scriptures/tg/hospitality?lang=eng)
+[^a]: TG [[Hospitality]].

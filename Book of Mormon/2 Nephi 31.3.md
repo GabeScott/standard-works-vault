@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 25.7|2 Ne. 25:7 (7-8)]]; [[2 Nephi 32.7|32:7.]]
-[^b]: TG [Understanding.](https://www.churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
-[^c]: [[D&C 1.24|D&C 1:24]]. TG [Language](https://www.churchofjesuschrist.org/study/scriptures/tg/language?lang=eng).
+[^b]: TG [[Understanding]].
+[^c]: [[D&C 1.24|D&C 1:24]]. TG [[Language]].

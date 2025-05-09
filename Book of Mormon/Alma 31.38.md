@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 5.10|Matt. 5:10 (10-12)]]; [[Mosiah 24.15|Mosiah 24:15 (13-15)]]; [[Alma 33.23|Alma 33:23.]]
-[^b]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^b]: TG [[Faith]].

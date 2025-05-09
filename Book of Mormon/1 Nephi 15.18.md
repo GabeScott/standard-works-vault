@@ -5,5 +5,5 @@
 [1 Nephi 15:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/15?lang=eng&id=p18#p18)
 
 
-[^a]: [[Genesis 12.3|Gen. 12:3 (1-3)]]; [[Abraham 2.11|Abr. 2:11 (6-11)]]. TG [Seed of Abraham](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng).
-[^b]: TG [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^a]: [[Genesis 12.3|Gen. 12:3 (1-3)]]; [[Abraham 2.11|Abr. 2:11 (6-11)]]. TG [[Seed of Abraham]].
+[^b]: TG [[Israel, Mission of]].

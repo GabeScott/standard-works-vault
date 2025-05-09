@@ -5,5 +5,5 @@
 [Moses 4:23](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/4.23?lang=eng#p23)
 
 
-[^a]: [[Job 14.1|Job 14:1]]; [[Moses 8.9|Moses 8:9]]. TG [Earth, Curse of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-curse-of?lang=eng).
-[^b]: TG [Suffering.](https://www.churchofjesuschrist.org/study/scriptures/tg/suffering?lang=eng)
+[^a]: [[Job 14.1|Job 14:1]]; [[Moses 8.9|Moses 8:9]]. TG [[Earth, Curse of]].
+[^b]: TG [[Suffering]].

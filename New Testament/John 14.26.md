@@ -5,7 +5,7 @@
 [John 14:26](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14.26?lang=eng#p26)
 
 
-[^a]: TG [Holy Ghost, Comforter.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-comforter?lang=eng)
-[^b]: TG [Guidance, Divine.](https://www.churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
-[^c]: TG [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
-[^d]: TG [God, Omniscience of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng); [Holy Ghost, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng); [Holy Ghost, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng); [Inspiration](https://www.churchofjesuschrist.org/study/scriptures/tg/inspiration?lang=eng); [Learn](https://www.churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng); [Teaching.](https://www.churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng)
+[^a]: TG [[Holy Ghost, Comforter]].
+[^b]: TG [[Guidance, Divine]].
+[^c]: TG [[Name of the Lord]].
+[^d]: TG [[God, Omniscience of]]; [[Holy Ghost, Gifts of]]; [[Holy Ghost, Mission of]]; [[Inspiration, Inspire]]; [[Learn, Learning]]; [[Teaching with the Spirit]].

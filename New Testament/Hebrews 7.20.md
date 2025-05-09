@@ -5,4 +5,4 @@
 [Hebrews 7:20](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/7.20?lang=eng#p20)
 
 
-[^a]: TG [Oath](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng); Priesthood, [Oath](https://www.churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng) and Covenant.
+[^a]: TG [[Oath]]; Priesthood, [[Oath]] and Covenant.

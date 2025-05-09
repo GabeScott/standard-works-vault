@@ -6,6 +6,6 @@
 
 
 [^a]: [[Joel 3.21|Joel 3:21 (18-21)]]; [[Zechariah 2.10|Zech. 2:10 (10-12)]]; [[Revelation 22.3|Rev. 22:3 (3-4).]]
-[^b]: TG [Nations.](https://www.churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng)
-[^c]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^b]: TG [[Nations]].
+[^c]: TG [[Israel, Gathering of]].
 [^d]: OR stubbornness.

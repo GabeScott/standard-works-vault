@@ -5,5 +5,5 @@
 [Isaiah 33:14](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/33.14?lang=eng#p14)
 
 
-[^a]: TG [Eternal Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng)
+[^a]: TG [[Eternal Life]].
 [^b]: [[D&C 130.7|D&C 130:7 (6-7)]]; [[D&C 137.2|137:2 (2-3).]]

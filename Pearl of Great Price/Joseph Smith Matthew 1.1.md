@@ -7,4 +7,4 @@
 
 [^a]: [[Matthew 23.39|Matt. 23:39.]]
 [^b]: [[Psalms 118.26|Ps. 118:26 (24-26)]]; [[Matthew 26.64|Matt. 26:64]]; [[Acts 1.11|Acts 1:11.]]
-[^c]: TG [Jesus Christ, Relationships with the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
+[^c]: TG [[Jesus Christ, Relationships with the Father]].

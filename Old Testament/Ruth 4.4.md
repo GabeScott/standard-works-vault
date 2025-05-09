@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 25.25|Lev. 25:25.]]
-[^b]: TG [Redemption.](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
+[^b]: TG [[Redemption]].

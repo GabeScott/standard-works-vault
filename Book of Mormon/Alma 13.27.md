@@ -7,4 +7,4 @@
 
 [^a]: [[Mosiah 28.3|Mosiah 28:3 (3-4).]]
 [^b]: [[Mosiah 25.11|Mosiah 25:11.]]
-[^c]: TG [Apathy](https://www.churchofjesuschrist.org/study/scriptures/tg/apathy?lang=eng); [Procrastination.](https://www.churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
+[^c]: TG [[Apathy]]; [[Procrastination, Procrastinate]].

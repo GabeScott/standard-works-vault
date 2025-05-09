@@ -6,4 +6,4 @@
 
 
 [^a]: [[Moroni 10.27|Moro. 10:27.]]
-[^b]: TG [Book of Mormon.](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-mormon?lang=eng)
+[^b]: TG [[Book of Mormon]].

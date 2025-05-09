@@ -5,4 +5,4 @@
 [2 Chronicles 29:28](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/29.28?lang=eng#p28)
 
 
-[^a]: TG [Assembly for Worship](https://www.churchofjesuschrist.org/study/scriptures/tg/assembly-for-worship?lang=eng); [Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/church?lang=eng)
+[^a]: TG [[Assembly for Worship]]; [[Apostasy of the Early Christian Church]].

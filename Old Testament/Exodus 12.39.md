@@ -5,6 +5,6 @@
 [Exodus 12:39](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/12.39?lang=eng#p39)
 
 
-[^a]: TG [Bread, Unleavened.](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-unleavened?lang=eng)
+[^a]: TG [[Bread, Unleavened]].
 [^b]: [[Exodus 11.1|Ex. 11:1.]]
 [^c]: HEB provisions.

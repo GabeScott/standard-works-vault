@@ -5,5 +5,5 @@
 [Proverbs 11:4](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/11.4?lang=eng#p4)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^a]: TG [[Treasure]].
 [^b]: [[D&C 1.9|D&C 1:9 (8-10).]]

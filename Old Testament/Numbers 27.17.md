@@ -5,6 +5,6 @@
 [Numbers 27:17](https://www.churchofjesuschrist.org/study/scriptures/ot/num/27.17?lang=eng#p17)
 
 
-[^a]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
-[^b]: TG [Sheep.](https://www.churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
-[^c]: TG [Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)
+[^a]: TG [[Church Organization]].
+[^b]: TG [[Sheep]].
+[^c]: TG [[Shepherd]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 52.40|D&C 52:40]]; [[D&C 104.18|104:18.]]
-[^b]: TG [Happiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng)
+[^b]: TG [[Happiness, Happy]].

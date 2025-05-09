@@ -5,4 +5,4 @@
 [Job 28:12](https://www.churchofjesuschrist.org/study/scriptures/ot/job/28.12?lang=eng#p12)
 
 
-[^a]: TG [God, Wisdom of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-wisdom-of?lang=eng)
+[^a]: TG [[God, Wisdom of]].

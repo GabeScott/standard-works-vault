@@ -6,7 +6,7 @@
 
 
 [^a]: [[Genesis 3.22|Gen. 3:22.]]
-[^b]: TG [Man, Potential to Become like Heavenly Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-potential-to-become-like-heavenly-father?lang=eng)
-[^c]: TG [Knowledge](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng); [Probation.](https://www.churchofjesuschrist.org/study/scriptures/tg/probation?lang=eng)
+[^b]: TG [[Man, Potential to Become like Heavenly Father]].
+[^c]: TG [[Knowledge]]; [[Probation, Probationary]].
 [^d]: [[Alma 42.5|Alma 42:5 (4-5).]]
 [^e]: [[Genesis 2.9|Gen. 2:9]]; [[1 Nephi 11.25|1 Ne. 11:25]]; [[Moses 3.9|Moses 3:9]]; [[Abraham 5.9|Abr. 5:9.]]

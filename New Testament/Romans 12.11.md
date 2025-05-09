@@ -6,4 +6,4 @@
 
 
 [^a]: GR haste, diligence.
-[^b]: TG [Zeal.](https://www.churchofjesuschrist.org/study/scriptures/tg/zeal?lang=eng)
+[^b]: TG [[Zeal, Zealous]].

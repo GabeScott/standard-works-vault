@@ -7,5 +7,5 @@
 
 [^a]: [[Abraham 4.27|Abr. 4:27 (26-31).]]
 [^b]: [[Moses 4.25|Moses 4:25 (25-29)]]; [[Moses 6.59|6:59.]]
-[^c]: [[Genesis 2.7|Gen. 2:7]]; [[2 Nephi 9.26|2 Ne. 9:26]]; [[D&C 77.2|D&C 77:2]]; [[D&C 93.33|93:33]]. TG [Man, Antemortal Existence of](https://www.churchofjesuschrist.org/study/scriptures/tg/man-antemortal-existence-of?lang=eng); [Spirit Body](https://www.churchofjesuschrist.org/study/scriptures/tg/spirit-body?lang=eng).
-[^d]: TG [Soul.](https://www.churchofjesuschrist.org/study/scriptures/tg/soul?lang=eng)
+[^c]: [[Genesis 2.7|Gen. 2:7]]; [[2 Nephi 9.26|2 Ne. 9:26]]; [[D&C 77.2|D&C 77:2]]; [[D&C 93.33|93:33]]. TG [[Man, Antemortal Existence of]]; [[Spirit Body]].
+[^d]: TG [[Soul]].

@@ -5,5 +5,5 @@
 [Daniel 3:6](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/3.6?lang=eng#p6)
 
 
-[^a]: TG [Tyranny.](https://www.churchofjesuschrist.org/study/scriptures/tg/tyranny?lang=eng)
+[^a]: TG [[Tyranny]].
 [^b]: [[Mosiah 17.13|Mosiah 17:13 (13-20).]]

@@ -5,9 +5,9 @@
 [2 Nephi 33:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/33?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
-[^b]: TG [Believe.](https://www.churchofjesuschrist.org/study/scriptures/tg/believe?lang=eng)
+[^a]: TG [[Israel, Judah, People of]].
+[^b]: TG [[Believe]].
 [^c]: [[John 8.47|John 8:47.]]
-[^d]: TG [Book of Mormon.](https://www.churchofjesuschrist.org/study/scriptures/tg/book-of-mormon?lang=eng)
+[^d]: TG [[Book of Mormon]].
 [^e]: [[Isaiah 51.16|Isa. 51:16]]; [[Moroni 10.27|Moro. 10:27 (27-29)]]; [[D&C 1.24|D&C 1:24.]]
 [^f]: [[1 Kings 8.36|1 Kgs. 8:36]]; [[2 Nephi 25.28|2 Ne. 25:28.]]

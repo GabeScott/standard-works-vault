@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 4.9|John 4:9.]]
-[^b]: TG [Benevolence](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng); [Compassion](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng); [Kindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
+[^b]: TG [[Benevolence]]; [[Compassion]]; [[Kindness]].

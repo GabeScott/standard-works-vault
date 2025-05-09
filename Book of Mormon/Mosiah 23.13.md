@@ -6,7 +6,7 @@
 
 
 [^a]: [[Mosiah 18.34|Mosiah 18:34 (34-35).]]
-[^b]: TG [Bondage, Spiritual.](https://www.churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
+[^b]: TG [[Bondage, Spiritual]].
 [^c]: [[Galatians 5.1|Gal. 5:1.]]
-[^d]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^d]: TG [[Liberty]].
 [^e]: [[Mosiah 29.13|Mosiah 29:13 (5-36).]]

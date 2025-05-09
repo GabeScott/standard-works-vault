@@ -6,5 +6,5 @@
 
 
 [^a]: [[Moses 3.5|Moses 3:5.]]
-[^b]: TG [Man, a Spirit Child of Heavenly Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-a-spirit-child-of-heavenly-father?lang=eng)
-[^c]: TG [Spirit Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirit-creation?lang=eng)
+[^b]: TG [[Man, a Spirit Child of Heavenly Father]].
+[^c]: TG [[Spirit Creation]].

@@ -5,4 +5,4 @@
 [Revelation 12:8](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/12.8?lang=eng#p8)
 
 
-[^a]: TG [Death, Spiritual, First.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-spiritual-first?lang=eng)
+[^a]: TG [[Death, Spiritual, First]].

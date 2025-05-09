@@ -6,4 +6,4 @@
 
 
 [^a]: [[John 15.15|John 15:15 (13-15).]]
-[^b]: [[Matthew 10.28|Matt. 10:28]]. TG [Peer Influence](https://www.churchofjesuschrist.org/study/scriptures/tg/peer-influence?lang=eng).
+[^b]: [[Matthew 10.28|Matt. 10:28]]. TG [[Peer Influence]].

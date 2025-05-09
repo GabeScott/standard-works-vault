@@ -5,5 +5,5 @@
 [John 16:8](https://www.churchofjesuschrist.org/study/scriptures/nt/john/16.8?lang=eng#p8)
 
 
-[^a]: TG [Holy Ghost, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng); [Reproof.](https://www.churchofjesuschrist.org/study/scriptures/tg/reproof?lang=eng)
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
+[^a]: TG [[Holy Ghost, Mission of]]; [[Reproof, Reprove]].
+[^b]: TG [[God, the Standard of Righteousness]].

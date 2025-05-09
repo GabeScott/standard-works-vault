@@ -5,6 +5,6 @@
 [Alma 33:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/33?lang=eng&id=p11#p11)
 
 
-[^a]: TG [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
-[^b]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
-[^c]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^a]: TG [[Sincere, Sincerity]].
+[^b]: TG [[Affliction]].
+[^c]: TG [[Jesus Christ, Atonement through]].

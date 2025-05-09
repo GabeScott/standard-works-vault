@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hebrews 13.8|Heb. 13:8.]]
-[^b]: [[Moroni 7.37|Moro. 7:37]]. TG [Doubt](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng).
+[^b]: [[Moroni 7.37|Moro. 7:37]]. TG [[Doubt, Doubtful]].

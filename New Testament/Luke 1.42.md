@@ -5,4 +5,4 @@
 [Luke 1:42](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.42?lang=eng#p42)
 
 
-[^a]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
+[^a]: TG [[Woman, Women]].

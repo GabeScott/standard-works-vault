@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 30.9|Jer. 30:9]]; [[Ezekiel 34.23|Ezek. 34:23.]]
-[^b]: TG [Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)
+[^b]: TG [[Shepherd]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 29.32|Mosiah 29:32]]; [[Alma 46.10|Alma 46:10 (10-28, 34).]]
-[^b]: [[2 Nephi 10.11|2 Ne. 10:11]]. TG [Liberty](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng).
+[^b]: [[2 Nephi 10.11|2 Ne. 10:11]]. TG [[Liberty]].
 [^c]: [[Alma 45.16|Alma 45:16 (10-14, 16)]]; [[Words of Mormon 1.17|Morm. 1:17]]; [[Ether 2.11|Ether 2:11 (8-12).]]

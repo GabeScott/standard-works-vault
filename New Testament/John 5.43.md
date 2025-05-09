@@ -5,6 +5,6 @@
 [John 5:43](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.43?lang=eng#p43)
 
 
-[^a]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
-[^b]: TG [Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng); [Name.](https://www.churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
+[^a]: TG [[Jesus Christ, Authority of]].
+[^b]: TG [[Authority]]; [[Name of the Lord]].
 [^c]: [[D&C 132.25|D&C 132:25.]]

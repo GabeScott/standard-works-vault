@@ -5,6 +5,6 @@
 [Leviticus 21:6](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/21.6?lang=eng#p6)
 
 
-[^a]: [[D&C 38.42|D&C 38:42]]. TG [Holiness](https://www.churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng).
-[^b]: TG [Profanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng)
+[^a]: [[D&C 38.42|D&C 38:42]]. TG [[Holiness]].
+[^b]: TG [[Profanity]].
 [^c]: [[Leviticus 3.11|Lev. 3:11.]]

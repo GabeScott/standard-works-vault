@@ -5,5 +5,5 @@
 [Genesis 46:27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/46.27?lang=eng#p27)
 
 
-[^a]: TG [Israel, Origins of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-origins-of?lang=eng)
+[^a]: TG [[Israel, Origins of]].
 [^b]: [[Numbers 1.46|Num. 1:46 (20-46).]]

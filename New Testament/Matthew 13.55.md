@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mark 6.3|Mark 6:3.]]
-[^b]: TG [Jesus Christ, Family of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-family-of?lang=eng)
+[^b]: TG [[Jesus Christ, Family of]].

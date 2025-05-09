@@ -5,5 +5,5 @@
 [2 Thessalonians 2:9](https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/2.9?lang=eng#p9)
 
 
-[^a]: TG [False Priesthoods.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-priesthoods?lang=eng)
-[^b]: TG [Signs.](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng)
+[^a]: TG [[False Priesthoods]].
+[^b]: TG [[Signs]].

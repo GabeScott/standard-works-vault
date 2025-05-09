@@ -5,4 +5,4 @@
 [Jacob 5:30](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p30#p30)
 
 
-[^a]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[Apostasy of Israel]].

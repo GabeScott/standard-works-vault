@@ -5,4 +5,4 @@
 [Jeremiah 34:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/34.16?lang=eng#p16)
 
 
-[^a]: HEB profaned. TG [Pollution](https://www.churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng).
+[^a]: HEB profaned. TG [[Pollution, Pollute]].

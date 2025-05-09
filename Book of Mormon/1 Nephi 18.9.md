@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ether 6.5|Ether 6:5.]]
-[^b]: [[2 Nephi 1.2|2 Ne. 1:2]]. TG [Rioting and Reveling](https://www.churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng).
+[^b]: [[2 Nephi 1.2|2 Ne. 1:2]]. TG [[Rioting and Reveling]].

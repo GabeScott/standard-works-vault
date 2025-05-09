@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 11.27|1 Ne. 11:27.]]
-[^b]: TG [Holy Ghost, Dove, Sign of.](https://www.churchofjesuschrist.org/study/scriptures/tg/holy-ghost-dove-sign-of?lang=eng)
+[^b]: TG [[Holy Ghost, Dove, Sign of]].

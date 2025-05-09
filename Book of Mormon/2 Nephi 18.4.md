@@ -9,4 +9,4 @@
 [^b]: [[Isaiah 8.4|Isa. 8:4.]]
 [^c]: [[2 Kings 15.29|2 Kgs. 15:29 (29-30).]]
 [^d]: [[2 Kings 17.6|2 Kgs. 17:6.]]
-[^e]: [[2 Kings 16.7|2 Kgs. 16:7 (7-18)]]; [[2 Nephi 20.12|2 Ne. 20:12]]. TG [Israel, Scattering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng).
+[^e]: [[2 Kings 16.7|2 Kgs. 16:7 (7-18)]]; [[2 Nephi 20.12|2 Ne. 20:12]]. TG [[Israel, Scattering of]].

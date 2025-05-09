@@ -5,4 +5,4 @@
 [Exodus 10:22](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/10.22?lang=eng#p22)
 
 
-[^a]: TG [Plague.](https://www.churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng)
+[^a]: TG [[Plague]].

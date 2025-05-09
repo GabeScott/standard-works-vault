@@ -5,7 +5,7 @@
 [Alma 5:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/5?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Priesthood, Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng)
+[^a]: TG [[Priesthood, Authority]].
 [^b]: [[Alma 4.20|Alma 4:20 (4, 18, 20)]]; [[Alma 8.23|8:23 (11, 23).]]
 [^c]: [[Mosiah 18.13|Mosiah 18:13]]; [[3 Nephi 11.25|3 Ne. 11:25.]]
 [^d]: [[Mosiah 18.4|Mosiah 18:4]]; [[3 Nephi 5.12|3 Ne. 5:12.]]

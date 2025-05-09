@@ -5,7 +5,7 @@
 [Deuteronomy 6:24](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6.24?lang=eng#p24)
 
 
-[^a]: TG [Commandments of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)
-[^b]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
+[^a]: TG [[Commandments of God]].
+[^b]: TG [[Reverence]].
 [^c]: [[Deuteronomy 10.13|Deut. 10:13]]; [[Jeremiah 32.39|Jer. 32:39]]; [[D&C 130.21|D&C 130:21.]]
 [^d]: [[Psalms 41.2|Ps. 41:2 (1-2)]]; [[Alma 11.37|Alma 11:37.]]

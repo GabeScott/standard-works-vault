@@ -5,7 +5,7 @@
 [2 Nephi 32:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/32?lang=eng&id=p3#p3)
 
 
-[^a]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
-[^b]: [[Jeremiah 15.16|Jer. 15:16]]. TG [Bread of Life](https://www.churchofjesuschrist.org/study/scriptures/tg/bread-of-life?lang=eng); [Study](https://www.churchofjesuschrist.org/study/scriptures/tg/study?lang=eng).
+[^a]: TG [[Angels]].
+[^b]: [[Jeremiah 15.16|Jer. 15:16]]. TG [[Bread of Life]]; [[Study]].
 [^c]: Col. 3:16.
-[^d]: [[Exodus 4.15|Ex. 4:15]]. TG [Problem-Solving](https://www.churchofjesuschrist.org/study/scriptures/tg/problem-solving?lang=eng).
+[^d]: [[Exodus 4.15|Ex. 4:15]]. TG [[Problem-Solving]].

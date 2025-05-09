@@ -5,4 +5,4 @@
 [2 Samuel 1:24](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/1.24?lang=eng#p24)
 
 
-[^a]: TG [Prosperity.](https://www.churchofjesuschrist.org/study/scriptures/tg/prosperity?lang=eng)
+[^a]: TG [[Prosperity]].

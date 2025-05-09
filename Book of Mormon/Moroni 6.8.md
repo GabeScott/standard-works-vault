@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 26.30|Mosiah 26:30 (30-31).]]
-[^b]: TG [Sincere.](https://www.churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
-[^c]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^b]: TG [[Sincere, Sincerity]].
+[^c]: TG [[Forgive, Forgiveness]].

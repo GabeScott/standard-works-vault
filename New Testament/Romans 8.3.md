@@ -6,4 +6,4 @@
 
 
 [^a]: [[Hebrews 7.18|Heb. 7:18.]]
-[^b]: TG [Jesus Christ, Condescension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-condescension-of?lang=eng)
+[^b]: TG [[Jesus Christ, Condescension of]].

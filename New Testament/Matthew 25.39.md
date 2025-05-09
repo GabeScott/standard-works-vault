@@ -5,4 +5,4 @@
 [Matthew 25:39](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25.39?lang=eng#p39)
 
 
-[^a]: TG [Health.](https://www.churchofjesuschrist.org/study/scriptures/tg/health?lang=eng)
+[^a]: TG [[Health]].

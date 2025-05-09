@@ -5,6 +5,6 @@
 [Acts 22:20](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/22.20?lang=eng#p20)
 
 
-[^a]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
+[^a]: TG [[Martyrdom]].
 [^b]: [[Luke 11.48|Luke 11:48 (47-49).]]
 [^c]: [[Acts 7.58|Acts 7:58.]]

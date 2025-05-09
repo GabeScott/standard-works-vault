@@ -5,4 +5,4 @@
 [Romans 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/1.15?lang=eng#p15)
 
 
-[^a]: TG [Commitment.](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
+[^a]: TG [[Commitment]].

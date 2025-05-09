@@ -5,5 +5,5 @@
 [Revelation 2:23](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/2.23?lang=eng#p23)
 
 
-[^a]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^a]: TG [[God, Omniscience of]].
 [^b]: GR (from Hebrew) desires and thoughts.

@@ -5,5 +5,5 @@
 [Jacob 2:28](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/2?lang=eng&id=p28#p28)
 
 
-[^a]: TG [Chastity.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng)
-[^b]: TG [Sexual Immorality](https://www.churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng); [Whore.](https://www.churchofjesuschrist.org/study/scriptures/tg/whore?lang=eng)
+[^a]: TG [[Chastity, Chaste]].
+[^b]: TG [[Sexual Immorality]]; [[Whore, Whoredom]].

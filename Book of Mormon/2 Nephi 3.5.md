@@ -6,8 +6,8 @@
 
 
 [^a]: JST Gen. 50:24-38 (Bible Appendix); [[2 Nephi 3.22|2 Ne. 3:22]]; [[2 Nephi 4.2|4:2 (1-32).]]
-[^b]: TG [Promise.](https://www.churchofjesuschrist.org/study/scriptures/tg/promise?lang=eng)
+[^b]: TG [[Promise]].
 [^c]: [[Jacob 2.25|Jacob 2:25.]]
-[^d]: [[Genesis 45.7|Gen. 45:7 (5-7)]]; [[Genesis 49.22|49:22 (22-26)]]; [[1 Nephi 15.12|1 Ne. 15:12 (12, 16)]]; [[1 Nephi 19.24|19:24]]; [[2 Nephi 14.2|2 Ne. 14:2]]. TG [Vineyard of the Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng).
+[^d]: [[Genesis 45.7|Gen. 45:7 (5-7)]]; [[Genesis 49.22|49:22 (22-26)]]; [[1 Nephi 15.12|1 Ne. 15:12 (12, 16)]]; [[1 Nephi 19.24|19:24]]; [[2 Nephi 14.2|2 Ne. 14:2]]. TG [[Vineyard of the Lord]].
 [^e]: [[2 Nephi 6.14|2 Ne. 6:14]]; [[D&C 3.18|D&C 3:18 (16-20).]]
 [^f]: [[Isaiah 42.16|Isa. 42:16]]; 1 Jn. 2:8; [[1 Nephi 21.9|1 Ne. 21:9.]]

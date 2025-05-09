@@ -6,5 +6,5 @@
 
 
 [^a]: JST Matt. 11:13-15 (Appendix).
-[^b]: [[Zechariah 7.12|Zech. 7:12]]; [[1 Nephi 3.20|1 Ne. 3:20]]; [[Mosiah 15.13|Mosiah 15:13]]. TG [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng).
+[^b]: [[Zechariah 7.12|Zech. 7:12]]; [[1 Nephi 3.20|1 Ne. 3:20]]; [[Mosiah 15.13|Mosiah 15:13]]. TG [[Jesus Christ, Prophecies about]].
 [^c]: IE The law and prophets foretold such violence.

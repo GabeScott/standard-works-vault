@@ -6,5 +6,5 @@
 
 
 [^a]: [[Moses 5.2|Moses 5:2.]]
-[^b]: [[Genesis 8.17|Gen. 8:17]]. TG [Marriage, Fatherhood](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-fatherhood?lang=eng).
+[^b]: [[Genesis 8.17|Gen. 8:17]]. TG [[Marriage, Fatherhood]].
 [^c]: HEB fill.

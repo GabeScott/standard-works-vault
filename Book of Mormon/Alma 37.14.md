@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 3.5|D&C 3:5.]]
-[^b]: TG [Sacred.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacred?lang=eng)
-[^c]: TG [Scriptures, Preservation of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
+[^b]: TG [[Sacred]].
+[^c]: TG [[Scriptures, Preservation of]].
 [^d]: [[1 Nephi 9.5|1 Ne. 9:5 (3-6).]]

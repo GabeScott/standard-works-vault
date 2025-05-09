@@ -5,5 +5,5 @@
 [John 8:54](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.54?lang=eng#p54)
 
 
-[^a]: TG [God, Body of, Corporeal Nature.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
-[^b]: TG [Honor.](https://www.churchofjesuschrist.org/study/scriptures/tg/honor?lang=eng)
+[^a]: TG [[God, Body of, Corporeal Nature]].
+[^b]: TG [[Honorable]].

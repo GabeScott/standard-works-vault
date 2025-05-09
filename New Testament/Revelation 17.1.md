@@ -6,5 +6,5 @@
 
 
 [^a]: [[Revelation 18.3|Rev. 18:3 (3-9)]]; [[Revelation 19.2|19:2.]]
-[^b]: TG [Devil, Church of.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil-church-of?lang=eng)
+[^b]: TG [[Devil, Church of]].
 [^c]: [[Jeremiah 51.13|Jer. 51:13.]]

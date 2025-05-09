@@ -6,6 +6,6 @@
 
 
 [^a]: [[Alma 43.45|Alma 43:45 (9, 45)]]; [[Alma 46.12|46:12 (12-20).]]
-[^b]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
+[^b]: TG [[Ordinance]].
 [^c]: [[Genesis 2.24|Gen. 2:24 (23-24).]]
-[^d]: TG [Liberty.](https://www.churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
+[^d]: TG [[Liberty]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 46.10|Ps. 46:10.]]
-[^b]: TG [God, Works of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-works-of?lang=eng)
+[^b]: TG [[God, Works of]].

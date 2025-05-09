@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jacob 2.18|Jacob 2:18 (17-19).]]
-[^b]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^b]: TG [[Treasure]].

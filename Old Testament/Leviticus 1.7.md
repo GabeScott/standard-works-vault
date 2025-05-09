@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 68.15|D&C 68:15]]; [[D&C 84.30|84:30]]; [[D&C 132.59|132:59.]]
-[^b]: TG [Order.](https://www.churchofjesuschrist.org/study/scriptures/tg/order?lang=eng)
+[^b]: TG [[Order]].

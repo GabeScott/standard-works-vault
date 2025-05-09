@@ -6,7 +6,7 @@
 
 
 [^a]: 1 Jn. 2:5 (2-5).
-[^b]: TG [Man, New, Spiritually Reborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
+[^b]: TG [[Man, New, Spiritually Reborn]].
 [^c]: [[Romans 7.6|Rom. 7:6]]; [[Romans 13.12|13:12 (12-14)]]; [[Hebrews 8.13|Heb. 8:13.]]
 [^d]: [[D&C 29.24|D&C 29:24]]; [[D&C 63.49|63:49.]]
 [^e]: [[Revelation 21.5|Rev. 21:5.]]

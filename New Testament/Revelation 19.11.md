@@ -5,5 +5,5 @@
 [Revelation 19:11](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/19.11?lang=eng#p11)
 
 
-[^a]: TG [Jesus Christ, Judge.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
-[^b]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
+[^a]: TG [[Jesus Christ, Judge]].
+[^b]: TG [[War]].

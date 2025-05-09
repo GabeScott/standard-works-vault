@@ -6,4 +6,4 @@
 
 
 [^a]: [[Haggai 2.6|Hag. 2:6 (6-7)]]; [[Hebrews 12.26|Heb. 12:26.]]
-[^b]: TG [Earth, Renewal of.](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
+[^b]: TG [[Earth, Renewal of]].

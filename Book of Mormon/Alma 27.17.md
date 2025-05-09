@@ -5,6 +5,6 @@
 [Alma 27:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/27?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Joy]].
 [^b]: Dan. 10:8 (8-12); [[1 Nephi 1.7|1 Ne. 1:7.]]
 [^c]: [[Alma 19.14|Alma 19:14 (14, 17).]]

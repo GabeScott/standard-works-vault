@@ -6,4 +6,4 @@
 
 
 [^a]: JST Luke 14:35-37 (Appendix).
-[^b]: TG [Salt.](https://www.churchofjesuschrist.org/study/scriptures/tg/salt?lang=eng)
+[^b]: TG [[Salt]].

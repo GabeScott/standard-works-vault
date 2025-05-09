@@ -5,4 +5,4 @@
 [Isaiah 22:23](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/22.23?lang=eng#p23)
 
 
-[^a]: [[Ezra 9.8|Ezra 9:8]]; [[Zechariah 10.4|Zech. 10:4]]. TG [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng).
+[^a]: [[Ezra 9.8|Ezra 9:8]]; [[Zechariah 10.4|Zech. 10:4]]. TG [[Jesus Christ, Prophecies about]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 94.11|Ps. 94:11]]; [[Ezekiel 11.5|Ezek. 11:5.]]
-[^b]: TG [Traditions of Men.](https://www.churchofjesuschrist.org/study/scriptures/tg/traditions-of-men?lang=eng)
-[^c]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^b]: TG [[Traditions of Men]].
+[^c]: TG [[Idolatry, Idol]].

@@ -5,5 +5,5 @@
 [Exodus 23:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/23.11?lang=eng#p11)
 
 
-[^a]: TG [Sabbatical Year.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbatical-year?lang=eng)
-[^b]: TG [Almsgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/almsgiving?lang=eng); [Poor](https://www.churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng); [Welfare.](https://www.churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng)
+[^a]: TG [[Sabbatical Year]].
+[^b]: TG [[Almsgiving]]; [[Poor]]; [[Welfare]].

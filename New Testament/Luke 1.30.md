@@ -5,4 +5,4 @@
 [Luke 1:30](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/1.30?lang=eng#p30)
 
 
-[^a]: TG [Courage](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng); [Fearful.](https://www.churchofjesuschrist.org/study/scriptures/tg/fearful?lang=eng)
+[^a]: TG [[Courage, Courageous]]; [[Fearful]].

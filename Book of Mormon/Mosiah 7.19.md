@@ -5,9 +5,9 @@
 [Mosiah 7:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/7?lang=eng&id=p19#p19)
 
 
-[^a]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Trust in God]].
 [^b]: [[Exodus 3.6|Ex. 3:6 (2-10)]]; [[1 Nephi 19.10|1 Ne. 19:10]]; [[D&C 136.21|D&C 136:21.]]
 [^c]: [[Exodus 12.51|Ex. 12:51]]; [[1 Nephi 17.40|1 Ne. 17:40]]; [[Mosiah 12.34|Mosiah 12:34]]; [[Alma 36.28|Alma 36:28.]]
-[^d]: TG [Israel, Origins of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-origins-of?lang=eng)
+[^d]: TG [[Israel, Origins of]].
 [^e]: [[Joshua 2.10|Josh. 2:10]]; [[1 Nephi 4.2|1 Ne. 4:2]]; [[1 Nephi 17.26|17:26.]]
 [^f]: Ex. 16:15, 35; [[Numbers 11.7|Num. 11:7 (7-8)]]; [[Joshua 5.12|Josh. 5:12]]; [[John 6.49|John 6:49]]; [[1 Nephi 17.28|1 Ne. 17:28.]]

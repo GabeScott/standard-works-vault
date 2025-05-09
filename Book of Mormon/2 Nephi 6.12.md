@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 14.2|1 Ne. 14:2 (1-5)]]; [[2 Nephi 10.10|2 Ne. 10:10 (8-14, 18).]]
-[^b]: TG [Devil, Church of.](https://www.churchofjesuschrist.org/study/scriptures/tg/devil-church-of?lang=eng)
-[^c]: TG [Abrahamic Covenant.](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng)
+[^b]: TG [[Devil, Church of]].
+[^c]: TG [[Abrahamic Covenant]].

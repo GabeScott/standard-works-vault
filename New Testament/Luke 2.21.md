@@ -5,5 +5,5 @@
 [Luke 2:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/2.21?lang=eng#p21)
 
 
-[^a]: TG [Circumcision.](https://www.churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
-[^c]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^a]: TG [[Circumcision]].
+[^c]: TG [[Jesus Christ, Prophecies about]].

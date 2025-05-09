@@ -7,4 +7,4 @@
 
 [^a]: JST Matt. 3:34-36 (Appendix).
 [^b]: GR appropriate to, worthy of.
-[^c]: TG [Baptism, Qualifications for](https://www.churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng); [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^c]: TG [[Baptism, Qualifications for]]; [[Repent, Repentance]].

@@ -6,4 +6,4 @@
 
 
 [^a]: OR accustomed to gore (also vv. 32, 36).
-[^b]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^b]: TG [[Capital Punishment]].

@@ -5,4 +5,4 @@
 [John 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/john/2.20?lang=eng#p20)
 
 
-[^a]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^a]: TG [[Genealogy and Temple Work]].

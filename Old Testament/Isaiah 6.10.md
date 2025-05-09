@@ -5,5 +5,5 @@
 [Isaiah 6:10](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/6.10?lang=eng#p10)
 
 
-[^a]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
-[^b]: TG [Spiritual Blindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng)
+[^a]: TG [[Hardheartedness, Harden, Hardness]].
+[^b]: TG [[Spiritual Blindness]].

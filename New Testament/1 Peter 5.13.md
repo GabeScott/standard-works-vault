@@ -5,4 +5,4 @@
 [1 Peter 5:13](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/5.13?lang=eng#p13)
 
 
-[^a]: TG [Babylon.](https://www.churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng)
+[^a]: TG [[Babylon]].

@@ -5,7 +5,7 @@
 [1 Peter 1:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1.22?lang=eng#p22)
 
 
-[^a]: TG [Purification](https://www.churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng); [Purity.](https://www.churchofjesuschrist.org/study/scriptures/tg/purity?lang=eng)
-[^b]: TG [Soul.](https://www.churchofjesuschrist.org/study/scriptures/tg/soul?lang=eng)
+[^a]: TG [[Purification, Purify, Purifying]]; [[Purity, Pure]].
+[^b]: TG [[Soul]].
 [^c]: [[Moroni 8.26|Moro. 8:26 (25-26).]]
-[^d]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^d]: TG [[Love]].

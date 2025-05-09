@@ -5,5 +5,5 @@
 [Isaiah 12:4](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/12.4?lang=eng#p4)
 
 
-[^a]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^a]: TG [[Thanksgiving]].
 [^b]: OR proclaim.

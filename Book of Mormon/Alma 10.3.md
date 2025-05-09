@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 41.51|Gen. 41:51]]; [[Joshua 17.1|Josh. 17:1]]; [[1 Chronicles 7.14|1 Chr. 7:14]]; [[1 Chronicles 9.3|9:3]]; [[1 Nephi 5.14|1 Ne. 5:14.]]
-[^b]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
+[^b]: TG [[Israel, Joseph, People of]].
 [^c]: [[Genesis 37.36|Gen. 37:36 (29-36).]]

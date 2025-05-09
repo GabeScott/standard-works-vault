@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 8.12|1 Ne. 8:12]]; [[Alma 36.24|Alma 36:24.]]
-[^b]: [[Alma 19.29|Alma 19:29]]. TG [Benevolence](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng).
+[^b]: [[Alma 19.29|Alma 19:29]]. TG [[Benevolence]].
 [^c]: [[Numbers 21.7|Num. 21:7]]; [[1 Samuel 1.15|1 Sam. 1:15]]; [[1 Samuel 7.5|7:5]]; [[Jeremiah 42.4|Jer. 42:4]]; [[2 Nephi 33.3|2 Ne. 33:3]]; [[Alma 34.26|Alma 34:26 (26-27).]]

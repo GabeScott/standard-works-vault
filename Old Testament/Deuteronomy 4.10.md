@@ -9,4 +9,4 @@
 [^b]: [[Deuteronomy 9.10|Deut. 9:10.]]
 [^c]: [[Exodus 19.9|Ex. 19:9 (7-13)]]; [[Deuteronomy 4.33|Deut. 4:33 (33, 36)]]; [[Deuteronomy 5.23|5:23 (22-26).]]
 [^d]: OR revere, worship.
-[^e]: TG [Children.](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng)
+[^e]: TG [[Children]].

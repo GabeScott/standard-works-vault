@@ -6,6 +6,6 @@
 
 
 [^a]: [[Exodus 34.6|Ex. 34:6 (5-7)]]; [[2 Nephi 4.17|2 Ne. 4:17]]; [[D&C 86.11|D&C 86:11.]]
-[^b]: TG [Death, Power over.](https://www.churchofjesuschrist.org/study/scriptures/tg/death-power-over?lang=eng)
+[^b]: TG [[Death, Power over]].
 [^c]: [[Mosiah 16.8|Mosiah 16:8 (7-8)]]; [[Alma 42.15|Alma 42:15 (6-15).]]
-[^d]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^d]: TG [[Hell]].

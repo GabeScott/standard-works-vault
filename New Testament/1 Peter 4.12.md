@@ -5,4 +5,4 @@
 [1 Peter 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4.12?lang=eng#p12)
 
 
-[^a]: TG [Test.](https://www.churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
+[^a]: TG [[Testament]].

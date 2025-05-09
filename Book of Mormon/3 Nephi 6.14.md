@@ -6,4 +6,4 @@
 
 
 [^a]: [[Alma 23.6|Alma 23:6]]; [[Alma 27.27|27:27]]; [[Helaman 15.8|Hel. 15:8 (5-16).]]
-[^b]: TG [Dedication](https://www.churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng); [Diligence.](https://www.churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng)
+[^b]: TG [[Dedication, Dedicate]]; [[Diligence, Diligent, Diligently]].

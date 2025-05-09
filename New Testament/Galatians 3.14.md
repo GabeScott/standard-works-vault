@@ -5,6 +5,6 @@
 [Galatians 3:14](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.14?lang=eng#p14)
 
 
-[^a]: TG [Blessing](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng); [Israel, Mission of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
+[^a]: TG [[Israel, Blessings of]]; [[Israel, Mission of]].
 [^b]: [[Acts 8.35|Acts 8:35 (29-35).]]
-[^c]: TG [Promise.](https://www.churchofjesuschrist.org/study/scriptures/tg/promise?lang=eng)
+[^c]: TG [[Promise]].

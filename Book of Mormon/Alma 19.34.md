@@ -5,4 +5,4 @@
 [Alma 19:34](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/19?lang=eng&id=p34#p34)
 
 
-[^a]: TG [Angels](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng); [Vision.](https://www.churchofjesuschrist.org/study/scriptures/tg/vision?lang=eng)
+[^a]: TG [[Angels]]; [[Vision]].

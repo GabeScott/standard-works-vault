@@ -6,4 +6,4 @@
 
 
 [^a]: Col. 3:13 (12-14); [[3 Nephi 13.14|3 Ne. 13:14 (14-15)]]; [[D&C 64.10|D&C 64:10 (9-10).]]
-[^b]: TG [Neighbor.](https://www.churchofjesuschrist.org/study/scriptures/tg/neighbor?lang=eng)
+[^b]: TG [[Neighbor]].

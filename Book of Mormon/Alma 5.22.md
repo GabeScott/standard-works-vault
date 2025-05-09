@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 59.3|Isa. 59:3.]]
-[^b]: TG [Filthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
+[^b]: TG [[Filthiness, Filthy]].

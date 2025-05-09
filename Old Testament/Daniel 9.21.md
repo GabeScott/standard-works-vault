@@ -5,6 +5,6 @@
 [Daniel 9:21](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/9.21?lang=eng#p21)
 
 
-[^a]: Dan. 8:16. TG [Angels](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng).
+[^a]: Dan. 8:16. TG [[Angels]].
 [^b]: Dan. 8:18.
 [^c]: [[1 Kings 18.36|1 Kgs. 18:36.]]

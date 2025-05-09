@@ -5,5 +5,5 @@
 [Acts 14:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/14.3?lang=eng#p3)
 
 
-[^a]: TG [Testimony.](https://www.churchofjesuschrist.org/study/scriptures/tg/testimony?lang=eng)
-[^b]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: TG [[Testimony]].
+[^b]: TG [[Grace]].

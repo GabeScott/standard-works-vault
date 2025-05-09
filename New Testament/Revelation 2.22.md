@@ -6,4 +6,4 @@
 
 
 [^a]: JST Rev. 2:22 … into hell, and them …
-[^b]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^b]: TG [[Adulterer, Adultery]].

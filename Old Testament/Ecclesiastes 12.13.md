@@ -5,5 +5,5 @@
 [Ecclesiastes 12:13](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/12.13?lang=eng#p13)
 
 
-[^a]: OR Revere God. TG [Reverence](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng).
-[^b]: TG [Obedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
+[^a]: OR Revere God. TG [[Reverence]].
+[^b]: TG [[Obedience, Obedient, Obey]].

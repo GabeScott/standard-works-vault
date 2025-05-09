@@ -5,5 +5,5 @@
 [Proverbs 5:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/5.13?lang=eng#p13)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
-[^b]: TG [Teacher.](https://www.churchofjesuschrist.org/study/scriptures/tg/teacher?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].
+[^b]: TG [[Teacher]].

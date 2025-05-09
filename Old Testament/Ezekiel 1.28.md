@@ -6,6 +6,6 @@
 
 
 [^a]: [[Revelation 4.3|Rev. 4:3.]]
-[^b]: TG [God, Privilege of Seeing.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng)
-[^c]: [[Ezekiel 11.22|Ezek. 11:22]]. TG [Jesus Christ, Glory of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng).
+[^b]: TG [[God, Privilege of Seeing]].
+[^c]: [[Ezekiel 11.22|Ezek. 11:22]]. TG [[Jesus Christ, Glory of]].
 [^e]: [[Ezekiel 3.23|Ezek. 3:23 (23-24)]]; [[Ezekiel 44.4|44:4]]; [[Acts 9.4|Acts 9:4 (3-5)]]; [[Ether 3.6|Ether 3:6 (6-8).]]

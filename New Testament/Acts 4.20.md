@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 20.9|Jer. 20:9]]; [[Amos 3.8|Amos 3:8.]]
-[^b]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
+[^b]: TG [[Witness, Witnesses]].

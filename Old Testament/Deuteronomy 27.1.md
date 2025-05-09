@@ -5,5 +5,5 @@
 [Deuteronomy 27:1](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/27.1?lang=eng#p1)
 
 
-[^a]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
+[^a]: TG [[Church Organization]].
 [^b]: [[Mosiah 12.33|Mosiah 12:33 (33-37).]]

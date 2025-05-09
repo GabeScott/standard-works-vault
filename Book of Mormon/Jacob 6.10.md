@@ -5,7 +5,7 @@
 [Jacob 6:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/6?lang=eng&id=p10#p10)
 
 
-[^a]: TG [God, Justice of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng); [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
-[^b]: [[Revelation 19.20|Rev. 19:20]]; [[2 Nephi 28.23|2 Ne. 28:23]]; [[Mosiah 3.27|Mosiah 3:27]]. TG [Hell](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng).
+[^a]: TG [[God, Justice of]]; [[God, Justice of]].
+[^b]: [[Revelation 19.20|Rev. 19:20]]; [[2 Nephi 28.23|2 Ne. 28:23]]; [[Mosiah 3.27|Mosiah 3:27]]. TG [[Hell]].
 [^c]: [[Mosiah 2.33|Mosiah 2:33]]; [[D&C 19.11|D&C 19:11 (10-12).]]
-[^d]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^d]: TG [[Damnation, Damned]].

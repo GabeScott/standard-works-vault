@@ -5,6 +5,6 @@
 [Alma 61:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/61?lang=eng&id=p4#p4)
 
 
-[^a]: TG [Flatter.](https://www.churchofjesuschrist.org/study/scriptures/tg/flatter?lang=eng)
-[^b]: TG [Peer Influence.](https://www.churchofjesuschrist.org/study/scriptures/tg/peer-influence?lang=eng)
+[^a]: TG [[Flatter, Flattery]].
+[^b]: TG [[Peer Influence]].
 [^c]: [[Alma 51.6|Alma 51:6 (6-7)]]; [[Alma 62.6|62:6.]]

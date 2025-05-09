@@ -6,6 +6,6 @@
 
 
 [^a]: JST Luke 11:42 But if ye would rather give alms of such things as ye have; and observe to do all things which I have commanded you, then would your inward parts be clean also.
-[^b]: TG [Generosity.](https://www.churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng)
-[^c]: TG [Almsgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/almsgiving?lang=eng); [Charity.](https://www.churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng)
-[^d]: TG [Cleanliness.](https://www.churchofjesuschrist.org/study/scriptures/tg/cleanliness?lang=eng)
+[^b]: TG [[Generosity]].
+[^c]: TG [[Almsgiving]]; [[Charity]].
+[^d]: TG [[Cleanliness]].

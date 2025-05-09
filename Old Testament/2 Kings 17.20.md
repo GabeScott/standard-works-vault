@@ -5,4 +5,4 @@
 [2 Kings 17:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/17.20?lang=eng#p20)
 
 
-[^a]: TG [God, Indignation of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng); [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^a]: TG [[God, Indignation of]]; [[Israel, Ten Lost Tribes of]].

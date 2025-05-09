@@ -5,5 +5,5 @@
 [Ezekiel 38:23](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/38.23?lang=eng#p23)
 
 
-[^a]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^a]: TG [[Sanctification, Sanctify]].
 [^b]: [[Ezekiel 39.7|Ezek. 39:7.]]

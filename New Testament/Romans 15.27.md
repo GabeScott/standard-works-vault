@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Corinthians 9.11|1 Cor. 9:11.]]
-[^b]: TG [Duty.](https://www.churchofjesuschrist.org/study/scriptures/tg/duty?lang=eng)
+[^b]: TG [[Duty]].
 [^c]: GR material, temporal.

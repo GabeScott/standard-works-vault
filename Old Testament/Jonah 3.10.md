@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 121.24|D&C 121:24.]]
-[^b]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^b]: TG [[Repent, Repentance]].
 [^c]: JST Jonah 3:10 … evil way and repented; and God turned away the evil that he had said he would bring upon them.
 [^d]: [[D&C 56.4|D&C 56:4 (4-6).]]

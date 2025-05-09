@@ -6,6 +6,6 @@
 
 
 [^a]: [[Psalms 141.5|Ps. 141:5]]; [[D&C 121.43|D&C 121:43 (43-44).]]
-[^b]: TG [Friendship.](https://www.churchofjesuschrist.org/study/scriptures/tg/friendship?lang=eng)
+[^b]: TG [[Friendship, Friend]].
 [^c]: [[2 Samuel 20.9|2 Sam. 20:9]]; [[Luke 22.48|Luke 22:48 (47-48).]]
-[^d]: TG [Deceit.](https://www.churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng)
+[^d]: TG [[Deceit, Deceive]].

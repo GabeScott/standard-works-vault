@@ -6,4 +6,4 @@
 
 
 [^a]: IE cities.
-[^b]: TG [Zion.](https://www.churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
+[^b]: TG [[Zion, Sion]].

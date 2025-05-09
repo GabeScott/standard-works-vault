@@ -5,5 +5,5 @@
 [Alma 46:29](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/46?lang=eng&id=p29#p29)
 
 
-[^a]: TG [Doubt.](https://www.churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng)
+[^a]: TG [[Doubt, Doubtful]].
 [^b]: [[Alma 47.20|Alma 47:20.]]

@@ -5,4 +5,4 @@
 [Luke 23:8](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/23.8?lang=eng#p8)
 
 
-[^a]: TG [Miracle](https://www.churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng); [Sign Seekers.](https://www.churchofjesuschrist.org/study/scriptures/tg/sign-seekers?lang=eng)
+[^a]: TG [[Miracle]]; [[Sign Seekers]].

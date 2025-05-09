@@ -5,8 +5,8 @@
 [Alma 26:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p22#p22)
 
 
-[^a]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
-[^b]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
-[^c]: [[Luke 8.10|Luke 8:10]]; [[Alma 12.9|Alma 12:9]]. TG [Mysteries of Godliness](https://www.churchofjesuschrist.org/study/scriptures/tg/mysteries-of-godliness?lang=eng).
+[^a]: TG [[Repent, Repentance]].
+[^b]: TG [[Good Works]].
+[^c]: [[Luke 8.10|Luke 8:10]]; [[Alma 12.9|Alma 12:9]]. TG [[Mysteries of Godliness]].
 [^d]: Dan. 2:22 (19-22, 28).
 [^e]: [[Jarom 1.4|Jarom 1:4]]; [[Helaman 11.23|Hel. 11:23]]; [[D&C 107.19|D&C 107:19 (18-19).]]

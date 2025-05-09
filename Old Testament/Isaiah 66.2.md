@@ -5,4 +5,4 @@
 [Isaiah 66:2](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/66.2?lang=eng#p2)
 
 
-[^a]: TG [Contrite Heart.](https://www.churchofjesuschrist.org/study/scriptures/tg/contrite-heart?lang=eng)
+[^a]: TG [[Contrite Heart]].

@@ -6,11 +6,11 @@
 
 
 [^a]: Philip. 4:8.
-[^b]: TG [Honesty](https://www.churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng); [Integrity.](https://www.churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng)
-[^c]: TG [Chastity.](https://www.churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng)
-[^d]: TG [Benevolence.](https://www.churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng)
-[^e]: TG [Good Works.](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
-[^f]: TG [Hope.](https://www.churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
-[^g]: TG [Perseverance](https://www.churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng); [Steadfastness.](https://www.churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
-[^h]: TG [Modesty](https://www.churchofjesuschrist.org/study/scriptures/tg/modesty?lang=eng); [Virtue.](https://www.churchofjesuschrist.org/study/scriptures/tg/virtue?lang=eng)
-[^i]: TG [Beauty.](https://www.churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
+[^b]: TG [[Honesty]]; [[Integrity]].
+[^c]: TG [[Chastity, Chaste]].
+[^d]: TG [[Benevolence]].
+[^e]: TG [[Good Works]].
+[^f]: TG [[Hope]].
+[^g]: TG [[Perseverance]]; [[Steadfastness, Steadfast]].
+[^h]: TG [[Modesty]]; [[Virtue, Virtuous]].
+[^i]: TG [[Beauty]].

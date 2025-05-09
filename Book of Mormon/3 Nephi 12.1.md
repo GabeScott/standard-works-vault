@@ -8,5 +8,5 @@
 [^a]: [[Matthew 5.1|Matt. 5:1 (1-48).]]
 [^b]: [[Mark 16.16|Mark 16:16 (15-16)]]; [[John 4.2|John 4:2 (1-2).]]
 [^c]: [[3 Nephi 11.22|3 Ne. 11:22]]; [[3 Nephi 13.25|13:25.]]
-[^d]: TG [Blessing.](https://www.churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)
-[^e]: TG [Called of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/called-of-god?lang=eng)
+[^d]: TG [[Israel, Blessings of]].
+[^e]: TG [[Called of God]].

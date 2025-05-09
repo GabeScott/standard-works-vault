@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 59.12|Isa. 59:12.]]
-[^b]: TG [Guilt.](https://www.churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
+[^b]: TG [[Guiltless]].

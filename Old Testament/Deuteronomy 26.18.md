@@ -5,4 +5,4 @@
 [Deuteronomy 26:18](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/26.18?lang=eng#p18)
 
 
-[^a]: OR treasured. TG [Israel, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng); [Peculiar People](https://www.churchofjesuschrist.org/study/scriptures/tg/peculiar-people?lang=eng).
+[^a]: OR treasured. TG [[Israel, Mission of]]; [[Peculiar People]].

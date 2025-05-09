@@ -5,7 +5,7 @@
 [Proverbs 17:6](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.6?lang=eng#p6)
 
 
-[^a]: TG [Family, Love within](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng); [Family, Patriarchal.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-patriarchal?lang=eng)
-[^b]: TG [Family, Children, Duties of](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-duties-of?lang=eng); [Marriage, Fatherhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-fatherhood?lang=eng)
-[^c]: TG [Glory.](https://www.churchofjesuschrist.org/study/scriptures/tg/glory?lang=eng)
-[^d]: TG [Children.](https://www.churchofjesuschrist.org/study/scriptures/tg/children?lang=eng)
+[^a]: TG [[Family, Love within]]; [[Family, Patriarchal]].
+[^b]: TG [[Family, Children, Duties of]]; [[Marriage, Fatherhood]].
+[^c]: TG [[Telestial Glory]].
+[^d]: TG [[Children]].

@@ -5,4 +5,4 @@
 [Alma 60:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/60?lang=eng&id=p26#p26)
 
 
-[^a]: TG [Tribulation.](https://www.churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
+[^a]: TG [[Tribulation]].

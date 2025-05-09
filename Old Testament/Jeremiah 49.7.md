@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 36.1|Gen. 36:1]]; [[Jeremiah 25.21|Jer. 25:21]]; Lam. 4:21; [[Ezekiel 25.13|Ezek. 25:13 (12-14)]]; [[Amos 1.11|Amos 1:11]]; Obad. 1:1 (1-14).
-[^b]: TG [Prudence.](https://www.churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
+[^b]: TG [[Prudence, Prudent]].

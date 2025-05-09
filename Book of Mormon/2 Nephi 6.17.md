@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Nephi 21.25|1 Ne. 21:25.]]
-[^b]: TG [Jesus Christ, Jehovah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
-[^c]: [[2 Kings 17.39|2 Kgs. 17:39]]; [[D&C 105.8|D&C 105:8]]. TG [Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng); [Jesus Christ, Savior](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng).
+[^b]: TG [[Jesus Christ, Jehovah]].
+[^c]: [[2 Kings 17.39|2 Kgs. 17:39]]; [[D&C 105.8|D&C 105:8]]. TG [[Jesus Christ, Prophecies about]]; [[Jesus Christ, Savior]].

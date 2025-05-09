@@ -5,6 +5,6 @@
 [Joseph Smith History 1:24](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.24?lang=eng#p24)
 
 
-[^a]: [[Ezekiel 1.1|Ezek. 1:1]]; [[1 Nephi 1.16|1 Ne. 1:16]]. TG [Vision](https://www.churchofjesuschrist.org/study/scriptures/tg/vision?lang=eng).
+[^a]: [[Ezekiel 1.1|Ezek. 1:1]]; [[1 Nephi 1.16|1 Ne. 1:16]]. TG [[Vision]].
 [^b]: [[Acts 26.24|Acts 26:24 (1-32).]]
 [^c]: 1 Thes. 3:3.

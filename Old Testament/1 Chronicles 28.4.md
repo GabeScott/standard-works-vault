@@ -5,5 +5,5 @@
 [1 Chronicles 28:4](https://www.churchofjesuschrist.org/study/scriptures/ot/1-chr/28.4?lang=eng#p4)
 
 
-[^a]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^a]: TG [[Israel, Judah, People of]].
 [^b]: [[1 Samuel 16.1|1 Sam. 16:1.]]

@@ -7,6 +7,6 @@
 
 [^a]: According to Rabbinical commentaries, to leave a body hanging was a degradation of the human body and therefore an affront to God, in whose image man’s body was made.
 [^b]: [[John 19.31|John 19:31 (31-33).]]
-[^c]: [[Galatians 3.13|Gal. 3:13]]. TG [Jesus Christ, Crucifixion of](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng).
+[^c]: [[Galatians 3.13|Gal. 3:13]]. TG [[Jesus Christ, Crucifixion of]].
 [^d]: [[Galatians 3.13|Gal. 3:13.]]
-[^e]: TG [Lands of Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
+[^e]: TG [[Lands of Inheritance]].

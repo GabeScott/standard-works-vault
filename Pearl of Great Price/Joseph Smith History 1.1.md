@@ -5,5 +5,5 @@
 [Joseph Smith History 1:1](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.1?lang=eng#p1)
 
 
-[^a]: TG [Restoration of the Gospel.](https://www.churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
+[^a]: TG [[Restoration of the Gospel]].
 [^b]: [[Luke 1.4|Luke 1:4 (1-4).]]

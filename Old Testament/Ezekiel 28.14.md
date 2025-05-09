@@ -5,4 +5,4 @@
 [Ezekiel 28:14](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/28.14?lang=eng#p14)
 
 
-[^a]: TG [Cherubim.](https://www.churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
+[^a]: TG [[Cherubim]].

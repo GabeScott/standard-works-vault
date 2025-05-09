@@ -5,4 +5,4 @@
 [Moroni 7:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p15#p15)
 
 
-[^a]: [[Ezekiel 44.24|Ezek. 44:24]]. TG [Discernment, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/discernment-spiritual?lang=eng).
+[^a]: [[Ezekiel 44.24|Ezek. 44:24]]. TG [[Discernment, Spiritual]].

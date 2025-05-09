@@ -5,5 +5,5 @@
 [Psalms 130:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/130.4?lang=eng#p4)
 
 
-[^a]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^a]: TG [[Forgive, Forgiveness]].
 [^b]: [[1 Kings 8.40|1 Kgs. 8:40 (39-40).]]

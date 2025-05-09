@@ -6,4 +6,4 @@
 
 
 [^a]: Zeph. 1:3; [[1 Nephi 14.1|1 Ne. 14:1.]]
-[^b]: TG [Wickedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
+[^b]: TG [[Wickedness, Wicked]].

@@ -5,6 +5,6 @@
 [2 Nephi 5:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/5?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Industry](https://www.churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng); [Work, Value of.](https://www.churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng)
-[^b]: TG [Labor.](https://www.churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
+[^a]: TG [[Industry, Industrious]]; [[Work, Value of]].
+[^b]: TG [[Labor]].
 [^c]: [[Proverbs 31.13|Prov. 31:13.]]

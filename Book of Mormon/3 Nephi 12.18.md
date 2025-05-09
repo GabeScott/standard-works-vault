@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 5.18|Matt. 5:18.]]
-[^b]: TG [Law of Moses.](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
+[^b]: TG [[Law of Moses]].

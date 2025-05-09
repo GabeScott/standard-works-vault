@@ -6,7 +6,7 @@
 
 
 [^a]: [[1 Nephi 17.14|1 Ne. 17:14.]]
-[^b]: TG [Vision.](https://www.churchofjesuschrist.org/study/scriptures/tg/vision?lang=eng)
-[^c]: [[Jeremiah 26.18|Jer. 26:18 (17-19)]]; [[1 Nephi 1.4|1 Ne. 1:4 (4-18)]]; [[Helaman 8.20|Hel. 8:20]]. TG [Jerusalem](https://www.churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng).
+[^b]: TG [[Vision]].
+[^c]: [[Jeremiah 26.18|Jer. 26:18 (17-19)]]; [[1 Nephi 1.4|1 Ne. 1:4 (4-18)]]; [[Helaman 8.20|Hel. 8:20]]. TG [[Jerusalem]].
 [^d]: [[Jeremiah 44.2|Jer. 44:2.]]
 [^e]: [[Alma 9.22|Alma 9:22.]]

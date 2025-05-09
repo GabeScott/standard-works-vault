@@ -5,5 +5,5 @@
 [Moses 3:19](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/3.19?lang=eng#p19)
 
 
-[^a]: [[Proverbs 12.10|Prov. 12:10]]; [[D&C 29.24|D&C 29:24 (24-25)]]; [[D&C 49.19|49:19 (18-21)]]; [[D&C 77.2|77:2]]. TG [Creation](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng).
-[^b]: TG [Breath of Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/breath-of-life?lang=eng)
+[^a]: [[Proverbs 12.10|Prov. 12:10]]; [[D&C 29.24|D&C 29:24 (24-25)]]; [[D&C 49.19|49:19 (18-21)]]; [[D&C 77.2|77:2]]. TG [[Creation, Create]].
+[^b]: TG [[Breath of Life]].

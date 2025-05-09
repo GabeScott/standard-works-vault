@@ -5,6 +5,6 @@
 [Romans 2:21](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/2.21?lang=eng#p21)
 
 
-[^a]: TG [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^a]: TG [[Hypocrisy, Hypocrite]].
 [^b]: [[1 Corinthians 9.14|1 Cor. 9:14 (13-14)]]; [[Alma 39.11|Alma 39:11 (11-12).]]
-[^c]: TG [Stealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
+[^c]: TG [[Stealing, Stolen]].

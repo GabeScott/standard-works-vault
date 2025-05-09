@@ -6,6 +6,6 @@
 
 
 [^a]: [[3 Nephi 16.13|3 Ne. 16:13 (6-13)]]; [[3 Nephi 21.3|21:3 (2-7).]]
-[^b]: TG [Israel, Scattering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
-[^c]: [[Jeremiah 46.27|Jer. 46:27 (2-28)]]; [[3 Nephi 22.7|3 Ne. 22:7 (6-17)]]. TG [Israel, Gathering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng).
+[^b]: TG [[Israel, Scattering of]].
+[^c]: [[Jeremiah 46.27|Jer. 46:27 (2-28)]]; [[3 Nephi 22.7|3 Ne. 22:7 (6-17)]]. TG [[Israel, Gathering of]].
 [^d]: [[Ezekiel 20.42|Ezek. 20:42 (42-44)]]; [[3 Nephi 16.4|3 Ne. 16:4 (4-5).]]

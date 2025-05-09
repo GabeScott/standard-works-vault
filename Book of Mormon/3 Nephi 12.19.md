@@ -5,5 +5,5 @@
 [3 Nephi 12:19](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/12?lang=eng&id=p19#p19)
 
 
-[^a]: [[3 Nephi 9.20|3 Ne. 9:20]]. TG [Contrite Heart](https://www.churchofjesuschrist.org/study/scriptures/tg/contrite-heart?lang=eng).
+[^a]: [[3 Nephi 9.20|3 Ne. 9:20]]. TG [[Contrite Heart]].
 [^b]: [[3 Nephi 9.17|3 Ne. 9:17.]]

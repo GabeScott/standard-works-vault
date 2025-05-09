@@ -5,4 +5,4 @@
 [Mark 4:29](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/4.29?lang=eng#p29)
 
 
-[^a]: TG [Harvest.](https://www.churchofjesuschrist.org/study/scriptures/tg/harvest?lang=eng)
+[^a]: TG [[Harvest]].

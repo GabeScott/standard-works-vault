@@ -7,5 +7,5 @@
 
 [^a]: [[D&C 132.36|D&C 132:36.]]
 [^b]: [[John 3.16|John 3:16 (16-21)]]; [[Jacob 4.5|Jacob 4:5.]]
-[^c]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^c]: TG [[Love]].
 [^d]: [[2 Samuel 24.18|2 Sam. 24:18]]; [[2 Chronicles 3.1|2 Chr. 3:1.]]

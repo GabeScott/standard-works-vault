@@ -5,6 +5,6 @@
 [Psalms 32:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/32.5?lang=eng#p5)
 
 
-[^a]: TG [Confession.](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng)
-[^b]: TG [Transgress.](https://www.churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
-[^c]: TG [Forgive.](https://www.churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
+[^a]: TG [[Confession]].
+[^b]: TG [[Transgressor]].
+[^c]: TG [[Forgive, Forgiveness]].

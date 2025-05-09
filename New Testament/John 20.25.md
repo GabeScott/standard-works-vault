@@ -5,4 +5,4 @@
 [John 20:25](https://www.churchofjesuschrist.org/study/scriptures/nt/john/20.25?lang=eng#p25)
 
 
-[^a]: TG [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^a]: TG [[Jesus Christ, Crucifixion of]].

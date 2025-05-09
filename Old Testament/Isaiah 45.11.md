@@ -5,6 +5,6 @@
 [Isaiah 45:11](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/45.11?lang=eng#p11)
 
 
-[^a]: TG [Sons and Daughters of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)
+[^a]: TG [[Sons and Daughters of God]].
 [^b]: [[Isaiah 29.23|Isa. 29:23.]]
 [^c]: IE ask me what you want to know.

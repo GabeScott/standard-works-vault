@@ -8,4 +8,4 @@
 [^a]: [[D&C 133.32|D&C 133:32 (32-34).]]
 [^b]: HEB the wild ox.
 [^c]: [[D&C 58.45|D&C 58:45 (44-45).]]
-[^d]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
+[^d]: TG [[Israel, Joseph, People of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 20.1|2 Ne. 20:1 (1-34).]]
-[^b]: TG [Injustice.](https://www.churchofjesuschrist.org/study/scriptures/tg/injustice?lang=eng)
+[^b]: TG [[Injustice]].

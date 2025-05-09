@@ -6,4 +6,4 @@
 
 
 [^a]: [[Deuteronomy 9.1|Deut. 9:1 (1-6)]]; [[Joshua 1.11|Josh. 1:11 (1-18).]]
-[^b]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^b]: TG [[Restoration of the Gospel]].

@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Corinthians 11.26|2 Cor. 11:26 (24-33).]]
-[^b]: TG [Adversity.](https://www.churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng)
-[^c]: TG [Deliver.](https://www.churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
+[^b]: TG [[Adversity]].
+[^c]: TG [[Deliver, Deliverance]].

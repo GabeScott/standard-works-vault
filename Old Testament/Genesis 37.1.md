@@ -6,4 +6,4 @@
 
 
 [^a]: HEB of his father’s sojournings.
-[^b]: TG [Stranger.](https://www.churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
+[^b]: TG [[Stranger]].

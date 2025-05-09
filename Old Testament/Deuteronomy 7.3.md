@@ -5,4 +5,4 @@
 [Deuteronomy 7:3](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/7.3?lang=eng#p3)
 
 
-[^a]: TG [Marriage, Interfaith](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng); [Marriage, Temporal.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-temporal?lang=eng)
+[^a]: TG [[Marriage, Interfaith]]; [[Marriage, Temporal]].

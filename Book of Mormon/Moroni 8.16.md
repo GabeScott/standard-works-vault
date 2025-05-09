@@ -5,7 +5,7 @@
 [Moroni 8:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/8?lang=eng&id=p16#p16)
 
 
-[^a]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
-[^b]: TG [Perfection.](https://www.churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
-[^c]: TG [Love.](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
+[^a]: TG [[Authority]].
+[^b]: TG [[Perfection, Perfect, Perfectly]].
+[^c]: TG [[Love]].
 [^d]: 1 Jn. 4:18.

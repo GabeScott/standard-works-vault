@@ -5,4 +5,4 @@
 [Psalms 8:6](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/8.6?lang=eng#p6)
 
 
-[^a]: TG [Man, Potential to Become like Heavenly Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/man-potential-to-become-like-heavenly-father?lang=eng)
+[^a]: TG [[Man, Potential to Become like Heavenly Father]].

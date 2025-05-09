@@ -5,5 +5,5 @@
 [John 8:18](https://www.churchofjesuschrist.org/study/scriptures/nt/john/8.18?lang=eng#p18)
 
 
-[^a]: TG [Godhead](https://www.churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng); [God the Father, Elohim.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-the-father-elohim?lang=eng)
-[^b]: TG [Witness of the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness-of-the-father?lang=eng)
+[^a]: TG [[Godhead]]; [[God the Father, Elohim]].
+[^b]: TG [[Witness of the Father]].

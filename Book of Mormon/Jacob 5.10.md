@@ -5,4 +5,4 @@
 [Jacob 5:10](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/5?lang=eng&id=p10#p10)
 
 
-[^a]: TG [Gentiles.](https://www.churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng)
+[^a]: TG [[Gentiles]].

@@ -6,6 +6,6 @@
 
 
 [^a]: [[2 Nephi 18.1|2 Ne. 18:1 (1-22).]]
-[^b]: TG [Scriptures, Writing of.](https://www.churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
+[^b]: TG [[Scriptures, Writing of]].
 [^c]: HEB an engraving tool of a man.
 [^d]: HEB To speed to the spoil, he hasteneth the prey.

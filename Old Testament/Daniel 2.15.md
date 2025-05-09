@@ -5,4 +5,4 @@
 [Daniel 2:15](https://www.churchofjesuschrist.org/study/scriptures/ot/dan/2.15?lang=eng#p15)
 
 
-[^a]: TG [Rashness.](https://www.churchofjesuschrist.org/study/scriptures/tg/rashness?lang=eng)
+[^a]: TG [[Rashness]].

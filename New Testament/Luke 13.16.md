@@ -5,4 +5,4 @@
 [Luke 13:16](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/13.16?lang=eng#p16)
 
 
-[^a]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
+[^a]: TG [[Sabbath]].

@@ -5,7 +5,7 @@
 [Jeremiah 17:10](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/17.10?lang=eng#p10)
 
 
-[^a]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
-[^b]: TG [God, Omniscience of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
+[^a]: TG [[Judgment]].
+[^b]: TG [[God, Omniscience of]].
 [^c]: [[Proverbs 17.3|Prov. 17:3.]]
-[^d]: TG [Good Works](https://www.churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng); [Justice.](https://www.churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
+[^d]: TG [[Good Works]]; [[God, Justice of]].

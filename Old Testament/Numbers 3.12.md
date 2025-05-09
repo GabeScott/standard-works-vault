@@ -5,4 +5,4 @@
 [Numbers 3:12](https://www.churchofjesuschrist.org/study/scriptures/ot/num/3.12?lang=eng#p12)
 
 
-[^a]: TG [Firstborn.](https://www.churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
+[^a]: TG [[Firstborn]].

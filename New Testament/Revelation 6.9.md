@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 135.7|D&C 135:7.]]
-[^b]: TG [Martyrdom](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng); [Persecution.](https://www.churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
+[^b]: TG [[Martyrdom]]; [[Persecution, Persecute]].

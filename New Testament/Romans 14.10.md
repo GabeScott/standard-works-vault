@@ -5,5 +5,5 @@
 [Romans 14:10](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/14.10?lang=eng#p10)
 
 
-[^a]: TG [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
-[^b]: TG [Judgment, the Last.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
+[^a]: TG [[Judgment]].
+[^b]: TG [[Judgment, the Last]].

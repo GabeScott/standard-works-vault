@@ -5,6 +5,6 @@
 [Ecclesiastes 6:9](https://www.churchofjesuschrist.org/study/scriptures/ot/eccl/6.9?lang=eng#p9)
 
 
-[^a]: TG [Sight.](https://www.churchofjesuschrist.org/study/scriptures/tg/sight?lang=eng)
-[^b]: TG [Vanity.](https://www.churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
+[^a]: TG [[Sight]].
+[^b]: TG [[Vanity]].
 [^c]: [[Ecclesiastes 1.14|Eccl. 1:14.]]

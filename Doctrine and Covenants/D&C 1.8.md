@@ -5,5 +5,5 @@
 [D&C 1:8](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/1.8?lang=eng#p8)
 
 
-[^a]: [[D&C 68.12|D&C 68:12]]. TG [Priesthood, Keys of](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-keys-of?lang=eng); [Sealing](https://www.churchofjesuschrist.org/study/scriptures/tg/sealing?lang=eng).
-[^b]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^a]: [[D&C 68.12|D&C 68:12]]. TG [[Priesthood, Keys of]]; [[Sealing, Sealed]].
+[^b]: TG [[Rebellion, Rebel]].

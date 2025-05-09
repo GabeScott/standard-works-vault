@@ -5,4 +5,4 @@
 [2 Samuel 12:20](https://www.churchofjesuschrist.org/study/scriptures/ot/2-sam/12.20?lang=eng#p20)
 
 
-[^a]: TG [Apparel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng)
+[^a]: TG [[Apparel]].

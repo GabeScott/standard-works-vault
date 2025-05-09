@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 50.23|Gen. 50:23.]]
-[^b]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
+[^b]: TG [[Israel, Joseph, People of]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 22.28|Ex. 22:28]]; [[D&C 121.16|D&C 121:16.]]
-[^b]: TG [Anointing.](https://www.churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng)
+[^b]: TG [[Anointing, Anoint]].

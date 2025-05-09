@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mormon 6.6|Morm. 6:6]]; [[Moroni 9.24|Moro. 9:24.]]
-[^b]: TG [Record Keeping.](https://www.churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng)
+[^b]: TG [[Record Keeping]].

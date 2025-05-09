@@ -6,6 +6,6 @@
 
 
 [^a]: [[D&C 35.15|D&C 35:15]]; [[D&C 49.23|49:23.]]
-[^b]: TG [Haste.](https://www.churchofjesuschrist.org/study/scriptures/tg/haste?lang=eng)
+[^b]: TG [[Haste, Hasten, Hasty]].
 [^c]: [[Hebrews 9.28|Heb. 9:28]]; [[Revelation 1.7|Rev. 1:7]]; [[D&C 39.23|D&C 39:23.]]
 [^d]: [[D&C 45.30|D&C 45:30.]]

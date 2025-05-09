@@ -5,5 +5,5 @@
 [Proverbs 17:13](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/17.13?lang=eng#p13)
 
 
-[^a]: TG [Reward.](https://www.churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
-[^b]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
+[^a]: TG [[Reward]].
+[^b]: TG [[Evil]].

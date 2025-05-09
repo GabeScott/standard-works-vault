@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 23.3|Lev. 23:3.]]
-[^b]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
+[^b]: TG [[Reverence]].

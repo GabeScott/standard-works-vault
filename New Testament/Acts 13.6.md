@@ -5,4 +5,4 @@
 [Acts 13:6](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/13.6?lang=eng#p6)
 
 
-[^a]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^a]: TG [[Sorcery]].

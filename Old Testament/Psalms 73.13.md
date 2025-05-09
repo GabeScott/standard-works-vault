@@ -5,4 +5,4 @@
 [Psalms 73:13](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/73.13?lang=eng#p13)
 
 
-[^a]: TG [Wash.](https://www.churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
+[^a]: TG [[Wash, Washing]].

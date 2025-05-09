@@ -5,4 +5,4 @@
 [Jeremiah 30:11](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/30.11?lang=eng#p11)
 
 
-[^a]: [[Amos 9.8|Amos 9:8]]; [[D&C 101.9|D&C 101:9 (1-9)]]. TG [Israel, Scattering of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng).
+[^a]: [[Amos 9.8|Amos 9:8]]; [[D&C 101.9|D&C 101:9 (1-9)]]. TG [[Israel, Scattering of]].

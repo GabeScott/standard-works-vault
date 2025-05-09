@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 8.1|Gen. 8:1]]; [[Hebrews 11.7|Heb. 11:7]]; [[1 Peter 3.20|1 Pet. 3:20 (20-21).]]
-[^b]: TG [Righteousness.](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng)
-[^c]: TG [Earth, Cleansing of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng); [Flood.](https://www.churchofjesuschrist.org/study/scriptures/tg/flood?lang=eng)
+[^b]: TG [[God, the Standard of Righteousness]].
+[^c]: TG [[Earth, Cleansing of]]; [[Flood, Noah’s]].

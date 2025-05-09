@@ -5,7 +5,7 @@
 [Ezekiel 40:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/40.5?lang=eng#p5)
 
 
-[^a]: TG [Temple.](https://www.churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
+[^a]: TG [[Genealogy and Temple Work]].
 [^b]: [[Ezekiel 41.8|Ezek. 41:8]]; [[Ezekiel 43.13|43:13.]]
 [^c]: IE six long cubits, of a cubit plus a handbreadth each. Thus each would be about 21 inches or 53 centimeters; and the total length of the measuring reed is about 10½ feet or 3.2 meters.
 [^d]: [[Ezekiel 42.20|Ezek. 42:20.]]

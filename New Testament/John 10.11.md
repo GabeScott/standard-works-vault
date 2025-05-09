@@ -5,5 +5,5 @@
 [John 10:11](https://www.churchofjesuschrist.org/study/scriptures/nt/john/10.11?lang=eng#p11)
 
 
-[^a]: TG [Shepherd.](https://www.churchofjesuschrist.org/study/scriptures/tg/shepherd?lang=eng)
+[^a]: TG [[Shepherd]].
 [^b]: [[Ezekiel 34.2|Ezek. 34:2.]]

@@ -5,4 +5,4 @@
 [Luke 10:42](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/10.42?lang=eng#p42)
 
 
-[^a]: TG [Agency.](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
+[^a]: TG [[Agency]].

@@ -7,4 +7,4 @@
 
 [^a]: IE as burnt sacrifices to Moloch.
 [^c]: [[Helaman 12.3|Hel. 12:3.]]
-[^d]: TG [God, Knowledge about.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng)
+[^d]: TG [[God, Knowledge about]].

@@ -6,4 +6,4 @@
 
 
 [^a]: GR unless.
-[^b]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
+[^b]: TG [[Revelation]].

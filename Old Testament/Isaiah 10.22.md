@@ -6,7 +6,7 @@
 
 
 [^a]: [[Romans 9.27|Rom. 9:27 (27-28).]]
-[^b]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^b]: TG [[Israel, Gathering of]].
 [^c]: IE even when punishment comes, mercy is available.
-[^d]: TG [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
+[^d]: TG [[World, End of]].
 [^e]: [[Matthew 24.34|Matt. 24:34]]; [[D&C 1.7|D&C 1:7.]]

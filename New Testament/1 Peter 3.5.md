@@ -5,6 +5,6 @@
 [1 Peter 3:5](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3.5?lang=eng#p5)
 
 
-[^a]: TG [Woman.](https://www.churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
-[^b]: TG [Trust in God.](https://www.churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
+[^a]: TG [[Woman, Women]].
+[^b]: TG [[Trust in God]].
 [^c]: GR obedient, submissive to.

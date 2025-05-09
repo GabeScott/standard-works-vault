@@ -5,5 +5,5 @@
 [Alma 36:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/36?lang=eng&id=p4#p4)
 
 
-[^a]: [[1 Corinthians 2.11|1 Cor. 2:11]]; [[Alma 5.45|Alma 5:45 (45-46)]]. TG [Knowledge](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng).
-[^b]: TG [Carnal Mind.](https://www.churchofjesuschrist.org/study/scriptures/tg/carnal-mind?lang=eng)
+[^a]: [[1 Corinthians 2.11|1 Cor. 2:11]]; [[Alma 5.45|Alma 5:45 (45-46)]]. TG [[Knowledge]].
+[^b]: TG [[Carnal Mind]].

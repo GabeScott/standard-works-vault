@@ -6,4 +6,4 @@
 
 
 [^b]: [[Genesis 19.16|Gen. 19:16]]; [[D&C 76.5|D&C 76:5.]]
-[^c]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^c]: TG [[Anger]].

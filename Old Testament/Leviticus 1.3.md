@@ -6,7 +6,7 @@
 
 
 [^a]: [[Ezekiel 40.39|Ezek. 40:39.]]
-[^b]: TG [Sacrifice.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
+[^b]: TG [[Self-Sacrifice]].
 [^c]: HEB whole, sound.
 [^d]: [[Hebrews 9.14|Heb. 9:14]]; [[1 Peter 1.19|1 Pet. 1:19.]]
-[^e]: TG [Initiative.](https://www.churchofjesuschrist.org/study/scriptures/tg/initiative?lang=eng)
+[^e]: TG [[Initiative]].

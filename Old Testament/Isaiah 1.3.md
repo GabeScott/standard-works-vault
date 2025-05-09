@@ -6,4 +6,4 @@
 
 
 [^a]: HEB stall or manger.
-[^b]: TG [Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng); [God, Knowledge about](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng); [Ignorance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ignorance?lang=eng)
+[^b]: TG [[Apostasy of Israel]]; [[God, Knowledge about]]; [[Ignorance, Ignorant]].

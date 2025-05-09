@@ -6,7 +6,7 @@
 
 
 [^a]: [[Genesis 1.31|Gen. 1:31 (1-31)]]; [[Exodus 20.11|Ex. 20:11 (8-11)]]; [[Mosiah 13.19|Mosiah 13:19 (16-19)]]; [[Moses 2.31|Moses 2:31 (24-31)]]; [[Abraham 4.31|Abr. 4:31 (1-31).]]
-[^b]: TG [Creation.](https://www.churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng)
-[^c]: TG [Sabbath.](https://www.churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
-[^d]: TG [Rest.](https://www.churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
+[^b]: TG [[Creation, Create]].
+[^c]: TG [[Sabbath]].
+[^d]: TG [[Restoration of the Gospel]].
 [^e]: [[Genesis 2.3|Gen. 2:3 (1-3).]]

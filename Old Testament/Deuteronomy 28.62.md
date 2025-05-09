@@ -5,4 +5,4 @@
 [Deuteronomy 28:62](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/28.62?lang=eng#p62)
 
 
-[^a]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
+[^a]: TG [[Disobedience, Disobey]].

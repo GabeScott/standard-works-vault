@@ -5,5 +5,5 @@
 [Jeremiah 23:16](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/23.16?lang=eng#p16)
 
 
-[^a]: TG [False Prophets.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
-[^b]: TG [False Doctrine.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng)
+[^a]: TG [[False Prophets]].
+[^b]: TG [[False Doctrine]].

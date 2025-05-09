@@ -5,8 +5,8 @@
 [Revelation 1:18](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/1.18?lang=eng#p18)
 
 
-[^a]: TG [Jesus Christ, Resurrection](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng); [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
-[^b]: TG [Jesus Christ, Death of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
-[^c]: TG [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
-[^d]: TG [Jesus Christ, Authority of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
-[^e]: TG [Hell.](https://www.churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
+[^a]: TG [[Jesus Christ, Resurrection]]; [[Jesus Christ, Resurrection]].
+[^b]: TG [[Jesus Christ, Death of]].
+[^c]: TG [[Immortality, Immortal]].
+[^d]: TG [[Jesus Christ, Authority of]].
+[^e]: TG [[Hell]].

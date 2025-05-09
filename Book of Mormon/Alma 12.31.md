@@ -5,7 +5,7 @@
 [Alma 12:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12?lang=eng&id=p31#p31)
 
 
-[^a]: TG [Commandments of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)
+[^a]: TG [[Commandments of God]].
 [^b]: [[Genesis 2.17|Gen. 2:17 (16-17)]]; [[2 Nephi 2.19|2 Ne. 2:19 (18-19).]]
 [^c]: [[Genesis 3.22|Gen. 3:22]]; [[Moses 4.11|Moses 4:11.]]
-[^d]: [[2 Nephi 2.16|2 Ne. 2:16]]. TG [Agency](https://www.churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng).
+[^d]: [[2 Nephi 2.16|2 Ne. 2:16]]. TG [[Agency]].

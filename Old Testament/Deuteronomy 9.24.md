@@ -5,4 +5,4 @@
 [Deuteronomy 9:24](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/9.24?lang=eng#p24)
 
 
-[^a]: TG [Rebellion.](https://www.churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
+[^a]: TG [[Rebellion, Rebel]].

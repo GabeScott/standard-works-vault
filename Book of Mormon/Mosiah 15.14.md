@@ -7,4 +7,4 @@
 
 [^a]: [[Mosiah 12.21|Mosiah 12:21 (21-24)]]; [[Mosiah 27.37|27:37.]]
 [^b]: [[Isaiah 52.7|Isa. 52:7.]]
-[^c]: TG [Missionary Work.](https://www.churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng)
+[^c]: TG [[Missionary Work]].

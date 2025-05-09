@@ -5,6 +5,6 @@
 [2 Chronicles 7:14](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/7.14?lang=eng#p14)
 
 
-[^a]: TG [Humility.](https://www.churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng)
-[^b]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^a]: TG [[Humility, Humble]].
+[^b]: TG [[Prayer, Pray]].
 [^c]: [[D&C 101.38|D&C 101:38.]]

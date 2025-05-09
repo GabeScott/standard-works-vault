@@ -5,5 +5,5 @@
 [Moses 2:18](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2.18?lang=eng#p18)
 
 
-[^a]: TG [Astronomy.](https://www.churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng)
-[^b]: TG [Darkness, Physical.](https://www.churchofjesuschrist.org/study/scriptures/tg/darkness-physical?lang=eng)
+[^a]: TG [[Astronomy]].
+[^b]: TG [[Darkness, Physical]].

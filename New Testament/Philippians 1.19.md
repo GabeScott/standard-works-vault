@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Corinthians 1.11|2 Cor. 1:11]]; Philem. 1:22.
-[^b]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
+[^b]: TG [[God, Spirit of]].

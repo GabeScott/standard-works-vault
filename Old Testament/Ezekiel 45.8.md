@@ -7,5 +7,5 @@
 
 [^a]: OR It shall be his possession in the land of Israel.
 [^b]: [[Ezekiel 46.18|Ezek. 46:18.]]
-[^c]: TG [Kings, Earthly.](https://www.churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
-[^d]: TG [Israel, Twelve Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-twelve-tribes-of?lang=eng)
+[^c]: TG [[Kings, Earthly]].
+[^d]: TG [[Israel, Twelve Tribes of]].

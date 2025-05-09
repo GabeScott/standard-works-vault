@@ -5,5 +5,5 @@
 [Genesis 41:39](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/41.39?lang=eng#p39)
 
 
-[^a]: TG [Revelation.](https://www.churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
-[^b]: [[Alma 18.22|Alma 18:22]]; [[Alma 48.11|48:11 (11-17)]]; [[Helaman 16.14|Hel. 16:14]]. TG [Wisdom](https://www.churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng).
+[^a]: TG [[Revelation]].
+[^b]: [[Alma 18.22|Alma 18:22]]; [[Alma 48.11|48:11 (11-17)]]; [[Helaman 16.14|Hel. 16:14]]. TG [[Wisdom]].

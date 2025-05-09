@@ -5,5 +5,5 @@
 [Numbers 21:7](https://www.churchofjesuschrist.org/study/scriptures/ot/num/21.7?lang=eng#p7)
 
 
-[^a]: TG [Confession.](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng)
-[^b]: [[1 Samuel 7.5|1 Sam. 7:5]]; [[Jeremiah 42.4|Jer. 42:4]]; [[2 Nephi 33.3|2 Ne. 33:3]]; [[Enos 1.9|Enos 1:9]]. TG [Prayer](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng).
+[^a]: TG [[Confession]].
+[^b]: [[1 Samuel 7.5|1 Sam. 7:5]]; [[Jeremiah 42.4|Jer. 42:4]]; [[2 Nephi 33.3|2 Ne. 33:3]]; [[Enos 1.9|Enos 1:9]]. TG [[Prayer, Pray]].

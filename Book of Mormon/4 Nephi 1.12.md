@@ -6,6 +6,6 @@
 
 
 [^a]: [[2 Nephi 25.30|2 Ne. 25:30.]]
-[^b]: TG [Ordinance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
-[^c]: [[3 Nephi 9.19|3 Ne. 9:19]]; [[3 Nephi 15.4|15:4 (2-8)]]. TG [Law of Moses](https://www.churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng).
+[^b]: TG [[Ordinance]].
+[^c]: [[3 Nephi 9.19|3 Ne. 9:19]]; [[3 Nephi 15.4|15:4 (2-8)]]. TG [[Law of Moses]].
 [^d]: [[Moroni 6.5|Moro. 6:5]]; [[D&C 88.76|D&C 88:76.]]

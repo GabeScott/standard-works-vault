@@ -5,7 +5,7 @@
 [James 4:4](https://www.churchofjesuschrist.org/study/scriptures/nt/james/4.4?lang=eng#p4)
 
 
-[^a]: TG [Whore.](https://www.churchofjesuschrist.org/study/scriptures/tg/whore?lang=eng)
-[^b]: TG [World](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng); [World](https://www.churchofjesuschrist.org/study/scriptures/tg/world?lang=eng)liness.
-[^c]: TG [Opposition.](https://www.churchofjesuschrist.org/study/scriptures/tg/opposition?lang=eng)
-[^d]: TG [Enemies.](https://www.churchofjesuschrist.org/study/scriptures/tg/enemies?lang=eng)
+[^a]: TG [[Whore, Whoredom]].
+[^b]: TG [[World, End of]]; [[World, End of]]liness.
+[^c]: TG [[Opposition]].
+[^d]: TG [[Enemies, Enemy]].

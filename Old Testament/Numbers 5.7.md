@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 5.5|Lev. 5:5 (1-10)]]; [[Mosiah 26.29|Mosiah 26:29 (29, 35)]]; [[Alma 17.4|Alma 17:4]]; [[3 Nephi 1.25|3 Ne. 1:25]]; [[D&C 19.20|D&C 19:20]]; [[D&C 58.43|58:43]]; [[D&C 64.7|64:7.]]
-[^b]: TG [Repent.](https://www.churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
+[^b]: TG [[Repent, Repentance]].

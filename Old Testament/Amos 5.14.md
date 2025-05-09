@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ether 4.12|Ether 4:12 (11-12)]]; [[Moroni 7.16|Moro. 7:16]]; [[D&C 6.13|D&C 6:13]]; [[D&C 58.28|58:28 (26-33).]]
-[^b]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
+[^b]: TG [[Evil]].

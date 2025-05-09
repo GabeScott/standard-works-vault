@@ -6,5 +6,5 @@
 
 
 [^a]: [[Genesis 6.6|Gen. 6:6.]]
-[^b]: TG [God, Spirit of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
-[^c]: TG [Sealing.](https://www.churchofjesuschrist.org/study/scriptures/tg/sealing?lang=eng)
+[^b]: TG [[God, Spirit of]].
+[^c]: TG [[Sealing, Sealed]].

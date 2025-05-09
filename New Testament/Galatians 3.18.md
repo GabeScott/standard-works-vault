@@ -5,4 +5,4 @@
 [Galatians 3:18](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/3.18?lang=eng#p18)
 
 
-[^a]: TG [Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/inheritance?lang=eng)
+[^a]: TG [[Inheritance]].

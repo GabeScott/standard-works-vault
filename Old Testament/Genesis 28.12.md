@@ -5,5 +5,5 @@
 [Genesis 28:12](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/28.12?lang=eng#p12)
 
 
-[^a]: TG [Dream.](https://www.churchofjesuschrist.org/study/scriptures/tg/dream?lang=eng)
-[^b]: TG [Angels.](https://www.churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
+[^a]: TG [[Dream]].
+[^b]: TG [[Angels]].

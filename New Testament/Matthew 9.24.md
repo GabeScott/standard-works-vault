@@ -5,4 +5,4 @@
 [Matthew 9:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/9.24?lang=eng#p24)
 
 
-[^a]: GR ridiculed Him. 1 Ne. 8:27 (26-27). TG [Laughter](https://www.churchofjesuschrist.org/study/scriptures/tg/laughter?lang=eng).
+[^a]: GR ridiculed Him. 1 Ne. 8:27 (26-27). TG [[Laughter, Laugh]].

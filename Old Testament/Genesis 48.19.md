@@ -6,6 +6,6 @@
 
 
 [^a]: [[Joshua 17.14|Josh. 17:14.]]
-[^b]: TG [Seed of Abraham.](https://www.churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
+[^b]: TG [[Seed of Abraham]].
 [^c]: [[Numbers 1.33|Num. 1:33.]]
-[^d]: [[D&C 45.24|D&C 45:24 (24-25)]]. TG [Israel, Joseph, People of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng).
+[^d]: [[D&C 45.24|D&C 45:24 (24-25)]]. TG [[Israel, Joseph, People of]].

@@ -6,8 +6,8 @@
 
 
 [^a]: [[Ezekiel 39.29|Ezek. 39:29 (28-29)]]; [[D&C 105.12|D&C 105:12]]; [[D&C 110.10|110:10.]]
-[^b]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
-[^c]: TG [Jesus Christ, Second Coming.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
-[^d]: TG [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^b]: TG [[Grace]].
+[^c]: TG [[Jesus Christ, Second Coming]].
+[^d]: TG [[Jesus Christ, Crucifixion of]].
 [^e]: [[Jeremiah 50.4|Jer. 50:4.]]
 [^f]: [[Amos 8.10|Amos 8:10.]]

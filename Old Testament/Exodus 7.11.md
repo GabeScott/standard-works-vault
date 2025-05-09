@@ -5,5 +5,5 @@
 [Exodus 7:11](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/7.11?lang=eng#p11)
 
 
-[^a]: TG [False Prophets](https://www.churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng); [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
-[^b]: TG [False Priesthoods.](https://www.churchofjesuschrist.org/study/scriptures/tg/false-priesthoods?lang=eng)
+[^a]: TG [[False Prophets]]; [[Sorcery]].
+[^b]: TG [[False Priesthoods]].

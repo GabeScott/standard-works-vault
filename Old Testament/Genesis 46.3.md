@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 136.21|D&C 136:21.]]
-[^b]: TG [Israel, Bondage of, in Egypt.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-egypt?lang=eng)
-[^c]: TG [Israel, Origins of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-origins-of?lang=eng)
+[^b]: TG [[Israel, Bondage of, in Egypt]].
+[^c]: TG [[Israel, Origins of]].

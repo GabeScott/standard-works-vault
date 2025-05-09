@@ -5,5 +5,5 @@
 [Ezekiel 23:37](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.37?lang=eng#p37)
 
 
-[^a]: TG [Adulterer.](https://www.churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
+[^a]: TG [[Adulterer, Adultery]].
 [^b]: [[Leviticus 17.7|Lev. 17:7]]; [[Leviticus 20.5|20:5]]; [[Jeremiah 3.9|Jer. 3:9 (8-9).]]

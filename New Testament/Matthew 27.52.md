@@ -5,8 +5,8 @@
 [Matthew 27:52](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/27.52?lang=eng#p52)
 
 
-[^a]: TG [Jesus Christ, Prophecies about.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
+[^a]: TG [[Jesus Christ, Prophecies about]].
 [^b]: [[D&C 129.1|D&C 129:1.]]
-[^c]: TG [Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng)
+[^c]: TG [[Mission of Latter-day Saints]].
 [^d]: GR who had died.
-[^e]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^e]: TG [[Jesus Christ, Resurrection]].

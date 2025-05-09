@@ -5,4 +5,4 @@
 [Leviticus 11:44](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/11.44?lang=eng#p44)
 
 
-[^a]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^a]: TG [[Sanctification, Sanctify]].

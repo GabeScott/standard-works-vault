@@ -7,4 +7,4 @@
 
 [^a]: [[2 Nephi 29.14|2 Ne. 29:14 (8, 14).]]
 [^b]: [[Jeremiah 16.15|Jer. 16:15.]]
-[^c]: TG [Israel, Ten Lost Tribes of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
+[^c]: TG [[Israel, Ten Lost Tribes of]].

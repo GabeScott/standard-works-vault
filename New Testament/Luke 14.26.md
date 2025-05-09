@@ -7,5 +7,5 @@
 
 [^a]: [[Matthew 10.37|Matt. 10:37.]]
 [^b]: JST Luke 14:26 … or husband, yea and his own life also; or in other words, is afraid to lay down his life for my sake, he cannot be …
-[^c]: TG [Martyrdom.](https://www.churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
-[^d]: TG [Self-Mastery.](https://www.churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
+[^c]: TG [[Martyrdom]].
+[^d]: TG [[Self-Mastery]].

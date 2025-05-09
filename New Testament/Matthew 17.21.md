@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 84.67|D&C 84:67 (65-73).]]
-[^b]: TG [Fast, Fasting.](https://www.churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
+[^b]: TG [[Fast, Fasting]].

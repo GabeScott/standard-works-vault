@@ -5,4 +5,4 @@
 [Psalms 82:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/82.5?lang=eng#p5)
 
 
-[^a]: TG [Walking in Darkness.](https://www.churchofjesuschrist.org/study/scriptures/tg/walking-in-darkness?lang=eng)
+[^a]: TG [[Walking in Darkness]].

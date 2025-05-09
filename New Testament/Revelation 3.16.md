@@ -5,5 +5,5 @@
 [Revelation 3:16](https://www.churchofjesuschrist.org/study/scriptures/nt/rev/3.16?lang=eng#p16)
 
 
-[^a]: TG [Apathy](https://www.churchofjesuschrist.org/study/scriptures/tg/apathy?lang=eng); [Apostasy of the Early Christian Church.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
+[^a]: TG [[Apathy]]; [[Apostasy of the Early Christian Church]].
 [^b]: GR vomit.

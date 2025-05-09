@@ -5,7 +5,7 @@
 [Alma 14:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/14?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Spiritual Blindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng)
+[^a]: TG [[Spiritual Blindness]].
 [^b]: [[Alma 10.31|Alma 10:31 (25-31).]]
 [^c]: [[Alma 15.5|Alma 15:5.]]
-[^d]: TG [Conscience.](https://www.churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
+[^d]: TG [[Conscience]].

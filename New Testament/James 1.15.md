@@ -5,4 +5,4 @@
 [James 1:15](https://www.churchofjesuschrist.org/study/scriptures/nt/james/1.15?lang=eng#p15)
 
 
-[^a]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^a]: TG [[Sin]].

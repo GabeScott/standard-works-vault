@@ -5,4 +5,4 @@
 [Moses 7:45](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/7.45?lang=eng#p45)
 
 
-[^a]: TG [Sanctification.](https://www.churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
+[^a]: TG [[Sanctification, Sanctify]].

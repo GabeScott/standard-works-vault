@@ -5,6 +5,6 @@
 [Alma 22:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/22?lang=eng&id=p23#p23)
 
 
-[^a]: TG [Minister](https://www.churchofjesuschrist.org/study/scriptures/tg/minister?lang=eng); [Ministration](https://www.churchofjesuschrist.org/study/scriptures/tg/ministration?lang=eng); [Ministry.](https://www.churchofjesuschrist.org/study/scriptures/tg/ministry?lang=eng)
+[^a]: TG [[Minister]]; [[Ministration]]; [[Ministry]].
 [^b]: [[Alma 23.3|Alma 23:3.]]
-[^c]: TG [Conversion.](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
+[^c]: TG [[Conversion, Convert]].

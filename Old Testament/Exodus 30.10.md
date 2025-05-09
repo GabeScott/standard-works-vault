@@ -6,5 +6,5 @@
 
 
 [^a]: [[Hebrews 9.7|Heb. 9:7.]]
-[^b]: TG [Blood, Symbolism of.](https://www.churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng)
+[^b]: TG [[Blood, Symbolism of]].
 [^c]: [[Leviticus 4.20|Lev. 4:20]]; [[1 Chronicles 6.49|1 Chr. 6:49.]]

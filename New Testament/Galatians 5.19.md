@@ -6,5 +6,5 @@
 
 
 [^a]: [[Mosiah 16.3|Mosiah 16:3 (3-5)]]; [[D&C 67.12|D&C 67:12 (10-12).]]
-[^b]: TG [Fornication.](https://www.churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng)
-[^c]: TG [Uncleanness.](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng)
+[^b]: TG [[Fornication]].
+[^c]: TG [[Uncleanness, Unclean]].

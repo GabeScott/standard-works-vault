@@ -6,4 +6,4 @@
 
 
 [^a]: [[3 Nephi 28.26|3 Ne. 28:26.]]
-[^b]: TG [Translated Beings.](https://www.churchofjesuschrist.org/study/scriptures/tg/translated-beings?lang=eng)
+[^b]: TG [[Translated Beings]].

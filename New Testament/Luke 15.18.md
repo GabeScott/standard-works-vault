@@ -6,4 +6,4 @@
 
 
 [^a]: Lam. 3:40.
-[^b]: TG [Confession.](https://www.churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng)
+[^b]: TG [[Confession]].

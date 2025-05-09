@@ -5,5 +5,5 @@
 [Alma 42:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/42?lang=eng&id=p17#p17)
 
 
-[^a]: [[Romans 7.8|Rom. 7:8 (1-25)]]. TG [Sin](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng).
+[^a]: [[Romans 7.8|Rom. 7:8 (1-25)]]. TG [[Sin]].
 [^b]: [[Romans 4.15|Rom. 4:15]]; [[Romans 5.13|5:13]]; [[2 Nephi 9.25|2 Ne. 9:25.]]

@@ -6,5 +6,5 @@
 
 
 [^a]: HEB laid a heavy burden upon the people.
-[^b]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
-[^c]: TG [Reverence.](https://www.churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
+[^b]: TG [[Authority]].
+[^c]: TG [[Reverence]].

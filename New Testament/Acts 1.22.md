@@ -6,5 +6,5 @@
 
 
 [^a]: GR become a witness.
-[^b]: TG [Witness.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
-[^c]: TG [Resurrection.](https://www.churchofjesuschrist.org/study/scriptures/tg/resurrection?lang=eng)
+[^b]: TG [[Witness, Witnesses]].
+[^c]: TG [[Jesus Christ, Resurrection]].

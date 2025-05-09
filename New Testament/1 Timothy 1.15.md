@@ -6,5 +6,5 @@
 
 
 [^a]: [[1 Timothy 3.1|1 Tim. 3:1.]]
-[^b]: [[Matthew 9.13|Matt. 9:13 (12-13)]]. TG [Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng).
+[^b]: [[Matthew 9.13|Matt. 9:13 (12-13)]]. TG [[Jesus Christ, Atonement through]].
 [^c]: [[Luke 5.32|Luke 5:32]]; [[John 9.39|John 9:39 (39-41).]]

@@ -5,5 +5,5 @@
 [Proverbs 22:10](https://www.churchofjesuschrist.org/study/scriptures/ot/prov/22.10?lang=eng#p10)
 
 
-[^a]: TG [Contention.](https://www.churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
-[^b]: TG [Strife.](https://www.churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
+[^a]: TG [[Contention]].
+[^b]: TG [[Strife]].

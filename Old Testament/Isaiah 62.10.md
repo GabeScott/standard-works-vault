@@ -7,4 +7,4 @@
 
 [^a]: [[Isaiah 57.14|Isa. 57:14.]]
 [^b]: [[D&C 133.27|D&C 133:27 (23-30).]]
-[^c]: TG [Ensign.](https://www.churchofjesuschrist.org/study/scriptures/tg/ensign?lang=eng)
+[^c]: TG [[Ensign]].

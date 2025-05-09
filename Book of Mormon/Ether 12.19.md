@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 11.4|2 Ne. 11:4]]; [[Jacob 4.5|Jacob 4:5]]; [[Jarom 1.11|Jarom 1:11]]; [[Alma 25.16|Alma 25:16 (15-16).]]
-[^b]: [[Ether 3.6|Ether 3:6]]. TG [Veil](https://www.churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng).
+[^b]: [[Ether 3.6|Ether 3:6]]. TG [[Veil]].

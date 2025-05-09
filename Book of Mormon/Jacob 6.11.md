@@ -6,4 +6,4 @@
 
 
 [^a]: [[2 Nephi 9.41|2 Ne. 9:41.]]
-[^b]: [[2 Nephi 31.15|2 Ne. 31:15]]. TG [Commitment](https://www.churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng).
+[^b]: [[2 Nephi 31.15|2 Ne. 31:15]]. TG [[Commitment]].

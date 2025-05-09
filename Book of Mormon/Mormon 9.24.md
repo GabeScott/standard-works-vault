@@ -5,6 +5,6 @@
 [Mormon 9:24](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/9?lang=eng&id=p24#p24)
 
 
-[^a]: [[Mark 16.17|Mark 16:17 (17-18)]]. TG [Signs](https://www.churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng).
+[^a]: [[Mark 16.17|Mark 16:17 (17-18)]]. TG [[Signs]].
 [^b]: [[Mark 5.15|Mark 5:15 (15-20)]]; [[1 Nephi 11.31|1 Ne. 11:31.]]
-[^c]: TG [Administrations to the Sick](https://www.churchofjesuschrist.org/study/scriptures/tg/administrations-to-the-sick?lang=eng); [Hands, Laying on of.](https://www.churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng)
+[^c]: TG [[Administrations to the Sick]]; [[Hands, Laying on of]].

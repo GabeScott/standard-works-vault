@@ -6,4 +6,4 @@
 
 
 [^a]: Aramaic: My God, my God, why hast thou forsaken me?
-[^b]: TG [Jesus Christ, Crucifixion of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
+[^b]: TG [[Jesus Christ, Crucifixion of]].

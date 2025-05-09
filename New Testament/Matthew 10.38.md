@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 16.24|Matt. 16:24]]; [[Luke 9.23|Luke 9:23]]; [[Luke 14.27|14:27]]; [[3 Nephi 12.30|3 Ne. 12:30]]; [[D&C 23.6|D&C 23:6.]]
-[^b]: TG [Worthiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
+[^b]: TG [[Worthiness, Worthy]].

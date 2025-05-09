@@ -5,7 +5,7 @@
 [Hosea 4:6](https://www.churchofjesuschrist.org/study/scriptures/ot/hosea/4.6?lang=eng#p6)
 
 
-[^a]: TG [God, Knowledge about](https://www.churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng); [Ignorance.](https://www.churchofjesuschrist.org/study/scriptures/tg/ignorance?lang=eng)
-[^b]: TG [Disobedience.](https://www.churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
-[^c]: TG [Knowledge.](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
-[^d]: TG [Apostasy of Israel.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
+[^a]: TG [[God, Knowledge about]]; [[Ignorance, Ignorant]].
+[^b]: TG [[Disobedience, Disobey]].
+[^c]: TG [[Knowledge]].
+[^d]: TG [[Apostasy of Israel]].

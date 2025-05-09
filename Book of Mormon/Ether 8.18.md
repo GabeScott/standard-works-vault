@@ -5,4 +5,4 @@
 [Ether 8:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/8?lang=eng&id=p18#p18)
 
 
-[^a]: TG [Secret Combinations.](https://www.churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
+[^a]: TG [[Secret Combinations]].

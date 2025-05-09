@@ -6,5 +6,5 @@
 
 
 [^a]: [[2 Nephi 9.44|2 Ne. 9:44]]; [[Jacob 2.2|Jacob 2:2 (2, 16)]]; [[D&C 61.34|D&C 61:34.]]
-[^b]: TG [Spirit Body.](https://www.churchofjesuschrist.org/study/scriptures/tg/spirit-body?lang=eng)
+[^b]: TG [[Spirit Body]].
 [^c]: [[Mormon 7.7|Morm. 7:7.]]

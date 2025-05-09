@@ -5,6 +5,6 @@
 [2 Corinthians 7:4](https://www.churchofjesuschrist.org/study/scriptures/nt/2-cor/7.4?lang=eng#p4)
 
 
-[^a]: TG [Comfort.](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng)
-[^b]: TG [Joy.](https://www.churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
+[^a]: TG [[Holy Ghost, Comforter]].
+[^b]: TG [[Joy]].
 [^c]: [[3 Nephi 12.12|3 Ne. 12:12 (11-12).]]

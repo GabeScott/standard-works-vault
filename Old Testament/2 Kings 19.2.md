@@ -5,4 +5,4 @@
 [2 Kings 19:2](https://www.churchofjesuschrist.org/study/scriptures/ot/2-kgs/19.2?lang=eng#p2)
 
 
-[^a]: TG [Scribe.](https://www.churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
+[^a]: TG [[Scribe]].

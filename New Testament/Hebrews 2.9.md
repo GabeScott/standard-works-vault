@@ -5,10 +5,10 @@
 [Hebrews 2:9](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/2.9?lang=eng#p9)
 
 
-[^a]: TG [Jesus Christ, Condescension of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-condescension-of?lang=eng)
+[^a]: TG [[Jesus Christ, Condescension of]].
 [^b]: Philip. 2:7 (7-9).
 [^c]: GR through.
-[^d]: TG [Jesus Christ, Death of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
+[^d]: TG [[Jesus Christ, Death of]].
 [^e]: [[Acts 2.33|Acts 2:33.]]
-[^f]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
-[^g]: TG [Jesus Christ, Atonement through.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
+[^f]: TG [[Grace]].
+[^g]: TG [[Jesus Christ, Atonement through]].

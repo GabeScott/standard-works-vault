@@ -5,6 +5,6 @@
 [Deuteronomy 32:8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/32.8?lang=eng#p8)
 
 
-[^a]: TG [Nations.](https://www.churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng)
+[^a]: TG [[Nations]].
 [^b]: [[Acts 17.26|Acts 17:26 (26-27).]]
-[^c]: [[D&C 122.9|D&C 122:9]]. TG [Foreordination](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng); [God, Foreknowledge of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-foreknowledge-of?lang=eng).
+[^c]: [[D&C 122.9|D&C 122:9]]. TG [[Foreordination]]; [[God, Foreknowledge of]].

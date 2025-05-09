@@ -7,4 +7,4 @@
 
 [^a]: [[Galatians 3.7|Gal. 3:7 (7, 29)]]; [[2 Nephi 10.18|2 Ne. 10:18 (18-19)]]; [[3 Nephi 16.13|3 Ne. 16:13]]; [[3 Nephi 21.6|21:6 (6, 22)]]; [[Abraham 2.10|Abr. 2:10 (9-11).]]
 [^b]: [[2 Nephi 6.12|2 Ne. 6:12]]; [[2 Nephi 10.10|10:10 (8-14)]]; [[3 Nephi 16.6|3 Ne. 16:6 (6-7)]]; [[3 Nephi 20.27|20:27]]; [[Mormon 5.19|Morm. 5:19.]]
-[^c]: TG [Israel, Deliverance of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-deliverance-of?lang=eng); [Israel, Restoration of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng); [Lands of Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
+[^c]: TG [[Israel, Deliverance of]]; [[Israel, Restoration of]]; [[Lands of Inheritance]].

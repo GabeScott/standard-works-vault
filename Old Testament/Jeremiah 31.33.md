@@ -6,5 +6,5 @@
 
 
 [^a]: [[Hosea 2.18|Hosea 2:18 (14-23)]]; [[Mormon 5.20|Morm. 5:20]]; [[D&C 45.9|D&C 45:9.]]
-[^b]: [[Romans 2.15|Rom. 2:15 (13-15)]]. TG [God, Law of](https://www.churchofjesuschrist.org/study/scriptures/tg/god-law-of?lang=eng).
-[^c]: [[Proverbs 7.3|Prov. 7:3]]; [[2 Corinthians 3.3|2 Cor. 3:3]]; [[Hebrews 8.10|Heb. 8:10]]. TG [Conversion](https://www.churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng).
+[^b]: [[Romans 2.15|Rom. 2:15 (13-15)]]. TG [[God, Law of]].
+[^c]: [[Proverbs 7.3|Prov. 7:3]]; [[2 Corinthians 3.3|2 Cor. 3:3]]; [[Hebrews 8.10|Heb. 8:10]]. TG [[Conversion, Convert]].

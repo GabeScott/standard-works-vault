@@ -5,5 +5,5 @@
 [1 Corinthians 13:12](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/13.12?lang=eng#p12)
 
 
-[^a]: [[2 Corinthians 3.18|2 Cor. 3:18]]; [[James 1.23|James 1:23 (22-27)]]. TG [Veil](https://www.churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng).
+[^a]: [[2 Corinthians 3.18|2 Cor. 3:18]]; [[James 1.23|James 1:23 (22-27)]]. TG [[Veil]].
 [^b]: GR obscurely, enigmatically.

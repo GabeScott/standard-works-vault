@@ -6,5 +6,5 @@
 
 
 [^a]: IE The immediate danger is the threat of Assyria.
-[^b]: TG [Israel, Joseph, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
-[^c]: TG [Israel, Judah, People of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
+[^b]: TG [[Israel, Joseph, People of]].
+[^c]: TG [[Israel, Judah, People of]].

@@ -6,7 +6,7 @@
 
 
 [^a]: [[Mosiah 13.33|Mosiah 13:33 (33-34).]]
-[^b]: [[Job 12.8|Job 12:8 (7-10)]]. TG [Nature, Earth](https://www.churchofjesuschrist.org/study/scriptures/tg/nature-earth?lang=eng).
+[^b]: [[Job 12.8|Job 12:8 (7-10)]]. TG [[Nature, Earth]].
 [^c]: [[D&C 88.47|D&C 88:47.]]
 [^d]: [[Helaman 12.15|Hel. 12:15 (11-15).]]
-[^e]: [[Moses 6.63|Moses 6:63]]. TG [Astronomy](https://www.churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng).
+[^e]: [[Moses 6.63|Moses 6:63]]. TG [[Astronomy]].

@@ -6,7 +6,7 @@
 
 
 [^a]: [[Alma 7.7|Alma 7:7.]]
-[^b]: TG [Jesus Christ, Glory of.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng)
-[^c]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
-[^d]: TG [God, Mercy of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
+[^b]: TG [[Jesus Christ, Glory of]].
+[^c]: TG [[Grace]].
+[^d]: TG [[God, Mercy of]].
 [^e]: [[Deuteronomy 26.7|Deut. 26:7]]; [[Isaiah 65.24|Isa. 65:24.]]

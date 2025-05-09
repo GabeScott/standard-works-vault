@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 49.1|Gen. 49:1 (1-27).]]
-[^b]: TG [Old Age.](https://www.churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
+[^b]: TG [[Old Age]].

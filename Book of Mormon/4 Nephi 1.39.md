@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 10.17|Mosiah 10:17.]]
-[^b]: TG [Hate](https://www.churchofjesuschrist.org/study/scriptures/tg/hate?lang=eng); [Malice.](https://www.churchofjesuschrist.org/study/scriptures/tg/malice?lang=eng)
+[^b]: TG [[Hate]]; [[Malice]].

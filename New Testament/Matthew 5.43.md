@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 112.11|D&C 112:11.]]
-[^b]: TG [Neighbor.](https://www.churchofjesuschrist.org/study/scriptures/tg/neighbor?lang=eng)
+[^b]: TG [[Neighbor]].

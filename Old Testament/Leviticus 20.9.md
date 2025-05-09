@@ -5,6 +5,6 @@
 [Leviticus 20:9](https://www.churchofjesuschrist.org/study/scriptures/ot/lev/20.9?lang=eng#p9)
 
 
-[^a]: TG [Curse.](https://www.churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
-[^b]: TG [Family, Children, Duties of.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-duties-of?lang=eng)
-[^c]: TG [Accountability.](https://www.churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
+[^a]: TG [[Curse]].
+[^b]: TG [[Family, Children, Duties of]].
+[^c]: TG [[Accountability]].

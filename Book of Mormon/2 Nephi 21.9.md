@@ -6,6 +6,6 @@
 
 
 [^a]: [[Isaiah 2.4|Isa. 2:4.]]
-[^b]: TG [War.](https://www.churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
+[^b]: TG [[War]].
 [^c]: Hab. 2:14.
-[^d]: [[Psalms 66.4|Ps. 66:4]]; [[D&C 88.104|D&C 88:104]]. TG [Knowledge](https://www.churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng); [Millennium](https://www.churchofjesuschrist.org/study/scriptures/tg/millennium?lang=eng).
+[^d]: [[Psalms 66.4|Ps. 66:4]]; [[D&C 88.104|D&C 88:104]]. TG [[Knowledge]]; [[Millennium, Preparing a People for]].

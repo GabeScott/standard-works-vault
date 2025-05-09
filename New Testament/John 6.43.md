@@ -5,4 +5,4 @@
 [John 6:43](https://www.churchofjesuschrist.org/study/scriptures/nt/john/6.43?lang=eng#p43)
 
 
-[^a]: TG [Murmuring.](https://www.churchofjesuschrist.org/study/scriptures/tg/murmuring?lang=eng)
+[^a]: TG [[Murmuring, Murmur]].

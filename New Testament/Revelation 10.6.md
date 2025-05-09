@@ -6,4 +6,4 @@
 
 
 [^a]: Dan. 12:7.
-[^b]: TG [Time.](https://www.churchofjesuschrist.org/study/scriptures/tg/time?lang=eng)
+[^b]: TG [[Time]].

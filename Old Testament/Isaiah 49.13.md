@@ -7,6 +7,6 @@
 
 [^a]: [[Isaiah 44.23|Isa. 44:23.]]
 [^b]: [[D&C 128.22|D&C 128:22.]]
-[^c]: TG [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng); Holy Ghost, [Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng)er.
-[^d]: TG [Compassion.](https://www.churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
+[^c]: TG [[Holy Ghost, Comforter]]; Holy Ghost, [[Holy Ghost, Comforter]]er.
+[^d]: TG [[Compassion]].
 [^e]: [[2 Samuel 22.28|2 Sam. 22:28]]; [[Psalms 18.27|Ps. 18:27]]; [[1 Nephi 21.13|1 Ne. 21:13.]]

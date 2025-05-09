@@ -6,4 +6,4 @@
 
 
 [^a]: [[Helaman 11.18|Hel. 11:18.]]
-[^b]: [[Matthew 16.19|Matt. 16:19]]. TG [Priesthood, Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng).
+[^b]: [[Matthew 16.19|Matt. 16:19]]. TG [[Priesthood, Authority]].

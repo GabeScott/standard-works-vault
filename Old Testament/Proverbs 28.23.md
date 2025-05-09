@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 27.5|Prov. 27:5.]]
-[^b]: TG [Flatter.](https://www.churchofjesuschrist.org/study/scriptures/tg/flatter?lang=eng)
+[^b]: TG [[Flatter, Flattery]].

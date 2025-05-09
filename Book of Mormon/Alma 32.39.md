@@ -6,4 +6,4 @@
 
 
 [^a]: [[Matthew 13.5|Matt. 13:5 (3-8).]]
-[^b]: TG [Barren.](https://www.churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng)
+[^b]: TG [[Barren, Barrenness]].

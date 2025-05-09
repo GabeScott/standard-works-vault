@@ -6,4 +6,4 @@
 
 
 [^a]: See JST Gen. 9:10-13 (Appendix). Deut. 19:11 (11-13); [[2 Nephi 9.35|2 Ne. 9:35.]]
-[^b]: TG [Capital Punishment.](https://www.churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
+[^b]: TG [[Capital Punishment]].

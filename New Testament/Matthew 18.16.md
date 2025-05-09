@@ -5,4 +5,4 @@
 [Matthew 18:16](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/18.16?lang=eng#p16)
 
 
-[^a]: [[2 Nephi 29.8|2 Ne. 29:8]]. TG [Witness](https://www.churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng).
+[^a]: [[2 Nephi 29.8|2 Ne. 29:8]]. TG [[Witness, Witnesses]].

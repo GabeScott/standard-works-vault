@@ -6,4 +6,4 @@
 
 
 [^a]: 1 Jn. 3:14 (10-18).
-[^b]: TG [Service.](https://www.churchofjesuschrist.org/study/scriptures/tg/service?lang=eng)
+[^b]: TG [[Service]].

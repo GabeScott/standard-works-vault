@@ -5,11 +5,11 @@
 [2 Nephi 9:18](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p18#p18)
 
 
-[^a]: [[Psalms 5.12|Ps. 5:12]]. TG [Righteousness](https://www.churchofjesuschrist.org/study/scriptures/tg/righteousness?lang=eng).
-[^b]: TG [Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/saints?lang=eng)
+[^a]: [[Psalms 5.12|Ps. 5:12]]. TG [[God, the Standard of Righteousness]].
+[^b]: TG [[Mission of Latter-day Saints]].
 [^c]: [[Luke 14.27|Luke 14:27.]]
 [^d]: Col. 1:12; [[D&C 45.58|D&C 45:58 (57-58)]]; [[D&C 84.38|84:38 (33-38).]]
-[^e]: TG [Exaltation.](https://www.churchofjesuschrist.org/study/scriptures/tg/exaltation?lang=eng)
+[^e]: TG [[Exaltation]].
 [^f]: [[Alma 13.3|Alma 13:3 (3, 5, 7-9).]]
 [^g]: [[Matthew 5.12|Matt. 5:12 (11-12).]]
-[^h]: TG [Eternal Life.](https://www.churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng)
+[^h]: TG [[Eternal Life]].

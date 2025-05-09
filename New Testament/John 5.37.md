@@ -5,5 +5,5 @@
 [John 5:37](https://www.churchofjesuschrist.org/study/scriptures/nt/john/5.37?lang=eng#p37)
 
 
-[^a]: TG [Witness of the Father.](https://www.churchofjesuschrist.org/study/scriptures/tg/witness-of-the-father?lang=eng)
-[^b]: TG [God, Privilege of Seeing.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng)
+[^a]: TG [[Witness of the Father]].
+[^b]: TG [[God, Privilege of Seeing]].

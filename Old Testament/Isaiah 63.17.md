@@ -6,4 +6,4 @@
 
 
 [^a]: JST Isa. 63:17 … suffered us to err from thy ways, and to harden our heart …
-[^b]: TG [Hardheartedness.](https://www.churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
+[^b]: TG [[Hardheartedness, Harden, Hardness]].

@@ -5,5 +5,5 @@
 [Luke 12:21](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/12.21?lang=eng#p21)
 
 
-[^a]: TG [Treasure.](https://www.churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
+[^a]: TG [[Treasure]].
 [^b]: [[Hosea 10.1|Hosea 10:1.]]

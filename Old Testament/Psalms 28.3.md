@@ -6,5 +6,5 @@
 
 
 [^a]: [[Proverbs 26.25|Prov. 26:25.]]
-[^b]: TG [Peace.](https://www.churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
-[^c]: TG [Guile](https://www.churchofjesuschrist.org/study/scriptures/tg/guile?lang=eng); [Hypocrisy.](https://www.churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
+[^b]: TG [[Peace of God]].
+[^c]: TG [[Guile]]; [[Hypocrisy, Hypocrite]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Leviticus 4.27|Lev. 4:27.]]
-[^b]: TG [Reconciliation.](https://www.churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng)
+[^b]: TG [[Reconciliation, Reconcile]].

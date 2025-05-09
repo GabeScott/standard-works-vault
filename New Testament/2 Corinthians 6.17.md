@@ -6,5 +6,5 @@
 
 
 [^a]: [[D&C 25.10|D&C 25:10]]; [[D&C 53.2|53:2]]; [[D&C 84.50|84:50 (49-53).]]
-[^b]: TG [Separation.](https://www.churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng)
-[^c]: [[Isaiah 52.11|Isa. 52:11]]. TG [Uncleanness](https://www.churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng).
+[^b]: TG [[Separation, Separate]].
+[^c]: [[Isaiah 52.11|Isa. 52:11]]. TG [[Uncleanness, Unclean]].

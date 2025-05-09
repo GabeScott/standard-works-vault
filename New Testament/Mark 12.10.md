@@ -5,4 +5,4 @@
 [Mark 12:10](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12.10?lang=eng#p10)
 
 
-[^a]: TG [Cornerstone.](https://www.churchofjesuschrist.org/study/scriptures/tg/cornerstone?lang=eng)
+[^a]: TG [[Cornerstone]].

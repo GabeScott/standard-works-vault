@@ -5,4 +5,4 @@
 [1 Corinthians 8:8](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/8.8?lang=eng#p8)
 
 
-[^a]: TG [Food.](https://www.churchofjesuschrist.org/study/scriptures/tg/food?lang=eng)
+[^a]: TG [[Food]].

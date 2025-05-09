@@ -5,5 +5,5 @@
 [Ephesians 1:5](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/1.5?lang=eng#p5)
 
 
-[^a]: GR foreordained. Eph. 1:11. TG [Foreordination](https://www.churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng).
-[^b]: TG [Sons and Daughters of God.](https://www.churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)
+[^a]: GR foreordained. Eph. 1:11. TG [[Foreordination]].
+[^b]: TG [[Sons and Daughters of God]].

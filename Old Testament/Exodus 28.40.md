@@ -5,5 +5,5 @@
 [Exodus 28:40](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/28.40?lang=eng#p40)
 
 
-[^a]: TG [Clothing.](https://www.churchofjesuschrist.org/study/scriptures/tg/clothing?lang=eng)
+[^a]: TG [[Clothing]].
 [^b]: HEB hats, or headdresses.

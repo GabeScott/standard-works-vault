@@ -5,4 +5,4 @@
 [Romans 3:26](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/3.26?lang=eng#p26)
 
 
-[^a]: TG [God, Justice of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
+[^a]: TG [[God, Justice of]].

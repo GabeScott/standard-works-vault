@@ -5,5 +5,5 @@
 [1 Nephi 11:36](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/11?lang=eng&id=p36#p36)
 
 
-[^a]: TG [Pride.](https://www.churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
-[^b]: TG [Earth, Cleansing of](https://www.churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng); [World, End of.](https://www.churchofjesuschrist.org/study/scriptures/tg/world-end-of?lang=eng)
+[^a]: TG [[Pride]].
+[^b]: TG [[Earth, Cleansing of]]; [[World, End of]].

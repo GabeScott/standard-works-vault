@@ -5,5 +5,5 @@
 [Deuteronomy 4:29](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/4.29?lang=eng#p29)
 
 
-[^a]: TG [God, Access to.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-access-to?lang=eng)
-[^b]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^a]: TG [[God, Access to]].
+[^b]: TG [[Israel, Gathering of]].

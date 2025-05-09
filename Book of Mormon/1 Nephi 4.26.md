@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 2.11|Ex. 2:11]]; [[Numbers 18.6|Num. 18:6]]; [[2 Samuel 19.41|2 Sam. 19:41.]]
-[^b]: TG [Church Organization.](https://www.churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
+[^b]: TG [[Church Organization]].

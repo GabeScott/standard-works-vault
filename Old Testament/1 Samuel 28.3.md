@@ -6,4 +6,4 @@
 
 
 [^a]: IE he had banished spiritualists as required by Lev. 20:27; Deut. 18:9-11.
-[^b]: TG [Sorcery.](https://www.churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
+[^b]: TG [[Sorcery]].

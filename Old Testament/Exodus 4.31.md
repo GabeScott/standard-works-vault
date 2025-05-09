@@ -7,5 +7,5 @@
 
 [^a]: [[Exodus 3.18|Ex. 3:18]]; [[Exodus 4.1|4:1 (1-9).]]
 [^b]: [[Exodus 3.16|Ex. 3:16.]]
-[^c]: TG [Israel, Deliverance of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-deliverance-of?lang=eng)
+[^c]: TG [[Israel, Deliverance of]].
 [^d]: [[Genesis 24.26|Gen. 24:26]]; [[Exodus 34.8|Ex. 34:8.]]

@@ -6,5 +6,5 @@
 
 
 [^b]: [[Isaiah 55.8|Isa. 55:8 (8-9).]]
-[^c]: [[2 Corinthians 10.7|2 Cor. 10:7]]. TG [Discernment, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/discernment-spiritual?lang=eng).
-[^e]: TG [Heart](https://www.churchofjesuschrist.org/study/scriptures/tg/heart?lang=eng); [Judgment.](https://www.churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
+[^c]: [[2 Corinthians 10.7|2 Cor. 10:7]]. TG [[Discernment, Spiritual]].
+[^e]: TG [[Heart]]; [[Judgment]].

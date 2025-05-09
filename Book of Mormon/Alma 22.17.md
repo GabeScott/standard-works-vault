@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 5.24|D&C 5:24.]]
-[^b]: TG [Prayer.](https://www.churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
+[^b]: TG [[Prayer, Pray]].

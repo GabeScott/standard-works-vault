@@ -5,4 +5,4 @@
 [3 Nephi 4:31](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/4?lang=eng&id=p31#p31)
 
 
-[^a]: [[Alma 26.8|Alma 26:8]]. TG [Thanksgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng).
+[^a]: [[Alma 26.8|Alma 26:8]]. TG [[Thanksgiving]].

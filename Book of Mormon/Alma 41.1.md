@@ -6,5 +6,5 @@
 
 
 [^a]: 2 Pet. 1:20; 3:16; [[Alma 13.20|Alma 13:20.]]
-[^b]: TG [Apostasy of Individuals.](https://www.churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
-[^c]: TG [Problem-Solving.](https://www.churchofjesuschrist.org/study/scriptures/tg/problem-solving?lang=eng)
+[^b]: TG [[Apostasy of Individuals]].
+[^c]: TG [[Problem-Solving]].

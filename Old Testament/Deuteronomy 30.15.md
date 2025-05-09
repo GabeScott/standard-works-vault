@@ -6,4 +6,4 @@
 
 
 [^a]: [[Jeremiah 21.8|Jer. 21:8]]; [[2 Nephi 2.27|2 Ne. 2:27.]]
-[^b]: TG [Evil.](https://www.churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
+[^b]: TG [[Evil]].

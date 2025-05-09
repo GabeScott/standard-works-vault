@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 68.9|Ps. 68:9]]; [[Ezekiel 22.24|Ezek. 22:24.]]
-[^b]: TG [Israel, Blessings of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng)
+[^b]: TG [[Israel, Blessings of]].

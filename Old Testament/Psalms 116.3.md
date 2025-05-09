@@ -5,5 +5,5 @@
 [Psalms 116:3](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/116.3?lang=eng#p3)
 
 
-[^a]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
-[^b]: TG [Damnation.](https://www.churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
+[^a]: TG [[Pain]].
+[^b]: TG [[Damnation, Damned]].

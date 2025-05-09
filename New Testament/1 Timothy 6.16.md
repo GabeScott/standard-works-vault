@@ -5,6 +5,6 @@
 [1 Timothy 6:16](https://www.churchofjesuschrist.org/study/scriptures/nt/1-tim/6.16?lang=eng#p16)
 
 
-[^a]: TG [Immortality.](https://www.churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
+[^a]: TG [[Immortality, Immortal]].
 [^b]: [[D&C 88.12|D&C 88:12 (6-13)]]; [[D&C 130.7|130:7 (6-9).]]
-[^c]: TG [God, Privilege of Seeing.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng)
+[^c]: TG [[God, Privilege of Seeing]].

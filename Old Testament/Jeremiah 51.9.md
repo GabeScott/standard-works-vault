@@ -5,5 +5,5 @@
 [Jeremiah 51:9](https://www.churchofjesuschrist.org/study/scriptures/ot/jer/51.9?lang=eng#p9)
 
 
-[^a]: TG [Lands of Inheritance.](https://www.churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
+[^a]: TG [[Lands of Inheritance]].
 [^b]: [[Revelation 18.5|Rev. 18:5 (4-5).]]

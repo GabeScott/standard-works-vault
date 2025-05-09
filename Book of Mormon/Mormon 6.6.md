@@ -5,7 +5,7 @@
 [Mormon 6:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/morm/6?lang=eng&id=p6#p6)
 
 
-[^a]: TG [Sacred.](https://www.churchofjesuschrist.org/study/scriptures/tg/sacred?lang=eng)
+[^a]: TG [[Sacred]].
 [^b]: [[2 Nephi 26.17|2 Ne. 26:17]]; [[Enos 1.14|Enos 1:14.]]
 [^c]: [[Mormon 2.18|Morm. 2:18.]]
 [^d]: [[Ether 15.11|Ether 15:11.]]

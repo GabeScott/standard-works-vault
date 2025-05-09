@@ -5,5 +5,5 @@
 [Exodus 15:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/15.1?lang=eng#p1)
 
 
-[^a]: TG [Singing.](https://www.churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
+[^a]: TG [[Singing, Sing, Sang, Sung]].
 [^b]: [[Hosea 2.15|Hosea 2:15.]]

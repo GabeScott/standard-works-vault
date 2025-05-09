@@ -5,7 +5,7 @@
 [Galatians 2:16](https://www.churchofjesuschrist.org/study/scriptures/nt/gal/2.16?lang=eng#p16)
 
 
-[^a]: TG [Justification.](https://www.churchofjesuschrist.org/study/scriptures/tg/justification?lang=eng)
+[^a]: TG [[Justification, Justify]].
 [^b]: [[D&C 22.2|D&C 22:2.]]
 [^c]: [[Moroni 7.33|Moro. 7:33 (7-33).]]
 [^d]: [[Mosiah 13.28|Mosiah 13:28 (27-32).]]

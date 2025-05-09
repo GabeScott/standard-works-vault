@@ -6,4 +6,4 @@
 
 
 [^a]: [[Luke 14.33|Luke 14:33]]; [[Alma 10.4|Alma 10:4.]]
-[^b]: TG [Prophets, Rejection of.](https://www.churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
+[^b]: TG [[Prophets, Rejection of]].

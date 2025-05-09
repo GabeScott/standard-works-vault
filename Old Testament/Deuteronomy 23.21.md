@@ -5,5 +5,5 @@
 [Deuteronomy 23:21](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/23.21?lang=eng#p21)
 
 
-[^a]: TG [Vow.](https://www.churchofjesuschrist.org/study/scriptures/tg/vow?lang=eng)
+[^a]: TG [[Vow]].
 [^b]: [[Matthew 5.33|Matt. 5:33.]]

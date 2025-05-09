@@ -5,7 +5,7 @@
 [1 Nephi 14:17](https://www.churchofjesuschrist.org/study/scriptures/bofm/1-ne/14?lang=eng&id=p17#p17)
 
 
-[^a]: TG [Last Days.](https://www.churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
+[^a]: TG [[Last Days]].
 [^b]: [[1 Nephi 21.26|1 Ne. 21:26]]; [[1 Nephi 22.16|22:16 (15-16)]]; [[3 Nephi 20.20|3 Ne. 20:20 (19-21).]]
-[^c]: [[3 Nephi 21.26|3 Ne. 21:26 (7, 20-29)]]. TG [Israel, Restoration of](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng).
-[^d]: [[Mormon 8.21|Morm. 8:21 (21, 41)]]. TG [Abrahamic Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng).
+[^c]: [[3 Nephi 21.26|3 Ne. 21:26 (7, 20-29)]]. TG [[Israel, Restoration of]].
+[^d]: [[Mormon 8.21|Morm. 8:21 (21, 41)]]. TG [[Abrahamic Covenant]].

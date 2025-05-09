@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 41.10|Isa. 41:10 (10, 13).]]
-[^b]: TG [Israel, Gathering of.](https://www.churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
+[^b]: TG [[Israel, Gathering of]].

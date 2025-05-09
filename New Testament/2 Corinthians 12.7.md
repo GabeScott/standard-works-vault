@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 3.4|D&C 3:4.]]
-[^b]: TG [Pain.](https://www.churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
+[^b]: TG [[Pain]].

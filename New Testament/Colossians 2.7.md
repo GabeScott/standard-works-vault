@@ -6,4 +6,4 @@
 
 
 [^a]: [[Ephesians 3.17|Eph. 3:17.]]
-[^b]: TG [Thanksgiving.](https://www.churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
+[^b]: TG [[Thanksgiving]].

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 12.13|Prov. 12:13 (13-19).]]
-[^b]: TG [Meek.](https://www.churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
+[^b]: TG [[Meek, Meekness]].

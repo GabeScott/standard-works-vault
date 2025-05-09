@@ -6,4 +6,4 @@
 
 
 [^a]: [[Mosiah 2.1|Mosiah 2:1.]]
-[^b]: TG [Family, Children, Duties of.](https://www.churchofjesuschrist.org/study/scriptures/tg/family-children-duties-of?lang=eng)
+[^b]: TG [[Family, Children, Duties of]].

@@ -5,4 +5,4 @@
 [Alma 62:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/62?lang=eng&id=p41#p41)
 
 
-[^a]: TG [Adversity](https://www.churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng); [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
+[^a]: TG [[Adversity]]; [[Affliction]].

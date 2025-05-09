@@ -6,4 +6,4 @@
 
 
 [^a]: GR a little while.
-[^b]: [[Luke 12.31|Luke 12:31]]. TG [Godliness](https://www.churchofjesuschrist.org/study/scriptures/tg/godliness?lang=eng).
+[^b]: [[Luke 12.31|Luke 12:31]]. TG [[Mysteries of Godliness]].

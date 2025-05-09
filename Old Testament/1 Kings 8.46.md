@@ -5,6 +5,6 @@
 [1 Kings 8:46](https://www.churchofjesuschrist.org/study/scriptures/ot/1-kgs/8.46?lang=eng#p46)
 
 
-[^a]: TG [Sin.](https://www.churchofjesuschrist.org/study/scriptures/tg/sin?lang=eng)
+[^a]: TG [[Sin]].
 [^b]: [[Mosiah 12.2|Mosiah 12:2 (2-9).]]
 [^c]: [[Leviticus 26.44|Lev. 26:44.]]

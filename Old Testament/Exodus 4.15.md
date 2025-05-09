@@ -5,5 +5,5 @@
 [Exodus 4:15](https://www.churchofjesuschrist.org/study/scriptures/ot/ex/4.15?lang=eng#p15)
 
 
-[^a]: TG [Authority.](https://www.churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
+[^a]: TG [[Authority]].
 [^b]: [[2 Nephi 32.3|2 Ne. 32:3 (3, 5).]]

@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 10.37|D&C 10:37.]]
-[^b]: TG [Guile.](https://www.churchofjesuschrist.org/study/scriptures/tg/guile?lang=eng)
+[^b]: TG [[Guile]].

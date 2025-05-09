@@ -5,5 +5,5 @@
 [Joseph Smith History 1:56](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.56?lang=eng#p56)
 
 
-[^a]: TG [Affliction.](https://www.churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
+[^a]: TG [[Affliction]].
 [^b]: JS—H 1:4.

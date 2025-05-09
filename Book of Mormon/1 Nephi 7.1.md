@@ -7,5 +7,5 @@
 
 [^a]: [[1 Nephi 1.16|1 Ne. 1:16.]]
 [^b]: [[1 Nephi 16.7|1 Ne. 16:7.]]
-[^c]: TG [Marriage, Marry.](https://www.churchofjesuschrist.org/study/scriptures/tg/marriage-marry?lang=eng)
+[^c]: TG [[Marriage, Marry]].
 [^d]: [[Psalms 127.3|Ps. 127:3.]]

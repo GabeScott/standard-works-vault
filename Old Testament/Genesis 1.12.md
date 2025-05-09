@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 88.25|D&C 88:25.]]
-[^b]: [[Alma 32.31|Alma 32:31 (28-34)]]; [[Moses 2.12|Moses 2:12 (11-12)]]. TG [Order](https://www.churchofjesuschrist.org/study/scriptures/tg/order?lang=eng).
+[^b]: [[Alma 32.31|Alma 32:31 (28-34)]]; [[Moses 2.12|Moses 2:12 (11-12)]]. TG [[Order]].

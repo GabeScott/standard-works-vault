@@ -5,4 +5,4 @@
 [Ezekiel 23:49](https://www.churchofjesuschrist.org/study/scriptures/ot/ezek/23.49?lang=eng#p49)
 
 
-[^a]: TG [Idolatry.](https://www.churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
+[^a]: TG [[Idolatry, Idol]].

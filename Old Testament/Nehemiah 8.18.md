@@ -6,4 +6,4 @@
 
 
 [^a]: [[D&C 84.43|D&C 84:43 (43-44).]]
-[^b]: TG [Solemn Assembly.](https://www.churchofjesuschrist.org/study/scriptures/tg/solemn-assembly?lang=eng)
+[^b]: TG [[Solemn Assembly]].

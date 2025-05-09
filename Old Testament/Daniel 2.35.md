@@ -6,4 +6,4 @@
 
 
 [^a]: [[Revelation 20.11|Rev. 20:11.]]
-[^b]: TG [Kingdom of God, on Earth](https://www.churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-on-earth?lang=eng); [Mission of Latter-day Saints.](https://www.churchofjesuschrist.org/study/scriptures/tg/mission-of-latter-day-saints?lang=eng)
+[^b]: TG [[Kingdom of God, on Earth]]; [[Mission of Latter-day Saints]].

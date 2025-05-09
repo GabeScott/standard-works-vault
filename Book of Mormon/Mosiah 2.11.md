@@ -5,5 +5,5 @@
 [Mosiah 2:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/2?lang=eng&id=p11#p11)
 
 
-[^a]: TG [Setting Apart.](https://www.churchofjesuschrist.org/study/scriptures/tg/setting-apart?lang=eng)
-[^b]: [[Omni 1.23|Omni 1:23 (23-24)]]. TG [Serve](https://www.churchofjesuschrist.org/study/scriptures/tg/serve?lang=eng); [Service](https://www.churchofjesuschrist.org/study/scriptures/tg/service?lang=eng).
+[^a]: TG [[Setting Apart]].
+[^b]: [[Omni 1.23|Omni 1:23 (23-24)]]. TG [[Serve]]; [[Service]].

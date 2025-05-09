@@ -5,5 +5,5 @@
 [1 John 2:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/2.10?lang=eng#p10)
 
 
-[^a]: [[D&C 95.12|D&C 95:12]]. TG [Family, [Love](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng) within](https://www.churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng); [Love](https://www.churchofjesuschrist.org/study/scriptures/tg/love?lang=eng).
-[^b]: TG [Brotherhood and Sisterhood.](https://www.churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
+[^a]: [[D&C 95.12|D&C 95:12]]. TG [[Family, Love within]]; [[Love]].
+[^b]: TG [[Brotherhood and Sisterhood]].

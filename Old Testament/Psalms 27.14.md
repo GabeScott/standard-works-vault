@@ -6,5 +6,5 @@
 
 
 [^a]: [[Psalms 37.34|Ps. 37:34]]; [[Proverbs 20.22|Prov. 20:22]]; [[D&C 98.2|D&C 98:2 (2-3).]]
-[^b]: TG [Courage.](https://www.churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng)
-[^c]: TG [Faith.](https://www.churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
+[^b]: TG [[Courage, Courageous]].
+[^c]: TG [[Faith]].

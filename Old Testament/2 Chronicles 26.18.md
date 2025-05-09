@@ -5,7 +5,7 @@
 [2 Chronicles 26:18](https://www.churchofjesuschrist.org/study/scriptures/ot/2-chr/26.18?lang=eng#p18)
 
 
-[^b]: TG [Priesthood, Qualifying for.](https://www.churchofjesuschrist.org/study/scriptures/tg/priesthood-qualifying-for?lang=eng)
+[^b]: TG [[Priesthood, Qualifying for]].
 [^c]: [[Numbers 16.40|Num. 16:40.]]
 [^d]: [[D&C 84.18|D&C 84:18 (18-27)]]; [[D&C 107.13|107:13 (13-14).]]
 [^e]: [[Exodus 30.7|Ex. 30:7 (7-8).]]

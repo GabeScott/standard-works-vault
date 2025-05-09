@@ -5,8 +5,8 @@
 [2 Nephi 2:26](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/2?lang=eng&id=p26#p26)
 
 
-[^a]: TG [Jesus Christ, Messiah.](https://www.churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
-[^b]: TG [Salvation, Plan of.](https://www.churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
-[^c]: TG [Redemption.](https://www.churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
+[^a]: TG [[Jesus Christ, Messiah]].
+[^b]: TG [[Salvation, Plan of]].
+[^c]: TG [[Redemption]].
 [^d]: [[Galatians 5.1|Gal. 5:1]]; [[Alma 41.7|Alma 41:7]]; [[Alma 42.27|42:27]]; [[Helaman 14.30|Hel. 14:30.]]
-[^e]: TG [God, Law of.](https://www.churchofjesuschrist.org/study/scriptures/tg/god-law-of?lang=eng)
+[^e]: TG [[God, Law of]].

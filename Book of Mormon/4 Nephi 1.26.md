@@ -6,4 +6,4 @@
 
 
 [^a]: [[1 Nephi 22.23|1 Ne. 22:23]]; [[2 Nephi 28.3|2 Ne. 28:3 (3-32)]]; [[Mormon 8.28|Morm. 8:28 (28, 32-38).]]
-[^b]: [[Ezekiel 22.27|Ezek. 22:27]]; [[D&C 10.56|D&C 10:56]]. TG [Priestcraft](https://www.churchofjesuschrist.org/study/scriptures/tg/priestcraft?lang=eng).
+[^b]: [[Ezekiel 22.27|Ezek. 22:27]]; [[D&C 10.56|D&C 10:56]]. TG [[Priestcraft]].

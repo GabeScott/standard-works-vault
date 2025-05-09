@@ -5,4 +5,4 @@
 [1 Corinthians 3:10](https://www.churchofjesuschrist.org/study/scriptures/nt/1-cor/3.10?lang=eng#p10)
 
 
-[^a]: TG [Grace.](https://www.churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
+[^a]: TG [[Grace]].

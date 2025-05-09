@@ -5,5 +5,5 @@
 [2 Nephi 13:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/13?lang=eng&id=p5#p5)
 
 
-[^a]: TG [Oppression.](https://www.churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng)
-[^b]: TG [Haughtiness.](https://www.churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng)
+[^a]: TG [[Oppression, Oppress]].
+[^b]: TG [[Haughtiness, Haughty]].

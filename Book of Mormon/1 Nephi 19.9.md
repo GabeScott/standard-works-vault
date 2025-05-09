@@ -6,5 +6,5 @@
 
 
 [^a]: [[Isaiah 50.6|Isa. 50:6 (5-6)]]; [[Matthew 27.30|Matt. 27:30.]]
-[^b]: TG [Kindness.](https://www.churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
-[^c]: TG [Forbear.](https://www.churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng)
+[^b]: TG [[Kindness]].
+[^c]: TG [[Forbear, Forbearance]].

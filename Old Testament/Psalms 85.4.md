@@ -5,4 +5,4 @@
 [Psalms 85:4](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/85.4?lang=eng#p4)
 
 
-[^a]: TG [Anger.](https://www.churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
+[^a]: TG [[Anger]].
