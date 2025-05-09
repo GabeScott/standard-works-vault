@@ -1,0 +1,32 @@
+# Need
+
+[Need](https://www.churchofjesuschrist.org/study/scriptures/tg/Need?lang=eng)
+
+### References
+- [[Deuteronomy 15.8|Deuteronomy 15:8]]
+- [[Matthew 6.8|Matthew 6:8]]
+- [[Matthew 9.12|Matthew 9:12]]
+- [[Acts 2.45|Acts 2:45]]
+- [[Acts 4.35|Acts 4:35]]
+- [[1 Corinthians 12.21|1 Corinthians 12:21]]
+- [[Ephesians 4.28|Ephesians 4:28]]
+- [[Philippians 4.19|Philippians 4:19]]
+- [[Hebrews 4.16|Hebrews 4:16]]
+- [[Hebrews 5.12|Hebrews 5:12]]
+- [[1 John 3.17|1 John 3:17]]
+- [[Revelation 21.23|Revelation 21:23]]
+- [[2 Nephi 25.18|2 Nephi 25:18]]
+- [[2 Nephi 28.29|2 Nephi 28:29]]
+- [[Mosiah 18.9|Mosiah 18:9]]
+- [[Mosiah 4.16|Mosiah 4:16]]
+- [[Mormon 9.27|Mormon 9:27]]
+- [[Moroni 8.11|Moroni 8:11]]
+- [[Moroni 8.14|Moroni 8:14]]
+- [[Moroni 8.20|Moroni 8:20]]
+- [[Moroni 8.8|Moroni 8:8]]
+- [[D&C 42.33|D&C 42:33]]
+- [[D&C 49.21|D&C 49:21]]
+- [[D&C 51.3|D&C 51:3]]
+- [[D&C 58.21|D&C 58:21]]
+- [[D&C 82.17|D&C 82:17]]
+- [[D&C 84.110|D&C 84:110]]

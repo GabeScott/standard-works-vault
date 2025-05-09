@@ -1,0 +1,31 @@
+# Strengthen
+
+[Strengthen](https://www.churchofjesuschrist.org/study/scriptures/tg/Strengthen?lang=eng)
+
+### References
+- [[Judges 16.28|Judges 16:28]]
+- [[Psalms 20.2|Psalms 20:2]]
+- [[Psalms 27.14|Psalms 27:14]]
+- [[Psalms 31.24|Psalms 31:24]]
+- [[Isaiah 35.3|Isaiah 35:3]]
+- [[Isaiah 41.10|Isaiah 41:10]]
+- [[Isaiah 54.2|Isaiah 54:2]]
+- [[Ezekiel 13.22|Ezekiel 13:22]]
+- [[Zechariah 10.12|Zechariah 10:12]]
+- [[Luke 22.32|Luke 22:32]]
+- [[Ephesians 3.16|Ephesians 3:16]]
+- [[Philippians 4.13|Philippians 4:13]]
+- [[Colossians 1.11|Colossians 1:11]]
+- [[1 Peter 5.10|1 Peter 5:10]]
+- [[1 Nephi 17.3|1 Nephi 17:3]]
+- [[Mosiah 24.15|Mosiah 24:15]]
+- [[Alma 2.28|Alma 2:28]]
+- [[Moroni 10.31|Moroni 10:31]]
+- [[D&C 108.7|D&C 108:7]]
+- [[D&C 133.9|D&C 133:9]]
+- [[D&C 20.53|D&C 20:53]]
+- [[D&C 31.8|D&C 31:8]]
+- [[D&C 37.2|D&C 37:2]]
+- [[D&C 50.37|D&C 50:37]]
+- [[D&C 59.19|D&C 59:19]]
+- [[D&C 82.14|D&C 82:14]]

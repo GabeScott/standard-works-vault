@@ -1,0 +1,32 @@
+# Small, Smallest
+
+[Small, Smallest](https://www.churchofjesuschrist.org/study/scriptures/tg/Small-Smallest?lang=eng)
+
+### References
+- [[Numbers 16.9|Numbers 16:9]]
+- [[1 Samuel 9.21|1 Samuel 9:21]]
+- [[1 Kings 19.12|1 Kings 19:12]]
+- [[Isaiah 16.14|Isaiah 16:14]]
+- [[Isaiah 60.22|Isaiah 60:22]]
+- [[Isaiah 7.13|Isaiah 7:13]]
+- [[Jeremiah 49.15|Jeremiah 49:15]]
+- [[Zechariah 4.10|Zechariah 4:10]]
+- [[1 Corinthians 4.3|1 Corinthians 4:3]]
+- [[1 Corinthians 6.2|1 Corinthians 6:2]]
+- [[James 3.4|James 3:4]]
+- [[Revelation 20.12|Revelation 20:12]]
+- [[1 Nephi 14.12|1 Nephi 14:12]]
+- [[1 Nephi 16.29|1 Nephi 16:29]]
+- [[1 Nephi 17.45|1 Nephi 17:45]]
+- [[2 Nephi 17.13|2 Nephi 17:13]]
+- [[Alma 10.4|Alma 10:4]]
+- [[Alma 26.16|Alma 26:16]]
+- [[Alma 37.41|Alma 37:41]]
+- [[Alma 37.7|Alma 37:7]]
+- [[3 Nephi 11.3|3 Nephi 11:3]]
+- [[D&C 121.7|D&C 121:7]]
+- [[D&C 122.4|D&C 122:4]]
+- [[D&C 123.16|D&C 123:16]]
+- [[D&C 128.6|D&C 128:6]]
+- [[D&C 64.33|D&C 64:33]]
+- [[D&C 85.6|D&C 85:6]]

@@ -1,0 +1,32 @@
+# Dedication, Dedicate
+
+[Dedication, Dedicate](https://www.churchofjesuschrist.org/study/scriptures/tg/Dedication-Dedicate?lang=eng)
+
+### References
+- [[1 Kings 8.63|1 Kings 8:63]]
+- [[2 Chronicles 7.16|2 Chronicles 7:16]]
+- [[2 Chronicles 7.5|2 Chronicles 7:5]]
+- [[Ezra 6.16|Ezra 6:16]]
+- [[Nehemiah 12.27|Nehemiah 12:27]]
+- [[Matthew 22.37|Matthew 22:37]]
+- [[Matthew 6.22|Matthew 6:22]]
+- [[Matthew 6.33|Matthew 6:33]]
+- [[2 Timothy 4.7|2 Timothy 4:7]]
+- [[1 Nephi 3.15|1 Nephi 3:15]]
+- [[Mosiah 2.21|Mosiah 2:21]]
+- [[Helaman 10.4|Helaman 10:4]]
+- [[3 Nephi 13.22|3 Nephi 13:22]]
+- [[3 Nephi 13.33|3 Nephi 13:33]]
+- [[Ether 12.3|Ether 12:3]]
+- [[Moroni 10.32|Moroni 10:32]]
+- [[D&C 109.78|D&C 109:78]]
+- [[D&C 11.20|D&C 11:20]]
+- [[D&C 11.3|D&C 11:3]]
+- [[D&C 110.7|D&C 110:7]]
+- [[D&C 123.13|D&C 123:13]]
+- [[D&C 4.2|D&C 4:2]]
+- [[D&C 58.27|D&C 58:27]]
+- [[D&C 58.57|D&C 58:57]]
+- [[D&C 64.33|D&C 64:33]]
+- [[D&C 88.67|D&C 88:67]]
+- [[D&C 94.7|D&C 94:7]]

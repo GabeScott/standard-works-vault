@@ -1,0 +1,31 @@
+# Speech
+
+[Speech](https://www.churchofjesuschrist.org/study/scriptures/tg/Speech?lang=eng)
+
+### References
+- [[Genesis 11.1|Genesis 11:1]]
+- [[Exodus 4.10|Exodus 4:10]]
+- [[Deuteronomy 32.2|Deuteronomy 32:2]]
+- [[2 Chronicles 32.18|2 Chronicles 32:18]]
+- [[Job 6.26|Job 6:26]]
+- [[Proverbs 17.7|Proverbs 17:7]]
+- [[Isaiah 29.4|Isaiah 29:4]]
+- [[Isaiah 33.19|Isaiah 33:19]]
+- [[Ezekiel 3.5|Ezekiel 3:5]]
+- [[Matthew 26.73|Matthew 26:73]]
+- [[Mark 14.70|Mark 14:70]]
+- [[Mark 7.32|Mark 7:32]]
+- [[Romans 16.18|Romans 16:18]]
+- [[1 Corinthians 2.1|1 Corinthians 2:1]]
+- [[1 Corinthians 2.4|1 Corinthians 2:4]]
+- [[2 Corinthians 3.12|2 Corinthians 3:12]]
+- [[Colossians 4.6|Colossians 4:6]]
+- [[Titus 2.8|Titus 2:8]]
+- [[Jude 1.15|Jude 1:15]]
+- [[2 Nephi 26.16|2 Nephi 26:16]]
+- [[Jacob 2.7|Jacob 2:7]]
+- [[Mormon 9.32|Mormon 9:32]]
+- [[D&C 112.5|D&C 112:5]]
+- [[D&C 88.121|D&C 88:121]]
+- [[D&C 88.129|D&C 88:129]]
+- [[Moses 6.31|Moses 6:31]]

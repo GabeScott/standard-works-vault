@@ -1,0 +1,32 @@
+# Despair
+
+[Despair](https://www.churchofjesuschrist.org/study/scriptures/tg/Despair?lang=eng)
+
+### References
+- [[Job 3.3|Job 3:3]]
+- [[Job 6.2|Job 6:2]]
+- [[Psalms 10.1|Psalms 10:1]]
+- [[Psalms 13.1|Psalms 13:1]]
+- [[Psalms 22.1|Psalms 22:1]]
+- [[Psalms 32.10|Psalms 32:10]]
+- [[Psalms 69.19|Psalms 69:19]]
+- [[Psalms 69.20|Psalms 69:20]]
+- [[Psalms 69.21|Psalms 69:21]]
+- [[Ecclesiastes 2.20|Ecclesiastes 2:20]]
+- [[Jeremiah 15.10|Jeremiah 15:10]]
+- [[Jeremiah 20.7|Jeremiah 20:7]]
+- [[Jeremiah 9.1|Jeremiah 9:1]]
+- [[2 Corinthians 1.8|2 Corinthians 1:8]]
+- [[2 Corinthians 4.8|2 Corinthians 4:8]]
+- [[1 Thessalonians 4.13|1 Thessalonians 4:13]]
+- [[Jacob 7.19|Jacob 7:19]]
+- [[Alma 15.3|Alma 15:3]]
+- [[Alma 26.19|Alma 26:19]]
+- [[Alma 26.27|Alma 26:27]]
+- [[Alma 36.12|Alma 36:12]]
+- [[Mormon 6.16|Mormon 6:16]]
+- [[Moroni 10.22|Moroni 10:22]]
+- [[D&C 121.6|D&C 121:6]]
+- [[D&C 122.7|D&C 122:7]]
+- [[D&C 19.20|D&C 19:20]]
+- [[Joseph Smith History 1.16|Joseph Smith History 1:16]]

@@ -1,0 +1,30 @@
+# Heir
+
+[Heir](https://www.churchofjesuschrist.org/study/scriptures/tg/Heir?lang=eng)
+
+### References
+- [[Genesis 15.3|Genesis 15:3]]
+- [[Genesis 21.10|Genesis 21:10]]
+- [[Proverbs 30.23|Proverbs 30:23]]
+- [[Matthew 21.38|Matthew 21:38]]
+- [[Mark 12.7|Mark 12:7]]
+- [[Luke 20.14|Luke 20:14]]
+- [[Romans 4.13|Romans 4:13]]
+- [[Romans 8.17|Romans 8:17]]
+- [[Galatians 3.29|Galatians 3:29]]
+- [[Galatians 4.30|Galatians 4:30]]
+- [[Galatians 4.7|Galatians 4:7]]
+- [[Titus 3.7|Titus 3:7]]
+- [[Hebrews 1.14|Hebrews 1:14]]
+- [[Hebrews 1.2|Hebrews 1:2]]
+- [[Hebrews 11.7|Hebrews 11:7]]
+- [[James 2.5|James 2:5]]
+- [[1 Peter 3.7|1 Peter 3:7]]
+- [[Mosiah 15.11|Mosiah 15:11]]
+- [[D&C 137.7|D&C 137:7]]
+- [[D&C 52.2|D&C 52:2]]
+- [[D&C 7.6|D&C 7:6]]
+- [[D&C 70.8|D&C 70:8]]
+- [[D&C 76.88|D&C 76:88]]
+- [[D&C 86.9|D&C 86:9]]
+- [[Abraham 1.2|Abraham 1:2]]

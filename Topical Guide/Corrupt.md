@@ -1,0 +1,31 @@
+# Corrupt
+
+[Corrupt](https://www.churchofjesuschrist.org/study/scriptures/tg/Corrupt?lang=eng)
+
+### References
+- [[Genesis 6.11|Genesis 6:11]]
+- [[Exodus 32.7|Exodus 32:7]]
+- [[Deuteronomy 31.29|Deuteronomy 31:29]]
+- [[Deuteronomy 4.16|Deuteronomy 4:16]]
+- [[Deuteronomy 9.12|Deuteronomy 9:12]]
+- [[Psalms 14.1|Psalms 14:1]]
+- [[Psalms 53.1|Psalms 53:1]]
+- [[Malachi 2.3|Malachi 2:3]]
+- [[Malachi 2.8|Malachi 2:8]]
+- [[Matthew 6.20|Matthew 6:20]]
+- [[Matthew 7.17|Matthew 7:17]]
+- [[Luke 12.33|Luke 12:33]]
+- [[1 Corinthians 15.33|1 Corinthians 15:33]]
+- [[2 Corinthians 11.3|2 Corinthians 11:3]]
+- [[2 Corinthians 2.17|2 Corinthians 2:17]]
+- [[Ephesians 4.22|Ephesians 4:22]]
+- [[Ephesians 4.29|Ephesians 4:29]]
+- [[1 Timothy 6.5|1 Timothy 6:5]]
+- [[2 Timothy 3.8|2 Timothy 3:8]]
+- [[James 5.2|James 5:2]]
+- [[Jude 1.10|Jude 1:10]]
+- [[Mosiah 29.40|Mosiah 29:40]]
+- [[D&C 10.21|D&C 10:21]]
+- [[D&C 112.23|D&C 112:23]]
+- [[D&C 38.11|D&C 38:11]]
+- [[Moses 8.28|Moses 8:28]]

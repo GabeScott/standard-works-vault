@@ -1,0 +1,30 @@
+# Hurt
+
+[Hurt](https://www.churchofjesuschrist.org/study/scriptures/tg/Hurt?lang=eng)
+
+### References
+- [[Exodus 21.22|Exodus 21:22]]
+- [[Joshua 24.20|Joshua 24:20]]
+- [[Ecclesiastes 10.9|Ecclesiastes 10:9]]
+- [[Isaiah 11.9|Isaiah 11:9]]
+- [[Isaiah 65.25|Isaiah 65:25]]
+- [[Daniel 3.25|Daniel 3:25]]
+- [[Daniel 6.22|Daniel 6:22]]
+- [[Mark 16.18|Mark 16:18]]
+- [[Luke 10.19|Luke 10:19]]
+- [[Luke 4.35|Luke 4:35]]
+- [[Revelation 11.5|Revelation 11:5]]
+- [[Revelation 2.11|Revelation 2:11]]
+- [[Revelation 6.6|Revelation 6:6]]
+- [[Revelation 7.2|Revelation 7:2]]
+- [[Revelation 9.4|Revelation 9:4]]
+- [[2 Nephi 21.9|2 Nephi 21:9]]
+- [[2 Nephi 30.15|2 Nephi 30:15]]
+- [[Alma 14.28|Alma 14:28]]
+- [[Alma 50.4|Alma 50:4]]
+- [[3 Nephi 21.10|3 Nephi 21:10]]
+- [[Mormon 9.24|Mormon 9:24]]
+- [[D&C 64.20|D&C 64:20]]
+- [[D&C 77.9|D&C 77:9]]
+- [[D&C 84.72|D&C 84:72]]
+- [[Moses 5.47|Moses 5:47]]

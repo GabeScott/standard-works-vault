@@ -1,0 +1,9 @@
+# Perpetual
+
+[Perpetual](https://www.churchofjesuschrist.org/study/scriptures/tg/Perpetual?lang=eng)
+
+### References
+- [[Genesis 9.12|Genesis 9:12]]
+- [[Exodus 31.16|Exodus 31:16]]
+- [[Leviticus 25.34|Leviticus 25:34]]
+- [[Jeremiah 50.5|Jeremiah 50:5]]

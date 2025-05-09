@@ -1,0 +1,30 @@
+# Thirst
+
+[Thirst](https://www.churchofjesuschrist.org/study/scriptures/tg/Thirst?lang=eng)
+
+### References
+- [[Exodus 17.3|Exodus 17:3]]
+- [[Psalms 143.6|Psalms 143:6]]
+- [[Psalms 42.2|Psalms 42:2]]
+- [[Psalms 69.21|Psalms 69:21]]
+- [[Isaiah 48.21|Isaiah 48:21]]
+- [[Isaiah 49.10|Isaiah 49:10]]
+- [[Hosea 2.3|Hosea 2:3]]
+- [[Amos 8.11|Amos 8:11]]
+- [[Matthew 5.6|Matthew 5:6]]
+- [[John 19.28|John 19:28]]
+- [[John 4.14|John 4:14]]
+- [[John 6.35|John 6:35]]
+- [[John 7.37|John 7:37]]
+- [[Romans 12.20|Romans 12:20]]
+- [[2 Corinthians 11.27|2 Corinthians 11:27]]
+- [[Revelation 7.16|Revelation 7:16]]
+- [[1 Nephi 17.29|1 Nephi 17:29]]
+- [[1 Nephi 20.21|1 Nephi 20:21]]
+- [[1 Nephi 21.10|1 Nephi 21:10]]
+- [[2 Nephi 9.50|2 Nephi 9:50]]
+- [[Alma 32.42|Alma 32:42]]
+- [[Alma 37.42|Alma 37:42]]
+- [[3 Nephi 12.6|3 Nephi 12:6]]
+- [[3 Nephi 20.8|3 Nephi 20:8]]
+- [[Moroni 9.5|Moroni 9:5]]

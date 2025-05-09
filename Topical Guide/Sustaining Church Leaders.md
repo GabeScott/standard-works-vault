@@ -1,0 +1,31 @@
+# Sustaining Church Leaders
+
+[Sustaining Church Leaders](https://www.churchofjesuschrist.org/study/scriptures/tg/Sustaining-Church-Leaders?lang=eng)
+
+### References
+- [[Exodus 4.16|Exodus 4:16]]
+- [[Exodus 7.1|Exodus 7:1]]
+- [[Numbers 27.19|Numbers 27:19]]
+- [[Deuteronomy 34.9|Deuteronomy 34:9]]
+- [[Joshua 24.15|Joshua 24:15]]
+- [[2 Chronicles 20.20|2 Chronicles 20:20]]
+- [[Matthew 10.41|Matthew 10:41]]
+- [[Luke 22.32|Luke 22:32]]
+- [[Acts 2.42|Acts 2:42]]
+- [[Romans 1.12|Romans 1:12]]
+- [[1 Thessalonians 3.7|1 Thessalonians 3:7]]
+- [[Hebrews 13.17|Hebrews 13:17]]
+- [[1 Nephi 3.6|1 Nephi 3:6]]
+- [[2 Nephi 7.9|2 Nephi 7:9]]
+- [[3 Nephi 12.1|3 Nephi 12:1]]
+- [[D&C 1.38|D&C 1:38]]
+- [[D&C 102.9|D&C 102:9]]
+- [[D&C 107.22|D&C 107:22]]
+- [[D&C 112.20|D&C 112:20]]
+- [[D&C 124.144|D&C 124:144]]
+- [[D&C 124.84|D&C 124:84]]
+- [[D&C 20.63|D&C 20:63]]
+- [[D&C 21.5|D&C 21:5]]
+- [[D&C 26.2|D&C 26:2]]
+- [[D&C 36.2|D&C 36:2]]
+- [[D&C 38.34|D&C 38:34]]

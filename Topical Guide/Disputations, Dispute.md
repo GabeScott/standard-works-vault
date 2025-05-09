@@ -1,0 +1,31 @@
+# Disputations, Dispute
+
+[Disputations, Dispute](https://www.churchofjesuschrist.org/study/scriptures/tg/Disputations-Dispute?lang=eng)
+
+### References
+- [[Deuteronomy 17.8|Deuteronomy 17:8]]
+- [[Deuteronomy 19.17|Deuteronomy 19:17]]
+- [[Deuteronomy 25.1|Deuteronomy 25:1]]
+- [[Proverbs 6.19|Proverbs 6:19]]
+- [[Matthew 5.25|Matthew 5:25]]
+- [[Mark 9.34|Mark 9:34]]
+- [[Acts 15.2|Acts 15:2]]
+- [[Acts 15.7|Acts 15:7]]
+- [[Acts 17.17|Acts 17:17]]
+- [[Acts 19.8|Acts 19:8]]
+- [[Acts 24.12|Acts 24:12]]
+- [[Acts 6.9|Acts 6:9]]
+- [[Acts 9.29|Acts 9:29]]
+- [[Romans 14.1|Romans 14:1]]
+- [[1 Corinthians 1.20|1 Corinthians 1:20]]
+- [[Philippians 2.14|Philippians 2:14]]
+- [[1 Timothy 6.5|1 Timothy 6:5]]
+- [[Jude 1.9|Jude 1:9]]
+- [[1 Nephi 15.2|1 Nephi 15:2]]
+- [[3 Nephi 11.22|3 Nephi 11:22]]
+- [[3 Nephi 12.25|3 Nephi 12:25]]
+- [[3 Nephi 18.34|3 Nephi 18:34]]
+- [[3 Nephi 27.3|3 Nephi 27:3]]
+- [[3 Nephi 8.4|3 Nephi 8:4]]
+- [[4 Nephi 1.2|4 Nephi 1:2]]
+- [[Moroni 8.4|Moroni 8:4]]

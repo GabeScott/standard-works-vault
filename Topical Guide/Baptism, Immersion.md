@@ -1,0 +1,31 @@
+# Baptism, Immersion
+
+[Baptism, Immersion](https://www.churchofjesuschrist.org/study/scriptures/tg/Baptism-Immersion?lang=eng)
+
+### References
+- [[Matthew 3.16|Matthew 3:16]]
+- [[Mark 1.10|Mark 1:10]]
+- [[Mark 1.5|Mark 1:5]]
+- [[John 3.23|John 3:23]]
+- [[Acts 8.38|Acts 8:38]]
+- [[Romans 6.4|Romans 6:4]]
+- [[Ephesians 4.5|Ephesians 4:5]]
+- [[Colossians 2.12|Colossians 2:12]]
+- [[Mosiah 18.14|Mosiah 18:14]]
+- [[Mosiah 18.15|Mosiah 18:15]]
+- [[Mosiah 18.16|Mosiah 18:16]]
+- [[3 Nephi 11.22|3 Nephi 11:22]]
+- [[3 Nephi 11.23|3 Nephi 11:23]]
+- [[3 Nephi 11.24|3 Nephi 11:24]]
+- [[3 Nephi 11.25|3 Nephi 11:25]]
+- [[3 Nephi 11.26|3 Nephi 11:26]]
+- [[3 Nephi 19.11|3 Nephi 19:11]]
+- [[3 Nephi 19.12|3 Nephi 19:12]]
+- [[3 Nephi 19.13|3 Nephi 19:13]]
+- [[D&C 128.12|D&C 128:12]]
+- [[D&C 20.72|D&C 20:72]]
+- [[D&C 20.73|D&C 20:73]]
+- [[D&C 20.74|D&C 20:74]]
+- [[D&C 76.51|D&C 76:51]]
+- [[Moses 6.64|Moses 6:64]]
+- [[Articles of Faith 1.4|Articles of Faith 1:4]]

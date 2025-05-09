@@ -1,0 +1,31 @@
+# Raiment
+
+[Raiment](https://www.churchofjesuschrist.org/study/scriptures/tg/Raiment?lang=eng)
+
+### References
+- [[Exodus 12.35|Exodus 12:35]]
+- [[Exodus 22.26|Exodus 22:26]]
+- [[Deuteronomy 24.17|Deuteronomy 24:17]]
+- [[Deuteronomy 8.4|Deuteronomy 8:4]]
+- [[Isaiah 63.3|Isaiah 63:3]]
+- [[Matthew 11.8|Matthew 11:8]]
+- [[Matthew 17.2|Matthew 17:2]]
+- [[Matthew 27.31|Matthew 27:31]]
+- [[Matthew 3.4|Matthew 3:4]]
+- [[Matthew 6.25|Matthew 6:25]]
+- [[Matthew 6.28|Matthew 6:28]]
+- [[Mark 9.3|Mark 9:3]]
+- [[Luke 12.23|Luke 12:23]]
+- [[Luke 23.34|Luke 23:34]]
+- [[Luke 7.25|Luke 7:25]]
+- [[Luke 9.29|Luke 9:29]]
+- [[Acts 22.20|Acts 22:20]]
+- [[1 Timothy 6.8|1 Timothy 6:8]]
+- [[James 2.2|James 2:2]]
+- [[Revelation 3.18|Revelation 3:18]]
+- [[Revelation 3.5|Revelation 3:5]]
+- [[Mosiah 4.19|Mosiah 4:19]]
+- [[3 Nephi 13.25|3 Nephi 13:25]]
+- [[3 Nephi 13.28|3 Nephi 13:28]]
+- [[D&C 133.51|D&C 133:51]]
+- [[D&C 49.19|D&C 49:19]]

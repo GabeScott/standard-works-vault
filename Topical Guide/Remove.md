@@ -1,0 +1,33 @@
+# Remove
+
+[Remove](https://www.churchofjesuschrist.org/study/scriptures/tg/Remove?lang=eng)
+
+### References
+- [[Deuteronomy 19.14|Deuteronomy 19:14]]
+- [[Job 9.5|Job 9:5]]
+- [[Proverbs 10.30|Proverbs 10:30]]
+- [[Proverbs 22.28|Proverbs 22:28]]
+- [[Ecclesiastes 10.9|Ecclesiastes 10:9]]
+- [[Isaiah 13.13|Isaiah 13:13]]
+- [[Isaiah 29.13|Isaiah 29:13]]
+- [[Isaiah 54.10|Isaiah 54:10]]
+- [[Jeremiah 29.18|Jeremiah 29:18]]
+- [[Jeremiah 50.8|Jeremiah 50:8]]
+- [[Daniel 2.21|Daniel 2:21]]
+- [[Matthew 17.20|Matthew 17:20]]
+- [[Matthew 21.21|Matthew 21:21]]
+- [[Mark 11.23|Mark 11:23]]
+- [[Luke 22.42|Luke 22:42]]
+- [[1 Corinthians 13.2|1 Corinthians 13:2]]
+- [[Galatians 1.6|Galatians 1:6]]
+- [[Hebrews 12.27|Hebrews 12:27]]
+- [[Revelation 2.5|Revelation 2:5]]
+- [[2 Nephi 16.12|2 Nephi 16:12]]
+- [[2 Nephi 23.13|2 Nephi 23:13]]
+- [[2 Nephi 27.25|2 Nephi 27:25]]
+- [[Helaman 5.40|Helaman 5:40]]
+- [[3 Nephi 22.10|3 Nephi 22:10]]
+- [[Mormon 8.24|Mormon 8:24]]
+- [[Ether 12.30|Ether 12:30]]
+- [[D&C 93.49|D&C 93:49]]
+- [[Abraham 2.20|Abraham 2:20]]

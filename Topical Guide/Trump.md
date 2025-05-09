@@ -1,0 +1,32 @@
+# Trump
+
+[Trump](https://www.churchofjesuschrist.org/study/scriptures/tg/Trump?lang=eng)
+
+### References
+- [[1 Corinthians 15.52|1 Corinthians 15:52]]
+- [[1 Thessalonians 4.16|1 Thessalonians 4:16]]
+- [[Mosiah 26.25|Mosiah 26:25]]
+- [[Alma 29.1|Alma 29:1]]
+- [[Mormon 9.13|Mormon 9:13]]
+- [[D&C 109.75|D&C 109:75]]
+- [[D&C 24.12|D&C 24:12]]
+- [[D&C 29.13|D&C 29:13]]
+- [[D&C 29.26|D&C 29:26]]
+- [[D&C 33.2|D&C 33:2]]
+- [[D&C 36.1|D&C 36:1]]
+- [[D&C 42.6|D&C 42:6]]
+- [[D&C 43.25|D&C 43:25]]
+- [[D&C 45.45|D&C 45:45]]
+- [[D&C 88.100|D&C 88:100]]
+- [[D&C 88.101|D&C 88:101]]
+- [[D&C 88.102|D&C 88:102]]
+- [[D&C 88.103|D&C 88:103]]
+- [[D&C 88.104|D&C 88:104]]
+- [[D&C 88.105|D&C 88:105]]
+- [[D&C 88.106|D&C 88:106]]
+- [[D&C 88.107|D&C 88:107]]
+- [[D&C 88.108|D&C 88:108]]
+- [[D&C 88.109|D&C 88:109]]
+- [[D&C 88.110|D&C 88:110]]
+- [[D&C 88.92|D&C 88:92]]
+- [[D&C 88.99|D&C 88:99]]

@@ -1,0 +1,31 @@
+# Overthrow, Overthrew, Overthrown
+
+[Overthrow, Overthrew, Overthrown](https://www.churchofjesuschrist.org/study/scriptures/tg/Overthrow-Overthrew-Overthrown?lang=eng)
+
+### References
+- [[Exodus 14.27|Exodus 14:27]]
+- [[Exodus 23.24|Exodus 23:24]]
+- [[Psalms 106.26|Psalms 106:26]]
+- [[Psalms 136.15|Psalms 136:15]]
+- [[Proverbs 12.7|Proverbs 12:7]]
+- [[Proverbs 14.11|Proverbs 14:11]]
+- [[Proverbs 21.12|Proverbs 21:12]]
+- [[Isaiah 13.19|Isaiah 13:19]]
+- [[Jeremiah 20.16|Jeremiah 20:16]]
+- [[Jeremiah 50.40|Jeremiah 50:40]]
+- [[Amos 4.11|Amos 4:11]]
+- [[Haggai 2.22|Haggai 2:22]]
+- [[Matthew 21.12|Matthew 21:12]]
+- [[Mark 11.15|Mark 11:15]]
+- [[John 2.15|John 2:15]]
+- [[1 Corinthians 10.5|1 Corinthians 10:5]]
+- [[2 Timothy 2.18|2 Timothy 2:18]]
+- [[2 Nephi 23.19|2 Nephi 23:19]]
+- [[Jacob 7.2|Jacob 7:2]]
+- [[Mosiah 27.13|Mosiah 27:13]]
+- [[Alma 50.32|Alma 50:32]]
+- [[Alma 51.5|Alma 51:5]]
+- [[D&C 117.16|D&C 117:16]]
+- [[D&C 50.3|D&C 50:3]]
+- [[D&C 64.21|D&C 64:21]]
+- [[D&C 84.28|D&C 84:28]]

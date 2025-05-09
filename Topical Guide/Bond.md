@@ -1,0 +1,33 @@
+# Bond
+
+[Bond](https://www.churchofjesuschrist.org/study/scriptures/tg/Bond?lang=eng)
+
+### References
+- [[Ezekiel 20.37|Ezekiel 20:37]]
+- [[Luke 13.16|Luke 13:16]]
+- [[Acts 26.29|Acts 26:29]]
+- [[Acts 8.23|Acts 8:23]]
+- [[1 Corinthians 12.13|1 Corinthians 12:13]]
+- [[Galatians 3.28|Galatians 3:28]]
+- [[Ephesians 6.20|Ephesians 6:20]]
+- [[Philippians 1.13|Philippians 1:13]]
+- [[Colossians 4.3|Colossians 4:3]]
+- [[2 Timothy 2.9|2 Timothy 2:9]]
+- [[Philemon 1.13|Philemon 1:13]]
+- [[2 Nephi 26.23|2 Nephi 26:23]]
+- [[2 Nephi 26.24|2 Nephi 26:24]]
+- [[2 Nephi 26.25|2 Nephi 26:25]]
+- [[2 Nephi 26.26|2 Nephi 26:26]]
+- [[2 Nephi 26.27|2 Nephi 26:27]]
+- [[2 Nephi 26.28|2 Nephi 26:28]]
+- [[2 Nephi 26.29|2 Nephi 26:29]]
+- [[2 Nephi 26.30|2 Nephi 26:30]]
+- [[2 Nephi 26.31|2 Nephi 26:31]]
+- [[2 Nephi 26.32|2 Nephi 26:32]]
+- [[2 Nephi 26.33|2 Nephi 26:33]]
+- [[Mosiah 23.13|Mosiah 23:13]]
+- [[Mosiah 27.29|Mosiah 27:29]]
+- [[Alma 41.1|Alma 41:1]]
+- [[Mormon 8.31|Mormon 8:31]]
+- [[D&C 24.11|D&C 24:11]]
+- [[D&C 43.20|D&C 43:20]]

@@ -1,0 +1,33 @@
+# Marriage, Interfaith
+
+[Marriage, Interfaith](https://www.churchofjesuschrist.org/study/scriptures/tg/Marriage-Interfaith?lang=eng)
+
+### References
+- [[Genesis 21.21|Genesis 21:21]]
+- [[Genesis 24.3|Genesis 24:3]]
+- [[Genesis 26.34|Genesis 26:34]]
+- [[Genesis 27.46|Genesis 27:46]]
+- [[Genesis 28.9|Genesis 28:9]]
+- [[Genesis 38.2|Genesis 38:2]]
+- [[Genesis 6.2|Genesis 6:2]]
+- [[Exodus 34.16|Exodus 34:16]]
+- [[Deuteronomy 7.3|Deuteronomy 7:3]]
+- [[Joshua 23.12|Joshua 23:12]]
+- [[Judges 14.3|Judges 14:3]]
+- [[Judges 3.6|Judges 3:6]]
+- [[1 Kings 11.4|1 Kings 11:4]]
+- [[Ezra 10.10|Ezra 10:10]]
+- [[Ezra 9.2|Ezra 9:2]]
+- [[Nehemiah 10.30|Nehemiah 10:30]]
+- [[Nehemiah 13.25|Nehemiah 13:25]]
+- [[Malachi 2.11|Malachi 2:11]]
+- [[1 Corinthians 7.14|1 Corinthians 7:14]]
+- [[2 Corinthians 6.14|2 Corinthians 6:14]]
+- [[2 Nephi 5.21|2 Nephi 5:21]]
+- [[2 Nephi 5.23|2 Nephi 5:23]]
+- [[Mosiah 25.12|Mosiah 25:12]]
+- [[Alma 3.8|Alma 3:8]]
+- [[Alma 5.57|Alma 5:57]]
+- [[D&C 132.15|D&C 132:15]]
+- [[D&C 74.5|D&C 74:5]]
+- [[Moses 8.14|Moses 8:14]]

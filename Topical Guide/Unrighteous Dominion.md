@@ -1,0 +1,30 @@
+# Unrighteous Dominion
+
+[Unrighteous Dominion](https://www.churchofjesuschrist.org/study/scriptures/tg/Unrighteous-Dominion?lang=eng)
+
+### References
+- [[1 Samuel 13.13|1 Samuel 13:13]]
+- [[1 Kings 14.9|1 Kings 14:9]]
+- [[1 Kings 15.26|1 Kings 15:26]]
+- [[1 Kings 15.34|1 Kings 15:34]]
+- [[1 Kings 16.13|1 Kings 16:13]]
+- [[1 Kings 16.25|1 Kings 16:25]]
+- [[1 Kings 16.30|1 Kings 16:30]]
+- [[Psalms 71.4|Psalms 71:4]]
+- [[Isaiah 10.1|Isaiah 10:1]]
+- [[Acts 19.13|Acts 19:13]]
+- [[Acts 8.19|Acts 8:19]]
+- [[Romans 1.18|Romans 1:18]]
+- [[3 John 1.9|3 John 1:9]]
+- [[2 Nephi 20.1|2 Nephi 20:1]]
+- [[2 Nephi 26.29|2 Nephi 26:29]]
+- [[Mosiah 11.1|Mosiah 11:1]]
+- [[Mosiah 23.12|Mosiah 23:12]]
+- [[Mosiah 29.23|Mosiah 29:23]]
+- [[Alma 1.6|Alma 1:6]]
+- [[Alma 10.27|Alma 10:27]]
+- [[Alma 2.9|Alma 2:9]]
+- [[Alma 51.5|Alma 51:5]]
+- [[D&C 121.39|D&C 121:39]]
+- [[D&C 58.20|D&C 58:20]]
+- [[Abraham 1.27|Abraham 1:27]]

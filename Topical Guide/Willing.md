@@ -1,0 +1,31 @@
+# Willing
+
+[Willing](https://www.churchofjesuschrist.org/study/scriptures/tg/Willing?lang=eng)
+
+### References
+- [[Exodus 35.5|Exodus 35:5]]
+- [[1 Chronicles 28.9|1 Chronicles 28:9]]
+- [[Psalms 110.3|Psalms 110:3]]
+- [[Isaiah 1.19|Isaiah 1:19]]
+- [[Matthew 26.41|Matthew 26:41]]
+- [[Luke 22.42|Luke 22:42]]
+- [[John 5.35|John 5:35]]
+- [[2 Corinthians 5.8|2 Corinthians 5:8]]
+- [[2 Corinthians 8.12|2 Corinthians 8:12]]
+- [[1 Timothy 6.18|1 Timothy 6:18]]
+- [[2 Peter 3.9|2 Peter 3:9]]
+- [[2 Nephi 31.13|2 Nephi 31:13]]
+- [[Mosiah 18.9|Mosiah 18:9]]
+- [[Mosiah 21.35|Mosiah 21:35]]
+- [[Mosiah 26.18|Mosiah 26:18]]
+- [[Mosiah 29.3|Mosiah 29:3]]
+- [[Mosiah 3.19|Mosiah 3:19]]
+- [[Alma 7.15|Alma 7:15]]
+- [[3 Nephi 18.10|3 Nephi 18:10]]
+- [[Moroni 4.3|Moroni 4:3]]
+- [[D&C 101.63|D&C 101:63]]
+- [[D&C 20.37|D&C 20:37]]
+- [[D&C 20.77|D&C 20:77]]
+- [[D&C 64.34|D&C 64:34]]
+- [[D&C 88.32|D&C 88:32]]
+- [[D&C 97.8|D&C 97:8]]

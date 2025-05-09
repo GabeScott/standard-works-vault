@@ -1,0 +1,33 @@
+# Respect
+
+[Respect](https://www.churchofjesuschrist.org/study/scriptures/tg/Respect?lang=eng)
+
+### References
+- [[Genesis 4.4|Genesis 4:4]]
+- [[Exodus 2.25|Exodus 2:25]]
+- [[Leviticus 19.15|Leviticus 19:15]]
+- [[Deuteronomy 1.17|Deuteronomy 1:17]]
+- [[1 Kings 8.28|1 Kings 8:28]]
+- [[2 Kings 13.23|2 Kings 13:23]]
+- [[2 Chronicles 6.19|2 Chronicles 6:19]]
+- [[Job 37.24|Job 37:24]]
+- [[Psalms 138.6|Psalms 138:6]]
+- [[Psalms 40.4|Psalms 40:4]]
+- [[Psalms 74.20|Psalms 74:20]]
+- [[Proverbs 24.23|Proverbs 24:23]]
+- [[Proverbs 28.21|Proverbs 28:21]]
+- [[Isaiah 17.7|Isaiah 17:7]]
+- [[Romans 2.11|Romans 2:11]]
+- [[Ephesians 6.9|Ephesians 6:9]]
+- [[Colossians 3.25|Colossians 3:25]]
+- [[1 Timothy 5.4|1 Timothy 5:4]]
+- [[Hebrews 11.26|Hebrews 11:26]]
+- [[James 2.1|James 2:1]]
+- [[James 2.9|James 2:9]]
+- [[1 Peter 1.17|1 Peter 1:17]]
+- [[2 Nephi 33.14|2 Nephi 33:14]]
+- [[Alma 1.30|Alma 1:30]]
+- [[Alma 16.14|Alma 16:14]]
+- [[D&C 107.4|D&C 107:4]]
+- [[D&C 134.6|D&C 134:6]]
+- [[Moses 5.20|Moses 5:20]]

@@ -1,0 +1,33 @@
+# Sons of Perdition
+
+[Sons of Perdition](https://www.churchofjesuschrist.org/study/scriptures/tg/Sons-of-Perdition?lang=eng)
+
+### References
+- [[John 17.12|John 17:12]]
+- [[Philippians 1.28|Philippians 1:28]]
+- [[2 Thessalonians 1.9|2 Thessalonians 1:9]]
+- [[2 Thessalonians 2.3|2 Thessalonians 2:3]]
+- [[1 Timothy 6.9|1 Timothy 6:9]]
+- [[Hebrews 10.39|Hebrews 10:39]]
+- [[2 Peter 3.7|2 Peter 3:7]]
+- [[Jude 1.6|Jude 1:6]]
+- [[Revelation 12.4|Revelation 12:4]]
+- [[Revelation 17.8|Revelation 17:8]]
+- [[2 Nephi 2.17|2 Nephi 2:17]]
+- [[2 Nephi 2.29|2 Nephi 2:29]]
+- [[Jacob 6.10|Jacob 6:10]]
+- [[Jacob 7.19|Jacob 7:19]]
+- [[Mosiah 16.5|Mosiah 16:5]]
+- [[Mosiah 2.39|Mosiah 2:39]]
+- [[Alma 11.41|Alma 11:41]]
+- [[3 Nephi 27.32|3 Nephi 27:32]]
+- [[3 Nephi 29.7|3 Nephi 29:7]]
+- [[Moroni 8.28|Moroni 8:28]]
+- [[D&C 132.27|D&C 132:27]]
+- [[D&C 76.26|D&C 76:26]]
+- [[D&C 76.32|D&C 76:32]]
+- [[D&C 76.43|D&C 76:43]]
+- [[D&C 84.41|D&C 84:41]]
+- [[Moses 4.3|Moses 4:3]]
+- [[Moses 5.24|Moses 5:24]]
+- [[Abraham 3.28|Abraham 3:28]]

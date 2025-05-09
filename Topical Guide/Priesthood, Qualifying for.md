@@ -1,0 +1,33 @@
+# Priesthood, Qualifying for
+
+[Priesthood, Qualifying for](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood-Qualifying-for?lang=eng)
+
+### References
+- [[1 Samuel 13.12|1 Samuel 13:12]]
+- [[2 Chronicles 26.18|2 Chronicles 26:18]]
+- [[Ezra 2.62|Ezra 2:62]]
+- [[Ezra 7.10|Ezra 7:10]]
+- [[Nehemiah 7.64|Nehemiah 7:64]]
+- [[Isaiah 52.11|Isaiah 52:11]]
+- [[John 15.16|John 15:16]]
+- [[Acts 6.3|Acts 6:3]]
+- [[2 Corinthians 4.2|2 Corinthians 4:2]]
+- [[1 Timothy 3.2|1 Timothy 3:2]]
+- [[1 Timothy 4.12|1 Timothy 4:12]]
+- [[2 Timothy 2.21|2 Timothy 2:21]]
+- [[Hebrews 5.4|Hebrews 5:4]]
+- [[Alma 13.3|Alma 13:3]]
+- [[3 Nephi 20.41|3 Nephi 20:41]]
+- [[D&C 20.6|D&C 20:6]]
+- [[D&C 36.7|D&C 36:7]]
+- [[D&C 4.1|D&C 4:1]]
+- [[D&C 4.2|D&C 4:2]]
+- [[D&C 4.3|D&C 4:3]]
+- [[D&C 4.4|D&C 4:4]]
+- [[D&C 4.5|D&C 4:5]]
+- [[D&C 4.6|D&C 4:6]]
+- [[D&C 4.7|D&C 4:7]]
+- [[D&C 42.11|D&C 42:11]]
+- [[D&C 85.12|D&C 85:12]]
+- [[Abraham 1.2|Abraham 1:2]]
+- [[Articles of Faith 1.5|Articles of Faith 1:5]]

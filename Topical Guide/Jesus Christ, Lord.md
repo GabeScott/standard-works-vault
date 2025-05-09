@@ -1,0 +1,32 @@
+# Jesus Christ, Lord
+
+[Jesus Christ, Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Lord?lang=eng)
+
+### References
+- [[Matthew 28.6|Matthew 28:6]]
+- [[Mark 16.19|Mark 16:19]]
+- [[Luke 2.11|Luke 2:11]]
+- [[Luke 22.61|Luke 22:61]]
+- [[John 11.2|John 11:2]]
+- [[John 20.2|John 20:2]]
+- [[Acts 2.36|Acts 2:36]]
+- [[1 Corinthians 12.3|1 Corinthians 12:3]]
+- [[1 Corinthians 8.6|1 Corinthians 8:6]]
+- [[2 Timothy 4.22|2 Timothy 4:22]]
+- [[James 2.1|James 2:1]]
+- [[Revelation 17.14|Revelation 17:14]]
+- [[Revelation 22.21|Revelation 22:21]]
+- [[2 Nephi 28.5|2 Nephi 28:5]]
+- [[Mosiah 3.12|Mosiah 3:12]]
+- [[Mosiah 3.17|Mosiah 3:17]]
+- [[Mosiah 5.15|Mosiah 5:15]]
+- [[3 Nephi 1.12|3 Nephi 1:12]]
+- [[3 Nephi 11.13|3 Nephi 11:13]]
+- [[Ether 3.6|Ether 3:6]]
+- [[D&C 10.70|D&C 10:70]]
+- [[D&C 110.2|D&C 110:2]]
+- [[D&C 138.60|D&C 138:60]]
+- [[D&C 17.9|D&C 17:9]]
+- [[D&C 34.12|D&C 34:12]]
+- [[D&C 35.1|D&C 35:1]]
+- [[D&C 95.17|D&C 95:17]]

@@ -1,0 +1,30 @@
+# Tribe
+
+[Tribe](https://www.churchofjesuschrist.org/study/scriptures/tg/Tribe?lang=eng)
+
+### References
+- [[Genesis 49.28|Genesis 49:28]]
+- [[Numbers 24.2|Numbers 24:2]]
+- [[Numbers 34.18|Numbers 34:18]]
+- [[Ezekiel 45.8|Ezekiel 45:8]]
+- [[Matthew 19.28|Matthew 19:28]]
+- [[Matthew 24.30|Matthew 24:30]]
+- [[Luke 22.30|Luke 22:30]]
+- [[James 1.1|James 1:1]]
+- [[Revelation 21.12|Revelation 21:12]]
+- [[Revelation 7.4|Revelation 7:4]]
+- [[1 Nephi 12.9|1 Nephi 12:9]]
+- [[1 Nephi 21.6|1 Nephi 21:6]]
+- [[1 Nephi 22.4|1 Nephi 22:4]]
+- [[2 Nephi 29.12|2 Nephi 29:12]]
+- [[3 Nephi 15.15|3 Nephi 15:15]]
+- [[3 Nephi 16.4|3 Nephi 16:4]]
+- [[3 Nephi 17.4|3 Nephi 17:4]]
+- [[3 Nephi 28.29|3 Nephi 28:29]]
+- [[3 Nephi 7.3|3 Nephi 7:3]]
+- [[Mormon 3.18|Mormon 3:18]]
+- [[D&C 110.11|D&C 110:11]]
+- [[D&C 133.34|D&C 133:34]]
+- [[D&C 77.11|D&C 77:11]]
+- [[Joseph Smith Matthew 1.36|Joseph Smith Matthew 1:36]]
+- [[Articles of Faith 1.10|Articles of Faith 1:10]]

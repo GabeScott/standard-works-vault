@@ -1,0 +1,30 @@
+# Wrought
+
+[Wrought](https://www.churchofjesuschrist.org/study/scriptures/tg/Wrought?lang=eng)
+
+### References
+- [[Numbers 23.23|Numbers 23:23]]
+- [[1 Kings 7.14|1 Kings 7:14]]
+- [[Psalms 139.15|Psalms 139:15]]
+- [[Isaiah 26.12|Isaiah 26:12]]
+- [[Isaiah 41.4|Isaiah 41:4]]
+- [[Matthew 20.12|Matthew 20:12]]
+- [[Matthew 26.10|Matthew 26:10]]
+- [[Mark 14.6|Mark 14:6]]
+- [[Acts 15.12|Acts 15:12]]
+- [[Romans 7.8|Romans 7:8]]
+- [[2 Corinthians 12.12|2 Corinthians 12:12]]
+- [[Ephesians 1.20|Ephesians 1:20]]
+- [[2 John 1.8|2 John 1:8]]
+- [[1 Nephi 13.12|1 Nephi 13:12]]
+- [[1 Nephi 17.51|1 Nephi 17:51]]
+- [[1 Nephi 19.12|1 Nephi 19:12]]
+- [[Mosiah 5.2|Mosiah 5:2]]
+- [[Alma 5.12|Alma 5:12]]
+- [[3 Nephi 28.31|3 Nephi 28:31]]
+- [[3 Nephi 28.37|3 Nephi 28:37]]
+- [[3 Nephi 7.22|3 Nephi 7:22]]
+- [[Ether 12.16|Ether 12:16]]
+- [[Moroni 7.37|Moroni 7:37]]
+- [[D&C 138.35|D&C 138:35]]
+- [[D&C 76.69|D&C 76:69]]

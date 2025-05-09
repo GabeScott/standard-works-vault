@@ -1,0 +1,30 @@
+# Arm
+
+[Arm](https://www.churchofjesuschrist.org/study/scriptures/tg/Arm?lang=eng)
+
+### References
+- [[Exodus 15.16|Exodus 15:16]]
+- [[Job 40.9|Job 40:9]]
+- [[Psalms 10.15|Psalms 10:15]]
+- [[Psalms 44.3|Psalms 44:3]]
+- [[Psalms 77.15|Psalms 77:15]]
+- [[Psalms 98.1|Psalms 98:1]]
+- [[Isaiah 33.2|Isaiah 33:2]]
+- [[Isaiah 40.10|Isaiah 40:10]]
+- [[Isaiah 49.22|Isaiah 49:22]]
+- [[Isaiah 51.5|Isaiah 51:5]]
+- [[Isaiah 52.10|Isaiah 52:10]]
+- [[Isaiah 53.1|Isaiah 53:1]]
+- [[Isaiah 63.5|Isaiah 63:5]]
+- [[Mark 10.16|Mark 10:16]]
+- [[John 12.38|John 12:38]]
+- [[1 Nephi 14.14|1 Nephi 14:14]]
+- [[2 Nephi 1.15|2 Nephi 1:15]]
+- [[2 Nephi 4.34|2 Nephi 4:34]]
+- [[Jacob 6.5|Jacob 6:5]]
+- [[Omni 1.13|Omni 1:13]]
+- [[Mosiah 12.24|Mosiah 12:24]]
+- [[Alma 5.33|Alma 5:33]]
+- [[D&C 1.14|D&C 1:14]]
+- [[D&C 1.19|D&C 1:19]]
+- [[D&C 133.3|D&C 133:3]]

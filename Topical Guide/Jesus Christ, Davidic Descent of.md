@@ -1,0 +1,30 @@
+# Jesus Christ, Davidic Descent of
+
+[Jesus Christ, Davidic Descent of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Davidic-Descent-of?lang=eng)
+
+### References
+- [[1 Samuel 16.1|1 Samuel 16:1]]
+- [[1 Samuel 17.12|1 Samuel 17:12]]
+- [[2 Samuel 7.13|2 Samuel 7:13]]
+- [[Psalms 132.11|Psalms 132:11]]
+- [[Psalms 132.17|Psalms 132:17]]
+- [[Psalms 89.27|Psalms 89:27]]
+- [[Psalms 89.4|Psalms 89:4]]
+- [[Isaiah 11.1|Isaiah 11:1]]
+- [[Isaiah 4.2|Isaiah 4:2]]
+- [[Isaiah 9.7|Isaiah 9:7]]
+- [[Jeremiah 23.5|Jeremiah 23:5]]
+- [[Jeremiah 33.15|Jeremiah 33:15]]
+- [[Matthew 1.1|Matthew 1:1]]
+- [[Matthew 12.23|Matthew 12:23]]
+- [[Matthew 22.42|Matthew 22:42]]
+- [[Luke 1.32|Luke 1:32]]
+- [[Luke 3.23|Luke 3:23]]
+- [[John 7.42|John 7:42]]
+- [[Acts 13.23|Acts 13:23]]
+- [[Acts 2.30|Acts 2:30]]
+- [[Romans 1.3|Romans 1:3]]
+- [[Romans 15.12|Romans 15:12]]
+- [[Revelation 22.16|Revelation 22:16]]
+- [[2 Nephi 21.1|2 Nephi 21:1]]
+- [[D&C 113.1|D&C 113:1]]

@@ -1,0 +1,32 @@
+# Strive, Strove, Striven
+
+[Strive, Strove, Striven](https://www.churchofjesuschrist.org/study/scriptures/tg/Strive-Strove-Striven?lang=eng)
+
+### References
+- [[Genesis 26.20|Genesis 26:20]]
+- [[Genesis 6.3|Genesis 6:3]]
+- [[Exodus 21.18|Exodus 21:18]]
+- [[Numbers 20.13|Numbers 20:13]]
+- [[Deuteronomy 25.11|Deuteronomy 25:11]]
+- [[Proverbs 25.8|Proverbs 25:8]]
+- [[Proverbs 3.30|Proverbs 3:30]]
+- [[Isaiah 45.9|Isaiah 45:9]]
+- [[Hosea 4.4|Hosea 4:4]]
+- [[Matthew 12.19|Matthew 12:19]]
+- [[Luke 13.24|Luke 13:24]]
+- [[John 6.52|John 6:52]]
+- [[Acts 23.9|Acts 23:9]]
+- [[1 Corinthians 9.25|1 Corinthians 9:25]]
+- [[Philippians 1.27|Philippians 1:27]]
+- [[2 Timothy 2.14|2 Timothy 2:14]]
+- [[2 Timothy 2.24|2 Timothy 2:24]]
+- [[2 Timothy 2.5|2 Timothy 2:5]]
+- [[Hebrews 12.4|Hebrews 12:4]]
+- [[1 Nephi 17.15|1 Nephi 17:15]]
+- [[1 Nephi 7.14|1 Nephi 7:14]]
+- [[2 Nephi 26.11|2 Nephi 26:11]]
+- [[Helaman 15.6|Helaman 15:6]]
+- [[Mormon 5.16|Mormon 5:16]]
+- [[Ether 2.15|Ether 2:15]]
+- [[D&C 1.33|D&C 1:33]]
+- [[Moses 8.17|Moses 8:17]]

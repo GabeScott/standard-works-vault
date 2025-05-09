@@ -1,0 +1,32 @@
+# Holy Ghost, Comforter
+
+[Holy Ghost, Comforter](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Ghost-Comforter?lang=eng)
+
+### References
+- [[Isaiah 49.13|Isaiah 49:13]]
+- [[John 14.16|John 14:16]]
+- [[John 14.17|John 14:17]]
+- [[John 14.26|John 14:26]]
+- [[John 15.26|John 15:26]]
+- [[John 16.7|John 16:7]]
+- [[Acts 7.55|Acts 7:55]]
+- [[Acts 9.31|Acts 9:31]]
+- [[Moroni 8.26|Moroni 8:26]]
+- [[D&C 124.97|D&C 124:97]]
+- [[D&C 21.9|D&C 21:9]]
+- [[D&C 24.5|D&C 24:5]]
+- [[D&C 28.1|D&C 28:1]]
+- [[D&C 31.11|D&C 31:11]]
+- [[D&C 36.2|D&C 36:2]]
+- [[D&C 39.6|D&C 39:6]]
+- [[D&C 42.17|D&C 42:17]]
+- [[D&C 47.4|D&C 47:4]]
+- [[D&C 50.14|D&C 50:14]]
+- [[D&C 52.9|D&C 52:9]]
+- [[D&C 75.10|D&C 75:10]]
+- [[D&C 75.27|D&C 75:27]]
+- [[D&C 79.2|D&C 79:2]]
+- [[D&C 90.11|D&C 90:11]]
+- [[D&C 90.14|D&C 90:14]]
+- [[Moses 6.61|Moses 6:61]]
+- [[Joseph Smith History 1.73|Joseph Smith History 1:73]]

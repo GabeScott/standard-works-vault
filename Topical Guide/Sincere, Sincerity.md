@@ -1,0 +1,30 @@
+# Sincere, Sincerity
+
+[Sincere, Sincerity](https://www.churchofjesuschrist.org/study/scriptures/tg/Sincere-Sincerity?lang=eng)
+
+### References
+- [[Joshua 24.14|Joshua 24:14]]
+- [[Job 27.5|Job 27:5]]
+- [[Psalms 78.72|Psalms 78:72]]
+- [[Matthew 7.21|Matthew 7:21]]
+- [[1 Corinthians 5.8|1 Corinthians 5:8]]
+- [[2 Corinthians 1.12|2 Corinthians 1:12]]
+- [[2 Corinthians 2.17|2 Corinthians 2:17]]
+- [[2 Corinthians 8.8|2 Corinthians 8:8]]
+- [[Ephesians 6.24|Ephesians 6:24]]
+- [[Philippians 1.10|Philippians 1:10]]
+- [[Titus 2.7|Titus 2:7]]
+- [[1 Peter 2.2|1 Peter 2:2]]
+- [[2 Nephi 31.13|2 Nephi 31:13]]
+- [[Mosiah 29.19|Mosiah 29:19]]
+- [[Mosiah 4.10|Mosiah 4:10]]
+- [[Alma 26.31|Alma 26:31]]
+- [[Alma 33.11|Alma 33:11]]
+- [[Helaman 3.27|Helaman 3:27]]
+- [[Moroni 10.4|Moroni 10:4]]
+- [[Moroni 6.8|Moroni 6:8]]
+- [[Moroni 7.6|Moroni 7:6]]
+- [[Moroni 7.9|Moroni 7:9]]
+- [[D&C 33.1|D&C 33:1]]
+- [[D&C 5.24|D&C 5:24]]
+- [[D&C 6.16|D&C 6:16]]

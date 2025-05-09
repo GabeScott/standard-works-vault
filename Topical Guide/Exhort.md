@@ -1,0 +1,30 @@
+# Exhort
+
+[Exhort](https://www.churchofjesuschrist.org/study/scriptures/tg/Exhort?lang=eng)
+
+### References
+- [[Acts 14.22|Acts 14:22]]
+- [[Romans 12.8|Romans 12:8]]
+- [[2 Corinthians 9.5|2 Corinthians 9:5]]
+- [[2 Thessalonians 3.12|2 Thessalonians 3:12]]
+- [[1 Timothy 6.2|1 Timothy 6:2]]
+- [[2 Timothy 4.2|2 Timothy 4:2]]
+- [[Titus 1.9|Titus 1:9]]
+- [[Titus 2.15|Titus 2:15]]
+- [[Hebrews 10.25|Hebrews 10:25]]
+- [[Hebrews 3.13|Hebrews 3:13]]
+- [[1 Peter 5.12|1 Peter 5:12]]
+- [[1 Nephi 10.2|1 Nephi 10:2]]
+- [[1 Nephi 17.15|1 Nephi 17:15]]
+- [[1 Nephi 8.37|1 Nephi 8:37]]
+- [[Omni 1.25|Omni 1:25]]
+- [[Alma 34.40|Alma 34:40]]
+- [[D&C 113.10|D&C 113:10]]
+- [[D&C 19.37|D&C 19:37]]
+- [[D&C 20.42|D&C 20:42]]
+- [[D&C 20.46|D&C 20:46]]
+- [[D&C 20.47|D&C 20:47]]
+- [[D&C 20.50|D&C 20:50]]
+- [[D&C 20.51|D&C 20:51]]
+- [[D&C 20.59|D&C 20:59]]
+- [[D&C 25.7|D&C 25:7]]

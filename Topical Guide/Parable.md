@@ -1,0 +1,30 @@
+# Parable
+
+[Parable](https://www.churchofjesuschrist.org/study/scriptures/tg/Parable?lang=eng)
+
+### References
+- [[Numbers 23.7|Numbers 23:7]]
+- [[Psalms 78.2|Psalms 78:2]]
+- [[Ezekiel 20.49|Ezekiel 20:49]]
+- [[Habakkuk 2.6|Habakkuk 2:6]]
+- [[Matthew 13.13|Matthew 13:13]]
+- [[Matthew 13.3|Matthew 13:3]]
+- [[Matthew 13.34|Matthew 13:34]]
+- [[Matthew 13.35|Matthew 13:35]]
+- [[Matthew 22.1|Matthew 22:1]]
+- [[Matthew 24.32|Matthew 24:32]]
+- [[Mark 13.28|Mark 13:28]]
+- [[Mark 4.11|Mark 4:11]]
+- [[Mark 4.13|Mark 4:13]]
+- [[Mark 4.2|Mark 4:2]]
+- [[Mark 4.34|Mark 4:34]]
+- [[Luke 21.29|Luke 21:29]]
+- [[Luke 8.10|Luke 8:10]]
+- [[D&C 101.43|D&C 101:43]]
+- [[D&C 101.65|D&C 101:65]]
+- [[D&C 101.81|D&C 101:81]]
+- [[D&C 35.16|D&C 35:16]]
+- [[D&C 45.36|D&C 45:36]]
+- [[D&C 86.1|D&C 86:1]]
+- [[D&C 88.61|D&C 88:61]]
+- [[Joseph Smith Matthew 1.38|Joseph Smith Matthew 1:38]]

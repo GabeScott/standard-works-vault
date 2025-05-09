@@ -1,0 +1,33 @@
+# Office
+
+[Office](https://www.churchofjesuschrist.org/study/scriptures/tg/Office?lang=eng)
+
+### References
+- [[Genesis 41.13|Genesis 41:13]]
+- [[Exodus 28.1|Exodus 28:1]]
+- [[Numbers 18.7|Numbers 18:7]]
+- [[1 Chronicles 23.28|1 Chronicles 23:28]]
+- [[Psalms 109.8|Psalms 109:8]]
+- [[Luke 1.8|Luke 1:8]]
+- [[Romans 11.13|Romans 11:13]]
+- [[Romans 12.4|Romans 12:4]]
+- [[1 Timothy 3.1|1 Timothy 3:1]]
+- [[Hebrews 7.5|Hebrews 7:5]]
+- [[Jacob 1.19|Jacob 1:19]]
+- [[Alma 13.18|Alma 13:18]]
+- [[Alma 4.18|Alma 4:18]]
+- [[Moroni 7.31|Moroni 7:31]]
+- [[D&C 107.17|D&C 107:17]]
+- [[D&C 107.60|D&C 107:60]]
+- [[D&C 107.61|D&C 107:61]]
+- [[D&C 107.62|D&C 107:62]]
+- [[D&C 107.85|D&C 107:85]]
+- [[D&C 107.89|D&C 107:89]]
+- [[D&C 107.98|D&C 107:98]]
+- [[D&C 107.99|D&C 107:99]]
+- [[D&C 20.65|D&C 20:65]]
+- [[D&C 68.18|D&C 68:18]]
+- [[D&C 68.19|D&C 68:19]]
+- [[D&C 84.109|D&C 84:109]]
+- [[D&C 84.29|D&C 84:29]]
+- [[D&C 84.30|D&C 84:30]]

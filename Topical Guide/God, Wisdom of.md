@@ -1,0 +1,30 @@
+# God, Wisdom of
+
+[God, Wisdom of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Wisdom-of?lang=eng)
+
+### References
+- [[Exodus 31.3|Exodus 31:3]]
+- [[1 Kings 4.29|1 Kings 4:29]]
+- [[Job 36.5|Job 36:5]]
+- [[Psalms 136.5|Psalms 136:5]]
+- [[Proverbs 2.6|Proverbs 2:6]]
+- [[Isaiah 55.8|Isaiah 55:8]]
+- [[Matthew 13.54|Matthew 13:54]]
+- [[Luke 2.52|Luke 2:52]]
+- [[1 Corinthians 1.25|1 Corinthians 1:25]]
+- [[1 Corinthians 3.19|1 Corinthians 3:19]]
+- [[James 1.5|James 1:5]]
+- [[Revelation 5.12|Revelation 5:12]]
+- [[2 Nephi 27.22|2 Nephi 27:22]]
+- [[2 Nephi 9.8|2 Nephi 9:8]]
+- [[Jacob 4.10|Jacob 4:10]]
+- [[Mosiah 4.9|Mosiah 4:9]]
+- [[Alma 26.35|Alma 26:35]]
+- [[D&C 10.35|D&C 10:35]]
+- [[D&C 10.43|D&C 10:43]]
+- [[D&C 124.1|D&C 124:1]]
+- [[D&C 42.68|D&C 42:68]]
+- [[D&C 76.2|D&C 76:2]]
+- [[D&C 78.2|D&C 78:2]]
+- [[D&C 88.6|D&C 88:6]]
+- [[D&C 9.3|D&C 9:3]]

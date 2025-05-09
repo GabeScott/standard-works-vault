@@ -1,0 +1,33 @@
+# Contrite Heart
+
+[Contrite Heart](https://www.churchofjesuschrist.org/study/scriptures/tg/Contrite-Heart?lang=eng)
+
+### References
+- [[Leviticus 26.41|Leviticus 26:41]]
+- [[Psalms 147.3|Psalms 147:3]]
+- [[Psalms 34.18|Psalms 34:18]]
+- [[Psalms 51.17|Psalms 51:17]]
+- [[Isaiah 57.15|Isaiah 57:15]]
+- [[Isaiah 61.1|Isaiah 61:1]]
+- [[Isaiah 66.2|Isaiah 66:2]]
+- [[Joel 2.12|Joel 2:12]]
+- [[Joel 2.13|Joel 2:13]]
+- [[Matthew 11.29|Matthew 11:29]]
+- [[Matthew 5.3|Matthew 5:3]]
+- [[Luke 15.21|Luke 15:21]]
+- [[Luke 18.13|Luke 18:13]]
+- [[Hebrews 3.15|Hebrews 3:15]]
+- [[2 Nephi 2.7|2 Nephi 2:7]]
+- [[2 Nephi 4.32|2 Nephi 4:32]]
+- [[3 Nephi 12.19|3 Nephi 12:19]]
+- [[3 Nephi 9.20|3 Nephi 9:20]]
+- [[Mormon 2.14|Mormon 2:14]]
+- [[Ether 4.15|Ether 4:15]]
+- [[Moroni 6.2|Moroni 6:2]]
+- [[Moroni 8.25|Moroni 8:25]]
+- [[D&C 136.33|D&C 136:33]]
+- [[D&C 20.37|D&C 20:37]]
+- [[D&C 21.9|D&C 21:9]]
+- [[D&C 52.15|D&C 52:15]]
+- [[D&C 56.18|D&C 56:18]]
+- [[D&C 59.8|D&C 59:8]]

@@ -1,0 +1,30 @@
+# Thorn
+
+[Thorn](https://www.churchofjesuschrist.org/study/scriptures/tg/Thorn?lang=eng)
+
+### References
+- [[Genesis 3.18|Genesis 3:18]]
+- [[Numbers 33.55|Numbers 33:55]]
+- [[Judges 2.3|Judges 2:3]]
+- [[Proverbs 15.19|Proverbs 15:19]]
+- [[Proverbs 26.9|Proverbs 26:9]]
+- [[Isaiah 10.17|Isaiah 10:17]]
+- [[Isaiah 9.18|Isaiah 9:18]]
+- [[Jeremiah 12.13|Jeremiah 12:13]]
+- [[Jeremiah 4.3|Jeremiah 4:3]]
+- [[Matthew 13.7|Matthew 13:7]]
+- [[Matthew 27.29|Matthew 27:29]]
+- [[Matthew 7.16|Matthew 7:16]]
+- [[Mark 15.17|Mark 15:17]]
+- [[Mark 4.7|Mark 4:7]]
+- [[Luke 6.44|Luke 6:44]]
+- [[Luke 8.7|Luke 8:7]]
+- [[John 19.2|John 19:2]]
+- [[2 Corinthians 12.7|2 Corinthians 12:7]]
+- [[Hebrews 6.8|Hebrews 6:8]]
+- [[2 Nephi 15.6|2 Nephi 15:6]]
+- [[2 Nephi 17.23|2 Nephi 17:23]]
+- [[2 Nephi 19.18|2 Nephi 19:18]]
+- [[2 Nephi 20.17|2 Nephi 20:17]]
+- [[3 Nephi 14.16|3 Nephi 14:16]]
+- [[Moses 4.24|Moses 4:24]]

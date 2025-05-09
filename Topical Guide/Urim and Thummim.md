@@ -1,0 +1,33 @@
+# Urim and Thummim
+
+[Urim and Thummim](https://www.churchofjesuschrist.org/study/scriptures/tg/Urim-and-Thummim?lang=eng)
+
+### References
+- [[Exodus 28.15|Exodus 28:15]]
+- [[Exodus 28.30|Exodus 28:30]]
+- [[Leviticus 8.8|Leviticus 8:8]]
+- [[Numbers 27.21|Numbers 27:21]]
+- [[Deuteronomy 33.8|Deuteronomy 33:8]]
+- [[1 Samuel 28.6|1 Samuel 28:6]]
+- [[1 Samuel 30.7|1 Samuel 30:7]]
+- [[1 Samuel 30.8|1 Samuel 30:8]]
+- [[Ezra 2.63|Ezra 2:63]]
+- [[Nehemiah 7.65|Nehemiah 7:65]]
+- [[Revelation 2.17|Revelation 2:17]]
+- [[Omni 1.20|Omni 1:20]]
+- [[Omni 1.21|Omni 1:21]]
+- [[Mosiah 28.20|Mosiah 28:20]]
+- [[Mosiah 8.13|Mosiah 8:13]]
+- [[Alma 37.21|Alma 37:21]]
+- [[Alma 37.24|Alma 37:24]]
+- [[Ether 3.23|Ether 3:23]]
+- [[Ether 4.5|Ether 4:5]]
+- [[D&C 10.1|D&C 10:1]]
+- [[D&C 130.10|D&C 130:10]]
+- [[D&C 130.9|D&C 130:9]]
+- [[D&C 17.1|D&C 17:1]]
+- [[Abraham 3.1|Abraham 3:1]]
+- [[Joseph Smith History 1.35|Joseph Smith History 1:35]]
+- [[Joseph Smith History 1.52|Joseph Smith History 1:52]]
+- [[Joseph Smith History 1.59|Joseph Smith History 1:59]]
+- [[Joseph Smith History 1.62|Joseph Smith History 1:62]]

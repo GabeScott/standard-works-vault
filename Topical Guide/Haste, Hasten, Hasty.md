@@ -1,0 +1,32 @@
+# Haste, Hasten, Hasty
+
+[Haste, Hasten, Hasty](https://www.churchofjesuschrist.org/study/scriptures/tg/Haste-Hasten-Hasty?lang=eng)
+
+### References
+- [[Exodus 12.11|Exodus 12:11]]
+- [[Psalms 22.19|Psalms 22:19]]
+- [[Psalms 31.22|Psalms 31:22]]
+- [[Proverbs 14.29|Proverbs 14:29]]
+- [[Proverbs 19.2|Proverbs 19:2]]
+- [[Proverbs 21.5|Proverbs 21:5]]
+- [[Proverbs 28.20|Proverbs 28:20]]
+- [[Proverbs 29.20|Proverbs 29:20]]
+- [[Ecclesiastes 5.2|Ecclesiastes 5:2]]
+- [[Isaiah 16.5|Isaiah 16:5]]
+- [[Isaiah 52.12|Isaiah 52:12]]
+- [[Isaiah 60.22|Isaiah 60:22]]
+- [[Jeremiah 1.12|Jeremiah 1:12]]
+- [[Mark 6.25|Mark 6:25]]
+- [[Luke 2.16|Luke 2:16]]
+- [[Acts 20.16|Acts 20:16]]
+- [[2 Peter 3.12|2 Peter 3:12]]
+- [[1 Nephi 21.17|1 Nephi 21:17]]
+- [[2 Nephi 15.19|2 Nephi 15:19]]
+- [[2 Nephi 8.14|2 Nephi 8:14]]
+- [[3 Nephi 20.42|3 Nephi 20:42]]
+- [[3 Nephi 21.29|3 Nephi 21:29]]
+- [[D&C 101.68|D&C 101:68]]
+- [[D&C 101.72|D&C 101:72]]
+- [[D&C 133.15|D&C 133:15]]
+- [[D&C 58.56|D&C 58:56]]
+- [[D&C 88.73|D&C 88:73]]

@@ -1,0 +1,32 @@
+# Young, Younger, Youngest
+
+[Young, Younger, Youngest](https://www.churchofjesuschrist.org/study/scriptures/tg/Young-Younger-Youngest?lang=eng)
+
+### References
+- [[Genesis 19.31|Genesis 19:31]]
+- [[Genesis 25.23|Genesis 25:23]]
+- [[Genesis 44.26|Genesis 44:26]]
+- [[Genesis 48.19|Genesis 48:19]]
+- [[1 Samuel 17.14|1 Samuel 17:14]]
+- [[1 Kings 12.8|1 Kings 12:8]]
+- [[2 Chronicles 10.8|2 Chronicles 10:8]]
+- [[Isaiah 11.7|Isaiah 11:7]]
+- [[Isaiah 40.11|Isaiah 40:11]]
+- [[Joel 2.28|Joel 2:28]]
+- [[Amos 4.10|Amos 4:10]]
+- [[Mark 14.51|Mark 14:51]]
+- [[Mark 16.5|Mark 16:5]]
+- [[Luke 15.12|Luke 15:12]]
+- [[Acts 2.17|Acts 2:17]]
+- [[Romans 9.12|Romans 9:12]]
+- [[1 Timothy 5.1|1 Timothy 5:1]]
+- [[1 Timothy 5.11|1 Timothy 5:11]]
+- [[Titus 2.4|Titus 2:4]]
+- [[1 Peter 5.5|1 Peter 5:5]]
+- [[1 Nephi 7.8|1 Nephi 7:8]]
+- [[2 Nephi 21.7|2 Nephi 21:7]]
+- [[Mosiah 2.5|Mosiah 2:5]]
+- [[Alma 53.18|Alma 53:18]]
+- [[Alma 56.46|Alma 56:46]]
+- [[D&C 105.16|D&C 105:16]]
+- [[D&C 43.20|D&C 43:20]]

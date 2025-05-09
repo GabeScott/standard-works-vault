@@ -1,0 +1,31 @@
+# Patriarch
+
+[Patriarch](https://www.churchofjesuschrist.org/study/scriptures/tg/Patriarch?lang=eng)
+
+### References
+- [[Genesis 25.5|Genesis 25:5]]
+- [[Genesis 49.1|Genesis 49:1]]
+- [[Genesis 50.23|Genesis 50:23]]
+- [[Acts 2.29|Acts 2:29]]
+- [[Acts 7.8|Acts 7:8]]
+- [[Ephesians 4.11|Ephesians 4:11]]
+- [[Hebrews 7.4|Hebrews 7:4]]
+- [[2 Nephi 1.1|2 Nephi 1:1]]
+- [[2 Nephi 4.3|2 Nephi 4:3]]
+- [[Enos 1.1|Enos 1:1]]
+- [[Omni 1.3|Omni 1:3]]
+- [[D&C 107.41|D&C 107:41]]
+- [[D&C 124.124|D&C 124:124]]
+- [[D&C 124.91|D&C 124:91]]
+- [[D&C 135.1|D&C 135:1]]
+- [[D&C 84.16|D&C 84:16]]
+- [[D&C 86.10|D&C 86:10]]
+- [[Moses 6.7|Moses 6:7]]
+- [[Abraham 1.1|Abraham 1:1]]
+- [[Abraham 1.2|Abraham 1:2]]
+- [[Abraham 1.3|Abraham 1:3]]
+- [[Abraham 1.31|Abraham 1:31]]
+- [[Abraham 1.4|Abraham 1:4]]
+- [[Abraham 2.10|Abraham 2:10]]
+- [[Abraham 2.11|Abraham 2:11]]
+- [[Articles of Faith 1.6|Articles of Faith 1:6]]

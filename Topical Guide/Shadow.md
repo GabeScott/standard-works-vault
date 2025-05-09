@@ -1,0 +1,32 @@
+# Shadow
+
+[Shadow](https://www.churchofjesuschrist.org/study/scriptures/tg/Shadow?lang=eng)
+
+### References
+- [[Judges 9.15|Judges 9:15]]
+- [[2 Kings 20.9|2 Kings 20:9]]
+- [[1 Chronicles 29.15|1 Chronicles 29:15]]
+- [[Psalms 107.14|Psalms 107:14]]
+- [[Psalms 23.4|Psalms 23:4]]
+- [[Isaiah 25.4|Isaiah 25:4]]
+- [[Isaiah 32.2|Isaiah 32:2]]
+- [[Isaiah 38.8|Isaiah 38:8]]
+- [[Isaiah 4.6|Isaiah 4:6]]
+- [[Hosea 14.7|Hosea 14:7]]
+- [[Acts 5.15|Acts 5:15]]
+- [[Colossians 2.17|Colossians 2:17]]
+- [[Hebrews 10.1|Hebrews 10:1]]
+- [[Hebrews 8.5|Hebrews 8:5]]
+- [[Hebrews 9.5|Hebrews 9:5]]
+- [[James 1.17|James 1:17]]
+- [[1 Nephi 21.2|1 Nephi 21:2]]
+- [[2 Nephi 14.6|2 Nephi 14:6]]
+- [[2 Nephi 8.16|2 Nephi 8:16]]
+- [[Mosiah 13.10|Mosiah 13:10]]
+- [[Mosiah 16.14|Mosiah 16:14]]
+- [[Mosiah 3.15|Mosiah 3:15]]
+- [[Alma 37.43|Alma 37:43]]
+- [[Alma 7.20|Alma 7:20]]
+- [[Mormon 9.10|Mormon 9:10]]
+- [[Mormon 9.9|Mormon 9:9]]
+- [[D&C 57.10|D&C 57:10]]

@@ -1,0 +1,31 @@
+# Plan
+
+[Plan](https://www.churchofjesuschrist.org/study/scriptures/tg/Plan?lang=eng)
+
+### References
+- [[2 Nephi 9.13|2 Nephi 9:13]]
+- [[2 Nephi 9.28|2 Nephi 9:28]]
+- [[2 Nephi 9.6|2 Nephi 9:6]]
+- [[Alma 12.25|Alma 12:25]]
+- [[Alma 12.33|Alma 12:33]]
+- [[Alma 12.4|Alma 12:4]]
+- [[Alma 13.30|Alma 13:30]]
+- [[Alma 22.13|Alma 22:13]]
+- [[Alma 34.16|Alma 34:16]]
+- [[Alma 34.9|Alma 34:9]]
+- [[Alma 37.32|Alma 37:32]]
+- [[Alma 41.2|Alma 41:2]]
+- [[Alma 42.11|Alma 42:11]]
+- [[Alma 42.15|Alma 42:15]]
+- [[Alma 42.5|Alma 42:5]]
+- [[Alma 42.8|Alma 42:8]]
+- [[Helaman 11.10|Helaman 11:10]]
+- [[Helaman 11.26|Helaman 11:26]]
+- [[Helaman 2.6|Helaman 2:6]]
+- [[3 Nephi 1.16|3 Nephi 1:16]]
+- [[Ether 10.33|Ether 10:33]]
+- [[Ether 8.9|Ether 8:9]]
+- [[D&C 10.12|D&C 10:12]]
+- [[D&C 10.23|D&C 10:23]]
+- [[Moses 6.62|Moses 6:62]]
+- [[Abraham 4.21|Abraham 4:21]]

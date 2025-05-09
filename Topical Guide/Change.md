@@ -1,0 +1,31 @@
+# Change
+
+[Change](https://www.churchofjesuschrist.org/study/scriptures/tg/Change?lang=eng)
+
+### References
+- [[Psalms 15.4|Psalms 15:4]]
+- [[Psalms 55.19|Psalms 55:19]]
+- [[Isaiah 24.5|Isaiah 24:5]]
+- [[Jeremiah 13.23|Jeremiah 13:23]]
+- [[Jeremiah 2.11|Jeremiah 2:11]]
+- [[Ezekiel 5.6|Ezekiel 5:6]]
+- [[Daniel 3.27|Daniel 3:27]]
+- [[Malachi 3.6|Malachi 3:6]]
+- [[Acts 6.14|Acts 6:14]]
+- [[Romans 1.25|Romans 1:25]]
+- [[Romans 1.26|Romans 1:26]]
+- [[1 Corinthians 15.51|1 Corinthians 15:51]]
+- [[2 Corinthians 3.18|2 Corinthians 3:18]]
+- [[Philippians 3.21|Philippians 3:21]]
+- [[Hebrews 7.12|Hebrews 7:12]]
+- [[Mosiah 5.7|Mosiah 5:7]]
+- [[Alma 19.33|Alma 19:33]]
+- [[Alma 5.12|Alma 5:12]]
+- [[Alma 5.14|Alma 5:14]]
+- [[Alma 5.26|Alma 5:26]]
+- [[Helaman 15.7|Helaman 15:7]]
+- [[3 Nephi 28.38|3 Nephi 28:38]]
+- [[Mormon 9.19|Mormon 9:19]]
+- [[D&C 101.31|D&C 101:31]]
+- [[D&C 43.32|D&C 43:32]]
+- [[D&C 63.51|D&C 63:51]]

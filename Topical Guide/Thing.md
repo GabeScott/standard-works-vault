@@ -1,0 +1,31 @@
+# Thing
+
+[Thing](https://www.churchofjesuschrist.org/study/scriptures/tg/Thing?lang=eng)
+
+### References
+- [[Genesis 24.1|Genesis 24:1]]
+- [[Matthew 11.27|Matthew 11:27]]
+- [[Matthew 21.22|Matthew 21:22]]
+- [[Matthew 24.34|Matthew 24:34]]
+- [[Matthew 6.33|Matthew 6:33]]
+- [[John 13.3|John 13:3]]
+- [[John 16.13|John 16:13]]
+- [[John 16.15|John 16:15]]
+- [[John 3.35|John 3:35]]
+- [[Romans 11.36|Romans 11:36]]
+- [[1 Corinthians 2.11|1 Corinthians 2:11]]
+- [[Colossians 1.16|Colossians 1:16]]
+- [[Hebrews 2.10|Hebrews 2:10]]
+- [[1 Nephi 10.21|1 Nephi 10:21]]
+- [[1 Nephi 15.34|1 Nephi 15:34]]
+- [[1 Nephi 19.9|1 Nephi 19:9]]
+- [[1 Nephi 7.12|1 Nephi 7:12]]
+- [[2 Nephi 27.32|2 Nephi 27:32]]
+- [[2 Nephi 28.16|2 Nephi 28:16]]
+- [[Alma 11.37|Alma 11:37]]
+- [[Alma 26.12|Alma 26:12]]
+- [[3 Nephi 13.33|3 Nephi 13:33]]
+- [[Moroni 10.6|Moroni 10:6]]
+- [[Moroni 7.12|Moroni 7:12]]
+- [[D&C 25.10|D&C 25:10]]
+- [[D&C 58.27|D&C 58:27]]

@@ -1,0 +1,30 @@
+# Might
+
+[Might](https://www.churchofjesuschrist.org/study/scriptures/tg/Might?lang=eng)
+
+### References
+- [[Genesis 49.3|Genesis 49:3]]
+- [[Deuteronomy 28.32|Deuteronomy 28:32]]
+- [[Deuteronomy 6.5|Deuteronomy 6:5]]
+- [[Deuteronomy 8.17|Deuteronomy 8:17]]
+- [[Judges 6.14|Judges 6:14]]
+- [[Ecclesiastes 9.10|Ecclesiastes 9:10]]
+- [[Jeremiah 9.23|Jeremiah 9:23]]
+- [[Daniel 2.20|Daniel 2:20]]
+- [[Zechariah 4.6|Zechariah 4:6]]
+- [[Ephesians 6.10|Ephesians 6:10]]
+- [[Colossians 1.11|Colossians 1:11]]
+- [[Revelation 7.12|Revelation 7:12]]
+- [[2 Nephi 25.29|2 Nephi 25:29]]
+- [[Jacob 1.19|Jacob 1:19]]
+- [[Jacob 5.61|Jacob 5:61]]
+- [[Alma 5.50|Alma 5:50]]
+- [[Moroni 10.32|Moroni 10:32]]
+- [[D&C 11.3|D&C 11:3]]
+- [[D&C 20.31|D&C 20:31]]
+- [[D&C 4.2|D&C 4:2]]
+- [[D&C 4.4|D&C 4:4]]
+- [[D&C 45.75|D&C 45:75]]
+- [[D&C 59.5|D&C 59:5]]
+- [[D&C 75.3|D&C 75:3]]
+- [[D&C 84.102|D&C 84:102]]

@@ -1,0 +1,30 @@
+# Cease
+
+[Cease](https://www.churchofjesuschrist.org/study/scriptures/tg/Cease?lang=eng)
+
+### References
+- [[Genesis 18.11|Genesis 18:11]]
+- [[Genesis 8.22|Genesis 8:22]]
+- [[Deuteronomy 15.11|Deuteronomy 15:11]]
+- [[1 Samuel 7.8|1 Samuel 7:8]]
+- [[Psalms 37.8|Psalms 37:8]]
+- [[Psalms 46.9|Psalms 46:9]]
+- [[Proverbs 19.27|Proverbs 19:27]]
+- [[Proverbs 20.3|Proverbs 20:3]]
+- [[Proverbs 23.4|Proverbs 23:4]]
+- [[Proverbs 26.20|Proverbs 26:20]]
+- [[Isaiah 1.16|Isaiah 1:16]]
+- [[Matthew 14.32|Matthew 14:32]]
+- [[Mark 6.51|Mark 6:51]]
+- [[Romans 1.9|Romans 1:9]]
+- [[1 Corinthians 13.8|1 Corinthians 13:8]]
+- [[1 Thessalonians 5.17|1 Thessalonians 5:17]]
+- [[1 Nephi 7.14|1 Nephi 7:14]]
+- [[2 Nephi 26.11|2 Nephi 26:11]]
+- [[Alma 26.22|Alma 26:22]]
+- [[3 Nephi 20.1|3 Nephi 20:1]]
+- [[Ether 15.19|Ether 15:19]]
+- [[Moroni 8.28|Moroni 8:28]]
+- [[D&C 124.116|D&C 124:116]]
+- [[D&C 88.121|D&C 88:121]]
+- [[D&C 88.124|D&C 88:124]]

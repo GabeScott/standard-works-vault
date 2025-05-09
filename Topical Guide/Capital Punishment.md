@@ -1,0 +1,33 @@
+# Capital Punishment
+
+[Capital Punishment](https://www.churchofjesuschrist.org/study/scriptures/tg/Capital-Punishment?lang=eng)
+
+### References
+- [[Genesis 42.22|Genesis 42:22]]
+- [[Genesis 9.6|Genesis 9:6]]
+- [[Exodus 21.12|Exodus 21:12]]
+- [[Exodus 21.29|Exodus 21:29]]
+- [[Exodus 35.2|Exodus 35:2]]
+- [[Leviticus 20.10|Leviticus 20:10]]
+- [[Numbers 35.16|Numbers 35:16]]
+- [[Numbers 35.27|Numbers 35:27]]
+- [[Deuteronomy 13.5|Deuteronomy 13:5]]
+- [[Deuteronomy 17.5|Deuteronomy 17:5]]
+- [[Deuteronomy 17.6|Deuteronomy 17:6]]
+- [[Deuteronomy 22.21|Deuteronomy 22:21]]
+- [[Joshua 1.18|Joshua 1:18]]
+- [[1 Kings 2.24|1 Kings 2:24]]
+- [[Ezra 7.26|Ezra 7:26]]
+- [[Esther 4.11|Esther 4:11]]
+- [[Matthew 15.4|Matthew 15:4]]
+- [[Acts 26.31|Acts 26:31]]
+- [[Romans 1.32|Romans 1:32]]
+- [[2 Nephi 9.35|2 Nephi 9:35]]
+- [[Alma 1.14|Alma 1:14]]
+- [[Alma 1.18|Alma 1:18]]
+- [[Alma 30.10|Alma 30:10]]
+- [[Alma 34.12|Alma 34:12]]
+- [[Alma 42.19|Alma 42:19]]
+- [[Alma 62.9|Alma 62:9]]
+- [[Helaman 1.12|Helaman 1:12]]
+- [[D&C 42.19|D&C 42:19]]

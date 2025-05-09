@@ -1,0 +1,32 @@
+# Bury
+
+[Bury](https://www.churchofjesuschrist.org/study/scriptures/tg/Bury?lang=eng)
+
+### References
+- [[Genesis 23.4|Genesis 23:4]]
+- [[Genesis 25.9|Genesis 25:9]]
+- [[Genesis 35.29|Genesis 35:29]]
+- [[Genesis 47.29|Genesis 47:29]]
+- [[Genesis 49.29|Genesis 49:29]]
+- [[Genesis 49.31|Genesis 49:31]]
+- [[Genesis 50.13|Genesis 50:13]]
+- [[Deuteronomy 34.6|Deuteronomy 34:6]]
+- [[Joshua 24.30|Joshua 24:30]]
+- [[1 Kings 2.10|1 Kings 2:10]]
+- [[Psalms 79.3|Psalms 79:3]]
+- [[Jeremiah 14.16|Jeremiah 14:16]]
+- [[Jeremiah 22.19|Jeremiah 22:19]]
+- [[Ezekiel 39.11|Ezekiel 39:11]]
+- [[Matthew 27.7|Matthew 27:7]]
+- [[Matthew 8.21|Matthew 8:21]]
+- [[Mark 14.8|Mark 14:8]]
+- [[Luke 9.59|Luke 9:59]]
+- [[John 12.7|John 12:7]]
+- [[Acts 2.29|Acts 2:29]]
+- [[Romans 6.4|Romans 6:4]]
+- [[Colossians 2.12|Colossians 2:12]]
+- [[Mosiah 18.14|Mosiah 18:14]]
+- [[Alma 25.14|Alma 25:14]]
+- [[Alma 45.19|Alma 45:19]]
+- [[D&C 60.13|D&C 60:13]]
+- [[D&C 76.51|D&C 76:51]]

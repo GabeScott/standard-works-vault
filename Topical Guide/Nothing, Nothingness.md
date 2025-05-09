@@ -1,0 +1,33 @@
+# Nothing, Nothingness
+
+[Nothing, Nothingness](https://www.churchofjesuschrist.org/study/scriptures/tg/Nothing-Nothingness?lang=eng)
+
+### References
+- [[Psalms 49.17|Psalms 49:17]]
+- [[Proverbs 13.4|Proverbs 13:4]]
+- [[Matthew 10.26|Matthew 10:26]]
+- [[Matthew 17.20|Matthew 17:20]]
+- [[Matthew 27.12|Matthew 27:12]]
+- [[Luke 1.37|Luke 1:37]]
+- [[John 15.5|John 15:5]]
+- [[John 5.19|John 5:19]]
+- [[John 6.63|John 6:63]]
+- [[John 8.28|John 8:28]]
+- [[1 Corinthians 1.19|1 Corinthians 1:19]]
+- [[1 Corinthians 13.2|1 Corinthians 13:2]]
+- [[2 Corinthians 6.10|2 Corinthians 6:10]]
+- [[1 Timothy 6.7|1 Timothy 6:7]]
+- [[2 Nephi 26.30|2 Nephi 26:30]]
+- [[Mosiah 3.15|Mosiah 3:15]]
+- [[Mosiah 4.11|Mosiah 4:11]]
+- [[Alma 26.12|Alma 26:12]]
+- [[Helaman 12.7|Helaman 12:7]]
+- [[Mormon 9.21|Mormon 9:21]]
+- [[Ether 3.19|Ether 3:19]]
+- [[Moroni 7.44|Moroni 7:44]]
+- [[Moroni 7.6|Moroni 7:6]]
+- [[D&C 11.9|D&C 11:9]]
+- [[D&C 59.21|D&C 59:21]]
+- [[D&C 6.9|D&C 6:9]]
+- [[D&C 8.10|D&C 8:10]]
+- [[Moses 1.10|Moses 1:10]]

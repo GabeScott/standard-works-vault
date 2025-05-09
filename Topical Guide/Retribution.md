@@ -1,0 +1,30 @@
+# Retribution
+
+[Retribution](https://www.churchofjesuschrist.org/study/scriptures/tg/Retribution?lang=eng)
+
+### References
+- [[Genesis 49.6|Genesis 49:6]]
+- [[Exodus 21.24|Exodus 21:24]]
+- [[Leviticus 19.18|Leviticus 19:18]]
+- [[Deuteronomy 19.19|Deuteronomy 19:19]]
+- [[Job 21.31|Job 21:31]]
+- [[Proverbs 20.22|Proverbs 20:22]]
+- [[Isaiah 59.18|Isaiah 59:18]]
+- [[Matthew 16.27|Matthew 16:27]]
+- [[Matthew 26.52|Matthew 26:52]]
+- [[Matthew 5.44|Matthew 5:44]]
+- [[Luke 6.37|Luke 6:37]]
+- [[Romans 12.17|Romans 12:17]]
+- [[Romans 12.19|Romans 12:19]]
+- [[Romans 13.3|Romans 13:3]]
+- [[Galatians 6.7|Galatians 6:7]]
+- [[1 Thessalonians 5.15|1 Thessalonians 5:15]]
+- [[1 Peter 2.23|1 Peter 2:23]]
+- [[1 Peter 3.9|1 Peter 3:9]]
+- [[Revelation 13.10|Revelation 13:10]]
+- [[Revelation 18.6|Revelation 18:6]]
+- [[3 Nephi 12.44|3 Nephi 12:44]]
+- [[Mormon 8.20|Mormon 8:20]]
+- [[D&C 112.24|D&C 112:24]]
+- [[D&C 31.9|D&C 31:9]]
+- [[D&C 98.23|D&C 98:23]]

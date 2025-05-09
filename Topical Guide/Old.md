@@ -1,0 +1,31 @@
+# Old
+
+[Old](https://www.churchofjesuschrist.org/study/scriptures/tg/Old?lang=eng)
+
+### References
+- [[Deuteronomy 8.4|Deuteronomy 8:4]]
+- [[Joshua 9.4|Joshua 9:4]]
+- [[Psalms 102.26|Psalms 102:26]]
+- [[Isaiah 50.9|Isaiah 50:9]]
+- [[Isaiah 58.12|Isaiah 58:12]]
+- [[Jeremiah 38.11|Jeremiah 38:11]]
+- [[Matthew 9.16|Matthew 9:16]]
+- [[Mark 2.21|Mark 2:21]]
+- [[Luke 5.36|Luke 5:36]]
+- [[Luke 5.39|Luke 5:39]]
+- [[John 3.4|John 3:4]]
+- [[Romans 6.6|Romans 6:6]]
+- [[1 Corinthians 5.7|1 Corinthians 5:7]]
+- [[2 Corinthians 5.17|2 Corinthians 5:17]]
+- [[Ephesians 4.22|Ephesians 4:22]]
+- [[Colossians 3.9|Colossians 3:9]]
+- [[Hebrews 1.11|Hebrews 1:11]]
+- [[Hebrews 8.13|Hebrews 8:13]]
+- [[2 Peter 2.5|2 Peter 2:5]]
+- [[1 John 2.7|1 John 2:7]]
+- [[1 Nephi 1.20|1 Nephi 1:20]]
+- [[1 Nephi 19.20|1 Nephi 19:20]]
+- [[D&C 1.16|D&C 1:16]]
+- [[D&C 29.24|D&C 29:24]]
+- [[D&C 63.49|D&C 63:49]]
+- [[Moses 8.21|Moses 8:21]]

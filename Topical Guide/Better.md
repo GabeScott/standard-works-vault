@@ -1,0 +1,31 @@
+# Better
+
+[Better](https://www.churchofjesuschrist.org/study/scriptures/tg/Better?lang=eng)
+
+### References
+- [[Genesis 29.19|Genesis 29:19]]
+- [[1 Samuel 1.8|1 Samuel 1:8]]
+- [[Psalms 118.8|Psalms 118:8]]
+- [[Psalms 63.3|Psalms 63:3]]
+- [[Psalms 84.10|Psalms 84:10]]
+- [[Proverbs 15.16|Proverbs 15:16]]
+- [[Proverbs 16.8|Proverbs 16:8]]
+- [[Proverbs 19.22|Proverbs 19:22]]
+- [[Proverbs 8.11|Proverbs 8:11]]
+- [[Ecclesiastes 4.9|Ecclesiastes 4:9]]
+- [[Ecclesiastes 7.1|Ecclesiastes 7:1]]
+- [[Ecclesiastes 7.3|Ecclesiastes 7:3]]
+- [[Matthew 12.12|Matthew 12:12]]
+- [[Matthew 6.26|Matthew 6:26]]
+- [[Philippians 1.23|Philippians 1:23]]
+- [[Philippians 2.3|Philippians 2:3]]
+- [[Hebrews 1.4|Hebrews 1:4]]
+- [[Hebrews 10.34|Hebrews 10:34]]
+- [[Hebrews 11.16|Hebrews 11:16]]
+- [[Hebrews 12.24|Hebrews 12:24]]
+- [[Hebrews 7.22|Hebrews 7:22]]
+- [[Hebrews 8.6|Hebrews 8:6]]
+- [[Hebrews 9.23|Hebrews 9:23]]
+- [[2 Peter 2.21|2 Peter 2:21]]
+- [[1 Nephi 4.13|1 Nephi 4:13]]
+- [[D&C 25.10|D&C 25:10]]

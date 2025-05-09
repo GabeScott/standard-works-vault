@@ -1,0 +1,33 @@
+# Teacher
+
+[Teacher](https://www.churchofjesuschrist.org/study/scriptures/tg/Teacher?lang=eng)
+
+### References
+- [[Exodus 18.20|Exodus 18:20]]
+- [[Leviticus 10.11|Leviticus 10:11]]
+- [[Deuteronomy 24.8|Deuteronomy 24:8]]
+- [[2 Chronicles 15.3|2 Chronicles 15:3]]
+- [[Proverbs 5.13|Proverbs 5:13]]
+- [[Isaiah 30.20|Isaiah 30:20]]
+- [[Malachi 2.7|Malachi 2:7]]
+- [[John 3.2|John 3:2]]
+- [[Romans 2.20|Romans 2:20]]
+- [[1 Corinthians 12.28|1 Corinthians 12:28]]
+- [[Ephesians 4.11|Ephesians 4:11]]
+- [[1 Timothy 1.7|1 Timothy 1:7]]
+- [[2 Timothy 4.3|2 Timothy 4:3]]
+- [[2 Peter 2.1|2 Peter 2:1]]
+- [[1 Nephi 2.22|1 Nephi 2:22]]
+- [[2 Nephi 5.19|2 Nephi 5:19]]
+- [[2 Nephi 5.26|2 Nephi 5:26]]
+- [[2 Nephi 9.48|2 Nephi 9:48]]
+- [[Jacob 1.18|Jacob 1:18]]
+- [[Jarom 1.11|Jarom 1:11]]
+- [[Mosiah 23.14|Mosiah 23:14]]
+- [[Mosiah 23.17|Mosiah 23:17]]
+- [[Mosiah 25.19|Mosiah 25:19]]
+- [[Alma 15.13|Alma 15:13]]
+- [[Alma 4.7|Alma 4:7]]
+- [[Alma 45.22|Alma 45:22]]
+- [[Moroni 3.3|Moroni 3:3]]
+- [[D&C 88.122|D&C 88:122]]

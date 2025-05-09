@@ -1,0 +1,33 @@
+# Vine
+
+[Vine](https://www.churchofjesuschrist.org/study/scriptures/tg/Vine?lang=eng)
+
+### References
+- [[Genesis 49.11|Genesis 49:11]]
+- [[Deuteronomy 32.32|Deuteronomy 32:32]]
+- [[Deuteronomy 8.8|Deuteronomy 8:8]]
+- [[Judges 9.12|Judges 9:12]]
+- [[1 Kings 4.25|1 Kings 4:25]]
+- [[Psalms 80.8|Psalms 80:8]]
+- [[Isaiah 5.2|Isaiah 5:2]]
+- [[Jeremiah 2.21|Jeremiah 2:21]]
+- [[Ezekiel 15.2|Ezekiel 15:2]]
+- [[Ezekiel 19.10|Ezekiel 19:10]]
+- [[Hosea 10.1|Hosea 10:1]]
+- [[Joel 1.7|Joel 1:7]]
+- [[Micah 4.4|Micah 4:4]]
+- [[Malachi 3.11|Malachi 3:11]]
+- [[Matthew 26.29|Matthew 26:29]]
+- [[Mark 14.25|Mark 14:25]]
+- [[Luke 22.18|Luke 22:18]]
+- [[John 15.1|John 15:1]]
+- [[John 15.5|John 15:5]]
+- [[James 3.12|James 3:12]]
+- [[Revelation 14.19|Revelation 14:19]]
+- [[1 Nephi 15.15|1 Nephi 15:15]]
+- [[2 Nephi 15.2|2 Nephi 15:2]]
+- [[Alma 16.17|Alma 16:17]]
+- [[3 Nephi 24.11|3 Nephi 24:11]]
+- [[D&C 27.5|D&C 27:5]]
+- [[D&C 89.16|D&C 89:16]]
+- [[D&C 89.6|D&C 89:6]]

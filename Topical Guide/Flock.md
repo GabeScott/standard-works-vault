@@ -1,0 +1,32 @@
+# Flock
+
+[Flock](https://www.churchofjesuschrist.org/study/scriptures/tg/Flock?lang=eng)
+
+### References
+- [[Genesis 30.40|Genesis 30:40]]
+- [[Genesis 37.12|Genesis 37:12]]
+- [[Genesis 4.4|Genesis 4:4]]
+- [[Exodus 3.1|Exodus 3:1]]
+- [[Leviticus 1.10|Leviticus 1:10]]
+- [[Deuteronomy 8.13|Deuteronomy 8:13]]
+- [[Psalms 77.20|Psalms 77:20]]
+- [[Proverbs 27.23|Proverbs 27:23]]
+- [[Isaiah 40.11|Isaiah 40:11]]
+- [[Jeremiah 10.21|Jeremiah 10:21]]
+- [[Jeremiah 13.17|Jeremiah 13:17]]
+- [[Jeremiah 31.10|Jeremiah 31:10]]
+- [[Ezekiel 34.31|Ezekiel 34:31]]
+- [[Luke 12.32|Luke 12:32]]
+- [[Luke 2.8|Luke 2:8]]
+- [[Acts 20.28|Acts 20:28]]
+- [[Acts 20.29|Acts 20:29]]
+- [[1 Peter 5.2|1 Peter 5:2]]
+- [[Mosiah 8.21|Mosiah 8:21]]
+- [[Alma 5.59|Alma 5:59]]
+- [[D&C 35.27|D&C 35:27]]
+- [[D&C 6.34|D&C 6:34]]
+- [[D&C 88.72|D&C 88:72]]
+- [[Moses 5.20|Moses 5:20]]
+- [[Moses 5.33|Moses 5:33]]
+- [[Moses 5.38|Moses 5:38]]
+- [[Abraham 2.5|Abraham 2:5]]

@@ -1,0 +1,30 @@
+# Precious
+
+[Precious](https://www.churchofjesuschrist.org/study/scriptures/tg/Precious?lang=eng)
+
+### References
+- [[Deuteronomy 33.13|Deuteronomy 33:13]]
+- [[1 Samuel 3.1|1 Samuel 3:1]]
+- [[Proverbs 3.15|Proverbs 3:15]]
+- [[Isaiah 13.12|Isaiah 13:12]]
+- [[Isaiah 28.16|Isaiah 28:16]]
+- [[Isaiah 43.4|Isaiah 43:4]]
+- [[Matthew 26.7|Matthew 26:7]]
+- [[Mark 14.3|Mark 14:3]]
+- [[1 Peter 1.19|1 Peter 1:19]]
+- [[1 Peter 1.7|1 Peter 1:7]]
+- [[1 Peter 2.4|1 Peter 2:4]]
+- [[1 Peter 2.6|1 Peter 2:6]]
+- [[1 Nephi 11.9|1 Nephi 11:9]]
+- [[1 Nephi 13.26|1 Nephi 13:26]]
+- [[1 Nephi 15.36|1 Nephi 15:36]]
+- [[2 Nephi 1.10|2 Nephi 1:10]]
+- [[2 Nephi 23.12|2 Nephi 23:12]]
+- [[2 Nephi 5.16|2 Nephi 5:16]]
+- [[Alma 31.35|Alma 31:35]]
+- [[Alma 32.42|Alma 32:42]]
+- [[Alma 7.10|Alma 7:10]]
+- [[Helaman 5.8|Helaman 5:8]]
+- [[Moroni 9.9|Moroni 9:9]]
+- [[D&C 109.43|D&C 109:43]]
+- [[D&C 97.9|D&C 97:9]]

@@ -1,0 +1,33 @@
+# Door
+
+[Door](https://www.churchofjesuschrist.org/study/scriptures/tg/Door?lang=eng)
+
+### References
+- [[Genesis 4.7|Genesis 4:7]]
+- [[Exodus 12.23|Exodus 12:23]]
+- [[Psalms 24.7|Psalms 24:7]]
+- [[Matthew 24.33|Matthew 24:33]]
+- [[Matthew 25.10|Matthew 25:10]]
+- [[Matthew 27.60|Matthew 27:60]]
+- [[Matthew 6.6|Matthew 6:6]]
+- [[Mark 13.29|Mark 13:29]]
+- [[Mark 15.46|Mark 15:46]]
+- [[Luke 13.25|Luke 13:25]]
+- [[John 10.1|John 10:1]]
+- [[John 10.9|John 10:9]]
+- [[John 20.19|John 20:19]]
+- [[Acts 14.27|Acts 14:27]]
+- [[Acts 16.26|Acts 16:26]]
+- [[1 Corinthians 16.9|1 Corinthians 16:9]]
+- [[2 Corinthians 2.12|2 Corinthians 2:12]]
+- [[Colossians 4.3|Colossians 4:3]]
+- [[James 5.9|James 5:9]]
+- [[Revelation 3.20|Revelation 3:20]]
+- [[Revelation 3.8|Revelation 3:8]]
+- [[Revelation 4.1|Revelation 4:1]]
+- [[3 Nephi 13.6|3 Nephi 13:6]]
+- [[D&C 100.3|D&C 100:3]]
+- [[D&C 112.19|D&C 112:19]]
+- [[D&C 118.3|D&C 118:3]]
+- [[D&C 45.63|D&C 45:63]]
+- [[Joseph Smith Matthew 1.39|Joseph Smith Matthew 1:39]]

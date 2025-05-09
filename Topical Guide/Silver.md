@@ -1,0 +1,32 @@
+# Silver
+
+[Silver](https://www.churchofjesuschrist.org/study/scriptures/tg/Silver?lang=eng)
+
+### References
+- [[Genesis 44.2|Genesis 44:2]]
+- [[Exodus 12.35|Exodus 12:35]]
+- [[Psalms 105.37|Psalms 105:37]]
+- [[Psalms 12.6|Psalms 12:6]]
+- [[Psalms 66.10|Psalms 66:10]]
+- [[Proverbs 10.20|Proverbs 10:20]]
+- [[Proverbs 16.16|Proverbs 16:16]]
+- [[Proverbs 17.3|Proverbs 17:3]]
+- [[Ecclesiastes 5.10|Ecclesiastes 5:10]]
+- [[Isaiah 1.22|Isaiah 1:22]]
+- [[Amos 2.6|Amos 2:6]]
+- [[Haggai 2.8|Haggai 2:8]]
+- [[Zechariah 11.12|Zechariah 11:12]]
+- [[Matthew 26.15|Matthew 26:15]]
+- [[Matthew 27.6|Matthew 27:6]]
+- [[Matthew 27.9|Matthew 27:9]]
+- [[Luke 15.8|Luke 15:8]]
+- [[Acts 19.24|Acts 19:24]]
+- [[Acts 3.6|Acts 3:6]]
+- [[1 Nephi 13.7|1 Nephi 13:7]]
+- [[1 Nephi 18.25|1 Nephi 18:25]]
+- [[1 Nephi 2.4|1 Nephi 2:4]]
+- [[2 Nephi 5.15|2 Nephi 5:15]]
+- [[Alma 1.29|Alma 1:29]]
+- [[Helaman 6.9|Helaman 6:9]]
+- [[Ether 9.17|Ether 9:17]]
+- [[D&C 128.24|D&C 128:24]]

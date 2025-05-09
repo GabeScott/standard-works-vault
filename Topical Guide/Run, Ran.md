@@ -1,0 +1,33 @@
+# Run, Ran
+
+[Run, Ran](https://www.churchofjesuschrist.org/study/scriptures/tg/Run-Ran?lang=eng)
+
+### References
+- [[Genesis 49.22|Genesis 49:22]]
+- [[2 Samuel 22.30|2 Samuel 22:30]]
+- [[1 Kings 18.46|1 Kings 18:46]]
+- [[Psalms 18.29|Psalms 18:29]]
+- [[Psalms 23.5|Psalms 23:5]]
+- [[Proverbs 1.16|Proverbs 1:16]]
+- [[Proverbs 4.12|Proverbs 4:12]]
+- [[Isaiah 40.31|Isaiah 40:31]]
+- [[Isaiah 55.5|Isaiah 55:5]]
+- [[Isaiah 59.7|Isaiah 59:7]]
+- [[Jeremiah 5.1|Jeremiah 5:1]]
+- [[Daniel 12.4|Daniel 12:4]]
+- [[Amos 8.12|Amos 8:12]]
+- [[Matthew 28.8|Matthew 28:8]]
+- [[Matthew 9.17|Matthew 9:17]]
+- [[John 20.4|John 20:4]]
+- [[1 Corinthians 9.24|1 Corinthians 9:24]]
+- [[Galatians 2.2|Galatians 2:2]]
+- [[Galatians 5.7|Galatians 5:7]]
+- [[Hebrews 12.1|Hebrews 12:1]]
+- [[1 Peter 4.4|1 Peter 4:4]]
+- [[1 Nephi 2.9|1 Nephi 2:9]]
+- [[2 Nephi 29.8|2 Nephi 29:8]]
+- [[Mosiah 12.11|Mosiah 12:11]]
+- [[Mosiah 4.27|Mosiah 4:27]]
+- [[Alma 30.59|Alma 30:59]]
+- [[D&C 10.4|D&C 10:4]]
+- [[D&C 89.20|D&C 89:20]]

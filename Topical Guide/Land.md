@@ -1,0 +1,32 @@
+# Land
+
+[Land](https://www.churchofjesuschrist.org/study/scriptures/tg/Land?lang=eng)
+
+### References
+- [[Genesis 1.9|Genesis 1:9]]
+- [[Genesis 10.5|Genesis 10:5]]
+- [[Exodus 14.21|Exodus 14:21]]
+- [[Exodus 3.8|Exodus 3:8]]
+- [[Leviticus 18.25|Leviticus 18:25]]
+- [[Leviticus 25.4|Leviticus 25:4]]
+- [[Numbers 13.16|Numbers 13:16]]
+- [[Numbers 35.33|Numbers 35:33]]
+- [[Joshua 4.22|Joshua 4:22]]
+- [[Psalms 27.13|Psalms 27:13]]
+- [[Isaiah 14.1|Isaiah 14:1]]
+- [[Isaiah 62.4|Isaiah 62:4]]
+- [[Jeremiah 16.15|Jeremiah 16:15]]
+- [[Malachi 3.12|Malachi 3:12]]
+- [[Matthew 2.20|Matthew 2:20]]
+- [[Acts 4.37|Acts 4:37]]
+- [[1 Nephi 17.38|1 Nephi 17:38]]
+- [[2 Nephi 24.1|2 Nephi 24:1]]
+- [[3 Nephi 24.12|3 Nephi 24:12]]
+- [[D&C 101.44|D&C 101:44]]
+- [[D&C 133.23|D&C 133:23]]
+- [[D&C 42.79|D&C 42:79]]
+- [[D&C 45.63|D&C 45:63]]
+- [[D&C 52.14|D&C 52:14]]
+- [[D&C 58.21|D&C 58:21]]
+- [[D&C 81.3|D&C 81:3]]
+- [[Moses 2.9|Moses 2:9]]

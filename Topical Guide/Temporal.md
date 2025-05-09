@@ -1,0 +1,31 @@
+# Temporal
+
+[Temporal](https://www.churchofjesuschrist.org/study/scriptures/tg/Temporal?lang=eng)
+
+### References
+- [[2 Corinthians 4.18|2 Corinthians 4:18]]
+- [[1 Nephi 14.7|1 Nephi 14:7]]
+- [[1 Nephi 15.31|1 Nephi 15:31]]
+- [[1 Nephi 15.32|1 Nephi 15:32]]
+- [[1 Nephi 22.3|1 Nephi 22:3]]
+- [[2 Nephi 2.5|2 Nephi 2:5]]
+- [[Mosiah 18.29|Mosiah 18:29]]
+- [[Mosiah 4.26|Mosiah 4:26]]
+- [[Alma 11.42|Alma 11:42]]
+- [[Alma 12.24|Alma 12:24]]
+- [[Alma 42.7|Alma 42:7]]
+- [[Alma 42.9|Alma 42:9]]
+- [[Alma 7.23|Alma 7:23]]
+- [[Helaman 14.16|Helaman 14:16]]
+- [[Mormon 2.15|Mormon 2:15]]
+- [[D&C 107.68|D&C 107:68]]
+- [[D&C 107.71|D&C 107:71]]
+- [[D&C 14.11|D&C 14:11]]
+- [[D&C 24.3|D&C 24:3]]
+- [[D&C 29.31|D&C 29:31]]
+- [[D&C 29.42|D&C 29:42]]
+- [[D&C 77.2|D&C 77:2]]
+- [[D&C 77.6|D&C 77:6]]
+- [[D&C 89.2|D&C 89:2]]
+- [[Moses 6.63|Moses 6:63]]
+- [[Moses 7.42|Moses 7:42]]

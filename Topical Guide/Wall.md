@@ -1,0 +1,30 @@
+# Wall
+
+[Wall](https://www.churchofjesuschrist.org/study/scriptures/tg/Wall?lang=eng)
+
+### References
+- [[Exodus 14.22|Exodus 14:22]]
+- [[Numbers 22.24|Numbers 22:24]]
+- [[Deuteronomy 3.5|Deuteronomy 3:5]]
+- [[Joshua 6.20|Joshua 6:20]]
+- [[1 Samuel 25.16|1 Samuel 25:16]]
+- [[Ezra 5.3|Ezra 5:3]]
+- [[Nehemiah 12.27|Nehemiah 12:27]]
+- [[Nehemiah 4.6|Nehemiah 4:6]]
+- [[Psalms 122.7|Psalms 122:7]]
+- [[Psalms 51.18|Psalms 51:18]]
+- [[Proverbs 18.11|Proverbs 18:11]]
+- [[Isaiah 26.1|Isaiah 26:1]]
+- [[Isaiah 5.5|Isaiah 5:5]]
+- [[Isaiah 59.10|Isaiah 59:10]]
+- [[Isaiah 60.18|Isaiah 60:18]]
+- [[Isaiah 62.6|Isaiah 62:6]]
+- [[Ezekiel 8.7|Ezekiel 8:7]]
+- [[Daniel 5.5|Daniel 5:5]]
+- [[Zechariah 2.5|Zechariah 2:5]]
+- [[Acts 23.3|Acts 23:3]]
+- [[Ephesians 2.14|Ephesians 2:14]]
+- [[Hebrews 11.30|Hebrews 11:30]]
+- [[Revelation 21.14|Revelation 21:14]]
+- [[Alma 48.8|Alma 48:8]]
+- [[D&C 101.57|D&C 101:57]]

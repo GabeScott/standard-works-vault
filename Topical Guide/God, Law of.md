@@ -1,0 +1,33 @@
+# God, Law of
+
+[God, Law of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Law-of?lang=eng)
+
+### References
+- [[Ezra 7.25|Ezra 7:25]]
+- [[Psalms 1.2|Psalms 1:2]]
+- [[Psalms 19.7|Psalms 19:7]]
+- [[Isaiah 2.3|Isaiah 2:3]]
+- [[Isaiah 51.4|Isaiah 51:4]]
+- [[Jeremiah 31.33|Jeremiah 31:33]]
+- [[Galatians 5.14|Galatians 5:14]]
+- [[Hebrews 8.10|Hebrews 8:10]]
+- [[James 1.25|James 1:25]]
+- [[2 Nephi 12.3|2 Nephi 12:3]]
+- [[2 Nephi 2.26|2 Nephi 2:26]]
+- [[2 Nephi 8.4|2 Nephi 8:4]]
+- [[2 Nephi 9.25|2 Nephi 9:25]]
+- [[2 Nephi 9.27|2 Nephi 9:27]]
+- [[D&C 107.84|D&C 107:84]]
+- [[D&C 130.21|D&C 130:21]]
+- [[D&C 132.21|D&C 132:21]]
+- [[D&C 132.32|D&C 132:32]]
+- [[D&C 132.5|D&C 132:5]]
+- [[D&C 29.34|D&C 29:34]]
+- [[D&C 41.3|D&C 41:3]]
+- [[D&C 42.2|D&C 42:2]]
+- [[D&C 42.59|D&C 42:59]]
+- [[D&C 88.13|D&C 88:13]]
+- [[D&C 88.21|D&C 88:21]]
+- [[D&C 88.38|D&C 88:38]]
+- [[D&C 88.42|D&C 88:42]]
+- [[D&C 93.53|D&C 93:53]]

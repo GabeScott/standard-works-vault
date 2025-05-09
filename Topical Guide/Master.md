@@ -1,0 +1,32 @@
+# Master
+
+[Master](https://www.churchofjesuschrist.org/study/scriptures/tg/Master?lang=eng)
+
+### References
+- [[Genesis 39.3|Genesis 39:3]]
+- [[Matthew 10.24|Matthew 10:24]]
+- [[Matthew 17.24|Matthew 17:24]]
+- [[Matthew 23.10|Matthew 23:10]]
+- [[Matthew 23.8|Matthew 23:8]]
+- [[Matthew 26.18|Matthew 26:18]]
+- [[Matthew 6.24|Matthew 6:24]]
+- [[Matthew 9.11|Matthew 9:11]]
+- [[Mark 13.35|Mark 13:35]]
+- [[Mark 5.35|Mark 5:35]]
+- [[Luke 16.13|Luke 16:13]]
+- [[Luke 8.49|Luke 8:49]]
+- [[John 11.28|John 11:28]]
+- [[John 13.13|John 13:13]]
+- [[John 20.16|John 20:16]]
+- [[Ephesians 6.5|Ephesians 6:5]]
+- [[Ephesians 6.9|Ephesians 6:9]]
+- [[Colossians 3.22|Colossians 3:22]]
+- [[Colossians 4.1|Colossians 4:1]]
+- [[James 3.1|James 3:1]]
+- [[1 Peter 2.18|1 Peter 2:18]]
+- [[1 Nephi 4.21|1 Nephi 4:21]]
+- [[Jacob 5.4|Jacob 5:4]]
+- [[Mosiah 4.14|Mosiah 4:14]]
+- [[Mosiah 5.13|Mosiah 5:13]]
+- [[3 Nephi 13.24|3 Nephi 13:24]]
+- [[D&C 104.86|D&C 104:86]]

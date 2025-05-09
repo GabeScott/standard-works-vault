@@ -1,0 +1,30 @@
+# Administrations to the Sick
+
+[Administrations to the Sick](https://www.churchofjesuschrist.org/study/scriptures/tg/Administrations-to-the-Sick?lang=eng)
+
+### References
+- [[1 Kings 17.21|1 Kings 17:21]]
+- [[2 Kings 4.34|2 Kings 4:34]]
+- [[2 Kings 5.14|2 Kings 5:14]]
+- [[Matthew 9.18|Matthew 9:18]]
+- [[Mark 16.18|Mark 16:18]]
+- [[Mark 5.23|Mark 5:23]]
+- [[Mark 6.13|Mark 6:13]]
+- [[Mark 6.5|Mark 6:5]]
+- [[Mark 7.32|Mark 7:32]]
+- [[Mark 8.23|Mark 8:23]]
+- [[Luke 13.13|Luke 13:13]]
+- [[Luke 4.40|Luke 4:40]]
+- [[Acts 28.8|Acts 28:8]]
+- [[Acts 3.7|Acts 3:7]]
+- [[Acts 9.17|Acts 9:17]]
+- [[James 5.14|James 5:14]]
+- [[Mosiah 27.23|Mosiah 27:23]]
+- [[Alma 15.8|Alma 15:8]]
+- [[3 Nephi 17.7|3 Nephi 17:7]]
+- [[3 Nephi 17.9|3 Nephi 17:9]]
+- [[3 Nephi 26.15|3 Nephi 26:15]]
+- [[D&C 24.14|D&C 24:14]]
+- [[D&C 42.44|D&C 42:44]]
+- [[D&C 42.48|D&C 42:48]]
+- [[D&C 66.9|D&C 66:9]]

@@ -1,0 +1,32 @@
+# Peer Influence
+
+[Peer Influence](https://www.churchofjesuschrist.org/study/scriptures/tg/Peer-Influence?lang=eng)
+
+### References
+- [[Exodus 23.2|Exodus 23:2]]
+- [[Deuteronomy 13.6|Deuteronomy 13:6]]
+- [[1 Samuel 15.24|1 Samuel 15:24]]
+- [[Proverbs 29.25|Proverbs 29:25]]
+- [[Ezekiel 2.6|Ezekiel 2:6]]
+- [[Matthew 14.9|Matthew 14:9]]
+- [[Luke 12.4|Luke 12:4]]
+- [[John 12.43|John 12:43]]
+- [[Galatians 1.10|Galatians 1:10]]
+- [[1 Thessalonians 2.4|1 Thessalonians 2:4]]
+- [[1 Nephi 22.23|1 Nephi 22:23]]
+- [[1 Nephi 8.28|1 Nephi 8:28]]
+- [[1 Nephi 8.33|1 Nephi 8:33]]
+- [[2 Nephi 8.7|2 Nephi 8:7]]
+- [[Mosiah 27.8|Mosiah 27:8]]
+- [[Alma 39.12|Alma 39:12]]
+- [[Alma 47.36|Alma 47:36]]
+- [[Alma 61.4|Alma 61:4]]
+- [[Helaman 13.27|Helaman 13:27]]
+- [[Helaman 7.21|Helaman 7:21]]
+- [[3 Nephi 1.29|3 Nephi 1:29]]
+- [[D&C 10.6|D&C 10:6]]
+- [[D&C 122.9|D&C 122:9]]
+- [[D&C 3.6|D&C 3:6]]
+- [[D&C 30.1|D&C 30:1]]
+- [[D&C 5.21|D&C 5:21]]
+- [[D&C 60.2|D&C 60:2]]

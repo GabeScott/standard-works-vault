@@ -1,0 +1,31 @@
+# Consider
+
+[Consider](https://www.churchofjesuschrist.org/study/scriptures/tg/Consider?lang=eng)
+
+### References
+- [[Leviticus 13.13|Leviticus 13:13]]
+- [[Deuteronomy 32.29|Deuteronomy 32:29]]
+- [[1 Samuel 12.24|1 Samuel 12:24]]
+- [[Psalms 41.1|Psalms 41:1]]
+- [[Psalms 8.3|Psalms 8:3]]
+- [[Proverbs 28.22|Proverbs 28:22]]
+- [[Proverbs 29.7|Proverbs 29:7]]
+- [[Ecclesiastes 5.1|Ecclesiastes 5:1]]
+- [[Isaiah 44.19|Isaiah 44:19]]
+- [[Isaiah 5.12|Isaiah 5:12]]
+- [[Jeremiah 23.20|Jeremiah 23:20]]
+- [[Haggai 1.5|Haggai 1:5]]
+- [[Haggai 1.7|Haggai 1:7]]
+- [[Matthew 6.28|Matthew 6:28]]
+- [[Mark 6.52|Mark 6:52]]
+- [[Luke 12.24|Luke 12:24]]
+- [[Luke 12.27|Luke 12:27]]
+- [[Galatians 6.1|Galatians 6:1]]
+- [[Hebrews 10.24|Hebrews 10:24]]
+- [[Hebrews 3.1|Hebrews 3:1]]
+- [[2 Nephi 15.12|2 Nephi 15:12]]
+- [[Mosiah 2.41|Mosiah 2:41]]
+- [[3 Nephi 13.28|3 Nephi 13:28]]
+- [[D&C 46.7|D&C 46:7]]
+- [[D&C 84.82|D&C 84:82]]
+- [[D&C 95.3|D&C 95:3]]

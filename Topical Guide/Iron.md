@@ -1,0 +1,33 @@
+# Iron
+
+[Iron](https://www.churchofjesuschrist.org/study/scriptures/tg/Iron?lang=eng)
+
+### References
+- [[Genesis 4.22|Genesis 4:22]]
+- [[Deuteronomy 27.5|Deuteronomy 27:5]]
+- [[Deuteronomy 8.9|Deuteronomy 8:9]]
+- [[Joshua 8.31|Joshua 8:31]]
+- [[2 Kings 6.6|2 Kings 6:6]]
+- [[Psalms 2.9|Psalms 2:9]]
+- [[Proverbs 27.17|Proverbs 27:17]]
+- [[Ecclesiastes 10.10|Ecclesiastes 10:10]]
+- [[Isaiah 60.17|Isaiah 60:17]]
+- [[Jeremiah 1.18|Jeremiah 1:18]]
+- [[Jeremiah 17.1|Jeremiah 17:1]]
+- [[Jeremiah 28.13|Jeremiah 28:13]]
+- [[Ezekiel 4.3|Ezekiel 4:3]]
+- [[Daniel 2.33|Daniel 2:33]]
+- [[Daniel 2.41|Daniel 2:41]]
+- [[Daniel 7.7|Daniel 7:7]]
+- [[Acts 12.10|Acts 12:10]]
+- [[Revelation 19.15|Revelation 19:15]]
+- [[Revelation 2.27|Revelation 2:27]]
+- [[1 Nephi 11.25|1 Nephi 11:25]]
+- [[1 Nephi 15.23|1 Nephi 15:23]]
+- [[1 Nephi 8.19|1 Nephi 8:19]]
+- [[1 Nephi 8.20|1 Nephi 8:20]]
+- [[1 Nephi 8.24|1 Nephi 8:24]]
+- [[1 Nephi 8.30|1 Nephi 8:30]]
+- [[2 Nephi 5.15|2 Nephi 5:15]]
+- [[Ether 10.23|Ether 10:23]]
+- [[Moses 5.46|Moses 5:46]]

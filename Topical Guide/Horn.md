@@ -1,0 +1,32 @@
+# Horn
+
+[Horn](https://www.churchofjesuschrist.org/study/scriptures/tg/Horn?lang=eng)
+
+### References
+- [[Genesis 22.13|Genesis 22:13]]
+- [[Exodus 27.2|Exodus 27:2]]
+- [[Exodus 29.12|Exodus 29:12]]
+- [[Leviticus 4.7|Leviticus 4:7]]
+- [[Leviticus 8.15|Leviticus 8:15]]
+- [[Joshua 6.4|Joshua 6:4]]
+- [[1 Samuel 2.1|1 Samuel 2:1]]
+- [[2 Samuel 22.3|2 Samuel 22:3]]
+- [[1 Kings 1.50|1 Kings 1:50]]
+- [[Psalms 132.17|Psalms 132:17]]
+- [[Psalms 18.2|Psalms 18:2]]
+- [[Ezekiel 29.21|Ezekiel 29:21]]
+- [[Daniel 7.20|Daniel 7:20]]
+- [[Daniel 7.24|Daniel 7:24]]
+- [[Daniel 7.7|Daniel 7:7]]
+- [[Daniel 7.8|Daniel 7:8]]
+- [[Daniel 8.3|Daniel 8:3]]
+- [[Daniel 8.9|Daniel 8:9]]
+- [[Micah 4.13|Micah 4:13]]
+- [[Zechariah 1.18|Zechariah 1:18]]
+- [[Luke 1.69|Luke 1:69]]
+- [[Revelation 12.3|Revelation 12:3]]
+- [[Revelation 13.1|Revelation 13:1]]
+- [[Revelation 17.12|Revelation 17:12]]
+- [[Revelation 17.3|Revelation 17:3]]
+- [[Revelation 5.6|Revelation 5:6]]
+- [[3 Nephi 20.19|3 Nephi 20:19]]

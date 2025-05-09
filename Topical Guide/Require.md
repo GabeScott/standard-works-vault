@@ -1,0 +1,33 @@
+# Require
+
+[Require](https://www.churchofjesuschrist.org/study/scriptures/tg/Require?lang=eng)
+
+### References
+- [[Genesis 9.5|Genesis 9:5]]
+- [[Deuteronomy 10.12|Deuteronomy 10:12]]
+- [[Deuteronomy 18.19|Deuteronomy 18:19]]
+- [[Ezekiel 3.18|Ezekiel 3:18]]
+- [[Ezekiel 33.6|Ezekiel 33:6]]
+- [[Ezekiel 33.8|Ezekiel 33:8]]
+- [[Ezekiel 34.10|Ezekiel 34:10]]
+- [[Micah 6.8|Micah 6:8]]
+- [[Luke 11.50|Luke 11:50]]
+- [[Luke 12.20|Luke 12:20]]
+- [[Luke 12.48|Luke 12:48]]
+- [[Luke 19.23|Luke 19:23]]
+- [[Luke 23.24|Luke 23:24]]
+- [[1 Corinthians 1.22|1 Corinthians 1:22]]
+- [[Mosiah 2.22|Mosiah 2:22]]
+- [[Mosiah 2.24|Mosiah 2:24]]
+- [[Alma 34.12|Alma 34:12]]
+- [[D&C 10.23|D&C 10:23]]
+- [[D&C 105.4|D&C 105:4]]
+- [[D&C 112.33|D&C 112:33]]
+- [[D&C 119.1|D&C 119:1]]
+- [[D&C 20.52|D&C 20:52]]
+- [[D&C 64.10|D&C 64:10]]
+- [[D&C 64.34|D&C 64:34]]
+- [[D&C 70.4|D&C 70:4]]
+- [[D&C 82.3|D&C 82:3]]
+- [[D&C 88.123|D&C 88:123]]
+- [[D&C 97.12|D&C 97:12]]

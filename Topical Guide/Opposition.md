@@ -1,0 +1,32 @@
+# Opposition
+
+[Opposition](https://www.churchofjesuschrist.org/study/scriptures/tg/Opposition?lang=eng)
+
+### References
+- [[Genesis 2.9|Genesis 2:9]]
+- [[Genesis 3.18|Genesis 3:18]]
+- [[Matthew 5.44|Matthew 5:44]]
+- [[Acts 26.14|Acts 26:14]]
+- [[Romans 7.19|Romans 7:19]]
+- [[Romans 8.7|Romans 8:7]]
+- [[Ephesians 6.12|Ephesians 6:12]]
+- [[2 Thessalonians 2.4|2 Thessalonians 2:4]]
+- [[1 Timothy 6.20|1 Timothy 6:20]]
+- [[2 Timothy 3.8|2 Timothy 3:8]]
+- [[James 1.3|James 1:3]]
+- [[James 4.4|James 4:4]]
+- [[1 Peter 1.7|1 Peter 1:7]]
+- [[2 Nephi 2.11|2 Nephi 2:11]]
+- [[2 Nephi 2.15|2 Nephi 2:15]]
+- [[2 Nephi 2.27|2 Nephi 2:27]]
+- [[Alma 42.16|Alma 42:16]]
+- [[3 Nephi 12.44|3 Nephi 12:44]]
+- [[Ether 12.6|Ether 12:6]]
+- [[D&C 122.7|D&C 122:7]]
+- [[D&C 136.31|D&C 136:31]]
+- [[D&C 29.39|D&C 29:39]]
+- [[D&C 58.4|D&C 58:4]]
+- [[Moses 3.9|Moses 3:9]]
+- [[Moses 4.24|Moses 4:24]]
+- [[Moses 6.55|Moses 6:55]]
+- [[Abraham 5.9|Abraham 5:9]]

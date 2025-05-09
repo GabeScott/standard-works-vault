@@ -1,0 +1,31 @@
+# Taste
+
+[Taste](https://www.churchofjesuschrist.org/study/scriptures/tg/Taste?lang=eng)
+
+### References
+- [[Numbers 11.8|Numbers 11:8]]
+- [[Psalms 34.8|Psalms 34:8]]
+- [[Matthew 16.28|Matthew 16:28]]
+- [[Matthew 27.34|Matthew 27:34]]
+- [[Mark 9.1|Mark 9:1]]
+- [[Luke 9.27|Luke 9:27]]
+- [[John 2.9|John 2:9]]
+- [[John 8.52|John 8:52]]
+- [[Colossians 2.21|Colossians 2:21]]
+- [[Hebrews 2.9|Hebrews 2:9]]
+- [[Hebrews 6.4|Hebrews 6:4]]
+- [[Hebrews 6.5|Hebrews 6:5]]
+- [[1 Peter 2.3|1 Peter 2:3]]
+- [[1 Nephi 8.28|1 Nephi 8:28]]
+- [[Jacob 5.31|Jacob 5:31]]
+- [[Mosiah 4.11|Mosiah 4:11]]
+- [[Alma 36.26|Alma 36:26]]
+- [[3 Nephi 28.25|3 Nephi 28:25]]
+- [[3 Nephi 28.37|3 Nephi 28:37]]
+- [[3 Nephi 28.38|3 Nephi 28:38]]
+- [[3 Nephi 28.7|3 Nephi 28:7]]
+- [[Mormon 1.15|Mormon 1:15]]
+- [[Ether 12.17|Ether 12:17]]
+- [[D&C 110.13|D&C 110:13]]
+- [[D&C 42.46|D&C 42:46]]
+- [[Moses 6.55|Moses 6:55]]

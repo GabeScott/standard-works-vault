@@ -1,0 +1,32 @@
+# Adversity
+
+[Adversity](https://www.churchofjesuschrist.org/study/scriptures/tg/Adversity?lang=eng)
+
+### References
+- [[1 Samuel 10.19|1 Samuel 10:19]]
+- [[Job 13.15|Job 13:15]]
+- [[Job 5.7|Job 5:7]]
+- [[Psalms 107.6|Psalms 107:6]]
+- [[Psalms 35.15|Psalms 35:15]]
+- [[Ecclesiastes 7.14|Ecclesiastes 7:14]]
+- [[Isaiah 30.20|Isaiah 30:20]]
+- [[Hosea 5.15|Hosea 5:15]]
+- [[Acts 14.22|Acts 14:22]]
+- [[Romans 12.12|Romans 12:12]]
+- [[Romans 8.18|Romans 8:18]]
+- [[Romans 8.35|Romans 8:35]]
+- [[2 Corinthians 12.10|2 Corinthians 12:10]]
+- [[2 Nephi 2.11|2 Nephi 2:11]]
+- [[Mosiah 24.14|Mosiah 24:14]]
+- [[Alma 14.11|Alma 14:11]]
+- [[Alma 32.6|Alma 32:6]]
+- [[Alma 62.41|Alma 62:41]]
+- [[Alma 62.50|Alma 62:50]]
+- [[Alma 7.11|Alma 7:11]]
+- [[D&C 121.7|D&C 121:7]]
+- [[D&C 122.7|D&C 122:7]]
+- [[D&C 136.31|D&C 136:31]]
+- [[D&C 50.5|D&C 50:5]]
+- [[D&C 58.2|D&C 58:2]]
+- [[D&C 88.6|D&C 88:6]]
+- [[Joseph Smith History 1.25|Joseph Smith History 1:25]]

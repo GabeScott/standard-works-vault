@@ -1,0 +1,30 @@
+# Lip
+
+[Lip](https://www.churchofjesuschrist.org/study/scriptures/tg/Lip?lang=eng)
+
+### References
+- [[Psalms 140.3|Psalms 140:3]]
+- [[Psalms 34.13|Psalms 34:13]]
+- [[Proverbs 10.19|Proverbs 10:19]]
+- [[Proverbs 12.13|Proverbs 12:13]]
+- [[Proverbs 12.19|Proverbs 12:19]]
+- [[Proverbs 13.3|Proverbs 13:3]]
+- [[Proverbs 15.7|Proverbs 15:7]]
+- [[Proverbs 16.13|Proverbs 16:13]]
+- [[Proverbs 18.7|Proverbs 18:7]]
+- [[Proverbs 27.2|Proverbs 27:2]]
+- [[Proverbs 5.3|Proverbs 5:3]]
+- [[Isaiah 29.13|Isaiah 29:13]]
+- [[Isaiah 6.5|Isaiah 6:5]]
+- [[Isaiah 6.7|Isaiah 6:7]]
+- [[Matthew 15.8|Matthew 15:8]]
+- [[Mark 7.6|Mark 7:6]]
+- [[1 Corinthians 14.21|1 Corinthians 14:21]]
+- [[Hebrews 13.15|Hebrews 13:15]]
+- [[1 Peter 3.10|1 Peter 3:10]]
+- [[2 Nephi 16.5|2 Nephi 16:5]]
+- [[2 Nephi 16.7|2 Nephi 16:7]]
+- [[2 Nephi 27.25|2 Nephi 27:25]]
+- [[D&C 63.6|D&C 63:6]]
+- [[D&C 63.61|D&C 63:61]]
+- [[Joseph Smith History 1.19|Joseph Smith History 1:19]]

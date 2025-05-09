@@ -1,0 +1,31 @@
+# Abomination
+
+[Abomination](https://www.churchofjesuschrist.org/study/scriptures/tg/Abomination?lang=eng)
+
+### References
+- [[Genesis 46.34|Genesis 46:34]]
+- [[Leviticus 20.13|Leviticus 20:13]]
+- [[Deuteronomy 18.9|Deuteronomy 18:9]]
+- [[Deuteronomy 25.16|Deuteronomy 25:16]]
+- [[1 Kings 14.24|1 Kings 14:24]]
+- [[Proverbs 12.22|Proverbs 12:22]]
+- [[Proverbs 15.26|Proverbs 15:26]]
+- [[Proverbs 15.9|Proverbs 15:9]]
+- [[Proverbs 21.27|Proverbs 21:27]]
+- [[Proverbs 28.9|Proverbs 28:9]]
+- [[Proverbs 6.16|Proverbs 6:16]]
+- [[Proverbs 8.7|Proverbs 8:7]]
+- [[Isaiah 41.24|Isaiah 41:24]]
+- [[Isaiah 66.3|Isaiah 66:3]]
+- [[Ezekiel 11.18|Ezekiel 11:18]]
+- [[Ezekiel 16.51|Ezekiel 16:51]]
+- [[Ezekiel 18.13|Ezekiel 18:13]]
+- [[Ezekiel 33.29|Ezekiel 33:29]]
+- [[Ezekiel 7.3|Ezekiel 7:3]]
+- [[Ezekiel 8.9|Ezekiel 8:9]]
+- [[Daniel 11.31|Daniel 11:31]]
+- [[Daniel 12.11|Daniel 12:11]]
+- [[Hosea 9.10|Hosea 9:10]]
+- [[Luke 16.15|Luke 16:15]]
+- [[1 Nephi 14.13|1 Nephi 14:13]]
+- [[D&C 29.21|D&C 29:21]]

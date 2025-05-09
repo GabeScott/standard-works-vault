@@ -1,0 +1,32 @@
+# Lightning
+
+[Lightning](https://www.churchofjesuschrist.org/study/scriptures/tg/Lightning?lang=eng)
+
+### References
+- [[Exodus 19.16|Exodus 19:16]]
+- [[Psalms 77.18|Psalms 77:18]]
+- [[Ezekiel 1.13|Ezekiel 1:13]]
+- [[Daniel 10.6|Daniel 10:6]]
+- [[Nahum 2.4|Nahum 2:4]]
+- [[Zechariah 9.14|Zechariah 9:14]]
+- [[Matthew 24.27|Matthew 24:27]]
+- [[Matthew 28.3|Matthew 28:3]]
+- [[Luke 17.24|Luke 17:24]]
+- [[Revelation 11.19|Revelation 11:19]]
+- [[Revelation 16.18|Revelation 16:18]]
+- [[Revelation 4.5|Revelation 4:5]]
+- [[Revelation 8.5|Revelation 8:5]]
+- [[1 Nephi 12.4|1 Nephi 12:4]]
+- [[Helaman 14.21|Helaman 14:21]]
+- [[3 Nephi 8.12|3 Nephi 8:12]]
+- [[3 Nephi 8.17|3 Nephi 8:17]]
+- [[3 Nephi 8.19|3 Nephi 8:19]]
+- [[3 Nephi 8.7|3 Nephi 8:7]]
+- [[D&C 20.6|D&C 20:6]]
+- [[D&C 43.22|D&C 43:22]]
+- [[D&C 43.25|D&C 43:25]]
+- [[D&C 85.8|D&C 85:8]]
+- [[D&C 87.6|D&C 87:6]]
+- [[D&C 88.90|D&C 88:90]]
+- [[Joseph Smith Matthew 1.26|Joseph Smith Matthew 1:26]]
+- [[Joseph Smith History 1.32|Joseph Smith History 1:32]]

@@ -1,0 +1,30 @@
+# Preserve
+
+[Preserve](https://www.churchofjesuschrist.org/study/scriptures/tg/Preserve?lang=eng)
+
+### References
+- [[Genesis 32.30|Genesis 32:30]]
+- [[Genesis 45.5|Genesis 45:5]]
+- [[Deuteronomy 6.24|Deuteronomy 6:24]]
+- [[Psalms 121.7|Psalms 121:7]]
+- [[Psalms 145.20|Psalms 145:20]]
+- [[Psalms 41.2|Psalms 41:2]]
+- [[Proverbs 20.28|Proverbs 20:28]]
+- [[Luke 17.33|Luke 17:33]]
+- [[1 Thessalonians 5.23|1 Thessalonians 5:23]]
+- [[2 Timothy 4.18|2 Timothy 4:18]]
+- [[1 Nephi 22.17|1 Nephi 22:17]]
+- [[1 Nephi 3.20|1 Nephi 3:20]]
+- [[1 Nephi 5.21|1 Nephi 5:21]]
+- [[2 Nephi 3.16|2 Nephi 3:16]]
+- [[Mosiah 2.21|Mosiah 2:21]]
+- [[Alma 37.14|Alma 37:14]]
+- [[Alma 37.18|Alma 37:18]]
+- [[Alma 37.21|Alma 37:21]]
+- [[Alma 46.24|Alma 46:24]]
+- [[Ether 2.7|Ether 2:7]]
+- [[D&C 42.56|D&C 42:56]]
+- [[D&C 62.6|D&C 62:6]]
+- [[D&C 88.34|D&C 88:34]]
+- [[Moses 7.61|Moses 7:61]]
+- [[Abraham 1.24|Abraham 1:24]]

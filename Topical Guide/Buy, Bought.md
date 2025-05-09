@@ -1,0 +1,31 @@
+# Buy, Bought
+
+[Buy, Bought](https://www.churchofjesuschrist.org/study/scriptures/tg/Buy-Bought?lang=eng)
+
+### References
+- [[Genesis 42.2|Genesis 42:2]]
+- [[Genesis 47.19|Genesis 47:19]]
+- [[Ruth 4.9|Ruth 4:9]]
+- [[2 Samuel 24.24|2 Samuel 24:24]]
+- [[1 Chronicles 21.24|1 Chronicles 21:24]]
+- [[Nehemiah 10.31|Nehemiah 10:31]]
+- [[Isaiah 55.1|Isaiah 55:1]]
+- [[Hosea 3.2|Hosea 3:2]]
+- [[Amos 8.6|Amos 8:6]]
+- [[Matthew 13.44|Matthew 13:44]]
+- [[Matthew 14.15|Matthew 14:15]]
+- [[Matthew 21.12|Matthew 21:12]]
+- [[Mark 11.15|Mark 11:15]]
+- [[Mark 6.36|Mark 6:36]]
+- [[Luke 14.18|Luke 14:18]]
+- [[Luke 17.28|Luke 17:28]]
+- [[Luke 19.45|Luke 19:45]]
+- [[1 Corinthians 6.20|1 Corinthians 6:20]]
+- [[1 Corinthians 7.23|1 Corinthians 7:23]]
+- [[2 Peter 2.1|2 Peter 2:1]]
+- [[Revelation 18.11|Revelation 18:11]]
+- [[2 Nephi 26.25|2 Nephi 26:25]]
+- [[2 Nephi 9.50|2 Nephi 9:50]]
+- [[D&C 101.74|D&C 101:74]]
+- [[D&C 48.3|D&C 48:3]]
+- [[D&C 57.6|D&C 57:6]]

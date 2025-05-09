@@ -1,0 +1,32 @@
+# Fight, Fought
+
+[Fight, Fought](https://www.churchofjesuschrist.org/study/scriptures/tg/Fight-Fought?lang=eng)
+
+### References
+- [[Exodus 1.10|Exodus 1:10]]
+- [[Exodus 14.14|Exodus 14:14]]
+- [[Deuteronomy 1.30|Deuteronomy 1:30]]
+- [[Joshua 10.14|Joshua 10:14]]
+- [[Joshua 23.10|Joshua 23:10]]
+- [[1 Samuel 17.32|1 Samuel 17:32]]
+- [[Nehemiah 4.14|Nehemiah 4:14]]
+- [[Psalms 35.1|Psalms 35:1]]
+- [[Isaiah 29.8|Isaiah 29:8]]
+- [[Isaiah 31.4|Isaiah 31:4]]
+- [[Zechariah 14.14|Zechariah 14:14]]
+- [[John 18.36|John 18:36]]
+- [[Acts 23.9|Acts 23:9]]
+- [[Acts 5.39|Acts 5:39]]
+- [[1 Timothy 6.12|1 Timothy 6:12]]
+- [[2 Timothy 4.7|2 Timothy 4:7]]
+- [[Hebrews 10.32|Hebrews 10:32]]
+- [[James 4.2|James 4:2]]
+- [[Revelation 12.7|Revelation 12:7]]
+- [[Revelation 2.16|Revelation 2:16]]
+- [[1 Nephi 11.34|1 Nephi 11:34]]
+- [[2 Nephi 10.16|2 Nephi 10:16]]
+- [[2 Nephi 27.3|2 Nephi 27:3]]
+- [[D&C 105.14|D&C 105:14]]
+- [[D&C 109.28|D&C 109:28]]
+- [[D&C 121.38|D&C 121:38]]
+- [[D&C 98.37|D&C 98:37]]

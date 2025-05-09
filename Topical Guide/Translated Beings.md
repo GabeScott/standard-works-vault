@@ -1,0 +1,31 @@
+# Translated Beings
+
+[Translated Beings](https://www.churchofjesuschrist.org/study/scriptures/tg/Translated-Beings?lang=eng)
+
+### References
+- [[Genesis 5.24|Genesis 5:24]]
+- [[Deuteronomy 34.6|Deuteronomy 34:6]]
+- [[2 Kings 2.11|2 Kings 2:11]]
+- [[Matthew 16.28|Matthew 16:28]]
+- [[Matthew 17.3|Matthew 17:3]]
+- [[Mark 9.4|Mark 9:4]]
+- [[John 21.22|John 21:22]]
+- [[Hebrews 11.5|Hebrews 11:5]]
+- [[Hebrews 13.2|Hebrews 13:2]]
+- [[Alma 45.19|Alma 45:19]]
+- [[3 Nephi 1.3|3 Nephi 1:3]]
+- [[3 Nephi 28.38|3 Nephi 28:38]]
+- [[3 Nephi 28.7|3 Nephi 28:7]]
+- [[4 Nephi 1.14|4 Nephi 1:14]]
+- [[Mormon 8.10|Mormon 8:10]]
+- [[Mormon 8.11|Mormon 8:11]]
+- [[D&C 107.49|D&C 107:49]]
+- [[D&C 110.13|D&C 110:13]]
+- [[D&C 38.4|D&C 38:4]]
+- [[D&C 45.12|D&C 45:12]]
+- [[D&C 49.8|D&C 49:8]]
+- [[D&C 7.3|D&C 7:3]]
+- [[Moses 7.21|Moses 7:21]]
+- [[Moses 7.27|Moses 7:27]]
+- [[Moses 7.31|Moses 7:31]]
+- [[Moses 7.69|Moses 7:69]]

@@ -1,0 +1,31 @@
+# Natural
+
+[Natural](https://www.churchofjesuschrist.org/study/scriptures/tg/Natural?lang=eng)
+
+### References
+- [[Romans 1.31|Romans 1:31]]
+- [[Romans 11.21|Romans 11:21]]
+- [[1 Corinthians 15.44|1 Corinthians 15:44]]
+- [[1 Corinthians 15.46|1 Corinthians 15:46]]
+- [[1 Corinthians 2.14|1 Corinthians 2:14]]
+- [[2 Timothy 3.3|2 Timothy 3:3]]
+- [[James 1.23|James 1:23]]
+- [[2 Peter 2.12|2 Peter 2:12]]
+- [[1 Nephi 10.14|1 Nephi 10:14]]
+- [[1 Nephi 15.7|1 Nephi 15:7]]
+- [[Jacob 5.13|Jacob 5:13]]
+- [[Mosiah 3.19|Mosiah 3:19]]
+- [[Alma 19.6|Alma 19:6]]
+- [[Alma 26.21|Alma 26:21]]
+- [[Alma 41.12|Alma 41:12]]
+- [[Alma 41.4|Alma 41:4]]
+- [[D&C 29.35|D&C 29:35]]
+- [[D&C 29.43|D&C 29:43]]
+- [[D&C 58.3|D&C 58:3]]
+- [[D&C 67.10|D&C 67:10]]
+- [[D&C 67.12|D&C 67:12]]
+- [[D&C 88.28|D&C 88:28]]
+- [[Moses 1.11|Moses 1:11]]
+- [[Moses 1.14|Moses 1:14]]
+- [[Moses 3.5|Moses 3:5]]
+- [[Moses 6.36|Moses 6:36]]

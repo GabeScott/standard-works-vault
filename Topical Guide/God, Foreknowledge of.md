@@ -1,0 +1,30 @@
+# God, Foreknowledge of
+
+[God, Foreknowledge of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Foreknowledge-of?lang=eng)
+
+### References
+- [[Deuteronomy 32.8|Deuteronomy 32:8]]
+- [[Isaiah 42.9|Isaiah 42:9]]
+- [[Isaiah 46.9|Isaiah 46:9]]
+- [[Isaiah 48.3|Isaiah 48:3]]
+- [[Jeremiah 1.5|Jeremiah 1:5]]
+- [[Acts 17.26|Acts 17:26]]
+- [[Acts 2.23|Acts 2:23]]
+- [[Romans 11.2|Romans 11:2]]
+- [[Romans 8.29|Romans 8:29]]
+- [[1 Peter 1.2|1 Peter 1:2]]
+- [[1 Nephi 20.3|1 Nephi 20:3]]
+- [[1 Nephi 9.6|1 Nephi 9:6]]
+- [[2 Nephi 2.24|2 Nephi 2:24]]
+- [[2 Nephi 9.20|2 Nephi 9:20]]
+- [[Words of Mormon 1.7|Words of Mormon 1:7]]
+- [[Alma 13.3|Alma 13:3]]
+- [[Alma 13.7|Alma 13:7]]
+- [[Alma 40.10|Alma 40:10]]
+- [[Helaman 8.8|Helaman 8:8]]
+- [[Mormon 8.17|Mormon 8:17]]
+- [[Moroni 7.22|Moroni 7:22]]
+- [[D&C 1.17|D&C 1:17]]
+- [[D&C 38.2|D&C 38:2]]
+- [[Moses 1.6|Moses 1:6]]
+- [[Abraham 2.8|Abraham 2:8]]

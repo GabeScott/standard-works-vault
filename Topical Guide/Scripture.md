@@ -1,0 +1,32 @@
+# Scripture
+
+[Scripture](https://www.churchofjesuschrist.org/study/scriptures/tg/Scripture?lang=eng)
+
+### References
+- [[Daniel 10.21|Daniel 10:21]]
+- [[Luke 24.32|Luke 24:32]]
+- [[Luke 24.45|Luke 24:45]]
+- [[Luke 4.21|Luke 4:21]]
+- [[John 10.35|John 10:35]]
+- [[John 2.22|John 2:22]]
+- [[John 20.9|John 20:9]]
+- [[Acts 8.35|Acts 8:35]]
+- [[Romans 1.2|Romans 1:2]]
+- [[1 Corinthians 15.3|1 Corinthians 15:3]]
+- [[Galatians 3.22|Galatians 3:22]]
+- [[Galatians 3.8|Galatians 3:8]]
+- [[Jacob 2.23|Jacob 2:23]]
+- [[Alma 12.1|Alma 12:1]]
+- [[Alma 30.44|Alma 30:44]]
+- [[3 Nephi 1.24|3 Nephi 1:24]]
+- [[3 Nephi 23.14|3 Nephi 23:14]]
+- [[3 Nephi 23.6|3 Nephi 23:6]]
+- [[3 Nephi 9.16|3 Nephi 9:16]]
+- [[D&C 20.11|D&C 20:11]]
+- [[D&C 20.80|D&C 20:80]]
+- [[D&C 42.15|D&C 42:15]]
+- [[D&C 74.7|D&C 74:7]]
+- [[D&C 93.53|D&C 93:53]]
+- [[D&C 94.10|D&C 94:10]]
+- [[Joseph Smith History 1.41|Joseph Smith History 1:41]]
+- [[Joseph Smith History 1.74|Joseph Smith History 1:74]]

@@ -1,0 +1,31 @@
+# Sobriety, Sober, Soberness
+
+[Sobriety, Sober, Soberness](https://www.churchofjesuschrist.org/study/scriptures/tg/Sobriety-Sober-Soberness?lang=eng)
+
+### References
+- [[Romans 12.3|Romans 12:3]]
+- [[1 Thessalonians 5.6|1 Thessalonians 5:6]]
+- [[1 Thessalonians 5.8|1 Thessalonians 5:8]]
+- [[1 Timothy 2.15|1 Timothy 2:15]]
+- [[1 Timothy 2.9|1 Timothy 2:9]]
+- [[1 Timothy 3.11|1 Timothy 3:11]]
+- [[1 Timothy 3.2|1 Timothy 3:2]]
+- [[1 Timothy 3.8|1 Timothy 3:8]]
+- [[Titus 1.8|Titus 1:8]]
+- [[Titus 2.12|Titus 2:12]]
+- [[Titus 2.2|Titus 2:2]]
+- [[Titus 2.4|Titus 2:4]]
+- [[Titus 2.6|Titus 2:6]]
+- [[1 Peter 1.13|1 Peter 1:13]]
+- [[1 Peter 4.7|1 Peter 4:7]]
+- [[1 Peter 5.8|1 Peter 5:8]]
+- [[Jacob 2.2|Jacob 2:2]]
+- [[Mosiah 4.15|Mosiah 4:15]]
+- [[Alma 37.47|Alma 37:47]]
+- [[Alma 53.21|Alma 53:21]]
+- [[Mormon 1.15|Mormon 1:15]]
+- [[Mormon 1.2|Mormon 1:2]]
+- [[D&C 100.7|D&C 100:7]]
+- [[D&C 18.21|D&C 18:21]]
+- [[D&C 43.34|D&C 43:34]]
+- [[D&C 6.35|D&C 6:35]]

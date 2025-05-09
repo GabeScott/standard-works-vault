@@ -1,0 +1,31 @@
+# Move
+
+[Move](https://www.churchofjesuschrist.org/study/scriptures/tg/Move?lang=eng)
+
+### References
+- [[Genesis 1.2|Genesis 1:2]]
+- [[Judges 13.25|Judges 13:25]]
+- [[2 Samuel 22.8|2 Samuel 22:8]]
+- [[Psalms 16.8|Psalms 16:8]]
+- [[Psalms 18.7|Psalms 18:7]]
+- [[Psalms 21.7|Psalms 21:7]]
+- [[Psalms 55.22|Psalms 55:22]]
+- [[Proverbs 12.3|Proverbs 12:3]]
+- [[Isaiah 24.19|Isaiah 24:19]]
+- [[Matthew 14.14|Matthew 14:14]]
+- [[Acts 17.28|Acts 17:28]]
+- [[Acts 2.25|Acts 2:25]]
+- [[Colossians 1.23|Colossians 1:23]]
+- [[2 Peter 1.21|2 Peter 1:21]]
+- [[Revelation 6.14|Revelation 6:14]]
+- [[Mosiah 2.21|Mosiah 2:21]]
+- [[Helaman 12.13|Helaman 12:13]]
+- [[Ether 12.30|Ether 12:30]]
+- [[D&C 121.43|D&C 121:43]]
+- [[D&C 45.1|D&C 45:1]]
+- [[D&C 45.32|D&C 45:32]]
+- [[D&C 68.3|D&C 68:3]]
+- [[D&C 77.4|D&C 77:4]]
+- [[D&C 84.40|D&C 84:40]]
+- [[D&C 87.8|D&C 87:8]]
+- [[Moses 2.2|Moses 2:2]]

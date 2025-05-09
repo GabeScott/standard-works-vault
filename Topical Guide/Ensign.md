@@ -1,0 +1,31 @@
+# Ensign
+
+[Ensign](https://www.churchofjesuschrist.org/study/scriptures/tg/Ensign?lang=eng)
+
+### References
+- [[Numbers 2.2|Numbers 2:2]]
+- [[Psalms 74.4|Psalms 74:4]]
+- [[Isaiah 11.10|Isaiah 11:10]]
+- [[Isaiah 11.12|Isaiah 11:12]]
+- [[Isaiah 13.2|Isaiah 13:2]]
+- [[Isaiah 18.3|Isaiah 18:3]]
+- [[Isaiah 49.22|Isaiah 49:22]]
+- [[Isaiah 5.26|Isaiah 5:26]]
+- [[Isaiah 62.10|Isaiah 62:10]]
+- [[Isaiah 66.19|Isaiah 66:19]]
+- [[Jeremiah 4.6|Jeremiah 4:6]]
+- [[Jeremiah 51.27|Jeremiah 51:27]]
+- [[Zechariah 9.16|Zechariah 9:16]]
+- [[1 Nephi 21.22|1 Nephi 21:22]]
+- [[2 Nephi 15.26|2 Nephi 15:26]]
+- [[2 Nephi 21.10|2 Nephi 21:10]]
+- [[2 Nephi 21.12|2 Nephi 21:12]]
+- [[2 Nephi 23.2|2 Nephi 23:2]]
+- [[2 Nephi 29.2|2 Nephi 29:2]]
+- [[2 Nephi 6.6|2 Nephi 6:6]]
+- [[D&C 105.39|D&C 105:39]]
+- [[D&C 113.6|D&C 113:6]]
+- [[D&C 115.5|D&C 115:5]]
+- [[D&C 45.9|D&C 45:9]]
+- [[D&C 64.42|D&C 64:42]]
+- [[D&C 98.34|D&C 98:34]]

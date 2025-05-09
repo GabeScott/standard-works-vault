@@ -1,0 +1,33 @@
+# New
+
+[New](https://www.churchofjesuschrist.org/study/scriptures/tg/New?lang=eng)
+
+### References
+- [[Exodus 1.8|Exodus 1:8]]
+- [[Isaiah 62.2|Isaiah 62:2]]
+- [[Isaiah 65.17|Isaiah 65:17]]
+- [[Jeremiah 31.31|Jeremiah 31:31]]
+- [[Ezekiel 36.26|Ezekiel 36:26]]
+- [[Matthew 9.16|Matthew 9:16]]
+- [[Mark 1.27|Mark 1:27]]
+- [[Mark 16.17|Mark 16:17]]
+- [[Mark 2.21|Mark 2:21]]
+- [[Luke 5.36|Luke 5:36]]
+- [[John 13.34|John 13:34]]
+- [[John 19.41|John 19:41]]
+- [[Hebrews 10.20|Hebrews 10:20]]
+- [[Hebrews 8.13|Hebrews 8:13]]
+- [[Hebrews 9.15|Hebrews 9:15]]
+- [[2 Peter 3.13|2 Peter 3:13]]
+- [[Revelation 2.17|Revelation 2:17]]
+- [[Revelation 21.1|Revelation 21:1]]
+- [[Revelation 21.5|Revelation 21:5]]
+- [[Revelation 3.12|Revelation 3:12]]
+- [[Helaman 14.5|Helaman 14:5]]
+- [[3 Nephi 1.21|3 Nephi 1:21]]
+- [[3 Nephi 12.47|3 Nephi 12:47]]
+- [[3 Nephi 15.3|3 Nephi 15:3]]
+- [[Ether 13.9|Ether 13:9]]
+- [[D&C 101.25|D&C 101:25]]
+- [[D&C 130.11|D&C 130:11]]
+- [[D&C 29.23|D&C 29:23]]

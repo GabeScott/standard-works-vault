@@ -1,0 +1,33 @@
+# Reviling, Revile
+
+[Reviling, Revile](https://www.churchofjesuschrist.org/study/scriptures/tg/Reviling-Revile?lang=eng)
+
+### References
+- [[Exodus 22.28|Exodus 22:28]]
+- [[Isaiah 51.7|Isaiah 51:7]]
+- [[Zephaniah 2.8|Zephaniah 2:8]]
+- [[Matthew 27.39|Matthew 27:39]]
+- [[Matthew 5.11|Matthew 5:11]]
+- [[Mark 15.32|Mark 15:32]]
+- [[John 9.28|John 9:28]]
+- [[Acts 23.4|Acts 23:4]]
+- [[1 Corinthians 4.12|1 Corinthians 4:12]]
+- [[1 Corinthians 6.10|1 Corinthians 6:10]]
+- [[1 Peter 2.23|1 Peter 2:23]]
+- [[1 Nephi 17.42|1 Nephi 17:42]]
+- [[2 Nephi 28.16|2 Nephi 28:16]]
+- [[2 Nephi 9.40|2 Nephi 9:40]]
+- [[Jacob 3.9|Jacob 3:9]]
+- [[Alma 30.29|Alma 30:29]]
+- [[Alma 34.40|Alma 34:40]]
+- [[Helaman 10.15|Helaman 10:15]]
+- [[Helaman 8.5|Helaman 8:5]]
+- [[3 Nephi 12.11|3 Nephi 12:11]]
+- [[3 Nephi 6.13|3 Nephi 6:13]]
+- [[Ether 7.24|Ether 7:24]]
+- [[D&C 121.16|D&C 121:16]]
+- [[D&C 19.30|D&C 19:30]]
+- [[D&C 20.54|D&C 20:54]]
+- [[D&C 31.9|D&C 31:9]]
+- [[D&C 98.23|D&C 98:23]]
+- [[Joseph Smith History 1.23|Joseph Smith History 1:23]]

@@ -1,0 +1,31 @@
+# Hair
+
+[Hair](https://www.churchofjesuschrist.org/study/scriptures/tg/Hair?lang=eng)
+
+### References
+- [[Leviticus 13.3|Leviticus 13:3]]
+- [[Numbers 6.19|Numbers 6:19]]
+- [[Judges 16.22|Judges 16:22]]
+- [[Isaiah 3.24|Isaiah 3:24]]
+- [[Daniel 3.27|Daniel 3:27]]
+- [[Daniel 7.9|Daniel 7:9]]
+- [[Matthew 10.30|Matthew 10:30]]
+- [[Matthew 3.4|Matthew 3:4]]
+- [[Mark 1.6|Mark 1:6]]
+- [[Luke 12.7|Luke 12:7]]
+- [[Luke 21.18|Luke 21:18]]
+- [[Luke 7.38|Luke 7:38]]
+- [[John 11.2|John 11:2]]
+- [[John 12.3|John 12:3]]
+- [[1 Corinthians 11.14|1 Corinthians 11:14]]
+- [[1 Timothy 2.9|1 Timothy 2:9]]
+- [[1 Peter 3.3|1 Peter 3:3]]
+- [[Revelation 1.14|Revelation 1:14]]
+- [[Revelation 6.12|Revelation 6:12]]
+- [[2 Nephi 13.24|2 Nephi 13:24]]
+- [[Alma 40.23|Alma 40:23]]
+- [[D&C 110.3|D&C 110:3]]
+- [[D&C 29.25|D&C 29:25]]
+- [[D&C 84.116|D&C 84:116]]
+- [[D&C 84.80|D&C 84:80]]
+- [[D&C 9.14|D&C 9:14]]

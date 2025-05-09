@@ -1,0 +1,30 @@
+# Silence, Silent
+
+[Silence, Silent](https://www.churchofjesuschrist.org/study/scriptures/tg/Silence-Silent?lang=eng)
+
+### References
+- [[1 Samuel 2.9|1 Samuel 2:9]]
+- [[Job 34.29|Job 34:29]]
+- [[Psalms 28.1|Psalms 28:1]]
+- [[Psalms 31.18|Psalms 31:18]]
+- [[Psalms 46.10|Psalms 46:10]]
+- [[Psalms 83.1|Psalms 83:1]]
+- [[Proverbs 13.3|Proverbs 13:3]]
+- [[Ecclesiastes 3.7|Ecclesiastes 3:7]]
+- [[Ecclesiastes 4.6|Ecclesiastes 4:6]]
+- [[Isaiah 30.15|Isaiah 30:15]]
+- [[Isaiah 41.1|Isaiah 41:1]]
+- [[Isaiah 47.5|Isaiah 47:5]]
+- [[Amos 5.13|Amos 5:13]]
+- [[Habakkuk 2.20|Habakkuk 2:20]]
+- [[Matthew 22.34|Matthew 22:34]]
+- [[Acts 21.40|Acts 21:40]]
+- [[1 Corinthians 14.28|1 Corinthians 14:28]]
+- [[1 Corinthians 14.34|1 Corinthians 14:34]]
+- [[1 Timothy 2.11|1 Timothy 2:11]]
+- [[1 Peter 2.15|1 Peter 2:15]]
+- [[Revelation 8.1|Revelation 8:1]]
+- [[Alma 51.7|Alma 51:7]]
+- [[3 Nephi 10.1|3 Nephi 10:1]]
+- [[D&C 38.12|D&C 38:12]]
+- [[D&C 88.95|D&C 88:95]]

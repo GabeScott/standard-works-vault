@@ -1,0 +1,33 @@
+# Fornication
+
+[Fornication](https://www.churchofjesuschrist.org/study/scriptures/tg/Fornication?lang=eng)
+
+### References
+- [[Proverbs 22.14|Proverbs 22:14]]
+- [[Proverbs 7.22|Proverbs 7:22]]
+- [[Matthew 15.19|Matthew 15:19]]
+- [[Matthew 19.9|Matthew 19:9]]
+- [[Matthew 5.32|Matthew 5:32]]
+- [[Acts 15.20|Acts 15:20]]
+- [[Acts 21.25|Acts 21:25]]
+- [[1 Corinthians 10.8|1 Corinthians 10:8]]
+- [[1 Corinthians 5.9|1 Corinthians 5:9]]
+- [[1 Corinthians 6.13|1 Corinthians 6:13]]
+- [[1 Corinthians 6.9|1 Corinthians 6:9]]
+- [[1 Corinthians 7.2|1 Corinthians 7:2]]
+- [[Galatians 5.19|Galatians 5:19]]
+- [[Ephesians 5.3|Ephesians 5:3]]
+- [[Colossians 3.5|Colossians 3:5]]
+- [[1 Thessalonians 4.3|1 Thessalonians 4:3]]
+- [[Jude 1.7|Jude 1:7]]
+- [[Revelation 14.8|Revelation 14:8]]
+- [[Revelation 17.2|Revelation 17:2]]
+- [[Revelation 18.3|Revelation 18:3]]
+- [[Revelation 19.2|Revelation 19:2]]
+- [[Jacob 3.12|Jacob 3:12]]
+- [[Alma 39.5|Alma 39:5]]
+- [[Helaman 8.26|Helaman 8:26]]
+- [[3 Nephi 12.32|3 Nephi 12:32]]
+- [[D&C 35.11|D&C 35:11]]
+- [[D&C 42.74|D&C 42:74]]
+- [[D&C 88.94|D&C 88:94]]

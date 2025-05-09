@@ -1,0 +1,31 @@
+# Godliness, Godly
+
+[Godliness, Godly](https://www.churchofjesuschrist.org/study/scriptures/tg/Godliness-Godly?lang=eng)
+
+### References
+- [[Psalms 1.6|Psalms 1:6]]
+- [[Psalms 32.6|Psalms 32:6]]
+- [[Psalms 4.3|Psalms 4:3]]
+- [[Malachi 2.15|Malachi 2:15]]
+- [[Matthew 5.48|Matthew 5:48]]
+- [[2 Corinthians 7.10|2 Corinthians 7:10]]
+- [[1 Timothy 1.9|1 Timothy 1:9]]
+- [[1 Timothy 2.10|1 Timothy 2:10]]
+- [[1 Timothy 4.8|1 Timothy 4:8]]
+- [[1 Timothy 6.6|1 Timothy 6:6]]
+- [[2 Timothy 2.16|2 Timothy 2:16]]
+- [[2 Timothy 3.12|2 Timothy 3:12]]
+- [[2 Timothy 3.5|2 Timothy 3:5]]
+- [[Titus 2.12|Titus 2:12]]
+- [[1 Peter 4.18|1 Peter 4:18]]
+- [[2 Peter 1.3|2 Peter 1:3]]
+- [[2 Peter 2.9|2 Peter 2:9]]
+- [[2 Peter 3.11|2 Peter 3:11]]
+- [[Jude 1.4|Jude 1:4]]
+- [[3 Nephi 27.27|3 Nephi 27:27]]
+- [[Moroni 7.30|Moroni 7:30]]
+- [[D&C 107.30|D&C 107:30]]
+- [[D&C 20.69|D&C 20:69]]
+- [[D&C 4.6|D&C 4:6]]
+- [[D&C 84.20|D&C 84:20]]
+- [[Joseph Smith History 1.19|Joseph Smith History 1:19]]

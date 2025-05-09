@@ -1,0 +1,30 @@
+# Naked
+
+[Naked](https://www.churchofjesuschrist.org/study/scriptures/tg/Naked?lang=eng)
+
+### References
+- [[Genesis 2.25|Genesis 2:25]]
+- [[Genesis 3.7|Genesis 3:7]]
+- [[Exodus 32.25|Exodus 32:25]]
+- [[Job 1.21|Job 1:21]]
+- [[Ecclesiastes 5.15|Ecclesiastes 5:15]]
+- [[Isaiah 20.2|Isaiah 20:2]]
+- [[Ezekiel 18.7|Ezekiel 18:7]]
+- [[Matthew 25.36|Matthew 25:36]]
+- [[Mark 14.52|Mark 14:52]]
+- [[John 21.7|John 21:7]]
+- [[1 Corinthians 4.11|1 Corinthians 4:11]]
+- [[2 Corinthians 5.3|2 Corinthians 5:3]]
+- [[Hebrews 4.13|Hebrews 4:13]]
+- [[James 2.15|James 2:15]]
+- [[Revelation 16.15|Revelation 16:15]]
+- [[Jacob 2.19|Jacob 2:19]]
+- [[Mosiah 4.26|Mosiah 4:26]]
+- [[Alma 1.30|Alma 1:30]]
+- [[Alma 34.28|Alma 34:28]]
+- [[Helaman 4.12|Helaman 4:12]]
+- [[Mormon 8.39|Mormon 8:39]]
+- [[Moses 3.25|Moses 3:25]]
+- [[Moses 4.13|Moses 4:13]]
+- [[Abraham 5.19|Abraham 5:19]]
+- [[Joseph Smith History 1.31|Joseph Smith History 1:31]]

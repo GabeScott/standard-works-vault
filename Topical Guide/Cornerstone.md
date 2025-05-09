@@ -1,0 +1,30 @@
+# Cornerstone
+
+[Cornerstone](https://www.churchofjesuschrist.org/study/scriptures/tg/Cornerstone?lang=eng)
+
+### References
+- [[Deuteronomy 32.15|Deuteronomy 32:15]]
+- [[1 Samuel 2.2|1 Samuel 2:2]]
+- [[Job 38.6|Job 38:6]]
+- [[Psalms 118.22|Psalms 118:22]]
+- [[Isaiah 28.16|Isaiah 28:16]]
+- [[Isaiah 8.14|Isaiah 8:14]]
+- [[Matthew 21.42|Matthew 21:42]]
+- [[Matthew 21.43|Matthew 21:43]]
+- [[Matthew 21.44|Matthew 21:44]]
+- [[Mark 12.10|Mark 12:10]]
+- [[Luke 20.17|Luke 20:17]]
+- [[Acts 4.10|Acts 4:10]]
+- [[Acts 4.11|Acts 4:11]]
+- [[Acts 4.12|Acts 4:12]]
+- [[1 Corinthians 10.4|1 Corinthians 10:4]]
+- [[1 Corinthians 3.11|1 Corinthians 3:11]]
+- [[Ephesians 2.20|Ephesians 2:20]]
+- [[1 Peter 2.6|1 Peter 2:6]]
+- [[Jacob 4.15|Jacob 4:15]]
+- [[Helaman 5.12|Helaman 5:12]]
+- [[D&C 124.131|D&C 124:131]]
+- [[D&C 124.2|D&C 124:2]]
+- [[D&C 124.23|D&C 124:23]]
+- [[D&C 50.44|D&C 50:44]]
+- [[Moses 7.53|Moses 7:53]]

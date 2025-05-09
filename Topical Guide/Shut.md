@@ -1,0 +1,32 @@
+# Shut
+
+[Shut](https://www.churchofjesuschrist.org/study/scriptures/tg/Shut?lang=eng)
+
+### References
+- [[Deuteronomy 11.17|Deuteronomy 11:17]]
+- [[1 Kings 8.35|1 Kings 8:35]]
+- [[Proverbs 17.28|Proverbs 17:28]]
+- [[Isaiah 22.22|Isaiah 22:22]]
+- [[Isaiah 44.18|Isaiah 44:18]]
+- [[Isaiah 6.10|Isaiah 6:10]]
+- [[Jeremiah 36.5|Jeremiah 36:5]]
+- [[Matthew 23.13|Matthew 23:13]]
+- [[Matthew 25.10|Matthew 25:10]]
+- [[Matthew 6.6|Matthew 6:6]]
+- [[Luke 3.20|Luke 3:20]]
+- [[Luke 4.25|Luke 4:25]]
+- [[Acts 26.10|Acts 26:10]]
+- [[Galatians 3.23|Galatians 3:23]]
+- [[1 John 3.17|1 John 3:17]]
+- [[Revelation 20.3|Revelation 20:3]]
+- [[Revelation 3.7|Revelation 3:7]]
+- [[2 Nephi 16.10|2 Nephi 16:10]]
+- [[2 Nephi 4.32|2 Nephi 4:32]]
+- [[2 Nephi 9.9|2 Nephi 9:9]]
+- [[3 Nephi 13.6|3 Nephi 13:6]]
+- [[Ether 4.9|Ether 4:9]]
+- [[D&C 77.8|D&C 77:8]]
+- [[Moses 5.4|Moses 5:4]]
+- [[Moses 5.41|Moses 5:41]]
+- [[Moses 6.49|Moses 6:49]]
+- [[Moses 7.38|Moses 7:38]]
