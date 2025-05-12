@@ -1,11 +1,12 @@
 # The Savior’s Program for the Care of the Aged
-*By By Bishop Vaughn J. Featherstone - Second Counselor in the Presiding Bishopric*
+
+By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1974 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1974/10/the-saviors-program-for-the-care-of-the-aged?lang=eng)
 
-To be old and poor is to be alone, afraid, and ill-fed, and unknown. In a series of articles the Wall Street Journal discusses the problems related to the care of the aged. Following are some of the quotes taken from these articles:
+To be old and poor is to be alone, afraid, and ill-fed, and unknown. In a series of articles the *Wall Street Journal* discusses the problems related to the care of the aged. Following are some of the quotes taken from these articles:
 
 “Many of the aged are gnawed by the fear not that they will die, but that they will die unnoticed by anyone.” (Nov. 15, 1972, p. 16.)
 
@@ -15,35 +16,29 @@ Shabby apartments attract the elderly due to their meager incomes.
 
 Most of these people live alone “as do five million of the total U.S. population over 65. Coupled with their sense of uselessness, their solitude breeds despair.” (Nov. 15, 1972, p. 1.)
 
-“So, many of the elderly eat what they can get, or afford, not what is good for them. ...
+“So, many of the elderly eat what they can get, or afford, not what is good for them. …
 
-“Some live mainly on what they can buy from the vending machines in their hotel or apartment lobbies. ...
+“Some live mainly on what they can buy from the vending machines in their hotel or apartment lobbies. …
 
 “Others eat dog food. ‘They can get two meals out of a can,’ says Robert Forst.” (Nov. 15, 1972, p. 16.)
 
 It may be interesting to note there are over 300 organizations representing the interests of the aged.
 
-I believe the Savior had great insight into problems such as this, for as he describes in his parable of the rich man and Lazarus, Lazarus was laid daily at the gate, “desiring to be fed with the crumbs which fell from the rich man’s table: moreover the dogs ... licked his sores.” (Luke 16:19–21.) Both examples are pitiful plights of humanity.
+I believe the Savior had great insight into problems such as this, for as he describes in his parable of the rich man and Lazarus, Lazarus was laid daily at the gate, “desiring to be fed with the crumbs which fell from the rich man’s table: moreover the dogs … licked his sores.” ([[Luke 16.19|Luke 16:19–21]][[Luke 16.20|]][[Luke 16.21|]].) Both examples are pitiful plights of humanity.
 
 Beset by problems, the elderly poor still cling fiercely to their pride; many will not ask relatives for extra help. They don’t want to be a burden.
 
 A popular song says:
 
-Old friends,
+>Old friends,
+>Old friends
+>Sat on their park bench
+>Like bookends, …
+>How terribly strange
+>To be seventy.
+>
 
-Old friends
-
-Sat on their park bench
-
-Like bookends, ...
-
-How terribly strange
-
-To be seventy.
-
-Paul Simon, “Old Friends”
-
-The Church is not without its fault in the care of the aged. This is not due to the principles or the teachings of the Church, but rather to the shortcomings of its members. I sat in a conference some years ago when Elder Matthew Cowley said, “A mother can take care of seven children, but seven children will not later take care of that same mother.” The Church has the solution to all of life’s problems. The Savior did not leave us without direction in caring for our wonderful senior Saints. He was our model. You recall his beautiful, compassionate experience with the widow in the city of Nain. (See Luke 7:11–15.)
+The Church is not without its fault in the care of the aged. This is not due to the principles or the teachings of the Church, but rather to the shortcomings of its members. I sat in a conference some years ago when Elder Matthew Cowley said, “A mother can take care of seven children, but seven children will not later take care of that same mother.” The Church has the solution to all of life’s problems. The Savior did not leave us without direction in caring for our wonderful senior Saints. He was our model. You recall his beautiful, compassionate experience with the widow in the city of Nain. (See [[Luke 7.11|Luke 7:11–15]][[Luke 7.12|]][[Luke 7.13|]][[Luke 7.14|]][[Luke 7.15|]].)
 
 Several years ago we lived in Garden Grove, California. I was a produce supervisor for a large grocery chain. I dropped by home and picked up my young son Lawrence, who was three at the time. We went out to visit a farm to see if we could procure produce for that company. I went into the sheds, examined the produce; then I was told that Jack, the farmer, was in the house. I went to the front door and rang the bell. A little lady, probably 85 years old, white-haired, frail, stood in the doorway.
 
@@ -55,7 +50,7 @@ I said, “Is Jack here?”
 
 “I guess so.”
 
-And then I said, “The Savior said, ‘I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live.’ (John 11:25.) And ‘In my Father’s house are many mansions: if it were not so, I would have told you.’” (John 14:2.) And I went on with several scriptures about the resurrection.
+And then I said, “The Savior said, ‘I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live.’ ([[John 11.25|John 11:25]].) And ‘In my Father’s house are many mansions: if it were not so, I would have told you.’” ([[John 14.2|John 14:2]].) And I went on with several scriptures about the resurrection.
 
 Then finally as I concluded I said, “Your husband will live again. He will be resurrected.” I said, “Do you believe that?” I couldn’t tell whether she did or not; I just knew she wasn’t comforted. So I said to her, “Do you believe in prayer?”
 
@@ -81,17 +76,15 @@ Let us review the program, the Lord’s program, for the care of our senior Sain
 
 Many can accept calls as couples to fill full-time missions. Others may be called upon to officiate in the temples. Some may visit the temple regularly to do endowment work. Genealogical research is fascinating, stimulating, and fulfilling. Many can and should be called to teach Primary, Sunday School, and Relief Society. Our youth love mature Saints as teachers because they have time to care. Bishops may call the brethren to be home teachers and the sisters to do Relief Society visiting teaching.
 
-Inasmuch as home teaching is never finished, many long-living men may help truly teach us by example what home teachers really should be. The Lord said, “He that loseth his life for my sake shall find it.” (Matt. 10:39.) Our senior Saints may well be called upon to bake and cook or render compassionate service during funerals or other times of stress and need.
+Inasmuch as home teaching is never finished, many long-living men may help truly teach us by example what home teachers really should be. The Lord said, “He that loseth his life for my sake shall find it.” ([[Matthew 10.39|Matt. 10:39]].) Our senior Saints may well be called upon to bake and cook or render compassionate service during funerals or other times of stress and need.
 
 Now, second, the family should do all they can do. Those who have mothers and fathers who are confined should care for them by furnishing those soul needs such as love, care, and tenderness. If you recall the words of the epitaph:
 
-Here lies David Elginbrod;
-
-Have mercy on him, God,
-
-As he would do if he were God
-
-And you were David Elginbrod.
+>Here lies David Elginbrod;
+>Have mercy on him, God,
+>As he would do if he were God
+>And you were David Elginbrod.
+>
 
 So we might also declare to you, try to understand them, try to anticipate their needs. Before you turn the financial responsibility of them over to the Church, state, or government, use every resource you or any member of your family has. Nursing home care provided by the Church was up 411 percent last year.
 
@@ -109,23 +102,17 @@ When I was stake president, we wanted the lonely, the heartsick, the despairing,
 
 I have a great friend who, when he was called to be a stake president, canceled the high council Christmas party and had a special Christmas party for the senior Saints in the stake. And then on Christmas morning he would call all of the widows in his stake who had no one who cared.
 
-Edgar A. Guest, in a great understanding of life, wrote many verses about home. Let me just extract a few from his great poem on home:
+Edgar A. Guest, in a great understanding of life, wrote many verses about home. Let me just extract a few from his great poem on home:
 
-Ye’ve got t’ weep t’ make it home, ye’ve got t’ sit an’ sigh.
-
-An’ watch beside a loved one’s bed, an’ know that Death is nigh;
-
-An’ in the stillness o’ the night t’ see Death’s angel come,
-
-An’ close the eyes o’ her that smiled, an’ leave her sweet voice dumb.
-
-For these are scenes that grip the heart, an’ when yer tears are dried,
-
-Ye find the home is dearer than it was, an’ sanctified;
-
-An’ tuggin’ at ye always are the pleasant memories
-
-O’ her that was an’ is no more—ye can’t escape from these.
+>Ye’ve got t’ weep t’ make it home, ye’ve got t’ sit an’ sigh.
+>An’ watch beside a loved one’s bed, an’ know that Death is nigh;
+>An’ in the stillness o’ the night t’ see Death’s angel come,
+>An’ close the eyes o’ her that smiled, an’ leave her sweet voice dumb.
+>For these are scenes that grip the heart, an’ when yer tears are dried,
+>Ye find the home is dearer than it was, an’ sanctified;
+>An’ tuggin’ at ye always are the pleasant memories
+>O’ her that was an’ is no more—ye can’t escape from these.
+>
 
 They may be pleasant memories, and they may not, depending on our care for them.
 
@@ -133,7 +120,10 @@ Stephen Horn, the president of California State University at Long Beach, said, 
 
 Life can be so full and rich for our beloved senior Saints with snowy crowns. We love you and care for you. You make life so rich and meaningful for us. We pledge to be what we should be in our relationship to you. In James we read:
 
-“Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction.” (James 1:27.)
+“Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction.” ([[James 1.27|James 1:27]].)
 
-“To visit the fatherless and widows in their affliction.” It is my prayer that we may be filled with pure love of Christ toward our beloved senior Saints. This is his church. I believe if he were here he would spend much time with them. May we follow in his footsteps. In the name of Jesus Christ. Amen.
+*“To visit the fatherless and widows in their affliction.”* It is my prayer that we may be filled with pure love of Christ toward our beloved senior Saints. This is his church. I believe if he were here he would spend much time with them. May we follow in his footsteps. In the name of Jesus Christ. Amen.
+
+
+
 

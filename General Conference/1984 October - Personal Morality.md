@@ -1,5 +1,6 @@
 # Personal Morality
-*By David B. Haight - Of the Quorum of the Twelve Apostles*
+
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -7,7 +8,7 @@
 
 Recently new temples were dedicated in Sydney, Australia, and in the Philippines.
 
-One of the inspired dedicatory prayers offered by President Gordon B. Hinckley implored God our Father to “bless thy saints in their faith ... [to] remain true as ... [a] covenant people ... , that they shall grow in wisdom” he continued, “both spiritual and temporal ... [that] they [shall] grow in virtue and in knowledge and in love for thee ... [and that] the evil designs of ... [thine] enemies be frustrated.” (Church News, 30 Sep. 1984, p. 10.)
+One of the inspired dedicatory prayers offered by President Gordon B. Hinckley implored God our Father to “bless thy saints in their faith … \[to\] remain true as … \[a\] covenant people … , that they shall grow in wisdom” he continued, “both spiritual and temporal … \[that\] they \[shall\] grow in virtue and in knowledge and in love for thee … \[and that\] the evil designs of … \[thine\] enemies be frustrated.” (*Church News,* 30 Sep. 1984, p. 10.)
 
 It is about the “evil designs of thine enemies” that I shall speak. I have prayed for spiritual guidance, and that I might be able to communicate to you in a thoughtful manner my frank and candid expressions of concern over the spreading of evil in our society today.
 
@@ -25,23 +26,23 @@ Cable television and satellite transmissions, with their powerful capacity for g
 
 Some may ask “What is pornography?” It was United States Supreme Court Justice Potter Stewart who said that while he could not exactly define pornography, “I know it when I see it,” he said. (Jacobellis v. Ohio, 378-U.S. 184, 1964.)
 
-Pornography is not a victimless crime. Who are its victims? First, those who either intentionally, or sometimes involuntarily, are exposed to it. Pornography is addictive. (See Ensign, March 1984, pp. 32–39.) What may begin as a curious exploration can become a controlling habit. Studies show that those who allow themselves to become drawn to pornography soon begin to crave even coarser content. Continued exposure desensitizes the spirit and can erode the conscience of unwary people. A victim becomes a slave to carnal thoughts and actions. As the thought is father to the deed, exposure can lead to acting out what is nurtured in the mind.
+Pornography is not a victimless crime. Who are its victims? First, those who either intentionally, or sometimes involuntarily, are exposed to it. Pornography is addictive. (See *Ensign,* March 1984, pp. 32–39.) What may begin as a curious exploration can become a controlling habit. Studies show that those who allow themselves to become drawn to pornography soon begin to crave even coarser content. Continued exposure desensitizes the spirit and can erode the conscience of unwary people. A victim becomes a slave to carnal thoughts and actions. As the thought is father to the deed, exposure can lead to acting out what is nurtured in the mind.
 
 But there are other victims. Crimes of violence have increased in the United States at up to five times the rate of population growth. A 1983 University of New Hampshire study found that states having the highest readership of pornographic magazines also have the highest number of reported rapes. Pornography degrades and exploits men, and women, and children in a most ugly and corrupt fashion.
 
-Perhaps the greatest tragedy of all is in the lives of children who become its victims. The saddest trend of our day is the alarming, large increase in child abuse. Much of it occurs within families and involves corrupting the divine innocence that children have from birth. We sing, as we did this morning, “I am a child of God, and he has sent me here. ... Lead me, guide me, walk beside me, help me find the way [that I might] live with him some day” are part of those words (“I Am a Child of God,” Sing With Me, B-76.) The Savior reserved His harshest condemnation for those who would offend little children. He said: “Take heed that ye despise not one of these little ones; for ... it is not the will of your Father which is in heaven, that one of these little ones should perish.” (Matt. 18:10, 14.)
+Perhaps the greatest tragedy of all is in the lives of children who become its victims. The saddest trend of our day is the alarming, large increase in child abuse. Much of it occurs within families and involves corrupting the divine innocence that children have from birth. We sing, as we did this morning, “I am a child of God, and he has sent me here. … Lead me, guide me, walk beside me, help me find the way \[that I might\] live with him some day” are part of those words (“I Am a Child of God,” *Sing with Me,* B-76.) The Savior reserved His harshest condemnation for those who would offend little children. He said: “Take heed that ye despise not one of these little ones; for … it is not the will of your Father which is in heaven, that one of these little ones should perish.” ([[Matthew 18.10|Matt. 18:10, 14]][[Matthew 18.14|]].)
 
-The Lord further commanded: “Neither commit adultery ... nor do anything like unto it.” (D&C 59:6.)
+The Lord further commanded: “Neither commit adultery … nor do anything like unto it.” ([[D&C 59.6|D&C 59:6]].)
 
-“The early apostles and prophets [warned against] sins that are reprehensible ... —adultery ... infidelity ... impurity, inordinate affection ... sexual relations outside of marriage ... sex perversion ... preoccupation with sex in one’s thoughts. ... And one of the worst of these [sins] is incest ... [or] sexual [relations] between persons so closely related that they are forbidden by law to marry.” (Spencer W. Kimball, President Kimball Speaks Out, Salt Lake City: Deseret Book Co., 1981, p. 6.) Incest is an ugly sin, and this sin particularly may irreparably damage its innocent victims.
+“The early apostles and prophets \[warned against\] sins that are reprehensible … —adultery, … infidelity, … impurity, inordinate affection, … sexual relations outside of marriage, … sex perversion, … preoccupation with sex in one’s thoughts. … \[And\] one of the worst of these \[sins\] is incest … \[or\] sexual \[relations\] between persons so closely related that they are forbidden by law to marry.” (Spencer W. Kimball, *President Kimball Speaks Out,* Salt Lake City: Deseret Book Co., 1981, p. 6.) Incest is an ugly sin, and this sin particularly may irreparably damage its innocent victims.
 
 Yet, what impels these offenders to such terrible deeds? Police report that some 80 percent of those who molest young boys and girls admitted modeling their attacks on pornography they had viewed.
 
-How has this evil gained such a foothold in our society? Have we ignored the warnings of our Church leaders? President Kimball declared: “So long as men are corrupt and revel in sewer filth, entertainers will sell them what they want. Laws may be passed, arrests may be made, lawyers may argue, courts may sentence ... men of corrupt minds, but pornography and ... insults to decency will never cease until men have cleansed their minds.
+How has this evil gained such a foothold in our society? Have we ignored the warnings of our Church leaders? President Kimball declared: “So long as men are corrupt and revel in sewer filth, entertainers will sell them what they want. Laws may be passed, arrests may be made, lawyers may argue, courts may sentence … men of corrupt minds, but pornography and … insults to decency will never cease until men have cleansed their minds.
 
-Continuing, President Kimball said, “When ... [man] is sick and tired of being drowned in filth, ... he will not pay for that filth and its source will dry up.
+Continuing, President Kimball said, “When … \[man\] is sick and tired of being drowned in filth, … he will not pay for that filth and its source will dry up.
 
-“Hence it is obvious,” he continued, “that to remain clean and worthy, one must stay positively and conclusively away from the devil’s territory, avoiding the least approach toward evil. Satan leaves his fingerprints.” (The Miracle of Forgiveness, Salt Lake City: Bookcraft, 1969, pp. 229, 232.)
+“Hence it is obvious,” he continued, “that to remain clean and worthy, one must stay positively and conclusively away from the devil’s territory, avoiding the least approach toward evil. Satan leaves his fingerprints.” (*The Miracle of Forgiveness,* Salt Lake City: Bookcraft, 1969, pp. 229, 232.)
 
 This growing presence of obscenity has been aided by the lowering of media standards for advertising, by relaxed movie ratings, by television soap operas and situation comedies that use their powerful voices to justify, glamorize, and encourage sexual relations outside of marriage.
 
@@ -63,11 +64,11 @@ Albert Camus wrote: “By your actions or your silence, you, too, enter the fray
 
 May I suggest a few things we could do to halt this deadly evil.
 
-First, let each of us resolve this day to keep our minds, our bodies, and our spirits free from the corrupting influence of pornography, including everything that is obscene and indecent. Let it have no place in our homes, our minds, or our hearts. The psalmist David wrote, “Who shall ascend into the hill of the Lord? or who shall stand in his holy place? He that hath clean hands, and a pure heart.” (Ps. 24:3–4.) If those who hear my voice have in their possession offensive materials that should be destroyed, let this be the day of decision and action. If someone listening has been tempted or has thought of, or even considered abusing or offending a child, may he, this day, confess and repent and forsake such evil thoughts or actions.
+First, let each of us resolve this day to keep our minds, our bodies, and our spirits free from the corrupting influence of pornography, including everything that is obscene and indecent. Let it have no place in our homes, our minds, or our hearts. The psalmist David wrote, “Who shall ascend into the hill of the Lord? or who shall stand in his holy place? He that hath clean hands, and a pure heart.” ([[Psalms 24.3|Ps. 24:3–4]][[Psalms 24.4|]].) If those who hear my voice have in their possession offensive materials that should be destroyed, let this be the day of decision and action. If someone listening has been tempted or has thought of, or even considered abusing or offending a child, may he, this day, confess and repent and forsake such evil thoughts or actions.
 
 James the Apostle and the brother of our Lord wrote:
 
-“Blessed is the man that endureth temptation. ... Let no man say when he is tempted, I am tempted of God: for God cannot be tempted with evil, neither tempteth he any man.” (James 1:12–13.)
+“Blessed is the man that endureth temptation. … Let no man say when he is tempted, I am tempted of God: for God cannot be tempted with evil, neither tempteth he any man.” ([[James 1.12|James 1:12–13]][[James 1.13|]].)
 
 Parents, discuss with your children of appropriate age, and in sensitive ways, the harmful effects and addictive nature of such material. Rigidly monitor the selection of television programs, movies, videocassettes, music, and other forms of entertainment for your family. Let us never, by purchasing these damaging materials, contribute to the financial success of those who deal in this material.
 
@@ -85,7 +86,10 @@ And fourth, where legislation is needed to meet new technological advances in ca
 
 And fifth, let us exercise our faith and prayerfully seek help from God our Father in this vital task. There are some who believe that the pornography industry is out of control, already too powerful to curb. I would disagree with this dim view, but recognize the immensity of the task before us. We know that people of good will, united in such a worthy cause, where the moral fiber of our nations may be at stake, and aided by divine power, can overcome any obstacle and meet any challenge to help our Lord and Savior to bring to pass the immortality and eternal life of man.
 
-“There is a line of demarcation,” said President George Albert Smith, “well defined, between the Lord’s territory and the devil’s. If you will stay on the Lord’s side of the line, you will be under his influence and will have no desire to do wrong; but if you cross to the devil’s side of the line one inch, you are in the tempter’s power, and if he is successful, you will not be able to think or even reason properly, because you will have lost the Spirit of the Lord.” (The Miracle of Forgiveness, p. 232.) As a man soweth, so shall he reap.
+“There is a line of demarcation,” said President George Albert Smith, “well defined, between the Lord’s territory and the devil’s. If you will stay on the Lord’s side of the line, you will be under his influence and will have no desire to do wrong; but if you cross to the devil’s side of the line one inch, you are in the tempter’s power, and if he is successful, you will not be able to think or even reason properly, because you will have lost the Spirit of the Lord.” (*The Miracle of Forgiveness,* p. 232.) As a man soweth, so shall he reap.
 
 May we strive to purify our personal lives, strengthen our homes—and not just talk about it, but strengthen our homes—and recognize the evil forces that are working through insidious ways to thwart our eternal progress, I humbly pray, as I declare the reality of our eternal Father in Heaven and His beloved Son Jesus Christ, our Savior and Redeemer. In His holy name, amen.
+
+
+
 

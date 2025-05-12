@@ -1,5 +1,6 @@
 # The Power to Make a Difference
-*By Richard G. Scott - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder Richard G. Scott - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -29,7 +30,7 @@ Two individuals trapped in the cross fire of intense feelings rarely can think c
 
 Three things are required to mend broken lines of communication and to heal hearts that once expressed deep feelings of pure love, respect, and trust.
 
-First, an understanding of the principles which bring happiness in marriage. They have been eloquently stated by President Spencer W. Kimball in many of his messages. Two noteworthy examples are printed in his book entitled Marriage (Salt Lake City: Deseret Book Co., 1978).
+First, an understanding of the principles which bring happiness in marriage. They have been eloquently stated by President Spencer W. Kimball in many of his messages. Two noteworthy examples are printed in his book entitled *Marriage* (Salt Lake City: Deseret Book Co., 1978).
 
 Second, a willingness to live worthily and to strive diligently to obey the commandments of God. Such a course allows our hearts and minds to be touched by divine guidance, and our efforts to be magnified by power from on high.
 
@@ -41,17 +42,20 @@ If you would be loved, love another. If you would be understood, show understand
 
 Yet, if we build another for selfish reasons, our acts cannot produce desirable fruits. Has not Jesus said:
 
-“Take heed that ye do not your alms before men, to be seen of them: otherwise ye have no reward of your Father which is in heaven. [Alms are righteous acts.]
+“Take heed that ye do not your alms before men, to be seen of them: otherwise ye have no reward of your Father which is in heaven. \[Alms are righteous acts.\]
 
-“Therefore when thou doest thine alms, do not sound a trumpet before thee, as the hypocrites, ... that they may have glory of men. Verily I say unto you, They have their reward.
+“Therefore when thou doest thine alms, do not sound a trumpet before thee, as the hypocrites, … that they may have glory of men. Verily I say unto you, They have their reward.
 
 “But when thou doest alms, let not thy left hand know what thy right hand doeth:
 
-“That thine alms may be in secret: and thy Father which seeth in secret himself shall reward thee openly.” (Matt. 6:1–4.)
+“That thine alms may be in secret: and thy Father which seeth in secret himself shall reward thee openly.” ([[Matthew 6.1|Matt. 6:1–4]][[Matthew 6.2|]][[Matthew 6.3|]][[Matthew 6.4|]].)
 
-I am convinced that when we give unconditional love; when our interest is first in serving, building, edifying, strengthening without thought of self; when we do not expect an automatic return for each act of kindness, generosity, or sincere effort to help; when we are not concerned about what we will receive or what others will say or whether our own burdens will be diminished, but selflessly seek to build another, the miracle of the power of the gospel is released in our lives. When we permit the Lord to work through us to bless others, that sacred experience releases power in our own lives, and miracles occur. Well did the Master say, “For inasmuch as ye do it unto the least of these, ye do it unto me.” (D&C 42:38.)
+I am convinced that when we give unconditional love; when our interest is first in serving, building, edifying, strengthening without thought of self; when we do not expect an automatic return for each act of kindness, generosity, or sincere effort to help; when we are not concerned about what we will receive or what others will say or whether our own burdens will be diminished, but selflessly seek to build another, the miracle of the power of the gospel is released in our lives. When we permit the Lord to work through us to bless others, that sacred experience releases power in our own lives, and miracles occur. Well did the Master say, “For inasmuch as ye do it unto the least of these, ye do it unto me.” ([[D&C 42.38|D&C 42:38]].)
 
 Respect and love must be earned, and there is no better way to earn them than to lift another.
 
 Begin now with your best effort. Reach out to another. You will feel the power of the Lord flow through you. Your own self-respect will return, and you can love yourself again. Your life will be enriched and given purpose, and you will be given the power to make a difference in everything around you. Of this I testify, in the name of Jesus Christ, amen.
+
+
+
 

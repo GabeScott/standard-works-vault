@@ -1,7 +1,10 @@
 # Repentance, a Blessing of Membership
-*By Richard G. Hinckley - Of the Seventy*
+
+By Elder Richard G. Hinckley - *Of the Seventy*
 
 *Given in the April session of the 2006 General Conference*
+
+>*Repentance … is not a harsh principle. … It is kind and merciful.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/04/repentance-a-blessing-of-membership?lang=eng)
 
@@ -17,7 +20,7 @@ I would like to speak to that same theme this evening. I invite each of you, you
 
 My list is already long, and I have selected just a single item from it to discuss this evening. I must save other topics for another place and time.
 
-I will speak briefly of the principle of repentance. How grateful I am for the understanding we have of this great principle. It is not a harsh principle, as I thought when I was a boy. It is kind and merciful. The Hebrew root of the word means, simply, “to turn,” or to return, to God. Jehovah pled with the children of Israel: “Return ... and I will not cause mine anger to fall upon you: for I am merciful ... and I will not keep anger for ever. Only acknowledge thine iniquity, that thou hast transgressed against the Lord thy God.”
+I will speak briefly of the principle of repentance. How grateful I am for the understanding we have of this great principle. It is not a harsh principle, as I thought when I was a boy. It is kind and merciful. The Hebrew root of the word means, simply, “to turn,”[^1] or to *re*turn, to God. Jehovah pled with the children of Israel: “Return … and I will not cause mine anger to fall upon you: for I am merciful … and I will not keep anger for ever. Only acknowledge thine iniquity, that thou hast transgressed against the Lord thy God.”[^2]
 
 When we acknowledge our sins, confess them and forsake them, and turn to God, He will forgive us.
 
@@ -25,5 +28,14 @@ While I was serving as mission president recently, two of our elders asked if I 
 
 The next day my wife and I attended her baptism and that of her little girl. The room was filled with friends from her ward, ready and anxious to stand by her as a new member of the Church. As we left that service, I was overwhelmed with a sense of gratitude for the magnificent principle of repentance and for the Atonement that makes it possible, for the miracle of conversion, for this great Church and its members, and for our missionaries.
 
-What does my membership in The Church of Jesus Christ of Latter-day Saints mean to me? It means everything. It influences, enlivens, permeates, and gives purpose and meaning to everything in life that is important to me: my relationship with God, my Eternal Father, and with His Holy Son, the Lord Jesus Christ. It teaches me that through obedience to the principles and ordinances of the gospel, I will find peace and happiness in this life and be invited to live in God’s presence, with my family, in the life that surely will follow mortality, where His mercy will satisfy the demands of justice and encircle me and mine, and you and yours, in the arms of safety. I so testify, in the name of Jesus Christ, amen.
+What does my membership in The Church of Jesus Christ of Latter-day Saints mean to me? It means everything. It influences, enlivens, permeates, and gives purpose and meaning to everything in life that is important to me: my relationship with God, my Eternal Father, and with His Holy Son, the Lord Jesus Christ. It teaches me that through obedience to the principles and ordinances of the gospel, I will find peace and happiness in this life and be invited to live in God’s presence, with my family, in the life that surely will follow mortality, where His mercy will satisfy the demands of justice and encircle me and mine, and you and yours, in the arms of safety.[^3] I so testify, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Joseph P. Healey, “Repentance,” in *The Anchor Bible Dictionary,* ed. David Noel Freedman, 6 vols. (1992), 5:671.
+
+[^2]: [[Jeremiah 3.12|Jeremiah 3:12–13]][[Jeremiah 3.13|]].
+
+[^3]: See [[Alma 34.16|Alma 34:16]].
 

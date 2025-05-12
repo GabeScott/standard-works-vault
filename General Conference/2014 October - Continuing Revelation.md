@@ -1,7 +1,10 @@
 # Continuing Revelation
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2014 General Conference*
+
+>*Human judgment and logical thinking will not be enough to get answers to the questions that matter most in life. We need revelation from God.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/10/continuing-revelation?lang=eng)
 
@@ -15,13 +18,13 @@ The very existence of the Church stems from a young boy knowing that was true. Y
 
 Not only was he then called of God to establish the true Church of Jesus Christ, but with it was restored the power to invoke the Holy Ghost so that revelation from God could be continuous.
 
-President Boyd K. Packer described that identifying mark of the true Church this way: “Revelation continues in the Church: the prophet receiving it for the Church; the president for his stake, his mission, or his quorum; the bishop for his ward; the father for his family; the individual for himself.”1
+President Boyd K. Packer described that identifying mark of the true Church this way: “Revelation continues in the Church: the prophet receiving it for the Church; the president for his stake, his mission, or his quorum; the bishop for his ward; the father for his family; the individual for himself.”[^1]
 
 That wonderful process of revelation begins, ends, and continues as we receive personal revelation. Let’s take the great Nephi, son of Lehi, as our example. His father had a dream. Others in Nephi’s family viewed Lehi’s dream as evidence of mental confusion. The dream included a command from God for Lehi’s sons to run the terrible risk of returning to Jerusalem for the plates which contained the word of God so that they could take them on their journey to the promised land.
 
-We often quote Nephi’s brave declaration when his father asked them to go back to Jerusalem. You know the words: “I will go and do the things which the Lord hath commanded.”2
+We often quote Nephi’s brave declaration when his father asked them to go back to Jerusalem. You know the words: “I will go and do the things which the Lord hath commanded.”[^2]
 
-When Lehi heard Nephi speak those words, the scripture says that “he was exceedingly glad.”3 He was glad because he knew that Nephi had been blessed with confirming revelation that his father’s dream was a true communication from God. Nephi did not say, “I will go and do what my father told me to do.” Rather he said, “I will go and do the things which the Lord hath commanded.”
+When Lehi heard Nephi speak those words, the scripture says that “he was exceedingly glad.”[^3] He was glad because he knew that Nephi had been blessed with confirming revelation that his father’s dream was a true communication from God. Nephi did not say, “I will go and do what my father told me to do.” Rather, he said, “I will go and do the things which the Lord hath commanded.”
 
 From your experience in your own families, you also know why Lehi was “exceedingly glad.” His joy came from knowing that Nephi had received confirming revelation.
 
@@ -55,7 +58,7 @@ That personal revelation of acceptance, for which we all long, does not come eas
 
 “Let thy bowels also be full of charity towards all men, and to the household of faith, and let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven.
 
-“The Holy Ghost shall be thy constant companion.”4
+“The Holy Ghost shall be thy constant companion.”[^4]
 
 From that I draw counsel for us all. Don’t take lightly the feeling you get of love for the prophet of God. Wherever I go in the Church, whoever the prophet is at the time, members will ask, “When you get back to Church headquarters, will you please tell the prophet how much we love him?”
 
@@ -77,13 +80,28 @@ I assured her that her husband would be honored by her company in the temple bec
 
 She knew by the gift of the Spirit that God had given, through His prophet, a supernal trust to the husband she loved. She knew for herself that the keys to give that sealing power were held by a man she had never seen and yet knew for herself was the living prophet of God. She knew, without having to be told by any living witness, that the prophet had prayed over the name of her husband. She knew for herself that God had made the call.
 
-She also knew that the ordinances her husband would perform would bind people for eternity in the celestial kingdom. She had confirmed to her mind and heart that the promise the Lord made to Peter still continued in the Church: “Whatsoever thou shalt bind on earth shall be bound in heaven.”5 She knew that for herself, by revelation, from God.
+She also knew that the ordinances her husband would perform would bind people for eternity in the celestial kingdom. She had confirmed to her mind and heart that the promise the Lord made to Peter still continued in the Church: “Whatsoever thou shalt bind on earth shall be bound in heaven.”[^5] She knew that for herself, by revelation, from God.
 
-Let us go back to our starting point. “Revelation continues in the Church: the prophet receiving it for the Church; the president for his stake, his mission, or his quorum; the bishop for his ward; the father for his family; the individual for himself.”6
+Let us go back to our starting point. “Revelation continues in the Church: the prophet receiving it for the Church; the president for his stake, his mission, or his quorum; the bishop for his ward; the father for his family; the individual for himself.”[^6]
 
 I bear you my witness that is true. Heavenly Father hears your prayers. He loves you. He knows your name. Jesus is the Christ, the Son of God, and our Redeemer. He loves you beyond your ability to comprehend.
 
-God pours out revelation, through the Holy Ghost, on His children. He speaks to His prophet on the earth, who today is Thomas S. Monson. I witness that he holds and exercises all the keys of the priesthood on earth.
+God pours out revelation, through the Holy Ghost, on His children. He speaks to His prophet on the earth, who today is Thomas S. Monson. I witness that he holds and exercises all the keys of the priesthood on earth.
 
 As you listen in this conference to the words of those God has called to speak for Him, I pray that you will receive the confirming revelation you need to find your way on the journey home again, to dwell with Him in a sealed family forever. In the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: Boyd K. Packer, “We Believe All That God Has Revealed,” *Ensign,* May 1974, 95.
+
+[^2]: [[1 Nephi 3.7|1 Nephi 3:7]].
+
+[^3]: [[1 Nephi 3.8|1 Nephi 3:8]].
+
+[^4]: [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
+
+[^5]: [[Matthew 16.19|Matthew 16:19]].
+
+[^6]: Boyd K. Packer, *Ensign,* May 1974, 95.
 

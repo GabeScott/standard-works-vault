@@ -1,5 +1,6 @@
 # Purify Our Minds and Spirits
-*By By Bishop H. Burke Peterson - First Counselor in the Presiding Bishopric*
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -31,11 +32,11 @@ There are two things we must do. First, we must stop the flow into our minds of 
 
 Vulgarity appears in many ways. We live in a society where profanity and vulgarity are accepted means of conduct and expression—even a way of life for some. I remember being in a business meeting some years ago with a group of men who were well educated, competent in their professions, and friendly to all—but their language was a dialogue in profanity.
 
-Brother Boyd K. Packer has said, “The reality of profanity does not argue for the toleration of it” (New Era, Jan. 1976, p. 5). We are the victims of a vile habit. I would suggest that some are misled who think vulgarity occurs only now and then when a person utters obviously crude or offensive words. Vulgarity is not so rare as it should be. It is sustained by constant exposure to a steady diet of vulgar and filthy experiences. We might consider vulgarity in a couple of ways: first, as an expression of personal weakness, and second, as a contribution to personal weakness.
+Brother Boyd K. Packer has said, “The reality of profanity does not argue for the toleration of it” (*New Era,* Jan. 1976, p. 5). We are the victims of a vile habit. I would suggest that some are misled who think vulgarity occurs only now and then when a person utters obviously crude or offensive words. Vulgarity is not so rare as it should be. It is sustained by constant exposure to a steady diet of vulgar and filthy experiences. We might consider vulgarity in a couple of ways: first, *as an expression of* personal weakness, and second, *as a contribution to* personal weakness.
 
 Some demonstrate or express a personal weakness when they tell jokes or stories about the body and its functions, when they joke about or make suggestive comments concerning women or girls, when they are casual about sacred things. There is vulgarity when some speak crudely of body parts or sexual matters. Too often, common slang, even gutter terms, are used by brethren of the priesthood—ofttimes anger is used as an excuse for such utterance. This is wrong. No one need swear or be vulgar at any time.
 
-Some contribute to this personal weakness when they read or experience filthy magazines, vulgar movies or television shows, or remain in a group where unclean discussions occur. Each of these kinds of experiences will weaken any spirit, will make it less able to withstand “the fiery darts” of the adversary (Eph. 6:16).
+Some contribute to this personal weakness when they read or experience filthy magazines, vulgar movies or television shows, or remain in a group where unclean discussions occur. Each of these kinds of experiences will weaken any spirit, will make it less able to withstand “the fiery darts” of the adversary ([[Ephesians 6.16|Eph. 6:16]]).
 
 Now, brethren of the priesthood, there should not be any X- or R-rated movies that we participate in viewing or talking about. There must be no pornographic magazines, pictures, or stories, no re-telling of filthy jokes or crude experiences. Once in a while we should stop and ask ourselves, “In whose army are we fighting? Whose battle lines are we defending?” Do you have the courage to walk out of an off-color PG-rated movie—or do you watch and listen, and suggest to yourself, “This soon will pass,” or “Everyone is doing it; it must be an acceptable type of entertainment”? Have you the courage to keep out of your home some television shows that are filled with suggestive sexual conversation—and even experiences? Have you thought lately how effective these shows are in piercing even the strongest spirits? Brethren, we must not feed ourselves a diet of trash!
 
@@ -43,21 +44,24 @@ Now, assuming we have cut off the flow—not cut it down, but cut it off—the s
 
 The secret to cleansing our spirit of whatever the impurity is not very complicated. It begins with prayer every morning and ends with prayer every night. This is the most important step I know in the cleansing process. It may simply be a prayer for strength to turn from bad habits—remembering that all prayers are not answered the next day. With this step in place, I have seen hundreds of miracles take place. Without it, there is continued frustration, unhappiness, ineffectiveness, and despair.
 
-Secondly, an added refinement will come in the filtering process: An added measure of spiritual purity, if you please, can be found in a daily study of the scriptures—not long, perhaps, but every day. If I were an Aaronic Priesthood boy, I would start reading the scriptures tonight and never let a day pass without reading some in them. This was a commitment President Kimball made over seventy years ago when he was your age.
+Secondly, an added refinement will come in the filtering process: An added measure of spiritual purity, if you please, can be found in a daily study of the scriptures—not long, perhaps, but *every day.* If I were an Aaronic Priesthood boy, I would start reading the scriptures tonight and never let a day pass without reading some in them. This was a commitment President Kimball made over seventy years ago when he was your age.
 
-Third, feed refreshment to your spirit that comes when you do something good for another that he or she doesn’t expect. Keep it simple, but do it—daily. It may only be a cheery hello, a short visit to a homebound, a phone call, or a note. Maybe even picking up your dirty socks will thrill an unsuspecting mother or wife. According to the scripture, a disciple of the Savior is first a servant to others (see Matt. 20:27).
+Third, feed refreshment to your spirit that comes when you do something good for another that he or she doesn’t expect. Keep it simple, but *do* it—daily. It may only be a cheery hello, a short visit to a homebound, a phone call, or a note. Maybe even picking up your dirty socks will thrill an unsuspecting mother or wife. According to the scripture, a disciple of the Savior is first a servant to others (see [[Matthew 20.27|Matt. 20:27]]).
 
 And finally, pick up a commandment you are still struggling with and give it an honest chance to bless your life.
 
 This, then, is the secret to a happy and productive life and to the eternal rewards of a loving Father in Heaven:
 
-First, stop the flow of polluted thoughts. Be far more selective of the experiences we feed the great reservoir of our mind.
+*First,* stop the flow of polluted thoughts. Be far more selective of the experiences we feed the great reservoir of our mind.
 
-Second, develop an effective filtering system that will remove the impurities and cleanse the spirit.
+*Second,* develop an effective filtering system that will remove the impurities and cleanse the spirit.
 
-And so, brethren, the cry goes out: Gird for the battle. Take off the apparel of the world and clothe yourselves in the armor of righteousness. Let the priesthood authority you now hold become a powerful influence for good in your homes, in your wards and quorums, in your communities, and in your countries. Power in the priesthood is a product of righteousness; it is not an unearned gift.
+And so, brethren, the cry goes out: Gird for the battle. Take off the apparel of the world and clothe yourselves in the armor of righteousness. Let the priesthood authority you now hold become a powerful influence for good in your homes, in your wards and quorums, in your communities, and in your countries. Power in the priesthood is a *product* of righteousness; it is *not* an unearned gift.
 
-A short time ago in a temple meeting, President Romney closed his testimony with the prayer that he would forever be found faithful in defending his part of the battle line. In testifying tonight that the Savior is at the head of this priesthood army and of the work for which we are responsible, I, too, add my prayer that we will each be found faithful in the things with which we have been entrusted. For the Lord said, “O ye that embark in the service of God, see that ye serve him with all your heart, might, mind, and strength, that ye may stand blameless before God at the last day” (D&C 4:2).
+A short time ago in a temple meeting, President Romney closed his testimony with the prayer that he would forever be found faithful in defending his part of the battle line. In testifying tonight that the Savior is at the head of this priesthood army and of the work for which we are responsible, I, too, add my prayer that we will each be found faithful in the things with which we have been entrusted. For the Lord said, “O ye that embark in the service of God, see that ye serve him with all your heart, might, mind, and strength, that ye may stand blameless before God at the last day” ([[D&C 4.2|D&C 4:2]]).
 
 My brethren, as your friend and brother, I plead with you to prepare as you have never prepared before, in the name of Jesus Christ, amen.
+
+
+
 

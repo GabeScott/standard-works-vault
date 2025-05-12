@@ -1,5 +1,6 @@
 # Do We All Believe in the Same God?
-*By F. Enzio Busche - Of the First Quorum of the Seventy*
+
+By Elder F. Enzio Busche - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -19,35 +20,38 @@ He is fighting, with all of his knowledge, to lead men astray as they exercise t
 
 If we do not decide to search out and accept the truth in the only way authorized by God, with all our might, mind, and strength, even when it means changing our lives completely, we will have built our house on sand. The half-truths of men, often mingled with scripture, are sometimes strong enough to fulfill the expectations of the people for a season or for a generation, but they can neither bring them along the path of exaltation and eternal life nor bring satisfying answers to the demanding problems of mankind in these days.
 
-Receiving and accepting Jesus Christ and his plan of salvation in its fulness and its truth means leaving the world and its earthly desires behind and building Zion around ourselves. When Christ walked the earth to prepare the way for his disciples, standing in purity and bearing testimony of the truth, he was a light in the darkness, and the darkness knew him not (see John 1:5). The darkness organized itself to destroy him. Christ knew that this would happen, not only to him but also to all his true disciples. He said, in speaking to his followers, in Matthew 10:22, “And ye shall be hated of all men for my name’s sake.”
+Receiving and accepting Jesus Christ and his plan of salvation in its fulness and its truth means leaving the world and its earthly desires behind and building Zion around ourselves. When Christ walked the earth to prepare the way for his disciples, standing in purity and bearing testimony of the truth, he was a light in the darkness, and the darkness knew him not (see [[John 1.5|John 1:5]]). The darkness organized itself to destroy him. Christ knew that this would happen, not only to him but also to all his true disciples. He said, in speaking to his followers, in [[Matthew 10.22|Matthew 10:22]], “And ye shall be hated of all men for my name’s sake.”
 
-When we really follow Christ in his true restored church, it will be manifested in our lives. The fruit will follow. The Holy Ghost will lead us to make uncomfortable decisions, to develop true love and faith by learning to sacrifice and to discipline ourselves. Our abilities will grow and will bring satisfaction and joy and happiness. Through the instrument of an ongoing communication with our Heavenly Father—a constant prayer in our hearts for direction in the many little decisions in our lives—we feel the softness of the yoke of Christ, as he said in Matthew 11:28, 30:
+When we really follow Christ in his true restored church, it will be manifested in our lives. The fruit will follow. The Holy Ghost will lead us to make uncomfortable decisions, to develop true love and faith by learning to sacrifice and to discipline ourselves. Our abilities will grow and will bring satisfaction and joy and happiness. Through the instrument of an ongoing communication with our Heavenly Father—a constant prayer in our hearts for direction in the many little decisions in our lives—we feel the softness of the yoke of Christ, as he said in [[Matthew 11.28|Matthew 11:28, 30]][[Matthew 11.30|]]:
 
-“Come unto me, all ye that labour and are heavy laden, and I will give you rest. ...
+“Come unto me, all ye that labour and are heavy laden, and I will give you rest. …
 
 “For my yoke is easy, and my burden is light.”
 
 We will be led to live our lives his way and not the world’s way.
 
-The men of the world feel secure with the question “Don’t we all believe in the same God?” The answer to the question is “No.” The deceiver has initiated all kinds of philosophies and religions to lead people astray, to make them feel happy and safe in their man-made rationalizing and wickedness. He wants them to forget that someday we all have to stand in the judgment of Christ and report our deeds and words. The Savior said in Matthew 12:36, “But I say unto you, That every idle word that men shall speak, they shall give account thereof in the day of judgment.”
+The men of the world feel secure with the question “Don’t we all believe in the same God?” The answer to the question is “No.” The deceiver has initiated all kinds of philosophies and religions to lead people astray, to make them feel happy and safe in their man-made rationalizing and wickedness. He wants them to forget that someday we all have to stand in the judgment of Christ and report our deeds and words. The Savior said in [[Matthew 12.36|Matthew 12:36]], “But I say unto you, That every idle word that men shall speak, they shall give account thereof in the day of judgment.”
 
-We are living in the glorious days of fulfillment eagerly awaited by the prophets of old—Enoch, Isaiah, Daniel, Paul, and many others. In our day the works of the deceiver of all the ages are being revealed by Christ through a living prophet. The disciples of Christ—the Saints of the latter days under the leadership of a living prophet, even Spencer W. Kimball—are taking the offensive to show the world the fruits of righteous living in the gospel of Jesus Christ. We testify with the angels that these are the days of warning for the people of the nations of the world, and that the time is near when it will be too late. We testify with the words of Amulek, a Book of Mormon prophet, recorded in Alma 34:32–33 and 35:
+We are living in the glorious days of fulfillment eagerly awaited by the prophets of old—Enoch, Isaiah, Daniel, Paul, and many others. In our day the works of the deceiver of all the ages are being revealed by Christ through a living prophet. The disciples of Christ—the Saints of the latter days under the leadership of a living prophet, even Spencer W. Kimball—are taking the offensive to show the world the fruits of righteous living in the gospel of Jesus Christ. We testify with the angels that these are the days of warning for the people of the nations of the world, and that the time is near when it will be too late. We testify with the words of Amulek, a Book of Mormon prophet, recorded in [[Alma 34.32|Alma 34:32–33]][[Alma 34.33|]] and [[Alma 35.1|35]][[Alma 35.2|]][[Alma 35.3|]][[Alma 35.4|]][[Alma 35.5|]][[Alma 35.6|]][[Alma 35.7|]][[Alma 35.8|]][[Alma 35.9|]][[Alma 35.10|]][[Alma 35.11|]][[Alma 35.12|]][[Alma 35.13|]][[Alma 35.14|]][[Alma 35.15|]][[Alma 35.16|]]:
 
-“For behold, this life is the time for men ... to perform their labors.
+“For behold, this life is the time for men … to perform their labors.
 
-“And now, as I have said unto you before, as ye have had so many witnesses, therefore, I beseech of you that ye do not procrastinate the day of your repentance until the end; ...
+“And now, as I have said unto you before, as ye have had so many witnesses, therefore, I beseech of you that ye do not procrastinate the day of your repentance until the end; …
 
 “For behold, if ye have procrastinated the day of your repentance even until death, behold, ye have become subjected to the spirit of the devil, and he doth seal you his; therefore, the Spirit of the Lord hath withdrawn from you, and hath no place in you, and the devil hath all power over you; and this is the final state of the wicked.”
 
 The saving priesthood powers from above operate only through the principle of the righteousness of men. These powers are working through the innocent and the pure in heart as prophesied since the days of old. Thirty thousand missionaries are sent out to teach with this power, searching for those who are seeking the eternal principles of truth that they have been waiting for during their whole lifetime. Hundreds of thousands of priesthood holders and women witness daily—through their righteous lives, their example, and their testimonies—that they have been sealed by the Holy Ghost with the knowledge that these things are true, that the kingdom of God is in the process of establishment in these days to prepare for the second coming of the Savior.
 
-With great excitement, the disciples of Christ in these last days are learning to accept the word given to the Prophet Joseph Smith in Doctrine & Covenants 58:64:
+With great excitement, the disciples of Christ in these last days are learning to accept the word given to the Prophet Joseph Smith in [[D&C 58.64|Doctrine & Covenants 58:64]]:
 
 “For, verily, the sound must go forth from this place into all the world, and unto the uttermost parts of the earth—the gospel must be preached unto every creature, with signs following them that believe.”
 
-This work in these latter days is bringing to pass the prophecy of the prophet Enoch, the seventh from Adam, recorded in the Pearl of Great Price, Moses 7:62:
+This work in these latter days is bringing to pass the prophecy of the prophet Enoch, the seventh from Adam, recorded in the Pearl of Great Price, [[Moses 7.62|Moses 7:62]]:
 
 “And righteousness will I send down out of heaven; and truth will I send forth out of the earth, to bear testimony of mine Only Begotten; his resurrection from the dead; yea, and also the resurrection of all men; and righteousness and truth will I cause to sweep the earth as with a flood, to gather out mine elect from the four quarters of the earth, unto a place which I shall prepare, an Holy City, that my people may gird up their loins, and be looking forth for the time of my coming; for there shall be my tabernacle, and it shall be called Zion, a New Jerusalem.”
 
-My dear brothers and sisters, I bear you my testimony that this is the day of the establishment of the kingdom of Christ on this earth—that nobody will be able to escape the decision to accept God as he really is and not as he has been made to appear according to man-made philosophies. I know that this is the work of the living God, working through a living prophet, Spencer W. Kimball. I say this in humility in the name of our Savior, Jesus Christ, amen.
+My dear brothers and sisters, I bear you my testimony that this is the day of the establishment of the kingdom of Christ on this earth—that nobody will be able to escape the decision to accept God as he really is and not as he has been made to appear according to man-made philosophies. I know that this is the work of the living God, working through a living prophet, Spencer W. Kimball. I say this in humility in the name of our Savior, Jesus Christ, amen.
+
+
+
 

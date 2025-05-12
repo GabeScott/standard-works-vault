@@ -1,7 +1,10 @@
 # Legacy of Encouragement
-*By Henry B. Eyring - Second Counselor in the First Presidency*
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2022 General Conference*
+
+>*I encourage you to continue striving to qualify to return to Heavenly Father and Jesus Christ.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/10/51eyring?lang=eng)
 
@@ -17,17 +20,17 @@ She felt that He was close to her. In the days she knew she was about to die, sh
 
 She is now in the spirit world. She was able to keep her eyes on the prize she wanted despite years of physical and personal trial.
 
-The legacy of encouragement she left for us is best described in Moroni 7, where Mormon encourages his son Moroni and his people. It is a legacy of encouragement to a posterity as was my mother’s to her family. Mormon passed that legacy of encouragement to all who have a determination to qualify, through all their mortal tests, for eternal life.
+The legacy of encouragement she left for us is best described in [[Moroni 7.1|Moroni 7]][[Moroni 7.2|]][[Moroni 7.3|]][[Moroni 7.4|]][[Moroni 7.5|]][[Moroni 7.6|]][[Moroni 7.7|]][[Moroni 7.8|]][[Moroni 7.9|]][[Moroni 7.10|]][[Moroni 7.11|]][[Moroni 7.12|]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]][[Moroni 7.18|]][[Moroni 7.19|]][[Moroni 7.20|]][[Moroni 7.21|]][[Moroni 7.22|]][[Moroni 7.23|]][[Moroni 7.24|]][[Moroni 7.25|]][[Moroni 7.26|]][[Moroni 7.27|]][[Moroni 7.28|]][[Moroni 7.29|]][[Moroni 7.30|]][[Moroni 7.31|]][[Moroni 7.32|]][[Moroni 7.33|]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]][[Moroni 7.38|]][[Moroni 7.39|]][[Moroni 7.40|]][[Moroni 7.41|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]], where Mormon encourages his son Moroni and his people. It is a legacy of encouragement to a posterity as was my mother’s to her family. Mormon passed that legacy of encouragement to all who have a determination to qualify, through all their mortal tests, for eternal life.
 
-Mormon begins in the first verses of Moroni 7 with a testimony of Jesus Christ, of angels, and of the Spirit of Christ, which allows us to know good from evil and so be able to choose the right.
+Mormon begins in the first verses of [[Moroni 7.1|Moroni 7]][[Moroni 7.2|]][[Moroni 7.3|]][[Moroni 7.4|]][[Moroni 7.5|]][[Moroni 7.6|]][[Moroni 7.7|]][[Moroni 7.8|]][[Moroni 7.9|]][[Moroni 7.10|]][[Moroni 7.11|]][[Moroni 7.12|]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]][[Moroni 7.18|]][[Moroni 7.19|]][[Moroni 7.20|]][[Moroni 7.21|]][[Moroni 7.22|]][[Moroni 7.23|]][[Moroni 7.24|]][[Moroni 7.25|]][[Moroni 7.26|]][[Moroni 7.27|]][[Moroni 7.28|]][[Moroni 7.29|]][[Moroni 7.30|]][[Moroni 7.31|]][[Moroni 7.32|]][[Moroni 7.33|]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]][[Moroni 7.38|]][[Moroni 7.39|]][[Moroni 7.40|]][[Moroni 7.41|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]] with a testimony of Jesus Christ, of angels, and of the Spirit of Christ, which allows us to know good from evil and so be able to choose the right.
 
 He puts Jesus Christ first, as do all who succeed in giving encouragement to those struggling upward on the path to their heavenly home:
 
 “For no man can be saved, according to the words of Christ, save they shall have faith in his name; wherefore, if these things have ceased, then has faith ceased also; and awful is the state of man, for they are as though there had been no redemption made.
 
-“But behold, my beloved brethren, I judge better things of you, for I judge that ye have faith in Christ because of your meekness; for if ye have not faith in him then ye are not fit to be numbered among the people of his church.”1
+“But behold, my beloved brethren, I judge better things of you, for I judge that ye have faith in Christ because of your meekness; for if ye have not faith in him then ye are not fit to be numbered among the people of his church.”[^1]
 
-Mormon saw meekness as evidence of the strength of their faith. He saw that they felt dependent on the Savior. He encouraged them by noting that faith. Mormon continued giving them encouragement by helping them see that their faith and meekness would build their assurance and their confidence of success in their struggle:
+Mormon saw meekness as evidence of the strength of their faith. He saw that they felt dependent on the Savior. He encouraged them by noting *that* faith. Mormon continued giving them encouragement by helping them see that their faith and meekness would build their assurance and their confidence of success in their struggle:
 
 “And again, my beloved brethren, I would speak unto you concerning hope. How is it that ye can attain unto faith, save ye shall have hope?
 
@@ -35,11 +38,11 @@ Mormon saw meekness as evidence of the strength of their faith. He saw that they
 
 “Wherefore, if a man have faith he must needs have hope; for without faith there cannot be any hope.
 
-“And again, behold I say unto you that he cannot have faith and hope, save he shall be meek, and lowly of heart.”2
+“And again, behold I say unto you that he cannot have faith and hope, save he shall be meek, and lowly of heart.”[^2]
 
 Mormon then encourages them by testifying that they are on the way to receiving the gift of their hearts being filled with the pure love of Christ. He weaves together for them the interactions of faith in Jesus Christ, meekness, humility, the Holy Ghost, and the firm hope of receiving eternal life. He encourages them this way:
 
-“For none is acceptable before God, save the meek and lowly in heart; and if a man be meek and lowly in heart, and confesses by the power of the Holy Ghost that Jesus is the Christ, he must needs have charity; for if he have not charity he is nothing; wherefore he must needs have charity.”3
+“For none is acceptable before God, save the meek and lowly in heart; and if a man be meek and lowly in heart, and confesses by the power of the Holy Ghost that Jesus is the Christ, he must needs have charity; for if he have not charity he is nothing; wherefore he must needs have charity.”[^3]
 
 Looking back, I now see how that gift of charity—the pure love of Christ—strengthened, guided, sustained, and changed my mother in the struggle on her way home.
 
@@ -49,7 +52,7 @@ Looking back, I now see how that gift of charity—the pure love of Christ—str
 
 “But charity is the pure love of Christ, and it endureth forever; and whoso is found possessed of it at the last day, it shall be well with him.
 
-“Wherefore, my beloved brethren, pray unto the Father with all the energy of heart, that ye may be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ; that ye may become the sons of God; that when he shall appear we shall be like him, for we shall see him as he is; that we may have this hope; that we may be purified even as he is pure.”4
+“Wherefore, my beloved brethren, pray unto the Father with all the energy of heart, that ye may be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ; that ye may become the sons of God; that when he shall appear we shall be like him, for we shall see him as he is; that we may have this hope; that we may be purified even as he is pure.”[^4]
 
 I am grateful for the encouragement of Mormon’s example and teaching. I have been blessed as well by my mother’s legacy. Prophets from Adam to the present day, through teaching and by example, have strengthened me.
 
@@ -57,9 +60,9 @@ Out of deference to those I know personally and their families, I have chosen no
 
 At the risk of invading her privacy, I will add a brief report of the encouragement of my wife. I do so carefully. She is a private person who neither seeks nor appreciates praise.
 
-We have been married for 60 years. It is because of that experience that I now understand the meaning of these scriptural words: faith, hope, meekness, enduring, seeking not our own, rejoicing in the truth, not thinking evil, and above all, charity.5 On the basis of that experience, I can bear testimony that apparently ordinary human beings can take all of those wonderful ideals into their daily lives as they rise through the buffetings of life.
+We have been married for 60 years. It is because of that experience that I now understand the meaning of these scriptural words: faith, hope, meekness, enduring, seeking not our own, rejoicing in the truth, not thinking evil, and above all, charity.[^5] On the basis of that experience, I can bear testimony that apparently ordinary human beings can take all of those wonderful ideals into their daily lives as they rise through the buffetings of life.
 
-Millions of you listening know such people. Many of you are such people. All of us need such encouraging examples and loving friends.
+Millions of you listening know such people. Many of you *are* such people. All of us need such encouraging examples and loving friends.
 
 When you sit with someone as their ministering sister or brother, you represent the Lord. Think of what He would do or say. He would invite them to come unto Him. He would encourage them. He would notice and praise the beginning of the changes they will need to make. And He would be the perfect example for them to emulate.
 
@@ -73,5 +76,18 @@ I pray that you will accept His invitation and that you will offer it to others 
 
 I pray for our missionaries across the world. May they be inspired to encourage each person to want and to believe that the invitation is from Jesus Christ through His servants who have taken His name upon them.
 
-I testify that He lives and leads His Church. I am His witness. President Russell M. Nelson is the living prophet of God for all the earth. I know that is true. In the sacred name of Jesus Christ, amen.
+I testify that He lives and leads His Church. I am His witness. President Russell M. Nelson is the living prophet of God for all the earth. I know that is true. In the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Moroni 7.38|Moroni 7:38–39]][[Moroni 7.39|]].
+
+[^2]: [[Moroni 7.40|Moroni 7:40–43]][[Moroni 7.41|]][[Moroni 7.42|]][[Moroni 7.43|]].
+
+[^3]: [[Moroni 7.44|Moroni 7:44]].
+
+[^4]: [[Moroni 7.45|Moroni 7:45–48]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]].
+
+[^5]: See [[1 Corinthians 13.1|1 Corinthians 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]]; [[Moroni 7.1|Moroni 7]][[Moroni 7.2|]][[Moroni 7.3|]][[Moroni 7.4|]][[Moroni 7.5|]][[Moroni 7.6|]][[Moroni 7.7|]][[Moroni 7.8|]][[Moroni 7.9|]][[Moroni 7.10|]][[Moroni 7.11|]][[Moroni 7.12|]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]][[Moroni 7.18|]][[Moroni 7.19|]][[Moroni 7.20|]][[Moroni 7.21|]][[Moroni 7.22|]][[Moroni 7.23|]][[Moroni 7.24|]][[Moroni 7.25|]][[Moroni 7.26|]][[Moroni 7.27|]][[Moroni 7.28|]][[Moroni 7.29|]][[Moroni 7.30|]][[Moroni 7.31|]][[Moroni 7.32|]][[Moroni 7.33|]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]][[Moroni 7.38|]][[Moroni 7.39|]][[Moroni 7.40|]][[Moroni 7.41|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]].
 

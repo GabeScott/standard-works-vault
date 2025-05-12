@@ -1,7 +1,10 @@
 # Bearing Witness of Jesus Christ in Word and Actions
-*By Adilson de Paula Parrella - Of the Seventy*
+
+By Elder Adilson de Paula Parrella - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
+
+>*As we strive to live our lives in harmony with the gospel of Jesus Christ, our conduct will be a living testimony of our Redeemer.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/10/43parrella?lang=eng)
 
@@ -11,13 +14,13 @@ When ministering to and teaching the people in the Americas after His Resurrecti
 
 “Have they not read the scriptures, which say ye must take upon you the name of Christ, which is my name? For by this name shall ye be called at the last day;
 
-“And whoso taketh upon him my name, and endureth to the end, the same shall be saved at the last day.”1
+“And whoso taketh upon him my name, and endureth to the end, the same shall be saved at the last day.”[^1]
 
-President Russell M. Nelson has taught us that “taking the Savior’s name upon us includes declaring and witnessing to others—through our actions and our words—that Jesus is the Christ.”2
+President Russell M. Nelson has taught us that “taking the Savior’s name upon us includes declaring and witnessing to others—through our actions and our words—that Jesus is the Christ.”[^2]
 
-As members of The Church of Jesus Christ of Latter-day Saints, we have the blessing and privilege to stand as witnesses of the Lord and His name everywhere we are.3 As we strive to live our lives in harmony with the gospel of Jesus Christ, our conduct will be a living testimony of our Redeemer and His name. Moreover, we witness of Christ in word by sharing with others what we believe, feel, or know of Jesus Christ.
+As members of The Church of Jesus Christ of Latter-day Saints, we have the blessing and privilege to stand as witnesses of the Lord and His name everywhere we are.[^3] As we strive to live our lives in harmony with the gospel of Jesus Christ, our conduct will be a living testimony of our Redeemer and His name. Moreover, we witness of Christ in word by sharing with others what we believe, feel, or know of Jesus Christ.
 
-When we humbly share our testimony of the Lord through our words and actions, the Holy Ghost confirms4 to those with real intent, open hearts, and willing minds that Jesus is indeed the Christ.5
+When we humbly share our testimony of the Lord through our words and actions, the Holy Ghost confirms[^4] to those with real intent, open hearts, and willing minds that Jesus is indeed the Christ.[^5]
 
 I would like to share two recent and inspiring examples of members who show God that they take the name of Jesus Christ upon themselves by talking of Him and bearing pure witness of the Lord in Church meetings.
 
@@ -31,13 +34,13 @@ What a blessing to see that our Church meetings are choice opportunities for us 
 
 Now, let me mention a powerful example of taking upon us the name of Jesus Christ by bearing testimony of Him through actions.
 
-Last August, I accompanied Elder Jonathan S. Schmitt to the open house of the Feather River California Temple in Yuba City. There I had the blessing of guiding groups on a tour of the temple. One of these groups included a member of the Church, Virgil Atkinson, and seven friends of other faiths. Toward the end of the visit, in a temple sealing room, Brother Atkinson was emotional as he expressed his love for his friends who had come to the temple that day. Almost immediately after he had done so, a woman in the group stood up and said, “We all love Virgil. He has never imposed his faith on us. But he is not shy about it either. He just lives what he believes.”
+Last August, I accompanied Elder Jonathan S. Schmitt to the open house of the Feather River California Temple in Yuba City. There I had the blessing of guiding groups on a tour of the temple. One of these groups included a member of the Church, Virgil Atkinson, and seven friends of other faiths. Toward the end of the visit, in a temple sealing room, Brother Atkinson was emotional as he expressed his love for his friends who had come to the temple that day. Almost immediately after he had done so, a woman in the group stood up and said, “We all love Virgil. He has never imposed his faith on us. But he is not shy about it either. He just lives what he believes.”
 
 Over the years, Brother Atkinson’s Christlike living served as a powerful testimony to his friends. His example is strong evidence that he has taken upon himself the name of Christ.
 
 In conclusion, let me share the lesson I learned about how to take upon us the name of Christ and testify of Him by using the correct name of the Church.
 
-President Nelson, God’s living prophet, in a 2018 general conference address titled “The Correct Name of the Church,” said: “It is a correction. It is the command of the Lord. Joseph Smith did not name the Church restored through him; neither did Mormon. It was the Savior Himself who said, ‘For thus shall my church be called in the last days, even The Church of Jesus Christ of Latter-day Saints’ [Doctrine and Covenants 115:4].”6
+President Nelson, God’s living prophet, in a 2018 general conference address titled “The Correct Name of the Church,” said: “It *is* a correction. It *is* the command of the Lord. Joseph Smith did not name the Church restored through him; neither did Mormon. It was the Savior Himself who said, ‘For thus shall my church be called in the last days, even The Church of Jesus Christ of Latter-day Saints’ \[[[D&C 115.4|Doctrine and Covenants 115:4]]\].”[^6]
 
 We all left general conference that day committed and determined to follow the prophet and to use the revealed name of the Church from then on. I really watched myself to make sure I used the correct name of the Church. The first few times, I had to be very conscious and not allow myself to go back to the old ways. After the first attempts, I felt more comfortable with using the revealed name of the Church. I admit that many times, I would speak the name of the Church quickly. I felt concerned that people would not pay attention to the Church’s full name and that they might think it to be a bit long.
 
@@ -45,5 +48,22 @@ However, I later realized that speaking the full name of the Church with intent 
 
 By following the prophet, we can all learn to testify more of Jesus Christ by using the correct name of the Church, thus taking upon us more fully the name of the Lord.
 
-This Sabbath morning, I gladly testify that President Nelson is God’s living prophet and that The Church of Jesus Christ of Latter-day Saints is Christ’s restored Church. I humbly witness of the Son of God and His divinity. He is God’s Firstborn and Only Begotten Son, our Savior and Redeemer, the Emmanuel.7 In the name of Jesus Christ, amen.
+This Sabbath morning, I gladly testify that President Nelson is God’s living prophet and that The Church of Jesus Christ of Latter-day Saints is Christ’s restored Church. I humbly witness of the Son of God and His divinity. He is God’s Firstborn and Only Begotten Son, our Savior and Redeemer, the Emmanuel.[^7] In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[3 Nephi 27.5|3 Nephi 27:5–6]][[3 Nephi 27.6|]].
+
+[^2]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88: “Taking the Savior’s name upon us includes declaring and witnessing to others—through our actions and our words—that Jesus is the Christ.”
+
+[^3]: See [[Mosiah 18.9|Mosiah 18:9]].
+
+[^4]: See [[2 Nephi 31.18|2 Nephi 31:18]].
+
+[^5]: See [[Alma 12.10|Alma 12:10]]; [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]]; [[D&C 64.34|Doctrine and Covenants 64:34]].
+
+[^6]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 87: “Instead, it *is* a correction. It *is* the command of the Lord. Joseph Smith did not name the Church restored through him; neither did Mormon. It was the Savior Himself who said, ‘For thus shall my church be called in the last days, even The Church of Jesus Christ of Latter-day Saints’ \[[[D&C 115.4|Doctrine and Covenants 115:4]]\].”
+
+[^7]: See [[Matthew 1.23|Matthew 1:23]]; [[Luke 2.11|Luke 2:11]]; [[D&C 18.11|Doctrine and Covenants 18:11]]; [[D&C 20.21|20:21]]; [[D&C 76.22|76:22–24]][[D&C 76.23|]][[D&C 76.24|]]; [[D&C 93.21|93:21]].
 

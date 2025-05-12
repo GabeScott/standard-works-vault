@@ -1,5 +1,6 @@
 # A Willing Heart
-*By Monte J. Brough - Of the First Quorum of the Seventy*
+
+By Elder Monte J. Brough - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
 
@@ -28,4 +29,7 @@ I learned a great and deep lesson. A mother’s love and concern never ceases—
 I have no memory of my father. I was not raised in a home where the priesthood was strong. A bishop in Randolph, Utah, and mission presidents later on are responsible for my being here tonight.
 
 In reference to Elder Marvin J. Ashton’s talk, I have work to do on my heart—but one thing I do have is a willing heart. I am willing to do anything and everything that I can to help in this great cause. I bear witness that I know this is God’s work. In the name of Jesus Christ, amen.
+
+
+
 

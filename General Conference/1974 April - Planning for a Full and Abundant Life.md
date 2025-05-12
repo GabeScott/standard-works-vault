@@ -1,5 +1,6 @@
 # Planning for a Full and Abundant Life
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -27,29 +28,22 @@ You can determine now that you will be the most faithful deacon and teacher and 
 
 You can make up your mind this early that you will fill an honorable mission when you reach mission age, and to that end that you will now earn money and save it and invest it for your mission, that you will study and serve and use every opportunity to properly prepare your mind and heart and soul for that glorious period of your life.
 
-The question has been often asked, Is the mission program one of compulsion? And the answer, of course, is no. Everyone is given his free agency. The question is asked: Should every young man fill a mission? And the answer of the Church is yes, and the answer of the Lord is yes. Enlarging this answer we say: Certainly every male member of the Church should fill a mission, like he should pay his tithing, like he should attend his meetings, like he should keep his life clean and free from the ugliness of the world and plan a celestial marriage in the temple of the Lord.
+The question has been often asked, Is the mission program one of compulsion? And the answer, of course, is no. Everyone is given his free agency. The question is asked: Should every young man fill a mission? And the answer of the Church is yes, and the answer of the Lord is yes. Enlarging this answer we say: Certainly every male member of the Church  fill a mission, like he  pay his tithing, like he  attend his meetings, like he  keep his life clean and free from the ugliness of the world and plan a celestial marriage in the temple of the Lord.
 
-While there is no compulsion for him to do any of these things, he should do them for his own good. We have often sung:
+While there is no compulsion for him to do any of these things, he  do them for his own good. We have often sung:
 
-“Know this, that every soul is free
+>“Know this, that every soul is free
+>To choose his life and what he’ll be,
+>For this eternal truth is given
+>That God will force no man to heav’n.
+>
+>“He’ll call, persuade, direct aright,
+>And bless with wisdom, love, and light,
+>In nameless ways be good and kind,
+>But never force the human mind.”
+>
 
-To choose his life and what he’ll be,
-
-For this eternal truth is given
-
-That God will force no man to heav’n.
-
-“He’ll call, persuade, direct aright,
-
-And bless with wisdom, love, and light,
-
-In nameless ways be good and kind,
-
-But never force the human mind.”
-
-—LDS Hymns, no. 90
-
-There is no compulsion in any part of the gospel. The Lord said in 1833, “Behold, here is the agency of man, and here is the condemnation of man; because that which was from the beginning is plainly manifest unto them, and they receive not the light.” (D&C 93:31.)
+There is no compulsion in any part of the gospel. The Lord said in 1833, “Behold, here is the agency of man, and here is the condemnation of man; because that which was from the beginning is plainly manifest unto them, and they receive not the light.” ([[D&C 93.31|D&C 93:31]].)
 
 This means that since Adam the Lord has taught us correct doctrines and we may accept or reject them, but the responsibility is ours. It means that, having the Holy Ghost which we received at baptism time, we all know good from evil. The conscience whispers to us what is right and what is wrong. We cannot blame others or circumstances. We know what is right.
 
@@ -57,7 +51,7 @@ Every person has his free agency. He may steal or curse or drink; he may defile 
 
 Every person can fail to attend his meetings, fail to pay his tithing, fail to fill a mission, ignore his temple obligations and privileges, but if he is smart, he must know that he is the deprived one.
 
-Again the Lord answers the question: “And that every man should take righteousness in his hands and faithfulness upon his loins, and lift a warning voice unto the inhabitants of the earth; and declare both by word and by flight that desolation shall come upon the wicked.” (D&C 63:37.) Did you note that he said “every man,”—and every boy that is becoming a man? Of course, we do not send young men steeped in uncleanness and sexual or other sins. Certainly such an one would need to be cleansed by deep repentance before he could be considered. And so we repeat it: Every LDS male who is worthy and able should fill a mission.
+Again the Lord answers the question: “And that every man should take righteousness in his hands and faithfulness upon his loins, and lift a warning voice unto the inhabitants of the earth; and declare both by word and by flight that desolation shall come upon the wicked.” ([[D&C 63.37|D&C 63:37]].) Did you note that he said “every man,”—and every boy that is becoming a man? Of course, we do not send young men steeped in uncleanness and sexual or other sins. Certainly such an one would need to be cleansed by deep repentance before he could be considered. And so we repeat it: Every LDS male who is worthy and able should fill a mission.
 
 Then in order to have a full and abundant life that is clean and open, every lad needs to plan his course, and covenant with himself and his Heavenly Father what his life will be and what he will do to glorify it.
 
@@ -73,7 +67,7 @@ Someone has given us this thought on time (I shall read it):
 
 “So they came, ill, hopeless, despondent, worried, unhappy—and they left smiling, each man with a look of unutterable pleasure on his face, for he had what he so desperately needed and wanted—time.
 
-“Then I awakened, glad that I had what these men had not, and what they could never buy—time. Time to do so many things I wanted to do, that I must do. If that morning I whistled at my work, it was because a great happiness filled my heart. For I still had time, if I used it well.” (Author unknown.)
+“Then I awakened, glad that I had what these men had not, and what they could never buy—time. Time to do so many things I wanted to do, that I must do. If that morning I whistled at my work, it was because a great happiness filled my heart. For I still had time, *if* I used it well.” (Author unknown.)
 
 Let me tell you of one of the goals that I made when I was still but a lad. When I heard a Church leader from Salt Lake City tell us at conference that we should read the scriptures, and I recognized that I had never read the Bible, that very night at the conclusion of that very sermon I walked to my home a block away and climbed up in my little attic room in the top of the house and lighted a little coal-oil lamp that was on the little table, and I read the first chapters of Genesis. A year later I closed the Bible, having read every chapter in that big and glorious book.
 
@@ -101,11 +95,11 @@ As the meal got underway, an army of waiters came to wait on us, seven waiters a
 
 Again, my young brethren, in my boyhood I remember one time when the sheriff startled us when he came and announced that under the floorboards of the porch of the home just up the street from where we lived they had found a considerable cache of stolen articles. The young man who lived in that home was termed a kleptomaniac. He seemed to have a mania for stealing things, even items he had no use for himself. Numerous people in the town had been reporting that their buggy whips and their buggy robes were taken. Here they were under the porch, and this boy finally admitted to having stolen them. I remember how shocked we fellows were—how we pitied him because he had developed this terrible weakness!
 
-Ralph Waldo Emerson said, “Every man takes care that his neighbor shall not cheat him. But a day comes when he begins to care that he [does] not cheat his neighbor. Then all goes well. He has changed his market-cart into a chariot of the sun.” (The Complete Writings of Ralph Waldo Emerson, New York: Wm. H. Wise and Co., 1929, p. 585.)
+Ralph Waldo Emerson said, “Every man takes care that his neighbor shall not cheat him. But a day comes when he begins to care that he \[does\] not cheat his neighbor. Then all goes well. He has changed his market-cart into a chariot of the sun.” (*The Complete Writings of Ralph Waldo Emerson,* New York: Wm. H. Wise and Co., 1929, p. 585.)
 
 This boy did not know how our acts follow us and how that which we sow we are sure to reap. And every experience we have adds to or draws from our lives. We cannot think ugly thoughts or do ugly things without retribution.
 
-Recently in a paper was an account of a girl who found a very large check in excess of two million dollars. She immediately began spending it in her own mind, she said. But finally she returned the check to its owner, and the newspaper account revealed the reward was very much smaller than her dreams. Why should she want a reward for doing right? Why should she be disappointed in the amount offered? Must people be rewarded for doing right? Would you expect a reward if you returned a lost article? All of you boys are learning or have learned the Thirteenth Article of Faith: “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men. ...”
+Recently in a paper was an account of a girl who found a very large check in excess of two million dollars. She immediately began spending it in her own mind, she said. But finally she returned the check to its owner, and the newspaper account revealed the reward was very much smaller than her dreams. Why should she want a reward for doing right? Why should she be disappointed in the amount offered? Must people be rewarded for doing right? Would you expect a reward if you returned a lost article? All of you boys are learning or have learned the Thirteenth Article of Faith: “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men. …”
 
 I wish to say a few words about shoplifting, but time will not permit. It is a terrible disgrace that in our communities firms must set aside a rather distressing percentage of their profits to take care of the shoplifting. It is a horrible thing that in a Latter-day Saint community, where part of us at least are Latter-day Saints, this should be the case.
 
@@ -128,4 +122,7 @@ But as I mingled among these people and saw the father and the son a little late
 I hope you boys in this audience will keep that in mind. You have the best dad in the world, you know. He holds the priesthood; he would be delighted to give you a blessing. He would like you to indicate it, and we would like you fathers to remember that your boys are a little timid maybe. They know you are the best men in the world, but probably if you just made the advance, there would be some glorious moments for you.
 
 Brethren, it is wonderful to be with you here tonight. And may peace be with you, and as has been said so many times in these days, only righteousness pays dividends. God bless you, and I bear my testimony to you boys, to you men, that God lives and that Jesus is the Christ. It is a great program of salvation and exaltation, and it is the only way, and there never was found happiness in unrighteousness. I bear my testimony to you in the name of Jesus Christ, our Lord. Amen.
+
+
+
 

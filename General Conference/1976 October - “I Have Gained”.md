@@ -1,5 +1,6 @@
 # “I Have Gained”
-*By S. Dilworth Young - Of the First Quorum of the Seventy*
+
+By Elder S. Dilworth Young - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -19,31 +20,31 @@ I have gained the opportunity to serve rather than to direct. In that service my
 
 Now the only limit to my personal service, which I myself originate, is my strength of body, facility of mind, and compassion of heart.
 
-I have gained a personal knowledge and understanding of the meaning of the words of President J. Reuben Clark: Not where I serve, but how.
+I have gained a personal knowledge and understanding of the meaning of the words of President J. Reuben Clark: Not where I serve, but how.
 
 I have gained a chance to pause briefly and measure what I have learned in my association with the First Council over the many years as its members have done their work and passed on.
 
-I was a soldier in a war in which President Brigham H. Roberts was the chaplain of the regiment.
+I was a soldier in a war in which President Brigham H. Roberts was the chaplain of the regiment.
 
-I have listened in happy enjoyment to the wisdom as well as the humor of President J. Golden Kimball, not from the pulpit, but at home.
+I have listened in happy enjoyment to the wisdom as well as the humor of President J. Golden Kimball, not from the pulpit, but at home.
 
-I served for twenty-six months as the close servant of President Samuel O. Bennion.
+I served for twenty-six months as the close servant of President Samuel O. Bennion.
 
-I have thrilled many times, both publicly and privately, to the eloquence of President Rey L. Pratt.
+I have thrilled many times, both publicly and privately, to the eloquence of President Rey L. Pratt.
 
-I have respected President John H. Taylor long before he was a member of the First Council.
+I have respected President John H. Taylor long before he was a member of the First Council.
 
-I have been lifted by the powerful voice of Oscar A. Kirkham, as you have. I have basked in the absolute faith of Milton R. Hunter.
+I have been lifted by the powerful voice of Oscar A. Kirkham, as you have. I have basked in the absolute faith of Milton R. Hunter.
 
-I still value the memory of the friendship of Richard L. Evans as well as the quiet wisdom of Antoine R. Ivins.
+I still value the memory of the friendship of Richard L. Evans as well as the quiet wisdom of Antoine R. Ivins.
 
 There are others, many of them, the choice men and close friends in the Council with whom I have been associated since 1945.
 
-I have not mentioned the long years of listening to the wisdom and faith of my grandfather, Dr. Seymour B. Young, who served many years as a senior president of this council, and my uncle, Levi Edgar Young, with whom I spent many happy hours all during my growing years and much of my adult life. All of these have hoped, worked, and prayed that the First Quorum would be organized.
+I have not mentioned the long years of listening to the wisdom and faith of my grandfather, Dr. Seymour B. Young, who served many years as a senior president of this council, and my uncle, Levi Edgar Young, with whom I spent many happy hours all during my growing years and much of my adult life. All of these have hoped, worked, and prayed that the First Quorum would be organized.
 
 I have lost nothing.
 
-I look forward with happy anticipation to my next adventure in gaining. So I say to the First Council as was said in David Copperfield: “Barkis is willin’.”
+I look forward with happy anticipation to my next adventure in gaining. So I say to the First Council as was said in *David Copperfield:* “Barkis is willin’.”
 
 Before I close I must say that throughout the process of the changes you have witnessed, we have been kept informed and have been consulted constantly for our feelings and input by President Kimball and his counselors. This thing has not, as Paul said, been done in a corner. It is right. It is inspired. Its time has come. It could not be stayed.
 
@@ -60,4 +61,7 @@ I know that what has been done by the prophet of the Lord, exercising his inspir
 This is the church of Jesus Christ. I mean by that that it belongs to him. He restored it personally by calling Joseph Smith. I sustain President Kimball and his counselors. I do more than that: I love them more than I find words to properly express.
 
 I pray that we all may satisfy them with our work from now on, in the name of the Lord Jesus Christ. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # We Have a Work to Do
-*By Lloyd P. George - Of the First Quorum of the Seventy*
+
+By Elder Lloyd P. George - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
 
@@ -9,7 +10,7 @@ On a number of occasions, President Harold B. Lee stated that there is no need f
 
 Brethren of the priesthood, we have a great responsibility. We have a great task. We have all been called. But have we been chosen? If we don’t feel that way, we probably have not been chosen. The Lord has been explicit in his direction for us in preparing ourselves. In Revelation he says: “As many as I love, I rebuke and chasten: be zealous therefore, and repent.
 
-“Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me.” (Rev. 3:19–20.)
+“Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me.” ([[Revelation 3.19|3:19–20]][[Revelation 3.20|]].)
 
 That is the direction, my priesthood brethren.
 
@@ -19,5 +20,8 @@ The missionaries taught them, and a baptismal date was set. Mother became so exc
 
 I am so humbled and so grateful for the calling that has come to me and for the love and the respect that I feel from all of the chosen Apostles and prophets of our Heavenly Father. I feel a great spirit of brotherhood and love for each of these Brethren seated here on the stand this day. I support and sustain this great prophet and those associated with him and pray humbly that the Lord will direct me and bless me with those things that are needful and necessary that I might magnify my calling in the priesthood.
 
-May we all have the desire to accomplish this so there will be no one that will be able to say, as is recorded in Psalms, “I looked on my right hand, and beheld, but there was no man that would know me: refuge failed me; no man cared for my soul.” (Ps. 142:4.) In the name of Jesus Christ, amen.
+May we all have the desire to accomplish this so there will be no one that will be able to say, as is recorded in Psalms, “I looked on my right hand, and beheld, but there was no man that would know me: refuge failed me; no man cared for my soul.” ([[Psalms 142.4|142:4]].) In the name of Jesus Christ, amen.
+
+
+
 

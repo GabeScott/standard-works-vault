@@ -1,7 +1,10 @@
 # A Growing Testimony
-*By James E. Faust - Second Counselor in the First Presidency*
+
+By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2000 General Conference*
+
+>*As I look back over my life, I recognize one source of singular strength and blessing. It is my testimony and knowledge that Jesus is the Christ.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2000/10/a-growing-testimony?lang=eng)
 
@@ -21,7 +24,7 @@ During that visit, Brother Moyle said to David Whitmer: “Sir, you are an old m
 
 One of the foundation stones of my testimony came when I served my first mission in Brazil as a young man. At that time our labors were unfruitful and difficult. We could not envision the great outpouring of the Spirit of the Lord which has come in that country and its neighboring countries of South America, Central America, and Mexico in the intervening years. Sixty years ago there was only one stake in all of these countries. Now there are 643 stakes in Latin America. I believe it is only the beginning. What has happened is beyond my wildest hopes and dreams. It is one of the many miracles we have seen. It is my witness that all of this could not have happened without the divine intervention of the Lord, who is watching over this holy work, not only in Latin America but in all of the countries of the world.
 
-In my long life I have found peace, joy, and happiness beyond my fondest hopes and dreams. One of the supreme benedictions of my life has been my marriage to an elect daughter of God. I love her with all my heart and soul. Upon the wind of her spirit have my wings been carried.1 We were married in the Salt Lake Temple 57 years ago when I was a soldier in World War II and did not know if I would come back alive. Her strong, unwavering faith and support have strengthened my own testimony in times of challenge and difficulty. My inevitable eternal journey, if I am so favored, will be wonderful with her at my side.
+In my long life I have found peace, joy, and happiness beyond my fondest hopes and dreams. One of the supreme benedictions of my life has been my marriage to an elect daughter of God. I love her with all my heart and soul. Upon the wind of her spirit have my wings been carried.[^1] We were married in the Salt Lake Temple 57 years ago when I was a soldier in World War II and did not know if I would come back alive. Her strong, unwavering faith and support have strengthened my own testimony in times of challenge and difficulty. My inevitable eternal journey, if I am so favored, will be wonderful with her at my side.
 
 Another great blessing in my life has been to have children come into our family even though we thought we might never have any. Our joy has increased with our grandchildren and great-grandchildren. Only by the power of a priesthood blessing did this come about.
 
@@ -35,21 +38,36 @@ The united testimonies and faith of the early Church members brought them from P
 
 President Gordon B. Hinckley presides over what is possibly the greatest number of faithful people who have ever lived upon the face of the earth. I testify that he is a truly great prophet. He needs faithful followers. The great strength of this Church comes from our collective and individual testimonies, born of our own trials and faithfulness. The faithfulness of the Saints has permitted this great Conference Center to be built and dedicated in the name of the Lord on this historic day. It is unique in all the world. So wondrous and great are the works of the Lord in our time. As a people, we are not as yet what we ought to be—far from it. However, I hope we will strive harder to become a more righteous people, worthy to continue to receive the blessings of heaven.
 
-The acceleration of temple building in our time has been marvelous. Through the prophetic vision of President Hinckley, we now have many temples that dot many lands on the earth. This remarkable achievement has been made possible because of faithful tithe payers. This in turn has caused the Lord to redeem His promise spoken through Malachi: “And prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.”2 All of these exquisite holy edifices are a testimony of our belief that the Savior broke the bonds of death and opened up the way for us to enter into covenants which will be binding in another world.
+The acceleration of temple building in our time has been marvelous. Through the prophetic vision of President Hinckley, we now have many temples that dot many lands on the earth. This remarkable achievement has been made possible because of faithful tithe payers. This in turn has caused the Lord to redeem His promise spoken through Malachi: “And prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.”[^2] All of these exquisite holy edifices are a testimony of our belief that the Savior broke the bonds of death and opened up the way for us to enter into covenants which will be binding in another world.
 
-Like Alma, I can testify, “All things denote there is a God; yea, even the earth, and all things that are upon the face of it, yea, and its motion, yea, and also all the planets which move in their regular form do witness that there is a Supreme Creator.”3
+Like Alma, I can testify, “All things denote there is a God; yea, even the earth, and all things that are upon the face of it, yea, and its motion, yea, and also all the planets which move in their regular form do witness that there is a Supreme Creator.”[^3]
 
 In a revelation to the Prophet Joseph Smith that I know to be true, the Savior testified of Himself in these words:
 
 “I am the true light that lighteth every man that cometh into the world;
 
-“... I am in the Father, and the Father in me, and the Father and I are one.”4
+“… I am in the Father, and the Father in me, and the Father and I are one.”[^4]
 
-The Lord has promised that “every soul who forsaketh his sins and cometh unto me, and calleth on my name, and obeyeth my voice, and keepeth my commandments, shall see my face and know that I am.”5
+The Lord has promised that “every soul who forsaketh his sins and cometh unto me, and calleth on my name, and obeyeth my voice, and keepeth my commandments, shall see my face and know that I am.”[^5]
 
-When I was called to the holy apostleship many years ago, my sure witness prompted me to testify on that occasion in these words: “I understand that a chief requirement for the holy apostleship is to be a personal witness of Jesus as the Christ and the Divine Redeemer. Perhaps on that basis alone, I can qualify. This truth has been made known to me by the unspeakable peace and power of the Spirit of God.”6
+When I was called to the holy apostleship many years ago, my sure witness prompted me to testify on that occasion in these words: “I understand that a chief requirement for the holy apostleship is to be a personal witness of Jesus as the Christ and the Divine Redeemer. Perhaps on that basis alone, I can qualify. This truth has been made known to me by the unspeakable peace and power of the Spirit of God.”[^6]
 
 Since accepting that call many years ago, my certain witness has been greatly magnified. This is because of my undeniable testimony that Jesus is the Christ, the Son of God.
 
 My greatest desire is to be true and faithful to the end of my days on this earth. That we may all do so, I pray in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See [[2 Nephi 4.25|2 Ne. 4:25]].
+
+[^2]: [[Malachi 3.10|Mal. 3:10]].
+
+[^3]: [[Alma 30.44|Alma 30:44]].
+
+[^4]: [[D&C 93.2|D&C 93:2–3]][[D&C 93.3|]].
+
+[^5]: [[D&C 93.1|D&C 93:1]].
+
+[^6]: In Conference Report, Oct. 1978, 28; or *Ensign,* Nov. 1978, 20.
 

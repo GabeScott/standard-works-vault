@@ -1,5 +1,6 @@
 # Seeing the Five A’s
-*By Marion D. Hanks - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder Marion D. Hanks - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -31,15 +32,15 @@ The boys are special young men, like all of you and the men are choice leaders i
 
 His son said, “I just want a regular dad.”
 
-The other story was equally interesting and significant to me. This family has a tradition of educational accomplishment and the father was shaken a bit when his wife brought him their high school son’s report card with his first C on it. Dad brooded over the matter and when the son came home invited him into the study, sternly confronted him with the card, and said, “Son, what is this I see on your report card?”
+The other story was equally interesting and significant to me. This family has a tradition of educational accomplishment and the father was shaken a bit when his wife brought him their high school son’s report card with his first *C* on it. Dad brooded over the matter and when the son came home invited him into the study, sternly confronted him with the card, and said, “Son, what is this I see on your report card?”
 
-“Well, Dad,” replied the boy, “I hope you see the five As.”
+“Well, Dad,” replied the boy, “I *hope* you see the five *A*s.”
 
-We can all understand that it may be difficult for a boy to realize that his father can be a regular dad and do other important things too. And it may be difficult on occasion for men to see the As on the report card when there is a C there. So let me speak a few words tonight to men who once were boys and to boys who are fast becoming men. Men remember being boys, but boys, I’m sure, have a harder time imagining how it will be to be a man. But you boys will be men, you know—some kind of men—and it is very important to you and all whom your life will touch that you be regular boys in every wonderful sense of the term, so you can be regular men.
+We can all understand that it may be difficult for a boy to realize that his father can be a regular dad and do other important things too. And it may be difficult on occasion for men to see the *A*s on the report card when there is a *C* there. So let me speak a few words tonight to men who once were boys and to boys who are fast becoming men. Men remember being boys, but boys, I’m sure, have a harder time imagining how it will be to be a man. But you boys will be men, you know—some kind of men—and it is very important to you and all whom your life will touch that you be regular boys in every wonderful sense of the term, so you can be regular men.
 
 Men who are trying to do a number of important things realize that none of our involvements matters much—and accomplishing anything else will not bring much satisfaction—if we have not done all we should at home.
 
-As to the five As and the C, all of us must be reminded that while perfection is a worthy goal and while good grades are important, yet individuals have different capacities and gifts, and imperfection is with all of us, and school grades that represent honest and earnest effort should be acceptable. What really matters, after all, is what kind of people we are. The problems of the world are at root all human problems, and the opportunities in the world are at root all human opportunities. Those who help solve the problems and make the most of the opportunities are those whose priorities are straight, who are mature and strong in character.
+As to the five *A*s and the *C,* all of us must be reminded that while perfection is a worthy goal and while good grades are important, yet individuals have different capacities and gifts, and imperfection is with all of us, and school grades that represent honest and earnest effort should be acceptable. What really matters, after all, is what kind of people we are. The problems of the world are at root all human problems, and the opportunities in the world are at root all human opportunities. Those who help solve the problems and make the most of the opportunities are those whose priorities are straight, who are mature and strong in character.
 
 And there is another consideration we must think of as we talk of fathers and sons. Many boys grow up without a father. My own dad died when I was a little boy, so I am especially aware that many boys have no father at all, or maybe a father who doesn’t provide the best example and instruction he could. So in addition to being good fathers to our own sons, true men must reach out to show concern for other boys also. And even boys blessed with wonderful mothers need men to look up to, to love and follow. They need men to teach them how to be men or they may learn, as so many do, from imitation men who themselves have it all wrong, who may have perverse ideas, who think that manhood rests in muscles or money, or crime or crudity, or cards or conquests. I cannot prescribe how many meetings and activities we individually should go to of those that are available, but it should be our first priority to take whatever time it takes in order to keep faith with our families and to be a friend to a boy or girl who needs some help.
 
@@ -69,7 +70,7 @@ Somehow early in his life Bob has mastered principles and developed character th
 
 The Church must and always will continue to place great emphasis on the family, because strong, loyal families are the heart of the society. No nation will ever be stronger than the strength of its homes. No agency or institution can do what the home should do.
 
-But we must take people—boys and girls, men and women—where they are, as they are, in the imperfect conditions that so widely exist, in the personal imperfections which are universal. We cannot escape responsibility for our families and others whom we might touch, nor ever cease pulling for them and praying for them and trying to help them. If they make wrong decisions, follow the false programs that many of their peers pursue, still we will love them and suffer with them and work with them and wait for them, even as the father in the Lord’s parable waited for the prodigal who finally came to his senses and headed home: “When he was yet a great way off, his father saw him, and had compassion and ran, and fell on his neck, and kissed him.” (Luke 15:20.) We will watch and pray, even as the Lord himself waits with godly mercy, as He declared through His prophet 2,700 years ago: “And therefore will the Lord wait, that he may be gracious unto you, and therefore will he be exalted, that he may have mercy upon you.” (Isa. 30:18.)
+But we must take people—boys and girls, men and women—where they are, as they are, in the imperfect conditions that so widely exist, in the personal imperfections which are universal. We cannot escape responsibility for our families and others whom we might touch, nor ever cease pulling for them and praying for them and trying to help them. If they make wrong decisions, follow the false programs that many of their peers pursue, still we will love them and suffer with them and work with them and wait for them, even as the father in the Lord’s parable waited for the prodigal who finally came to his senses and headed home: “When he was yet a great way off, his father saw him, and had compassion and ran, and fell on his neck, and kissed him.” ([[Luke 15.20|Luke 15:20]].) We will watch and pray, even as the Lord himself waits with godly mercy, as He declared through His prophet 2,700 years ago: “And therefore will the Lord wait, that he may be gracious unto you, and therefore will he be exalted, that he may have mercy upon you.” ([[Isaiah 30.18|Isa. 30:18]].)
 
 As you young men (and the wonderful young women you will one day have the privilege to marry) accept your responsibility to strengthen the families you now live in and build sound relationships in the homes where you now live, and as we who are adults seek to help you, all of us are under sacred obligation to reach out in friendship and love for each other and for others, young associates, young brothers and sisters, who do not have in their homes or their lives what so many of us are blessed—or could be blessed—to enjoy.
 
@@ -83,7 +84,10 @@ The first youngster, her sniffles barely dried, nodded, and the two little child
 
 When I left that morning I thought I had seen as clearly as I am capable of seeing how the Lord expects us to treat each other, and how wonderful it is to have someone who has lived a little longer and learned to love, to reach out and help us, and then help us help others.
 
-In the scriptures is a magnificent sermon in a single line, in which I interpolate an additional word: “For how shall I go up to my father, and the lad [or lass] be not with me?” (Gen. 44:34.)
+In the scriptures is a magnificent sermon in a single line, in which I interpolate an additional word: “For how shall I go up to my father, and the lad \[or lass\] be not with me?” ([[Genesis 44.34|Gen. 44:34]].)
 
 God bless us, young men and men, to be what God permits us and expects us to be. In the name of Jesus Christ, amen.
+
+
+
 

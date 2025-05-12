@@ -1,5 +1,6 @@
 # Developing Temporal Plans and Priorities
-*By By Bishop Victor L. Brown - Presiding Bishop*
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -59,31 +60,31 @@ When an area or region is sufficiently mature and is prepared to set up a storeh
 
 Welfare services master planning is the process of—
 
-Developing a plan for teaching welfare services principles.
+1. Developing a plan for teaching welfare services principles.
 
-Identifying needs of the poor, needy, and distressed.
+2. Identifying needs of the poor, needy, and distressed.
 
-Programming Church resources to meet those needs.
+3. Programming Church resources to meet those needs.
 
-When the master plan is fully implemented, there will exist within an area those elements of the storehouse resource system required to assist bishops in caring for the Lord’s poor and distressed. (See D&C 52:40.)
+When the master plan is fully implemented, there will exist within an area those elements of the storehouse resource system required to assist bishops in caring for the Lord’s poor and distressed. (See [[D&C 52.40|D&C 52:40]].)
 
 The purposes of master planning can be achieved best through a phased approach. Phase one relates to strategic or “big picture” matters. The product of phase one planning is a description of Church welfare services in an area as it currently exists and what it eventually should and will become. Phase two relates to tactical or operational matters. The product of phase two will be a blueprint for the timely implementation of the storehouse resource system so that the area or zone may become self-sufficient.
 
 There are seven steps in the master planning process. Through the area council, ecclesiastical and temporal officers are to—
 
-Prepare and implement a formal area plan for teaching principles and programs.
+1. Prepare and implement a formal area plan for teaching principles and programs.
 
-Complete a needs and resources survey.
+2. Complete a needs and resources survey.
 
-Review and adjust the bishop’s stocklist.
+3. Review and adjust the bishop’s stocklist.
 
-Study local conditions and constraints—legal, tax, agricultural, etc.
+4. Study local conditions and constraints—legal, tax, agricultural, etc.
 
-Prepare a map showing ecclesiastical boundaries and proposed placement of facilities and projects.
+5. Prepare a map showing ecclesiastical boundaries and proposed placement of facilities and projects.
 
-Recommend needed projects, facilities, and services.
+6. Recommend needed projects, facilities, and services.
 
-Submit the plan to the General Welfare Services Committee for approval.
+7. Submit the plan to the General Welfare Services Committee for approval.
 
 While the process of master planning is not complicated, it does require some time and effort. We hope that under the guidance of your respective executive administrators, each Regional Representative and stake president will respond to the need for welfare services master planning. Please recognize that the more completely you plan, the better we are jointly able to control the appropriate implementation of welfare services in your area. Our Welfare Services personnel stand ready to do their part. They have the forms, the experience, and the perspective which, coupled with your inspiration and insight into local needs, can produce a blueprint to guide welfare services implementation for years to come.
 
@@ -93,7 +94,10 @@ Some of you may recall a brief report I gave last October on the Church branch i
 
 The results today are that a chapel is under construction with most of the work being done by the members, including making their own bricks. President Rodolfo William Mortensen, the mission president, indicates that the branch is now a ward. Nearly every family has a garden; some even produce honey from bees. Most families have started a year’s supply of food. Convert baptisms have increased sharply in the past year. All this has happened because Bishop Castaneda, a convert of eight years, had the vision of how to lead his people in living the gospel in Bermejillo. Basic planning, starting with the welfare of his members and reaching out to touch every facet of their lives, has lifted this ward to heights previously not thought possible.
 
-Now may I turn to an example here in the United States where conditions are considerably different. The Georgia-Alabama multiregion undertook the seven-step process of master planning. After the plan was approved at headquarters, it was implemented through the Welfare Services director, his agents, and in concert with stake welfare services committees and the two region councils that comprise this multiregion. In the fifteen succeeding months, they have acquired twenty-three production projects. Previously they had none. They have raised funds for a storehouse which is presently under construction and should be open by late summer. An LDS Social Services office has also been opened. Bishops have been better trained in caring for the needy, and the Saints have felt a great upsurge of security by being a part of this effort. They all have less need to fear than they had fifteen months ago, for the Lord said, “If ye are prepared ye shall not fear” (D&C 38:30).
+Now may I turn to an example here in the United States where conditions are considerably different. The Georgia-Alabama multiregion undertook the seven-step process of master planning. After the plan was approved at headquarters, it was implemented through the Welfare Services director, his agents, and in concert with stake welfare services committees and the two region councils that comprise this multiregion. In the fifteen succeeding months, they have acquired twenty-three production projects. Previously they had none. They have raised funds for a storehouse which is presently under construction and should be open by late summer. An LDS Social Services office has also been opened. Bishops have been better trained in caring for the needy, and the Saints have felt a great upsurge of security by being a part of this effort. They all have less need to fear than they had fifteen months ago, for the Lord said, “If ye are prepared ye shall not fear” ([[D&C 38.30|D&C 38:30]]).
 
-As we witness what takes place when priesthood and temporal leaders first catch the vision of what the Lord expects, then, working in the proper councils, plan well, and then execute the plan, we see the fulfillment of the teachings of modern prophets as well as those of ancient times. May we go forth from this conference with a desire to “learn [our] duty, and ... act in the office in which [we are] appointed, in all diligence” (D&C 107:99). I pray. In the name of Jesus Christ, amen.
+As we witness what takes place when priesthood and temporal leaders first catch the vision of what the Lord expects, then, working in the proper councils, plan well, and then execute the plan, we see the fulfillment of the teachings of modern prophets as well as those of ancient times. May we go forth from this conference with a desire to “learn \[our\] duty, and … act in the office in which \[we are\] appointed, in all diligence” ([[D&C 107.99|D&C 107:99]]). I pray. In the name of Jesus Christ, amen.
+
+
+
 

@@ -1,13 +1,16 @@
 # Building a Life Resistant to the Adversary
-*By Jorge F. Zeballos - Of the Seventy*
+
+By Elder Jorge F. Zeballos - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
+
+>*I pray that we may continue to build our lives following the plans and technical specifications of the divine design authored by our Heavenly Father.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/10/27zeballos?lang=eng)
 
 Over the years from this beautiful pulpit at the Conference Center, we have received magnificent counsel, inspiration, instruction, and revelation. On occasion, speakers have used comparisons associated with their areas of knowledge and experience to illustrate clearly and powerfully a principle of the gospel of Jesus Christ.
 
-In this way, for example, we have learned about airplanes and flights in which a tiny initial deviation can lead us to a place far from our original destination.1 Also in this way, we have learned from a comparison of the function of our physical heart with the powerful change of heart required to respond to the Lord’s invitation to follow Him.2
+In this way, for example, we have learned about airplanes and flights in which a tiny initial deviation can lead us to a place far from our original destination.[^1] Also in this way, we have learned from a comparison of the function of our physical heart with the powerful change of heart required to respond to the Lord’s invitation to follow Him.[^2]
 
 This time, I would like to humbly add a comparison inspired from an area in the field of my professional preparation. I am referring to the world of civil engineering. From the beginning of my university studies, I dreamed of the day when I would complete the requirements to be qualified to take the class that would teach me how to design buildings and other structures that could then be considered “anti-seismic.”
 
@@ -21,7 +24,7 @@ Although more than 40 years have passed since that first class in seismic-resist
 
 How blessed we are to count on a knowledge of the plan of salvation created by our Heavenly Father, to have the restored gospel of Jesus Christ, and to rely on the inspired direction of living prophets! All the former constitute the divinely designed “plans” and the “technical specifications” that teach us clearly how to construct happy lives—lives that are resistant to sin, resistant to temptation, resistant to attacks from Satan, who is desperately seeking to frustrate our eternal destiny to be together with our Heavenly Father and with our beloved families.
 
-The Savior Himself, at the beginning of His ministry, “was left to be tempted of the devil.”3 But Jesus emerged successful from that great trial. How did having an attitude of anti-Satan or anti-temptation serve Him? What made Jesus emerge triumphant from these most difficult moments was His spiritual preparation, which permitted Him to be in a condition to resist the temptations of the adversary.
+The Savior Himself, at the beginning of His ministry, “was left to be tempted of the devil.”[^3] But Jesus emerged successful from that great trial. How did having an attitude of anti-Satan or anti-temptation serve Him? What made Jesus emerge triumphant from these most difficult moments was His spiritual preparation, which permitted Him to be in a condition to resist the temptations of the adversary.
 
 What were some of the factors that helped the Savior to be prepared for that crucial moment?
 
@@ -29,7 +32,7 @@ First, He had fasted for 40 days and 40 nights, a fast that must have been accom
 
 In the second place, in the account of the temptations to which the Savior was submitted, we see that He always answered Satan having scriptures in His mind, quoting them, and applying them at the right moment.
 
-When Satan tempted Him to convert stones into bread so that He could satisfy His hunger from His long fast, the Lord said to him, “It is written, Man shall not live by bread alone, but by every word that proceedeth out of the mouth of God.”4 Then, when the Lord was on the pinnacle of the temple, the devil tried to tempt Him to demonstrate His power, to which the Lord answered with authority, “It is written again, Thou shalt not tempt the Lord thy God.”5 And to Satan’s third attempt, the Lord responded, “It is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.”6
+When Satan tempted Him to convert stones into bread so that He could satisfy His hunger from His long fast, the Lord said to him, “It is written, Man shall not live by bread alone, but by every word that proceedeth out of the mouth of God.”[^4] Then, when the Lord was on the pinnacle of the temple, the devil tried to tempt Him to demonstrate His power, to which the Lord answered with authority, “It is written again, Thou shalt not tempt the Lord thy God.”[^5] And to Satan’s third attempt, the Lord responded, “It is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.”[^6]
 
 The event of an earthquake leaves its mark even on structures that were correctly designed and built—such consequences as perhaps some cracks, fallen furniture or ceilings, and broken windows. But this well-designed and well-built edifice will fulfill its purpose of protecting its occupants, and with some repairs, it will recuperate its original condition.
 
@@ -37,15 +40,40 @@ In similar fashion, the buffetings of the adversary can also cause “cracks,”
 
 But what is truly relevant is that for having followed the divinely designed plans and specifications, that is, the gospel of Jesus Christ, we are still standing. The structure of our lives has not been demolished because of the adversary’s efforts or for difficult situations that we have had to face; rather, we are ready to move forward.
 
-The joy promised in the scriptures as the purpose of our existence7 should not be understood to mean that we will have no difficulties or sorrows, that we will have no “cracks” as consequences of temptations, of adversity, or from the actual trials of our earth life.
+The joy promised in the scriptures as the purpose of our existence[^7] should not be understood to mean that we will have no difficulties or sorrows, that we will have no “cracks” as consequences of temptations, of adversity, or from the actual trials of our earth life.
 
-This joy has to do with Nephi’s perspective on life when he said, “Having seen many afflictions in the course of my days, nevertheless, having been highly favored of the Lord in all my days.”8 All his days! Even the days that Nephi suffered during the incomprehension and rejection of his own brothers, even when they tied him up on the ship, even the day that his father, Lehi, passed away, even when Laman and Lemuel became mortal enemies of his people. Even in those difficult days, Nephi felt highly favored of the Lord.
+This joy has to do with Nephi’s perspective on life when he said, “Having seen many afflictions in the course of my days, nevertheless, having been highly favored of the Lord in all my days.”[^8] All his days! Even the days that Nephi suffered during the incomprehension and rejection of his own brothers, even when they tied him up on the ship, even the day that his father, Lehi, passed away, even when Laman and Lemuel became mortal enemies of his people. Even in those difficult days, Nephi felt highly favored of the Lord.
 
-We can have the tranquility of knowing that the Lord will never permit us to be tempted beyond what we can resist. Alma invites us to “watch and pray continually, that [we] may not be tempted above that which [we] can bear, and thus be led by the Holy Spirit, becoming humble, meek, submissive, patient, full of love and all long-suffering.”9
+We can have the tranquility of knowing that the Lord will never permit us to be tempted beyond what we can resist. Alma invites us to “watch and pray continually, that \[we\] may not be tempted above that which \[we\] can bear, and thus be led by the Holy Spirit, becoming humble, meek, submissive, patient, full of love and all long-suffering.”[^9]
 
-The same can be applied to the trials of life. Ammon reminds us of the words of the Lord: “Go ... and bear with patience thine afflictions, and I will give unto you success.”10
+The same can be applied to the trials of life. Ammon reminds us of the words of the Lord: “Go … and bear with patience thine afflictions, and I will give unto you success.”[^10]
 
-The Lord always provides us with help when we face adversity, temptation, incomprehension, infirmities, and even death. He has said, “And now, verily I say unto you, and what I say unto one I say unto all, be of good cheer, little children; for I am in your midst, and I have not forsaken you.”11 He will never abandon us!
+The Lord always provides us with help when we face adversity, temptation, incomprehension, infirmities, and even death. He has said, “And now, verily I say unto you, and what I say unto one I say unto all, be of good cheer, little children; for I am in your midst, and I have not forsaken you.”[^11] He will never abandon us!
 
 I pray that we may continue to build our lives following the plans and technical specifications of the divine design authored by our Father and achieved through our Savior, Jesus Christ. Thus, because of the grace that reaches us through the Atonement of our Savior, we will be successful in constructing a life resistant to sin, resistant to temptation, and strengthened to endure the sad, difficult times in our lives. And furthermore, we will be in a condition to access all the blessings promised through the love of our Father and our Savior. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See Dieter F. Uchtdorf, “[[2008 April - A Matter of a Few Degrees.md|A Matter of a Few Degrees]],” *Ensign* or *Liahona*, May 2008, 57–60.
+
+[^2]: See Dale G. Renlund, “[[2009 October - Preserving the Heart’s Mighty Change.md|Preserving the Heart’s Mighty Change]],” *Ensign* or *Liahona*, Nov. 2009, 97–99.
+
+[^3]: Joseph Smith Translation, Matthew 4:2 (in [[Matthew 4.2|Matthew 4:2]], footnote *c*).
+
+[^4]: [[Matthew 4.4|Matthew 4:4]].
+
+[^5]: [[Matthew 4.7|Matthew 4:7]].
+
+[^6]: [[Matthew 4.10|Matthew 4:10]].
+
+[^7]: See [[2 Nephi 2.25|2 Nephi 2:25]].
+
+[^8]: [[1 Nephi 1.1|1 Nephi 1:1]].
+
+[^9]: [[Alma 13.28|Alma 13:28]].
+
+[^10]: [[Alma 26.27|Alma 26:27]].
+
+[^11]: [[D&C 61.36|Doctrine and Covenants 61:36]].
 

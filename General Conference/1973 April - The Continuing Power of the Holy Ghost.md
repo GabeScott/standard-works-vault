@@ -1,5 +1,6 @@
 # The Continuing Power of the Holy Ghost
-*By Franklin D. Richards - Assistant to the Council of the Twelve*
+
+By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -9,7 +10,7 @@ My dear brothers and sisters: This has been a most stimulating and inspiring con
 
 Frequently the question is asked, What is the difference between The Church of Jesus Christ of Latter-day Saints and other churches?
 
-On one occasion the Prophet Joseph Smith was asked this question. He replied that one of the main differences was in our mode of baptism, including the gift of the Holy Ghost by the laying on of hands, and that we believe in the continuing power of the Holy Ghost. (See Documentary History of the Church, vol. 4, p. 42.)
+On one occasion the Prophet Joseph Smith was asked this question. He replied that one of the main differences was in our mode of baptism, including the gift of the Holy Ghost by the laying on of hands, and that we believe in the continuing power of the Holy Ghost. (See *Documentary History of the Church,* vol. 4, p. 42.)
 
 The first and fourth Articles of Faith of the Church outline this belief:
 
@@ -17,33 +18,33 @@ The first and fourth Articles of Faith of the Church outline this belief:
 
 “We believe that the first principles and ordinances of the Gospel are: first, Faith in the Lord Jesus Christ; second, Repentance; third, Baptism by immersion for the remission of sins; fourth, Laying on of hands for the gift of the Holy Ghost.”
 
-Through modern revelation we are told that “the Father has a body of flesh and bones as tangible as man’s, the Son also; but the Holy Ghost has not a body of flesh and bones, but is a personage of Spirit. Were it not so, the Holy Ghost could not dwell in us.” (D&C 130:22.)
+Through modern revelation we are told that “the Father has a body of flesh and bones as tangible as man’s, the Son also; but the Holy Ghost has not a body of flesh and bones, but is a personage of Spirit. Were it not so, the Holy Ghost could not dwell in us.” ([[D&C 130.22|D&C 130:22]].)
 
 This is the simple and beautiful conception of the Godhead as taught by The Church of Jesus Christ of Latter-day Saints.
 
-When Nicodemus, one of the rulers of the Jews, came to Jesus at night and asked him what he should do to be saved, he was told, “Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God.” (John 3:5.)
+When Nicodemus, one of the rulers of the Jews, came to Jesus at night and asked him what he should do to be saved, he was told, “Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God.” ([[John 3.5|John 3:5]].)
 
-In this dispensation we have been admonished to “go among this people, and say unto them, ... Repent and be baptized in the name of Jesus Christ, ... for the remission of sins; And whoso doeth this shall receive the gift of the Holy Ghost, by the laying on of the hands of the elders of the church.” (D&C 49:11, 13–14.)
+In this dispensation we have been admonished to “go among this people, and say unto them, … Repent and be baptized in the name of Jesus Christ, … for the remission of sins; And whoso doeth this shall receive the gift of the Holy Ghost, by the laying on of the hands of the elders of the church.” ([[D&C 49.11|D&C 49:11, 13–14]][[D&C 49.13|]][[D&C 49.14|]].)
 
-That this new birth included a spiritual regeneration was indicated when the Savior explained, “That which is born of the flesh is flesh; and that which is born of the Spirit is spirit. Marvel not that I said unto thee, Ye must be born again.” (John 3:6–7.)
+That this new birth included a spiritual regeneration was indicated when the Savior explained, “That which is born of the flesh is flesh; and that which is born of the Spirit is spirit. Marvel not that I said unto thee, Ye must be born again.” ([[John 3.6|John 3:6–7]][[John 3.7|]].)
 
 Faith in the Lord Jesus Christ, repentance, and baptism by water are prerequisites to receiving the Holy Ghost.
 
-The apostle Paul, in writing the Corinthian saints, stated: “... know ye not that your body is the temple of the Holy Ghost which is in you ...” (1 Cor. 6:19), and “If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” (1 Cor. 3:17).
+The apostle Paul, in writing the Corinthian saints, stated: “… know ye not that your body is the temple of the Holy Ghost which is in you …” ([[1 Corinthians 6.19|1 Cor. 6:19]]), and “If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.17|1 Cor. 3:17]]).
 
 To keep in tune with the Holy Ghost, we must keep our bodies clean in every respect.
 
-President Brigham Young stated: “The Holy Ghost ... opens the vision of the mind, unlocks the treasures of wisdom, and they begin to understand the things of God. ... They comprehend themselves and the great object of their existence.” (Journal of Discourses, vol. 1, p. 241.)
+President Brigham Young stated: “The Holy Ghost … opens the vision of the mind, unlocks the treasures of wisdom, and they begin to understand the things of God. … They comprehend themselves and the great object of their existence.” (*Journal of Discourses,* vol. 1, p. 241.)
 
 If a person is going to get the most out of this life, he must comprehend the object of his existence.
 
 The gifts of the Holy Ghost, to worthy recipients, are many and extremely helpful in answering the question, What is the purpose of life or the object of our existence?
 
-One of the chief functions of the Holy Ghost is to bear witness of God the Father and Jesus Christ, his Son. The apostle Paul, in writing to the Corinthian saints, told them that “no man can say that Jesus is the Lord, but by the Holy Ghost.” (1 Cor. 12:3.)
+One of the chief functions of the Holy Ghost is to bear witness of God the Father and Jesus Christ, his Son. The apostle Paul, in writing to the Corinthian saints, told them that “no man can say that Jesus is the Lord, but by the Holy Ghost.” ([[1 Corinthians 12.3|1 Cor. 12:3]].)
 
 To know that God lives and that Jesus Christ is his Son and our Savior and Redeemer is absolutely essential to understand the purpose of life.
 
-In addition to being a witness for the Father and the Son, the Holy Ghost is a comforter. As the Savior was about to be crucified, he promised the disciples another comforter as he told them, “... the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you.” (John 14:26.)
+In addition to being a witness for the Father and the Son, the Holy Ghost is a comforter. As the Savior was about to be crucified, he promised the disciples another comforter as he told them, “… the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you.” ([[John 14.26|John 14:26]].)
 
 Thus we see that the Holy Ghost is a witness of the Father and the Son, a comforter, a teacher, and the bearer of valuable gifts of the spirit, such as wisdom, knowledge, faith, discernment, and direction.
 
@@ -83,9 +84,12 @@ I have heard the still small voice, or the whisperings of the Spirit, as I have 
 
 Sometime ago a young lady asked me, “How do you know when you are speaking under the influence of the Holy Ghost?” My answer was, “I can feel it spiritually and physically.”
 
-I testify to you that the Holy Ghost has borne witness to me that God lives and is the Father of our spirits; that Jesus is the Christ, our Redeemer and Savior; that Joseph Smith was and is a great prophet, through whom the gospel in its fullness was restored, the church of Jesus Christ was reestablished, and the power to act in the name of God was restored to earth. The Holy Ghost has also borne witness to me many times that President Harold B. Lee is a great modern-day prophet, standing at the head of Christ’s church on this earth. I pray that the Lord and each one of us will sustain him in every way. I am most grateful for the influence of the Holy Ghost in my life.
+I testify to you that the Holy Ghost has borne witness to me that God lives and is the Father of our spirits; that Jesus is the Christ, our Redeemer and Savior; that Joseph Smith was and is a great prophet, through whom the gospel in its fullness was restored, the church of Jesus Christ was reestablished, and the power to act in the name of God was restored to earth. The Holy Ghost has also borne witness to me many times that President Harold B. Lee is a great modern-day prophet, standing at the head of Christ’s church on this earth. I pray that the Lord and each one of us will sustain him in every way. I am most grateful for the influence of the Holy Ghost in my life.
 
 I bear my witness to you that as one accepts the restored gospel of Jesus Christ and conforms to the principles and ordinances thereof, the Holy Ghost will truly be a guide and comfort to him throughout his life.
 
 Yes, one of the great differences between The Church of Jesus Christ of Latter-day Saints and any other church is that the worthy members may enjoy the continuing power and gifts of the Holy Ghost. May we all seek these gifts and be worthy of them, I pray in the name of Jesus Christ. Amen.
+
+
+
 

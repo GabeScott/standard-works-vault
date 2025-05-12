@@ -1,5 +1,6 @@
 # To Bear the Priesthood Worthily
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -11,11 +12,11 @@ I should like to address a few words to our executive officers, particularly the
 
 I will read for you the words of the prophets and the President of the Church in an earlier century. President John Taylor is quoted as saying:
 
-“Furthermore, I have heard of some Bishops who have been seeking to cover up the iniquities of men; I tell them, in the name of God, they will have to bear them themselves, and meet that judgment; and I tell you that any man who tampers with iniquity, he will have to bear that iniquity, and if any of you want to partake of the sins of men, or uphold them, you will have to bear them. Do you hear it, you Bishops and you Presidents? God will require it at your hands. You are not placed in position to tamper with principles of righteousness, nor to cover up the infamies and corruptions of men.” (Conference Report, April 1880, p. 78.)
+“Furthermore, I have heard of some Bishops who have been seeking to cover up the iniquities of men; I tell them, in the name of God, they will have to bear them themselves, and meet that judgment; and I tell you that any man who tampers with iniquity, he will have to bear that iniquity, and if any of you want to partake of the sins of men, or uphold them, you will have to bear them. Do you hear it, you Bishops and you Presidents? God will require it at your hands. You are not placed in position to tamper with principles of righteousness, nor to cover up the infamies and corruptions of men.” (*Conference Report,* April 1880, p. 78.)
 
-I read further from George Q. Cannon, who was also in the First Presidency:
+I read further from George Q. Cannon, who was also in the First Presidency:
 
-“The Spirit of God would undoubtedly be so grieved that it would forsake not only those who are guilty of these acts, but it would withdraw itself from those who would suffer them to be done in our midst unchecked and unrebuked; and from the President of the Church down, throughout the entire ranks of the Priesthood, there would be a loss of the Spirit of God, a withdrawal of His gifts and blessing and His power, because of their not taking the proper measures to check and to expose their iniquity.” (Journal of Discourses, 26:139.)
+“The Spirit of God would undoubtedly be so grieved that it would forsake not only those who are guilty of these acts, but it would withdraw itself from those who would suffer them to be done in our midst unchecked and unrebuked; and from the President of the Church down, throughout the entire ranks of the Priesthood, there would be a loss of the Spirit of God, a withdrawal of His gifts and blessing and His power, because of their not taking the proper measures to check and to expose their iniquity.” (*Journal of Discourses,* 26:139.)
 
 Now, brethren, we could quote many others of the Brethren in this same vein.
 
@@ -25,7 +26,7 @@ Too often a transgressor is forgiven and all penalties waived when that person s
 
 Remember that President Taylor said you will have to carry that sin yourself. Are you willing to do it, brethren?
 
-Do you remember what was said by the prophet Alma? “Now,” he said, “repentance could not come unto men except there were a punishment.” (Alma 42:16.)
+Do you remember what was said by the prophet Alma? “Now,” he said, “repentance could not come unto men except there were a punishment.” ([[Alma 42.16|Alma 42:16]].)
 
 Ponder on that for a moment. Have you realized that? There can be no forgiveness without real and total repentance, and there can be no repentance without punishment. This is as eternal as is the soul.
 
@@ -37,7 +38,7 @@ It is so easy to let our sympathies carry us out of proportion; and when a man h
 
 Another matter that came to my attention the other day is a partial quote from Wilford Woodruff about Joseph Smith. Sometimes we find members who have an overdose of false pride. They want their way or they will quit. Have you ever seen anybody leave the ward and never “darken the door” of the ward building again because of a little altercation perhaps with the bishop or with someone there?
 
-“We have no chance to be lifted up in the pride of our hearts,” said the Prophet, “with regard to the position we occupy. If the President of the Church or either of his counselors or, if the apostles, or any other man, feels in his heart that God cannot do without him, and that he is especially important in order to carry on the work of the Lord, he stands upon slippery ground. I heard Joseph Smith say that Oliver Cowdery who was the second Apostle in this Church, said to him, ‘If I leave this church, it will fall.’ Said he, ‘Oliver, you try it.’ Oliver tried it. He fell; but the Kingdom of God did not. I have been acquainted with other Apostles in my day and time who felt that the Lord could not do without them, but the Lord got along with His work without them. I say to all men—Jew and Gentile, great and small, rich and poor—that the Lord Almighty has power within Himself and is not dependent upon any man to carry on His work, but when He does call men to do His work, they have to trust in Him.” (Wilford Woodruff, “Discourse,” Deseret Weekly, Apr. 6, 1890, 40:559–60.)
+“We have no chance to be lifted up in the pride of our hearts,” said the Prophet, “with regard to the position we occupy. If the President of the Church or either of his counselors or, if the apostles, or any other man, feels in his heart that God cannot do without him, and that he is especially important in order to carry on the work of the Lord, he stands upon slippery ground. I heard Joseph Smith say that Oliver Cowdery who was the second Apostle in this Church, said to him, ‘If I leave this church, it will fall.’ Said he, ‘Oliver, you try it.’ Oliver tried it. He fell; but the Kingdom of God did not. I have been acquainted with other Apostles in my day and time who felt that the Lord could not do without them, but the Lord got along with His work without them. I say to all men—Jew and Gentile, great and small, rich and poor—that the Lord Almighty has power within Himself and is not dependent upon any man to carry on His work, but when He does call men to do His work, they have to trust in Him.” (Wilford Woodruff, “Discourse,” *Deseret Weekly,* Apr. 6, 1890, 40:559–60.)
 
 And now, my brethren of the priesthood, there is something very special about meeting together in this priesthood meeting time during each conference when the fathers and the sons are together and come from distances to hear the program of the conference.
 
@@ -61,7 +62,7 @@ Now, with such a father who is devoted to his son, it is up to each son to begin
 
 “You’re young, with your life before you,” said the chaplain on a sinking ship. “Here, take this,” he said. And with these words the chaplain shoved his life preserver into the hands of an enlisted man, and a few moments later, went down with the ship.
 
-“The date was February 3, 1943. The tragedy was the torpedoing of the American troop ship Dorchester. The chaplain was one of four, all of whom said in effect the same thing, gave up their life preservers, and sacrificed their lives: one was a Catholic; two were Protestants; one was Jewish.
+“The date was February 3, 1943. The tragedy was the torpedoing of the American troop ship *Dorchester.* The chaplain was one of four, all of whom said in effect the same thing, gave up their life preservers, and sacrificed their lives: one was a Catholic; two were Protestants; one was Jewish.
 
 “Their heroism was a dramatic example of chaplains’ action in an emergency and it has become known everywhere. But chaplains’ day-to-day service for the men in the armed forces is less well understood, and it is important to all of us.” (Source unknown)
 
@@ -87,7 +88,7 @@ The leader of a big concern in this country answered the question propounded to 
 
 “Honor your Creator. God is the source of all good. The ideals on which the nation is founded stem from him who is the author of Liberty. You can express appreciation for your priceless heritage best by living according to the code of ‘Duty, Honor, Country, and God.’
 
-“If you do these, and in all things do your best, the mind and heart and soul you develop will one day be those of a real man.” (J. Edgar Hoover, source unknown.)
+“If you do these, and in all things do your best, the mind and heart and soul you develop will one day be those of a real man.” (J. Edgar Hoover, source unknown.)
 
 It is the stance that counts. When one wants to be tall, he starts by stretching himself heavenward. If he wants to be noble, he puts on his noble garments. If he wants to fly, he must get wings. If one wants to be righteous, he needs to put on the cloak of righteousness.
 
@@ -97,7 +98,7 @@ There is the story told of Lord George Hall of an earlier time. It is a mythical
 
 “Following a custom of the day, Lord George went down to Mr. Aeneas in Bond Street, London. Aeneas made waxen masks for people, and his skill was so art-perfect that the person’s identity was completely hidden. As proof of his skill, it is said that many spendthrift debtors, equipped with his masks, could pass among their creditors unrecognized. Aeneas went to his storeroom, selected a mask, heated it over a lamp, fixed it to Lord George’s face; and when Lord George looked in the glass, he had the face of a saint who loved dearly. So altered was his appearance that Jenny Mere was soon wooed and won.
 
-“He bought a little cottage in the country, almost hidden in an arbor of roses, with a tiny garden spot. From then on his entire life changed. He became interested in nature; he found ‘sermons in stones, books in brooks, and good in everything.’ Formerly he was blasé and life had no interest for him; now, he was engrossed in kindliness, and the world around him.
+“He bought a little cottage in the country, almost hidden in an arbor of roses, with a tiny garden spot. From then on his entire life changed. He became interested in nature; he found ‘sermons in stones, books in brooks, and good in everything.’ Formerly he was blasé and life had no interest for him; now, he was engrossed in kindliness, and the world around him.
 
 “He was not content with starting life anew, but tried to make amends for the past. Through a confidential solicitor he restored his ill-gotten gains to those whom he had cheated. Each day brought new refinements to his character, more beautiful thoughts to his soul.
 
@@ -109,91 +110,52 @@ There is no doubt that the life one leads, and the thoughts one thinks are regis
 
 Perhaps I have time to read a few lines here from an article which I thought might be of interest to you.
 
-Hearsay
-
-In every town, in every street,
-
-In nearly every house, you meet
-
-A little imp, who wriggles in
-
-With half a sneer and half a grin,
-
-And climbs upon your rocking chair,
-
-Or creeps upon you anywhere;
-
-And when he gets you very near,
-
-Just whispers something in your ear—
-
-Some rumor of another’s shame—
-
-And “Little Hearsay” is his name.
-
-He never really claims to know—
-
-He’s only heard that it is so;
-
-And then he whispers it to you,
-
-So you will go and whisper too.
-
-For if enough is passed along
-
-The rumor, even though it’s wrong—
-
-If John tells Henry, Henry—Joe,
-
-And Joe tells Mary, Mary—Flo,
-
-And Flo tells Mildred, Mildred—Ruth—
-
-It very soon may pass for truth.
-
-You understand, this little elf
-
-He doesn’t say he knows himself,
-
-He doesn’t claim it’s really true—
-
-He only whispers it to you,
-
-Because he knows you’ll go and tell
-
-Some other whisperer as well.
-
-And so before the setting sun
-
-He gets the devil’s mischief done,
-
-And there is less of joy and good
-
-Around your little neighborhood.
-
-Look out for “Hearsay!” when he sneaks
-
-Inside the house—when slander speaks
-
-Just ask the proof in every case;
-
-Just ask the name and date and place;
-
-And if he says he’s only heard,
-
-Declare you don’t believe a word,
-
-And tell him you will not repeat
-
-The silly chatter of the street.
-
-However gossips smile and smirk,
-
-Refuse to do their devil’s work.
-
-Taken from “Shell Happytime”
+>In every town, in every street,
+>In nearly every house, you meet
+>A little imp, who wriggles in
+>With half a sneer and half a grin,
+>And climbs upon your rocking chair,
+>Or creeps upon you anywhere;
+>And when he gets you very near,
+>Just whispers something in your ear—
+>Some rumor of another’s shame—
+>And “Little Hearsay” is his name.
+>He never really claims to know—
+>He’s only heard that it is so;
+>And then he whispers it to you,
+>So you will go and whisper too.
+>For if enough is passed along
+>The rumor, even though it’s wrong—
+>If John tells Henry, Henry—Joe,
+>And Joe tells Mary, Mary—Flo,
+>And Flo tells Mildred, Mildred—Ruth—
+>It very soon may pass for truth.
+>You understand, this little elf
+>He doesn’t say he knows himself,
+>He doesn’t claim it’s really true—
+>He only whispers it to you,
+>Because he knows you’ll go and tell
+>Some other whisperer as well.
+>And so before the setting sun
+>He gets the devil’s mischief done,
+>And there is less of joy and good
+>Around your little neighborhood.
+>Look out for “Hearsay!” when he sneaks
+>Inside the house—when slander speaks
+>Just ask the proof in every case;
+>Just ask the name and date and place;
+>And if he says he’s only heard,
+>Declare you don’t believe a word,
+>And tell him you will not repeat
+>The silly chatter of the street.
+>However gossips smile and smirk,
+>Refuse to do their devil’s work.
+>
 
 Brethren, I wonder if any of you have ever sung in a male chorus as beautiful as the one this night of 212 male voices. It’s been wonderful to meet with you. It’s glorious to serve the Lord in this capacity. How privileged we are to hold this precious priesthood, which is greater than that held by kings and emperors. How wonderful it is for every boy to have this privilege with his brothers and father. May God bless you all that the things which have been said this night in this meeting may sink deep into our hearts and that all of us may profit by them.
 
-This is the work of the Lord. I want you boys and you men to know. This is the work of the Lord, and I know it, and I want you to know that I know it. And I think you know it, and together we will go forward to meet our great destiny. God bless you in the name of Jesus Christ. Amen.
+This is the work of the Lord. I want you boys and you men to know. This is the work of the Lord, and I know it, and I want you to know that I know it. And I think *you* know it, and together we will go forward to meet our great destiny. God bless you in the name of Jesus Christ. Amen.
+
+
+
 

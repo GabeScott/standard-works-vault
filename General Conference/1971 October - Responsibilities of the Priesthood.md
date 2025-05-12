@@ -1,5 +1,6 @@
 # Responsibilities of the Priesthood
-*By Harold B. Lee - First Counselor in the First Presidency*
+
+By President Harold B. Lee - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -33,7 +34,7 @@ We have had these brethren speak as they have tonight, directing your attention 
 
 This is a program that we will hear more of, and this is a call to doctors, nurses, agricultural people, and all those whom Dr. Mason has talked about that we are going to try to marshal and call as regular missionaries to go out at their own expense, as all proselyting missionaries do, to give help for a period of time in helping to lift the standards of our people wherever that help is needed. Now we can see in this a great uplift and a great surge of strength that will come from many of these persons who are asking for somebody to give them a chance to serve in the fields where they are able to serve; to reach out to all of these who are in some measure less active than they should be and give them something to do. Use your imagination, you leaders, and see that everyone is given some responsibility, with the feeling that the Church needs them for a specific service.
 
-I recall, and I think I have mentioned this before and I repeat it tonight, the experience of the late Adam S. Bennion when he went out to the Utah State Penitentiary. He was bolder than some of us have been when we have gone out there. He engaged them in conversation. “Boys, I would like to ask you, what happened in your lives that caused you to make the mistakes that brought you here as inmates in the Utah State Penitentiary?” After he broke the ice, as it were, they gave him one answer: “We are here in the state penitentiary because there came a time in our lives when we were made to feel that nobody cared what happened to us.”
+I recall, and I think I have mentioned this before and I repeat it tonight, the experience of the late Adam S. Bennion when he went out to the Utah State Penitentiary. He was bolder than some of us have been when we have gone out there. He engaged them in conversation. “Boys, I would like to ask you, what happened in your lives that caused you to make the mistakes that brought you here as inmates in the Utah State Penitentiary?” After he broke the ice, as it were, they gave him one answer: “We are here in the state penitentiary because there came a time in our lives when we were made to feel that nobody cared what happened to us.”
 
 You and I sit here tonight in a comparative measure of security, but the Lord help any one of us if ever we are made to feel in our hearts that nobody cares what happens to us. A father or a mother or a child, or one who is not active, who feels that nobody cares—that man or woman is in a dangerous state, and we want you to reach out to all of these and bring them now into a measure of some activity, as soon as you can marshal your forces so to do.
 
@@ -42,4 +43,7 @@ I was down in a husbands-and-wives meeting in Provo years ago when a lovely sist
 I could have wished that every careless father in the Church could have heard that girl’s testimony.
 
 Please, we ask you priesthood holders, wake up these fathers now, while it is yet day and while there is time for them to receive their blessings before the darkness comes. May the Lord help us so to do now and to catch the vision and the message that President Tanner and these men who have spoken to you tonight have given you—a glimpse of what we can do if we will only exercise the priesthood, which is the power of God by which he works through men to the salvation of his children. That the Lord might help us so to do, to catch that vision, and to carry out the purposes of what we are trying to do in these years ahead, I pray humbly in the name of the Lord Jesus Christ. Amen.
+
+
+
 

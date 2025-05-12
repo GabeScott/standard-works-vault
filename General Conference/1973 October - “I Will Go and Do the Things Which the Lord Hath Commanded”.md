@@ -1,5 +1,6 @@
 # “I Will Go and Do the Things Which the Lord Hath Commanded”
-*By L. Tom Perry - Assistant to the Council of the Twelve*
+
+By Elder L. Tom Perry - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -9,11 +10,11 @@ There is a section in old Boston town where the gas lanterns still adorn the str
 
 Let us examine some histories of those who were not afraid to be lamplighters and give of their light for the benefit of mankind.
 
-The first few pages of the Book of Mormon record an exciting story of a family living in an environment where wickedness abounded to such an extent the Lord sent his prophets to warn the people they must repent or face destruction. Troubled with this admonition, the father inquires of the Lord concerning the course he should follow to safeguard his family from the prophesied destruction. He was instructed to take his family and leave the city. The scriptures record: “And it came to pass that he departed into the wilderness. And he left his house, and the land of his inheritance, and his gold, and his silver, and his precious things, and took nothing with him, save it were his family, and provisions, and tents. ...” (1 Ne. 2:4.)
+The first few pages of the *Book of Mormon* record an exciting story of a family living in an environment where wickedness abounded to such an extent the Lord sent his prophets to warn the people they must repent or face destruction. Troubled with this admonition, the father inquires of the Lord concerning the course he should follow to safeguard his family from the prophesied destruction. He was instructed to take his family and leave the city. The scriptures record: “And it came to pass that he departed into the wilderness. And he left his house, and the land of his inheritance, and his gold, and his silver, and his precious things, and took nothing with him, save it were his family, and provisions, and tents. …” ([[1 Nephi 2.4|1 Ne. 2:4]].)
 
-So they were instructed to leave with just the bare essentials of food, clothing, and a tent for shelter. All of the other worldly accumulations were considered nonessentials and were to be left behind; that is, save one. For they had not traveled a great distance when the Lord reminded them that they had left one essential behind and were not to proceed until they had acquired it. It is interesting to note what the Lord considered that essential to be. He instructed them to return for the record of their people and also the genealogy of their forefathers. This was not an easy assignment. They had been asked to return to an unfriendly city to ask for a favor. The father made the request of his sons to undertake this dangerous assignment. The two older sons murmured at such a difficult task but Nephi recognized it to be inspired of the Lord and makes this declaration: “... I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” (1 Ne. 3:7.)
+So they were instructed to leave with just the bare essentials of food, clothing, and a tent for shelter. All of the other worldly accumulations were considered nonessentials and were to be left behind; that is, save one. For they had not traveled a great distance when the Lord reminded them that they had left one essential behind and were not to proceed until they had acquired it. It is interesting to note what the Lord considered that essential to be. He instructed them to return for the record of their people and also the genealogy of their forefathers. This was not an easy assignment. They had been asked to return to an unfriendly city to ask for a favor. The father made the request of his sons to undertake this dangerous assignment. The two older sons murmured at such a difficult task but Nephi recognized it to be inspired of the Lord and makes this declaration: “… I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
 
-Their first approach on this dangerous mission was to reason with Laban, the keeper of the record. This brought the response from him, “... Behold thou art a robber, and I will slay thee ...” (1 Ne. 3:13), and they were forced to flee for their lives. The second approach was to go to their former home and gather up all of the riches they had left behind in an attempt to purchase the record. This approach also failed, for Laban recognized that he could have both. He took their riches from them and drove them away. After much internal strife and contention, Nephi decides to put his complete trust in the Lord and under the cover of night, seeks after the record. Laban is delivered into his hands in a drunken state and the Lord teaches Nephi a great lesson about the value of history. He declared to him that, “... It is better that one man should perish than that a nation should dwindle and perish in unbelief.” (1 Ne. 4:13.) Frightening results occur if a nation does not preserve and safeguard its sacred history. Nephi must have then realized that this sacred history would serve as a lamp to give light and direction to future generations. Certainly he was a lamplighter and willing to carry the torch to establish a new nation.
+Their first approach on this dangerous mission was to reason with Laban, the keeper of the record. This brought the response from him, “… Behold thou art a robber, and I will slay thee …” ([[1 Nephi 3.13|1 Ne. 3:13]]), and they were forced to flee for their lives. The second approach was to go to their former home and gather up all of the riches they had left behind in an attempt to purchase the record. This approach also failed, for Laban recognized that he could have both. He took their riches from them and drove them away. After much internal strife and contention, Nephi decides to put his complete trust in the Lord and under the cover of night, seeks after the record. Laban is delivered into his hands in a drunken state and the Lord teaches Nephi a great lesson about the value of history. He declared to him that, “… It is better that one man should perish than that a nation should dwindle and perish in unbelief.” ([[1 Nephi 4.13|1 Ne. 4:13]].) Frightening results occur if a nation does not preserve and safeguard its sacred history. Nephi must have then realized that this sacred history would serve as a lamp to give light and direction to future generations. Certainly he was a lamplighter and willing to carry the torch to establish a new nation.
 
 There comes a time when commemorations and anniversaries of historical events give us special significance and highlight the great heritage which has been given to us. In 1976, the United States of America will celebrate its 200th birthday—a time to pause and reflect on that which has been bestowed on us.
 
@@ -25,31 +26,22 @@ I am certain, however, Ben Franklin’s hurt feelings would not last long. He wo
 
 There is a familiar hymn I would like to have you adopt as a theme song for the next three years as we prepare for our year of celebration. I would like to have you sing it each morning as you arise to lift the hearts and spirits of your family. Whistle it as you go down the street on your way to work to remind you that the path you take will be a cleaner, happier place because you passed that way. Hum it in your shops or offices to encourage all around you to make a greater contribution. Meditate on it as you retire and kneel in prayer of thanksgiving for the opportunities you have had that day to make the world a better place.
 
-“Have I done any good in the world today?
+>“Have I done any good in the world today?
+>Have I helped any one in need?
+>Have I cheered up the sad, and made someone feel glad?
+>If not, I have failed indeed.
+>Has any one’s burden been lighter today,
+>Because I was willing to share?
+>Have the sick and the weary been helped on their way?
+>When they needed my help was I there?
+>Then wake up, and do something more
+>Than dream of your mansion above:
+>Doing good is a pleasure, a joy beyond measure,
+>A blessing of duty and love.”
+>
 
-Have I helped any one in need?
+Let us sound the call today to revive the old profession of lamplighters. Let us each pick up our torch and illuminate the sacred histories, the eternal truths that divine providence has bestowed on us. Let us have the faith and courage of Nephi, roll up our sleeves like Ben Franklin, and “*go* and *do* the things which the Lord hath commanded.” May we be prepared and ready to celebrate with pride and thanksgiving our 200th anniversary with the comforting knowledge that we have made a worthy contribution to safeguard and protect those divinely inspired principles upon which this nation was established. I humbly pray, in the name of Jesus Christ. Amen.
 
-Have I cheered up the sad, and made someone feel glad?
 
-If not, I have failed indeed.
 
-Has any one’s burden been lighter today,
-
-Because I was willing to share?
-
-Have the sick and the weary been helped on their way?
-
-When they needed my help was I there?
-
-Then wake up, and do something more
-
-Than dream of your mansion above:
-
-Doing good is a pleasure, a joy beyond measure,
-
-A blessing of duty and love.”
-
-—LDS Hymns, no. 58.
-
-Let us sound the call today to revive the old profession of lamplighters. Let us each pick up our torch and illuminate the sacred histories, the eternal truths that divine providence has bestowed on us. Let us have the faith and courage of Nephi, roll up our sleeves like Ben Franklin, and “go and do the things which the Lord hath commanded.” May we be prepared and ready to celebrate with pride and thanksgiving our 200th anniversary with the comforting knowledge that we have made a worthy contribution to safeguard and protect those divinely inspired principles upon which this nation was established. I humbly pray, in the name of Jesus Christ. Amen.
 

@@ -1,7 +1,10 @@
 # Divine Authority, Sublime Young Men
-*By Steven J. Lund - Young Men General President*
+
+By President Steven J. Lund - *Young Men General President*
 
 *Given in the April session of the 2025 General Conference*
+
+>*I am forever grateful that holders of the Aaronic Priesthood, with its powers, ordinances, and duties, do bless all of us.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2025/04/22lund?lang=eng)
 
@@ -15,17 +18,17 @@ Each January, hands are laid on the heads of about 100,000 young men, connecting
 
 Now, ours is not always a very demonstrative church. Here, we do understatement.
 
-But still, seeing this rolling thunder of newly ordained priesthood holders spreading across the earth, I wondered—in a “church of joy” kind of way—if it shouldn’t be shouted from the rooftops. “Today,” I thought, “there should be trumpets and crashing cymbals and blazing Roman candles. There should be parades!”
+But still, seeing this rolling thunder of newly ordained priesthood holders spreading across the earth, I wondered—in a “church of joy”[^1] kind of way—if it shouldn’t be shouted from the rooftops. “Today,” I thought, “there should be trumpets and crashing cymbals and blazing Roman candles. There should be parades!”
 
 Knowing God’s power for what it truly is, we were witness to the disruption of the very patterns of this world by godly authority spreading across the earth.
 
 These ordinations launch these young men into lifetimes of service as they will find themselves in consequential times and places where their presence and prayers and the powers of the priesthood of God they hold will profoundly matter.
 
-This controlled chain reaction began with a ministering angel sent of God. The resurrected John the Baptist of ancient times appeared to Joseph and Oliver, placed his hands on their heads, and said, “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins” (Doctrine and Covenants 13:1).
+This controlled chain reaction began with a ministering angel sent of God. The resurrected John the Baptist of ancient times appeared to Joseph and Oliver, placed his hands on their heads, and said, “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins” ([[D&C 13.1|Doctrine and Covenants 13:1]]).
 
-John called this authority the “Priesthood of Aaron,” after Moses’s brother and priesthood companion. Anciently, the holders of this priesthood of Aaron were to teach and assist with ordinances—ordinances that focused discipleship on the future Messiah, the Lord Jesus Christ (see Deuteronomy 33:10).
+John called this authority the “Priesthood of Aaron,” after Moses’s brother and priesthood companion. Anciently, the holders of this priesthood of Aaron were to teach and assist with ordinances—ordinances that focused discipleship on the future Messiah, the Lord Jesus Christ (see [[Deuteronomy 33.10|Deuteronomy 33:10]]).
 
-The book of Numbers explicitly assigns to holders of the priesthood of Aaron the tasks of handling the vessels of the ordinances. “And thou shalt appoint Aaron and his sons ... and their charge shall be ... the table ... and the vessels of the sanctuary wherewith they minister” (Numbers 3:10, 31).
+The book of Numbers explicitly assigns to holders of the priesthood of Aaron the tasks of handling the vessels of the ordinances. “And thou shalt appoint Aaron and his sons … and their charge shall be … the table … and the vessels of the sanctuary wherewith they minister” ([[Numbers 3.10|Numbers 3:10, 31]][[Numbers 3.31|]]).
 
 The Old Testament ordinance of animal sacrifice was fulfilled and replaced through the Savior’s life and Atonement. That ancient ordinance was replaced with the ordinance we now call the sacrament of the Lord’s Supper.
 
@@ -37,7 +40,7 @@ The Aaronic Priesthood is called the preparatory priesthood partly because its o
 
 Such serious expectations require serious preparation.
 
-The Doctrine and Covenants explains that deacons and teachers are “to warn, expound, exhort, and teach, and invite all to come unto Christ” (Doctrine and Covenants 20:59). In addition to these opportunities, priests are to “preach ... and baptize” (Doctrine and Covenants 20:50).
+The Doctrine and Covenants explains that deacons and teachers are “to warn, expound, exhort, and teach, and invite all to come unto Christ” ([[D&C 20.59|Doctrine and Covenants 20:59]]). In addition to these opportunities, priests are to “preach … and baptize” ([[D&C 20.50|Doctrine and Covenants 20:50]]).
 
 Well, all that sounds like a lot, but in the real world, these things happen naturally and all over the world.
 
@@ -61,7 +64,7 @@ And then Alan got sick. And he softened.
 
 And one day in quorum meeting, he tenderly asked them to pray for him to quit smoking, and so they did. But then they followed him home and confiscated all of his tobacco stash.
 
-As his failing health put Alan into hospitals and rehab centers, “his boys” served him, quietly exuding powers of priesthood and of love unfeigned (see Doctrine and Covenants 121:41).
+As his failing health put Alan into hospitals and rehab centers, “his boys” served him, quietly exuding powers of priesthood and of love unfeigned (see [[D&C 121.41|Doctrine and Covenants 121:41]]).
 
 The miracle continued when Alan asked to be baptized—but then he passed away before it could happen. At his request, his deacons-turned-priests were the pallbearers and the speakers at his funeral, where they—fittingly—warned, expounded, exhorted, taught, and invited all to Christ.
 
@@ -79,7 +82,7 @@ The bishop went to the stand and walked past his usual seat between his counselo
 
 During that anguished and sleepless night before of searching for understanding and peace, he had received a strong impression of what his family most needed—and what his ward most needed. It was to hear the voice of their bishop, their ward Aaronic Priesthood president, their grieving father, pronounce the promises of the sacramental covenant.
 
-So, in due course, he knelt with those priests and spoke to His Father. With the pathos of that occasion, he pronounced some of the most powerful words that anyone is ever allowed to say out loud in this lifetime.
+So, in due course, he knelt with those priests and spoke to His Father. With the pathos of that occasion, he pronounced some of the most powerful words that anyone is ever allowed to say out loud in this lifetime.[^2]
 
 Words of eternal consequence.
 
@@ -91,11 +94,18 @@ Instruction that connects us to the very purposes of this life—and to the most
 
 Can you imagine what the congregation heard in that chapel that day—what they felt in the words that we hear every Sunday in our chapels?
 
-“O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this bread to the souls of all those who partake of it, that they may eat in remembrance of the body of thy Son, and witness unto thee, O God, the Eternal Father, that they are willing to take upon them the name of thy Son, and always remember him and keep his commandments which he has given them; that they may always have his Spirit to be with them. Amen” (Doctrine and Covenants 20:77).
+“O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this bread to the souls of all those who partake of it, that they may eat in remembrance of the body of thy Son, and witness unto thee, O God, the Eternal Father, that they are willing to take upon them the name of thy Son, and always remember him and keep his commandments which he has given them; that they may always have his Spirit to be with them. Amen” ([[D&C 20.77|Doctrine and Covenants 20:77).]]
 
-And then: “O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this [water] to the souls of all those who drink of it, that they may do it in remembrance of the blood of thy Son, which was shed for them; that they may witness unto thee, O God, the Eternal Father, that they do always remember him, that they may have his Spirit to be with them. Amen” (Doctrine and Covenants 20:79).
+And then: “O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this \[water\] to the souls of all those who drink of it, that they may do it in remembrance of the blood of thy Son, which was shed for them; that they may witness unto thee, O God, the Eternal Father, that they do always remember him, that they may have his Spirit to be with them. Amen” ([[D&C 20.79|Doctrine and Covenants 20:79]]).
 
 This good father and mother testify that that promise has been fulfilled. They do, in fact, to their everlasting comfort, “have his Spirit to be with them.”
 
-I am forever grateful that holders of the Aaronic Priesthood, with its powers, ordinances, and duties, do bless all of us through the keys of the very “ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins” (Doctrine and Covenants 13:1). In the name of Jesus Christ, amen.
+I am forever grateful that holders of the Aaronic Priesthood, with its powers, ordinances, and duties, do bless all of us through the keys of the very “ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins” ([[D&C 13.1|Doctrine and Covenants 13:1]]). In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See Patrick Kearon, “[[2024 October - Welcome to the Church of Joy.md|Welcome to the Church of Joy]],” *Liahona*, Nov. 2024, 36–38.
+
+[^2]: In his seminal general conference address “[[2024 October - Welcome to the Church of Joy.md|Welcome to the Church of Joy]],” Elder Kearon directed us in footnote 10 to President Gordon B. Hinckley’s teaching: “When you, as a priest, kneel at the sacrament table and offer up the prayer, which came by revelation, you place the entire congregation under covenant with the Lord. Is this a small thing? It is a most important and remarkable thing” (“[[1988 April - The Aaronic Priesthood—a Gift from God.md|The Aaronic Priesthood—a Gift from God]],” *Ensign*, May 1988, 46).
 

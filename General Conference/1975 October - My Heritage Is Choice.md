@@ -1,11 +1,12 @@
 # My Heritage Is Choice
-*By George P. Lee - Of the First Quorum of the Seventy*
+
+By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/10/my-heritage-is-choice?lang=eng)
 
-Brothers and sisters, I finally realized how General Custer must have felt. ...
+Brothers and sisters, I finally realized how General Custer must have felt. …
 
 I want you to know that it is a great honor and privilege to be in your presence today, and in the presence of our Prophet, and all those that assist him in the kingdom of God.
 
@@ -40,4 +41,7 @@ All of us must realize that when we die and go to paradise, if we make it there,
 You might as well realize that we are all going to the same place. As an Indian I will not find an Indian reservation in paradise. As a Hopi, you will not find a Hopi reservation. As a Japanese you will not find Japan in paradise. As Chinese, you will not find China in paradise. Let’s live together as children of God. We are all brothers and sisters. We will all go to the same place if we are righteous, and if we endure to the end. There is no United States, there is no Navajo reservation, nor any way of life, except God’s, in paradise.
 
 God lives. Jesus Christ lives, brothers and sisters. In the name of Jesus Christ. Amen.
+
+
+
 

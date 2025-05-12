@@ -1,7 +1,10 @@
 # Drawing Nearer to the Lord
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1997 General Conference*
+
+>*God is our Father, who watches over His kingdom. Jesus is the Christ, whose name this Church bears. He stands at its head.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1997/10/drawing-nearer-to-the-lord?lang=eng)
 
@@ -27,7 +30,10 @@ We extend our love and blessing to each one who is being released and wish for t
 
 At this time I wish only to invite the Spirit of the Lord to be with us as we go forward with another great conference. May all who speak be inspired in their remarks. May the prayers lift our thoughts to high and sacred levels. May the music bring beauty and spiritual nourishment to each of us.
 
-I wish that all of the General Authorities could speak to us. Unfortunately, that is not possible. But we shall all be as one as our hearts reach out to you, our beloved brothers and sisters, in testimony of this great work. God is our Father who watches over His kingdom. Jesus is the Christ whose name this Church bears. He stands at its head. The gospel has been restored and is moving with power across the earth. Our faith is made secure by the things which we know to be true.
+I wish that all of the General Authorities could speak to us. Unfortunately, that is not possible. But we shall all be as one as our hearts reach out to you, our beloved brothers and sisters, in testimony of this great work. God is our Father, who watches over His kingdom. Jesus is the Christ, whose name this Church bears. He stands at its head. The gospel has been restored and is moving with power across the earth. Our faith is made secure by the things which we know to be true.
 
 May the blessings of the Lord attend us I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

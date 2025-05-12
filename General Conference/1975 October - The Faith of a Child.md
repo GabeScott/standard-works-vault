@@ -1,5 +1,6 @@
 # The Faith of a Child
-*By Thomas S. Monson - Of the Council of the Twelve*
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -11,7 +12,7 @@ It is a humbling experience to gaze into your faces and to appreciate your faith
 
 Particularly am I grateful for the children who are here. In the balcony to my left I see a beautiful girl of perhaps ten years. Sweet little one, I do not know your name or whence you have come. This, however, I do know: the innocence of your smile and the tender expression of your eyes have persuaded me to place aside for a future time the message I had prepared for this occasion. Today, I am impressed to speak to you.
 
-When I was a boy your age, I too had a teacher in Sunday School. From the Bible she would read to us of Jesus, the Redeemer and Savior of the world. One day she taught us how the little children were brought unto him, that he should put his hands on them and pray. His disciples rebuked those that brought the children. “But when Jesus saw it, he was much displeased, and said unto them, Suffer the little children to come unto me, and forbid them not: for of such is the kingdom of God.” (Mark 10:14.)
+When I was a boy your age, I too had a teacher in Sunday School. From the Bible she would read to us of Jesus, the Redeemer and Savior of the world. One day she taught us how the little children were brought unto him, that he should put his hands on them and pray. His disciples rebuked those that brought the children. “But when Jesus saw it, he was much displeased, and said unto them, Suffer the little children to come unto me, and forbid them not: for of such is the kingdom of God.” ([[Mark 10.14|Mark 10:14]].)
 
 That lesson has never left me. Indeed, just a few months ago I relearned its meaning and partook of its power. My teacher was the Lord. May I share with you this experience.
 
@@ -25,13 +26,13 @@ Christal never made the flight to Salt Lake City. Her condition deteriorated. Th
 
 Meanwhile in Salt Lake City, with no knowledge of the events transpiring in Shreveport, a most unusual situation developed. For the weekend of the Shreveport Louisiana Stake Conference, I had been assigned to El Paso, Texas. President Ezra Taft Benson called me to his office and explained that one of the other Brethren had done some preparatory work regarding the stake division in El Paso. He asked if I would mind were another to be assigned to El Paso and I assigned elsewhere. Of course there was no problem—anywhere would be fine with me. Then President Benson said, “Brother Monson, I feel impressed to have you visit the Shreveport Louisiana Stake.” The assignment was accepted. The day came. I arrived in Shreveport.
 
-That Saturday afternoon was filled with meetings—one with the stake presidency, one with priesthood leaders, one with the patriarch, then yet another with the general leadership of the stake. Rather apologetically, Stake President Charles F. Cagle asked if my schedule would permit me time to provide a blessing to a ten-year-old girl afflicted with cancer. Her name: Christal Methvin. I responded that, if possible, I would do so, and then inquired if she would be at the conference, or was she in a Shreveport hospital? Knowing the time was tightly scheduled, President Cage almost whispered that Christal was confined to her home—more than eighty miles from Shreveport!
+That Saturday afternoon was filled with meetings—one with the stake presidency, one with priesthood leaders, one with the patriarch, then yet another with the general leadership of the stake. Rather apologetically, Stake President Charles F. Cagle asked if my schedule would permit me time to provide a blessing to a ten-year-old girl afflicted with cancer. Her name: Christal Methvin. I responded that, if possible, I would do so, and then inquired if she would be at the conference, or was she in a Shreveport hospital? Knowing the time was tightly scheduled, President Cage almost whispered that Christal was confined to her home—*more than eighty miles from Shreveport!*
 
 I examined the schedule of meetings for that evening and the next morning—even my return flight. There simply was no available time. An alternative suggestion came to mind. Could we not remember the little one in our public prayers at conference? Surely the Lord would understand. On this basis, we proceeded with the scheduled meetings.
 
 When the word was communicated to the Methvin family, there was understanding but a trace of disappointment as well. Hadn’t the Lord heard their prayers? Hadn’t he provided that Brother Monson would come to Shreveport? Again the family prayed, asking for a final favor—that their precious Christal would realize her desire.
 
-At the very moment the Methvin family knelt in prayer, the clock in the stake center showed the time to be 7:45. The leadership meeting had been inspirational. I was sorting my notes, preparing to step to the pulpit, when I heard a voice speak to my spirit. The message was brief, the words familiar: “Suffer the little children to come unto me, and forbid them not: for of such is the kingdom of God.” (Mark 10:14.) My notes became a blur. My thoughts turned to a tiny girl in need of a blessing. The decision was made. The meeting schedule was altered. After all, people are more important than meetings. I turned to Bishop James Serra and asked that he leave the meeting and advise the Methvins.
+At the very moment the Methvin family knelt in prayer, the clock in the stake center showed the time to be 7:45. The leadership meeting had been inspirational. I was sorting my notes, preparing to step to the pulpit, when I heard a voice speak to my spirit. The message was brief, the words familiar: “Suffer the little children to come unto me, and forbid them not: for of such is the kingdom of God.” ([[Mark 10.14|Mark 10:14]].) My notes became a blur. My thoughts turned to a tiny girl in need of a blessing. The decision was made. The meeting schedule was altered. After all, people are more important than meetings. I turned to Bishop James Serra and asked that he leave the meeting and advise the Methvins.
 
 The Methvin family had just arisen from their knees when the telephone rang and the message was relayed that early Sunday morning—the Lord’s day—in a spirit of fasting and prayer, we would journey to Christal’s bedside.
 
@@ -43,63 +44,44 @@ Four days later, on Thursday, as Church members in Shreveport joined their faith
 
 For those of us who knelt that Sabbath day in a sun-filled bedroom, and particularly for Christal’s mother and father as they enter daily that same room and remember how she left it, the immortal words of Eugene Field will bring back precious memories:
 
-The little toy dog is covered with dust,
+>The little toy dog is covered with dust,
+>But sturdy and staunch he stands;
+>And the little toy soldier is red with rust,
+>And his musket moulds in his hands.
+>Time was when the little toy dog was new,
+>And the soldier was passing fair,
+>And that was the time when our Little Boy Blue
+>Kissed them and put them there.
+>
+>“Now, don’t you go till I come,” he said,
+>“And don’t you make any noise!”
+>So toddling off to his trundle-bed
+>He dreamt of the pretty toys.
+>And as he was dreaming, an angel song
+>Awakened our Little Boy Blue,—
+>Oh, the years are many, the years are long,
+>But the little toy friends are true!
+>
+>Ay, faithful to Little Boy Blue they stand,
+>Each in the same old place,
+>Awaiting the touch of a little hand,
+>The smile of a little face.
+>And they wonder, as waiting these long years through,
+>In the dust of that little chair,
+>What has become of our Little Boy Blue
+>Since he kissed them and put them there.
+>
 
-But sturdy and staunch he stands;
+For us there is no need to wonder or to wait. Said the Master, “I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live: And whosoever liveth and believeth in me shall never die.” ([[John 11.25|John 11:25–26]][[John 11.26|]].) To you, Jack and Nancy Methvin, he speaks: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.” ([[John 14.27|John 14:27]].) And from your sweet Christal could well come the comforting expression: “I go to prepare a place for you. … that where I am, there ye may be also.” ([[John 14.2|John 14:2–3]][[John 14.3|]].)
 
-And the little toy soldier is red with rust,
-
-And his musket moulds in his hands.
-
-Time was when the little toy dog was new,
-
-And the soldier was passing fair,
-
-And that was the time when our Little Boy Blue
-
-Kissed them and put them there.
-
-“Now, don’t you go till I come,” he said,
-
-“And don’t you make any noise!”
-
-So toddling off to his trundle-bed
-
-He dreamt of the pretty toys.
-
-And as he was dreaming, an angel song
-
-Awakened our Little Boy Blue,—
-
-Oh, the years are many, the years are long,
-
-But the little toy friends are true!
-
-Ay, faithful to Little Boy Blue they stand,
-
-Each in the same old place,
-
-Awaiting the touch of a little hand,
-
-The smile of a little face.
-
-And they wonder, as waiting these long years through,
-
-In the dust of that little chair,
-
-What has become of our Little Boy Blue
-
-Since he kissed them and put them there.
-
-(“Little Boy Blue,” One Hundred and One Famous Poems, Chicago: Reilly & Lee, 1958, p. 15.)
-
-For us there is no need to wonder or to wait. Said the Master, “I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live: And whosoever liveth and believeth in me shall never die.” (John 11:25–26.) To you, Jack and Nancy Methvin, he speaks: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.” (John 14:27.) And from your sweet Christal could well come the comforting expression: “I go to prepare a place for you. ... that where I am, there ye may be also.” (John 14:2–3.)
-
-To you, my little friend in the upper balcony, and to believers everywhere, I bear witness that Jesus of Nazareth does love little children, that he listens to your prayers and responds to them. The Master did indeed utter those words, “Suffer the little children to come unto me, and forbid them not: for of such is the kingdom of God.” (Mark 10:14.)
+To you, my little friend in the upper balcony, and to believers everywhere, I bear witness that Jesus of Nazareth does love little children, that he listens to your prayers and responds to them. The Master did indeed utter those words, “Suffer the little children to come unto me, and forbid them not: for of such is the kingdom of God.” ([[Mark 10.14|Mark 10:14]].)
 
 I know these are the words he spoke to the throng gathered on the coast of Judea by the waters of Jordan—for I have read them.
 
 I know these are the words he spoke to an apostle on assignment in Shreveport, Louisiana—for I heard them.
 
 To these truths I bear record, in the name of Jesus Christ. Amen.
+
+
+
 

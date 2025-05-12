@@ -1,5 +1,6 @@
 # An Anchor for Eternity—and Today
-*By By Bonnie D. Parkin - Second Counselor in the Young Women General Presidency*
+
+By Bonnie D. Parkin - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1996 General Conference*
 
@@ -15,21 +16,24 @@ Not everyone will have the opportunity to see a prophet face-to-face. Fortunatel
 
 Sister Diana Lacey, a leader in Farmington, New Mexico, was struggling to help young women view the Personal Progress program as something exciting and positive. She was finding no direction—until during general conference she heard President Hinckley tell the story of Caleb and Joshua, who, with 10 others, were sent to Canaan to report on its resources and people. Upon their return, the 10 reported all the negative things they saw, but Caleb and Joshua saw past those and spoke of the positive. Unfortunately, like today, the people chose to believe the doubters, and so only Caleb and Joshua were preserved to enter the promised land. President Hinckley added:
 
-“We see some around us who are indifferent concerning the future of this work, who are apathetic, who speak of limitations, who express fears. ... They have no vision concerning its future.
+“We see some around us who are indifferent concerning the future of this work, who are apathetic, who speak of limitations, who express fears. … They have no vision concerning its future.
 
-“Well was it said of old, ‘Where there is no vision, the people perish’ (Prov. 29:18)” (Ensign, Nov. 1995, 71).
+“Well was it said of old, ‘Where there is no vision, the people perish’ ([[Proverbs 29.18|Prov. 29:18]])” (*Ensign,* Nov. 1995, 71).
 
-Sister Lacey was moved by this prophetic message and realized that Personal Progress is all about vision. She said: “I made a change and the results have astonished me. ... By changing my attitude and the way I was approaching Personal Progress, it had an effect on the girls’ attitude. ... The spirit of President Hinckley’s talk has been a blessing in my life.”
+Sister Lacey was moved by this prophetic message and realized that Personal Progress is all about vision. She said: “I made a change and the results have astonished me. … By changing my attitude and the way I was approaching Personal Progress, it had an effect on the girls’ attitude. … The spirit of President Hinckley’s talk has been a blessing in my life.”
 
 Do you see how Sister Lacey’s testimony was strengthened by following the prophet? She used the four steps Sister Virginia H. Pearce talked about: she listened to and read the words of President Hinckley, she identified a personal message, she put the message into action, and she noticed the changes in her life and feelings.
 
 I know a young woman who grew up in President Spencer W. Kimball’s ward. She had a fervent testimony of his calling, but while she was on her mission, President Kimball died. This young missionary worried about testifying of a prophet she didn’t know. One evening as she prayed for newly sustained President Ezra Taft Benson, she was immediately flooded with the warmth of the Spirit, and she gained a new testimony. “The Lord knew I needed to know,” she said, “and he knew I would share that witness in the conversion of others.” Sisters, this can happen for you!
 
-President Hinckley has promised that every person has a right to have a personal witness (see Ensign, Nov. 1995, 5). I know that asking for this witness can be a little scary. We worry we just might not get an answer. Or, we know that if we get an answer, we will have to live accordingly!
+President Hinckley has promised that every person has a right to have a personal witness (see *Ensign,* Nov. 1995, 5). I know that asking for this witness can be a little scary. We worry we just might not get an answer. Or, we know that if we get an answer, we will have to live accordingly!
 
 But think, what would a testimony of a living prophet do for you? How would it help you in your daily struggles? How would it change and bless your life?
 
 Only you and the Holy Ghost can answer these questions. If you do not now have a testimony of President Hinckley, rely on the testimonies of others as you gain your own. Pray for him, study his words, find a personal message, apply that message, and experience the good feelings.
 
 Will you do it? Will you listen to his words now and find a message for your life? I hope and pray that you will. I bear testimony to you that I know we have a living prophet guiding us. May each of us go our way this night seeking or reaffirming our own divine testimony that God leads his Church through prophets and that Gordon B. Hinckley is his prophet now is my prayer in the name of Jesus Christ, amen.
+
+
+
 

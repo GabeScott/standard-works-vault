@@ -1,5 +1,6 @@
 # The Keys of the Kingdom
-*By Bruce R. McConkie - Of the Quorum of the Twelve Apostles*
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -17,11 +18,11 @@ It is the resurrected John, whom Antipas beheaded more than 1800 years before in
 
 It is that John, the only child of a priestly Zacharias and a sainted Elisabeth, who had himself been ordained by an angel, when but eight days of age, to overthrow the kingdom of the Jews.
 
-It is that John to whom the Judean hosts came at Bethabara, seeking the cleansing power of his baptism. Then it was that the Beloved Baptist, “to fulfil all righteousness” (Matt. 3:15), immersed the very Son of God himself in the murky waters of a miserable Palestinian river.
+It is that John to whom the Judean hosts came at Bethabara, seeking the cleansing power of his baptism. Then it was that the Beloved Baptist, “to fulfil all righteousness” ([[Matthew 3.15|Matt. 3:15]]), immersed the very Son of God himself in the murky waters of a miserable Palestinian river.
 
-It is that John for whom the heavens opened and who saw the Holy Ghost descend in bodily form, in quiet serenity like a dove, and rest upon the One of whom the Divine Voice then said: “This is my beloved Son, in whom I am well pleased.” (Matt. 3:17.)
+It is that John for whom the heavens opened and who saw the Holy Ghost descend in bodily form, in quiet serenity like a dove, and rest upon the One of whom the Divine Voice then said: “This is my beloved Son, in whom I am well pleased.” ([[Matthew 3.17|Matt. 3:17]].)
 
-Now in resurrected glory, speaking in the name of that Messiah for whom he had died a martyr’s death, he confers upon his mortal friends the Priesthood of Aaron and the keys of the ministering of angels and of baptism by immersion for the remission of sins. (See D&C 13.)
+Now in resurrected glory, speaking in the name of that Messiah for whom he had died a martyr’s death, he confers upon his mortal friends the Priesthood of Aaron and the keys of the ministering of angels and of baptism by immersion for the remission of sins. (See [[D&C 13.1|D&C 13]][[D&C 13.2|]][[D&C 13.3|]][[D&C 13.4|]][[D&C 13.5|]][[D&C 13.6|]][[D&C 13.7|]][[D&C 13.8|]][[D&C 13.9|]][[D&C 13.10|]][[D&C 13.11|]][[D&C 13.12|]][[D&C 13.13|]][[D&C 13.14|]][[D&C 13.15|]][[D&C 13.16|]][[D&C 13.17|]][[D&C 13.18|]][[D&C 13.19|]][[D&C 13.20|]][[D&C 13.21|]][[D&C 13.22|]][[D&C 13.23|]][[D&C 13.24|]][[D&C 13.25|]][[D&C 13.26|]][[D&C 13.27|]][[D&C 13.28|]][[D&C 13.29|]][[D&C 13.30|]][[D&C 13.31|]][[D&C 13.32|]][[D&C 13.33|]][[D&C 13.34|]][[D&C 13.35|]][[D&C 13.36|]][[D&C 13.37|]][[D&C 13.38|]][[D&C 13.39|]][[D&C 13.40|]][[D&C 13.41|]][[D&C 13.42|]][[D&C 13.43|]][[D&C 13.44|]][[D&C 13.45|]][[D&C 13.46|]][[D&C 13.47|]][[D&C 13.48|]][[D&C 13.49|]][[D&C 13.50|]][[D&C 13.51|]][[D&C 13.52|]][[D&C 13.53|]][[D&C 13.54|]][[D&C 13.55|]][[D&C 13.56|]][[D&C 13.57|]][[D&C 13.58|]][[D&C 13.59|]][[D&C 13.60|]][[D&C 13.61|]][[D&C 13.62|]][[D&C 13.63|]][[D&C 13.64|]][[D&C 13.65|]][[D&C 13.66|]][[D&C 13.67|]][[D&C 13.68|]][[D&C 13.69|]][[D&C 13.70|]][[D&C 13.71|]][[D&C 13.72|]][[D&C 13.73|]][[D&C 13.74|]].)
 
 Now, for the first time in nearly 1700 years, there are mortal men on earth who can stand in the place of the Lord Jesus in ministering for the salvation of men. The hour is at hand when the gloom of sullen darkness will be pierced and the light of heaven again shine forth on our benighted planet.
 
@@ -35,11 +36,11 @@ With it the struggling mortals who will soon, by divine command, organize anew t
 
 They receive the keys of the kingdom by virtue of which they are empowered to organize, preside over, govern, and regulate the kingdom of God on earth, which is The Church of Jesus Christ of Latter-day Saints.
 
-They also receive the keys of the dispensation of the fulness of times, that glorious age of restoration and refreshment in which God designs to gather all things in one in Christ; that age of revelation and gifts and miracles in which he will bring to pass the restitution of all things spoken by the mouths of all the holy prophets since the world began. (See D&C 27:12–13; 81:2.)
+They also receive the keys of the dispensation of the fulness of times, that glorious age of restoration and refreshment in which God designs to gather all things in one in Christ; that age of revelation and gifts and miracles in which he will bring to pass the restitution of all things spoken by the mouths of all the holy prophets since the world began. (See [[D&C 27.12|D&C 27:12–13]][[D&C 27.13|]]; [[D&C 81.2|81:2]].)
 
 Being thus commissioned, and having thus the gospel of salvation, mortal men can set up anew God’s kingdom on earth and can preach again the gospel in all the world and to every people. The kingdom is then established on the sixth day of April in 1830, since which time every faithful member has devoted his time, talents, and means to spread the truth to our Father’s other children.
 
-But even this is not all. Yet other keys must be forthcoming. On a wondrous day in April of 1836, Moses and Elijah and Elias each come, bringing from their dispensations the keys and powers they had exercised as mortals. It is a day akin to that wondrous day 1800 years before on the Mount of Transfiguration. (See Matt. 17:1–13.)
+But even this is not all. Yet other keys must be forthcoming. On a wondrous day in April of 1836, Moses and Elijah and Elias each come, bringing from their dispensations the keys and powers they had exercised as mortals. It is a day akin to that wondrous day 1800 years before on the Mount of Transfiguration. (See [[Matthew 17.1|Matt. 17:1–13]][[Matthew 17.2|]][[Matthew 17.3|]][[Matthew 17.4|]][[Matthew 17.5|]][[Matthew 17.6|]][[Matthew 17.7|]][[Matthew 17.8|]][[Matthew 17.9|]][[Matthew 17.10|]][[Matthew 17.11|]][[Matthew 17.12|]][[Matthew 17.13|]].)
 
 Then it was, on the snowy mountain heights, after the Father had spoken from the cloud, that Moses and Elijah, both taken to heaven without tasting death, had come in their corporeal bodies to a temple not made with hands, and given for that day and time their keys and powers to Peter, James, and John.
 
@@ -51,25 +52,25 @@ These keys empower those who hold them to lead all Israel, the ten tribes includ
 
 The man Elias brings back “the gospel of Abraham,” the great Abrahamic covenant whereby the faithful receive promises of eternal increase, promises that through celestial marriage their eternal posterity shall be as numerous as the sands upon the seashore or as the stars in heaven for multitude. Elias gives the promise—received of old by Abraham, Isaac, and Jacob—that in modern men and in their seed all generations shall be blessed. And we are now offering the blessings of Abraham, Isaac, and Jacob to all who will receive them.
 
-Elijah brings back the keys of the sealing power, the power that enables men now living, as it was with Peter of old, to bind on the earth below and have their acts sealed everlastingly in the heavens above. (See D&C 110:11–16.)
+Elijah brings back the keys of the sealing power, the power that enables men now living, as it was with Peter of old, to bind on the earth below and have their acts sealed everlastingly in the heavens above. (See [[D&C 110.11|D&C 110:11–16]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].)
 
 Because Elijah came, the baptisms we perform on earth will have efficacy, virtue, and force in eternity. In literal reality they give us membership in the earthly kingdom which is the Church, and in the heavenly kingdom which is the celestial realm where God and Christ are.
 
-And so, in process of time, there is “a whole and complete and perfect union, and welding together of dispensations, and keys, and powers, and glories ... from the days of Adam even to the present time.” (D&C 128:18.)
+And so, in process of time, there is “a whole and complete and perfect union, and welding together of dispensations, and keys, and powers, and glories … from the days of Adam even to the present time.” ([[D&C 128.18|D&C 128:18]].)
 
-In the meridian of time Jesus ordained the Twelve in the coasts of Capernaum; he gave the keys of the kingdom to Peter, James, and John on the holy mount; and later he gave these same keys to all of the Twelve. (See Matt. 18:18.)
+In the meridian of time Jesus ordained the Twelve in the coasts of Capernaum; he gave the keys of the kingdom to Peter, James, and John on the holy mount; and later he gave these same keys to all of the Twelve. (See [[Matthew 18.18|Matt. 18:18]].)
 
 In our dispensation the Melchizedek Priesthood came in 1829; men were ordained to the holy apostleship in February of 1835; various keys were given at divers times, chiefly on April 3, 1836; and this continued until all the rivers of the past had flown into the ocean of the present, and mortal men possessed all of the keys and powers ever vested in men in any age from Adam to the present.
 
 By way of climax, all of the keys of the kingdom are given to the Twelve in the winter of 1844. They then receive what the revelations call the fulness of the priesthood, together with the power to confer that eternal fulness upon others.
 
-After they are thus endowed and empowered, the Prophet says to the Twelve: “I have sealed upon your heads all the keys of the kingdom of God. I have sealed upon you every key, power, [and] principle that the God of heaven has revealed to me. Now, no matter where I may go or what I may do, the kingdom rests upon you. But, ye apostles of the Lamb of God, my brethren, upon your shoulders this kingdom rests; now you have got to round up your shoulders and bear off the kingdom. If you do not do it you will be damned.” (See the Discourses of Wilford Woodruff, sel. G. Homer Durham [Salt Lake City: Bookcraft, 1946], p. 72.)
+After they are thus endowed and empowered, the Prophet says to the Twelve: “I have sealed upon your heads all the keys of the kingdom of God. I have sealed upon you every key, power, \[and\] principle that the God of heaven has revealed to me. Now, no matter where I may go or what I may do, the kingdom rests upon you. But, ye apostles of the Lamb of God, my brethren, upon your shoulders this kingdom rests; now you have got to round up your shoulders and bear off the kingdom. If you do not do it you will be damned.” (See the *Discourses of Wilford Woodruff,* sel. G. Homer Durham \[Salt Lake City: Bookcraft, 1946\], p. 72.)
 
 And thus is fulfilled the divine word in which the Lord had said aforetime to the Twelve: “For unto you, the Twelve, and those, the First Presidency, who are appointed with you to be your counselors and your leaders, is the power of this priesthood given, for the last days and for the last time, in the which is the dispensation of the fulness of times.
 
 “Which power you hold, in connection with all those who have received a dispensation at any time from the beginning of the creation;
 
-“For verily I say unto you, the keys of the dispensation, which ye have received, have come down from the fathers, and last of all, being sent down from heaven unto you.” (D&C 112:30–32.)
+“For verily I say unto you, the keys of the dispensation, which ye have received, have come down from the fathers, and last of all, being sent down from heaven unto you.” ([[D&C 112.30|D&C 112:30–32]][[D&C 112.31|]][[D&C 112.32|]].)
 
 And thus also is established the Lord’s system for succession in the Presidency. The keys of the kingdom of God—the right and power of eternal presidency by which the earthly kingdom is governed—these keys, having first been revealed from heaven, are given by the spirit of revelation to each man who is both ordained an Apostle and set apart as a member of the Council of the Twelve.
 
@@ -88,4 +89,7 @@ We need not fear for the future. This is the Lord’s work; it is his kingdom; a
 And as the Lord lives, and as Christ is true, and as truth will prevail, I testify that this work shall roll forward until it fills the whole earth, and until the knowledge of God covers the earth as the waters cover the sea.
 
 Now, this testimony I bear for myself and for all the faithful elders of the kingdom, and for all the sainted sisters who stand so valiantly at their sides, and above all I do it in the sacred and holy name of the Lord Jesus Christ. Even so, amen.
+
+
+
 

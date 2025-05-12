@@ -1,5 +1,6 @@
 # “Come, Listen to a Prophet’s Voice”
-*By By Ruth H. Funk - Former Young Women General President*
+
+By Ruth H. Funk - *Former Young Women General President*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -23,9 +24,12 @@ It occurred when this most treasured, little son was nearly three years old. One
 
 The next morning, our son climbed on his daddy’s knee. “I was sitting on the lap of Jesus,” he said. Then he went on, “He looked into my eyes. I was so happy. I wanted to stay there with him, but he told me I had to go back home to you.” Even now, twenty-four years later, our son remembers vividly the reciprocal love he experienced during his brief “step out of time.” He is vigorous and well, living with his lovely wife and a little son of his own as he continues to serve the Lord.
 
-Just as this child, for that one brief moment, knew and felt the love of the Savior, may we, as women of all ages, as daughters of God, as wives, as mothers, as contributing members of society whose identities are being challenged, seek to know him well enough to love him, well enough to serve him. Seek his face. Reciprocate his love. Reflect it to others. Consider this sobering thought as expressed by C. S. Lewis: “It is a serious thing to live in a society of possible gods and godesses” (The Weight of Glory, Grand Rapids, Mich: William B. Eerdmans Publishing Co., 1965, pp. 14–15.)
+Just as this child, for that one brief moment, knew and felt the love of the Savior, may we, as women of all ages, as daughters of God, as wives, as mothers, as contributing members of society whose identities are being challenged, seek to know him well enough to love him, well enough to serve him. Seek his face. Reciprocate his love. Reflect it to others. Consider this sobering thought as expressed by C. S. Lewis: “It is a serious thing to live in a society of possible gods and godesses” (*The Weight of Glory,* Grand Rapids, Mich: William B. Eerdmans Publishing Co., 1965, pp. 14–15.)
 
-Jesus Christ is our Savior, our brother, our friend. He is as near as we allow him to be. Our only ultimate joy and happiness is predicated upon our relationship with him. Our only peace, through disappointments, sorrow, and challenges, will come as we draw nearer unto him. With such love for our Redeemer, every difficult experience may be met with courage, acceptance, and even gratitude. His love for us is a gift beyond price. What does he ask in return? “Love one another; as I have loved you.” (John 13:34.)
+Jesus Christ is our Savior, our brother, our friend. He is as near as we allow him to be. Our only ultimate joy and happiness is predicated upon our relationship with him. Our only peace, through disappointments, sorrow, and challenges, will come as we draw nearer unto him. With such love for our Redeemer, every difficult experience may be met with courage, acceptance, and even gratitude. His love for us is a gift beyond price. What does he ask in return? “Love one another; as I have loved you.” ([[John 13.34|John 13:34]].)
 
-To these truths I bear solemn witness, for I know this is God’s church. I know God lives, as does his Beloved Son, our Savior Jesus Christ; and the Lord’s word will go forth this night through his chosen mouthpiece, President Spencer W. Kimball. May we listen to a prophet’s voice, I pray in the name of Jesus Christ. Amen.
+To these truths I bear solemn witness, for I know this is God’s church. I know God lives, as does his Beloved Son, our Savior Jesus Christ; and the Lord’s word will go forth this night through his chosen mouthpiece, President Spencer W. Kimball. May we listen to a prophet’s voice, I pray in the name of Jesus Christ. Amen.
+
+
+
 

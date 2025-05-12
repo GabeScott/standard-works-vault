@@ -1,5 +1,6 @@
 # Thanks Be to God
-*By Thomas S. Monson - Second Counselor in the First Presidency*
+
+By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1989 General Conference*
 
@@ -7,13 +8,13 @@
 
 In the first section of the Doctrine and Covenants, we read the Lord’s promise:
 
-“Hearken, O ye people of my church, saith the voice of him who dwells on high. ... Hearken ye people from afar. ...
+“Hearken, O ye people of my church, saith the voice of him who dwells on high. … Hearken ye people from afar. …
 
-“For verily the voice of the Lord is unto all men, and there is none to escape; and there is no eye that shall not see, neither ear that shall not hear, neither heart that shall not be penetrated. ...
+“For verily the voice of the Lord is unto all men, and there is none to escape; and there is no eye that shall not see, neither ear that shall not hear, neither heart that shall not be penetrated. …
 
 “And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days.
 
-“And they shall go forth and none shall stay them, for I the Lord have commanded them.” (D&C 1:1–2, 4–5.)
+“And they shall go forth and none shall stay them, for I the Lord have commanded them.” ([[D&C 1.1|D&C 1:1–2, 4–5]][[D&C 1.2|]][[D&C 1.4|]][[D&C 1.5|]].)
 
 Exactly fifty years ago, in 1939, the heads of state in Europe solemnly returned their position papers to leather briefcases, arose from their chairs at the conference table, and returned to their respective countries. Peace had perished. Mighty armies crossed international borders. Warplanes droned overhead; giant tanks lumbered forward. World War II had begun.
 
@@ -31,7 +32,7 @@ About that time, the prophet of the Lord determined that one named Ezra Taft Ben
 
 Another great benefactor of our German-speaking members is Walter Stover. Freely he has shared his life and generously given of his means to lift the people.
 
-In 1968 when I made my first visit to the German Democratic Republic, tensions were high. Trust and understanding did not exist. No diplomatic relations had been established. On a cloudy and rain-filled day I journeyed to the city of Görlitz, situated deep in the German Democratic Republic near the Polish and Czech borders. I attended my first meeting with the Saints. We assembled in a small and ancient building. As the members sang the hymns of Zion, they literally filled the hall with their faith and devotion.
+In 1968 when I made my first visit to the German Democratic Republic, tensions were high. Trust and understanding did not exist. No diplomatic relations had been established. On a cloudy and rain-filled day I journeyed to the city of Görlitz, situated deep in the German Democratic Republic near the Polish and Czech borders. I attended my first meeting with the Saints. We assembled in a small and ancient building. As the members sang the hymns of Zion, they literally filled the hall with their faith and devotion.
 
 My heart was filled with sorrow when I realized the members had no patriarch, no wards or stakes—just branches. They could not receive temple blessings—either endowment or sealing. No official visitor had come from Church headquarters in a long time. The members could not leave their country. Yet they trusted in the Lord with all their hearts.
 
@@ -67,15 +68,15 @@ For its size, this temple is one of the busiest temples in the Church. It is the
 
 A miracle of miracles had taken place. One more was needed. How can the Church grow without missionaries? How can our numbers increase despite an aging population? Beautiful new buildings grace the land: stake centers at Leipzig and Dresden, and chapels in Freiberg and Zwickau, with others to follow, such as a chapel under construction in the city of Plauen. A faithful brother from Plauen wrote me this poignant letter: “My parents and grandparents have served before us in this branch, but never thus far has it been possible to have our own meetinghouse. Now a long-cherished wish is being fulfilled.” After reading this touching account, the thought crossed my mind, “But what use are buildings if there are not sufficient members to occupy them?”
 
-Such was the dilemma uppermost on my mind as my plane landed in Berlin that October afternoon. We went forward with the vital assignment to visit with the leaders of the German Democratic Republic. Our ultimate goal was to seek permission for the doorway of missionary work to open. Elder Russell M. Nelson, Elder Hans B. Ringger, and I, along with our local German Democratic Republic Church leaders, headed by President Henry Burkhardt, President Frank Apel, and President Manfred Schutze, initially met with State Secretary for Religious Affairs Kurt Löffler as he hosted a lovely luncheon in our honor. He addressed our group by saying, “We want to be helpful to you. We’ve observed you and your people for twenty years. We know you are what you profess to be: honest men and women.”
+Such was the dilemma uppermost on my mind as my plane landed in Berlin that October afternoon. We went forward with the vital assignment to visit with the leaders of the German Democratic Republic. Our ultimate goal was to seek permission for the doorway of missionary work to open. Elder Russell M. Nelson, Elder Hans B. Ringger, and I, along with our local German Democratic Republic Church leaders, headed by President Henry Burkhardt, President Frank Apel, and President Manfred Schutze, initially met with State Secretary for Religious Affairs Kurt Löffler as he hosted a lovely luncheon in our honor. He addressed our group by saying, “We want to be helpful to you. We’ve observed you and your people for twenty years. We know you are what you profess to be: honest men and women.”
 
-Government leaders and their wives attended the dedication of a stake center at Dresden and a chapel at Zwickau. As the Saints sang “God be with you till we meet again”—“Auf Wiedersehen, Auf Wiedersehen”—we remembered Him, the Prince of Peace, who died on the cross at Calvary. I contemplated our Lord and Savior, when He walked the path of pain, the trail of tears, even the road of righteousness. His penetrating declaration came to mind: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.” (John 14:27.)
+Government leaders and their wives attended the dedication of a stake center at Dresden and a chapel at Zwickau. As the Saints sang “God be with you till we meet again”—“Auf Wiedersehen, Auf Wiedersehen”—we remembered Him, the Prince of Peace, who died on the cross at Calvary. I contemplated our Lord and Savior, when He walked the path of pain, the trail of tears, even the road of righteousness. His penetrating declaration came to mind: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.” ([[John 14.27|John 14:27]].)
 
 Then it was back to Berlin for the crucial meetings with the head of the nation, even Chairman Erich Honecker.
 
 That special morning the sunlight bathed the city of Berlin. It had been raining all night, but now beauty prevailed. We were driven to the chambers of the chief representatives of the government.
 
-Beyond the exquisite entry to the building, we were greeted by Chairman Honecker. We presented to him the statuette First Step, depicting a mother helping her child take its first step toward its father. He was highly pleased with the gift. He then escorted us into his private council room. There, around a large round table, we were seated. Others at the table included Chairman Honecker and his deputies of government.
+Beyond the exquisite entry to the building, we were greeted by Chairman Honecker. We presented to him the statuette *First Step,* depicting a mother helping her child take its first step toward its father. He was highly pleased with the gift. He then escorted us into his private council room. There, around a large round table, we were seated. Others at the table included Chairman Honecker and his deputies of government.
 
 Chairman Honecker began, “We know members of your Church believe in work; you’ve proven that. We know you believe in the family; you’ve demonstrated that. We know you are good citizens in whatever country you claim as home; we have observed that. The floor is yours. Make your desires known.”
 
@@ -87,7 +88,7 @@ My spirit literally soared out of the room. The meeting was concluded. As we lef
 
 The black darkness of night had ended. The bright light of day had dawned. The gospel of Jesus Christ would now be carried to the millions of people in that nation. Their questions concerning the Church will be answered, and the Kingdom of God will go forth.
 
-As I reflect on these events, my thoughts turn to the Master’s words, “In nothing doth man offend God, or against none is his wrath kindled, save those who confess not his hand in all things.” (D&C 59:21.) I confess the hand of God in the miraculous events pertaining to the Church in the German Democratic Republic.
+As I reflect on these events, my thoughts turn to the Master’s words, “In nothing doth man offend God, or against none is his wrath kindled, save those who confess not his hand in all things.” ([[D&C 59.21|D&C 59:21]].) I confess the hand of God in the miraculous events pertaining to the Church in the German Democratic Republic.
 
 The faith and devotion of our members in that nation have not gone unnoticed by God. The excellent service of other General Authorities, Regional Representatives, and mission presidents has been of inestimable help. The understanding cooperation of government leaders is most appreciated. Assignments have been made to the first ten missionaries from the German Democratic Republic to serve abroad; and just three days ago, on Thursday, March 30, the first full-time missionary representatives in exactly fifty years entered the German Democratic Republic. Their mission president was there to greet them. The long period of preparation is past. The future of the Church unfolds. Thanks be to God.
 
@@ -97,11 +98,14 @@ From the heavens we hear anew the Lord’s declaration:
 
 “Great is his wisdom, marvelous are his ways, and the extent of his doings none can find out.
 
-“His purposes fail not, neither are there any who can stay his hand. ...
+“His purposes fail not, neither are there any who can stay his hand. …
 
 “For thus saith the Lord—I, the Lord, am merciful and gracious unto those who fear me, and delight to honor those who serve me in righteousness and in truth unto the end.
 
-“Great shall be their reward and eternal shall be their glory.” (D&C 76:1–3, 5–6.)
+“Great shall be their reward and eternal shall be their glory.” ([[D&C 76.1|D&C 76:1–3, 5–6]][[D&C 76.2|]][[D&C 76.3|]][[D&C 76.5|]][[D&C 76.6|]].)
 
 May this be our universal blessing, I pray in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # The Daily Portion of Love
-*By By Bishop H. Burke Peterson - First Counselor in the Presiding Bishopric*
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -37,13 +38,13 @@ We must make an even clearer effort to communicate real love to a questioning ch
 
 Remember this scriptural admonition to parents: “And ye will not suffer your children that they go hungry, or naked; neither will ye suffer that they transgress the laws of God, and fight and quarrel one with another, and serve the devil, who is the master of sin, or who is the evil spirit which hath been spoken of by our fathers, he being an enemy to all righteousness.
 
-“But ye will teach them to walk in the ways of truth and soberness; ye will teach them to love one another, and to serve one another.” (Mosiah 4:14–15.)
+“But ye will teach them to walk in the ways of truth and soberness; ye will teach them to love one another, and to serve one another.” ([[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]].)
 
 May I suggest that parents’ teachings will be listened to more intently and be more closely heeded if they are preceded by and woven together with that golden fiber of love. If our words are to be remembered they must be accompanied and followed by considerate, thoughtful actions that cannot be forgotten.
 
 Many are waiting for the other to take the first step, to make the first overture. If you are a parent or a child, a husband or wife who has been waiting for the other to give some expression first, please listen to this.
 
-One of the most effective secrets for happiness is contained in the fourth chapter of 1 John, verse 19. It is only eight words long—listen carefully: “We love him, because he first loved us.” This will cause a change to happen because it is right. Do you get the message? “He first loved us.” Your children will love you; your brothers and sisters will love you; your eternal companion will love you—because you first loved them. Now I don’t mean it will all happen in a day, a week, or a year. But it will happen if you do not give up.
+One of the most effective secrets for happiness is contained in the [[1 John 4.19|fourth chapter of 1 John, verse 19]]. It is only eight words long—listen carefully: “We love him, because he first loved us.” This will cause a change to happen because it is right. Do you get the message? “He first loved us.” Your children will love you; your brothers and sisters will love you; your eternal companion will love you—because you first loved them. Now I don’t mean it will all happen in a day, a week, or a year. But it will happen if you do not give up.
 
 If you haven’t been in the habit of expressing your love regularly, start out easily—maybe only as much as an eye-dropper or two at first. At the beginning of this new approach even a glassful could cause a drowning. Build up the dosage as tolerance to accept it grows.
 
@@ -57,7 +58,7 @@ Now I know for some this may not be an easy thing to start—our backgrounds, cu
 
 He told us, as we read in John: “A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another.
 
-“By this shall all men know that ye are my disciples, if ye have love one to another.” (John 13:34–35.)
+“By this shall all men know that ye are my disciples, if ye have love one to another.” ([[John 13.34|John 13:34–35]][[John 13.35|]].)
 
 We can all be his disciples.
 
@@ -65,5 +66,8 @@ Two weeks ago President Kimball passed me as we were rushing to a meeting. He st
 
 I felt his spirit; I believed him; my spirit soared to a new height.
 
-If it comes from the heart, it will work, brothers and sisters. It will bring peace and happiness to a troubled soul. Please try again ... and again ... and again. I know he who set this pattern lives. I know Jesus is the Christ. Of this I testify in the name of Jesus Christ. Amen.
+If it comes from the heart, it will work, brothers and sisters. It will bring peace and happiness to a troubled soul. Please try again … and again … and again. I know he who set this pattern lives. I know Jesus is the Christ. Of this I testify in the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,11 +1,12 @@
 # “Whom the Lord Calls, the Lord Qualifies”
-*By Neil L. Andersen - Of the Seventy*
+
+By Elder Neil L. Andersen - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1993/04/whom-the-lord-calls-the-lord-qualifies?lang=eng)
 
-My dear brothers and sisters, words are so inadequate to express how humble and overwhelmed I feel at receiving this special calling. Throughout my life as I have heard the General Authorities speak and felt the power of their messages, I have gained a great reverence for the sacred role they perform in the Church. Now, to be invited to sit with them and to assist them in building the kingdom of God is a privilege I feel faint in accepting. I pray for your support, for your faith and prayers that I might measure up. I ask for your patience and for the patience of my Brethren who will be my tutors. More than anything, I pray for the help of our Heavenly Father and his Son, for without their help and direction I will surely fail.
+My dear brothers and sisters, words are so inadequate to express how humble and overwhelmed I feel at receiving this special calling. Throughout my life, as I have heard the General Authorities speak and felt the power of their messages, I have gained a great reverence for the sacred role they perform in the Church. Now to be invited to sit with them and to assist them in building the kingdom of God is a privilege I feel faint in accepting. I pray for your support, for your faith and prayers that I might measure up. I ask for your patience and for the patience of my Brethren who will be my tutors. More than anything, I pray for the help of our Heavenly Father and his Son, for without their help and direction I will surely fail.
 
 I am grateful for my wonderful companion, Kathy. She makes goodness look easy, and the purity of her spirit keeps our family focused on the simple yet saving truths of the gospel. I’m so thankful for the valiant and precious children that have been entrusted to us. I love them dearly and appreciate so much their willingness to support me in this new calling. I have been blessed with goodly parents. My parents are now serving as proselyting missionaries in the Georgia Macon Mission. Even before I knew, I knew that they knew the Church was true. I am so appreciative of Kathy’s parents and their example of unselfish giving, and for our brothers and sisters who live the gospel in quiet yet dedicated ways.
 
@@ -17,5 +18,8 @@ I have heard President Monson say, “Whom the Lord calls, the Lord qualifies.�
 
 I pledge all that I am to this sacred calling. I promise to be teachable, and I pray that I can be sufficiently meek that the Lord can mold and strengthen my spirit to accomplish his purposes. I commit to you and to the Lord that I will consecrate myself to advancing the cause of the Restoration and to loyally following his chosen leaders.
 
-I know that our Heavenly Father lives and that he loves each one of us. I know that Jesus is the Christ and that he lovingly offers the way to our forgiveness. I know that through the Prophet Joseph Smith the church of Jesus Christ was restored to the earth and that the true priesthood authority of God is in The Church of Jesus Christ of Latter-day Saints. I pray that I may always be valiant in that testimony and to these eternal truths, in the name of Jesus Christ, amen.
+I know that our Heavenly Father lives and that he loves each one of us. I know that Jesus is the Christ and that he lovingly offers the way to our forgiveness. I know that through the Prophet Joseph Smith the Church of Jesus Christ was restored to the earth and that the true priesthood authority of God is in The Church of Jesus Christ of Latter-day Saints. I pray that I may always be valiant in that testimony and to these eternal truths, in the name of Jesus Christ, amen.
+
+
+
 

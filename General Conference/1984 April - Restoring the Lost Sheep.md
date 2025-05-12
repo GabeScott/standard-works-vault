@@ -1,5 +1,6 @@
 # Restoring the Lost Sheep
-*By Joseph B. Wirthlin - Of the First Quorum of the Seventy*
+
+By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
 
@@ -19,29 +20,29 @@ Why do I begin with this story? Because desire in everyone involved is the first
 
 What I say, however, won’t do any good unless what is said fits in with what the listener wants for himself and has a profound hunger to attain. In every instance, those who are successful love what they are doing. It is a well-known fact that the attitude, the thinking of each of us, must be right before we can do what’s right.
 
-Elder Dean L. Larsen beautifully summarized this idea in these words: “When we understand what is right and what is wrong, we are in a position to exercise our freedom in making choices. In so doing, we must stand accountable for our decisions, and we cannot escape the inevitable consequences of these choices. Such freedom to exercise moral agency is essential in an environment where people have the highest prospects for progress and development.” (Ensign, May 1980, p. 76.)
+Elder Dean L. Larsen beautifully summarized this idea in these words: “When we understand what is right and what is wrong, we are in a position to exercise our freedom in making choices. In so doing, we must stand accountable for our decisions, and we cannot escape the inevitable consequences of these choices. Such freedom to exercise moral agency is essential in an environment where people have the highest prospects for progress and development.” (*Ensign,* May 1980, p. 76.)
 
 Jesus concerned himself primarily with the teaching of fundamental principles, and these principles had to do with the spiritual and mental condition of the individual. For the Savior knew that if one’s mental state is right, most everything else would be right. But if the mental state is wrong, little can be accomplished in a person’s life.
 
-It is no wonder, then, that Nephi admonished his people to “feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.” (2 Ne. 32:3.)
+It is no wonder, then, that Nephi admonished his people to “feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.” ([[2 Nephi 32.3|2 Ne. 32:3]].)
 
-Jesus said, “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.” (Matt. 7:21.)
+Jesus said, “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.” ([[Matthew 7.21|Matt. 7:21]].)
 
-“Enter ye in at the strait gate.” (Matt. 7:13.)
+“Enter ye in at the strait gate.” ([[Matthew 7.13|Matt. 7:13]].)
 
 President Marion G. Romney expressed most clearly what is meant as follows: “It is not enough to do our best. Unless we do all we can, we do less than we ought. We must succeed in doing what is necessary. Unless we get the job done, it is not enough.”
 
-When I attended the university, I was involved in athletics, and since then have maintained my interest, even reading articles on the Winter Olympics. A sports editor wrote that for such a small country, East Germany, or as the world knows it, the German Democratic Republic, was doing exceedingly well. He said that they were not that much better trained than their competitors, but just a lot better prepared mentally, spending many hours in the preparation of the mind and the will. “Just good old-fashioned positive mental attitude” is all that is favoring the athletes from that country. (See Lee Benson, Deseret News, 16 Feb. 1984, p. D-2.)
+When I attended the university, I was involved in athletics, and since then have maintained my interest, even reading articles on the Winter Olympics. A sports editor wrote that for such a small country, East Germany, or as the world knows it, the German Democratic Republic, was doing exceedingly well. He said that they were not that much better trained than their competitors, but just a lot better prepared mentally, spending many hours in the preparation of the mind and the will. “Just good old-fashioned positive mental attitude” is all that is favoring the athletes from that country. (See Lee Benson, *Deseret News,* 16 Feb. 1984, p. D-2.)
 
 In seeking to strengthen the inactive, we are concerned with four general groups:
 
-Lifetime members who have never been active and, as a result, ofttimes raise their families in inactivity.
+1. Lifetime members who have never been active and, as a result, ofttimes raise their families in inactivity.
 
-New converts who become spiritually disaffected and fall away, usually in their first few years of membership.
+2. New converts who become spiritually disaffected and fall away, usually in their first few years of membership.
 
-Active members who slip into transgression or have other problems that cause them to fall away. Often their problems include lack of knowledge and testimony of the gospel, hurt feelings that result in attitudes of unworthiness and guilt, and sometimes fear of participation in Church assignments.
+3. Active members who slip into transgression or have other problems that cause them to fall away. Often their problems include lack of knowledge and testimony of the gospel, hurt feelings that result in attitudes of unworthiness and guilt, and sometimes fear of participation in Church assignments.
 
-Youth who are caught up by the philosophies or behavior of the world and stray from their Church commitments. Some of these youth are persuaded by worldly attitudes of instant pleasure. Some are influenced by peer groups that take nothing seriously until the realities of life force them to.
+4. Youth who are caught up by the philosophies or behavior of the world and stray from their Church commitments. Some of these youth are persuaded by worldly attitudes of instant pleasure. Some are influenced by peer groups that take nothing seriously until the realities of life force them to.
 
 This work of reclaiming the lost sheep, as Jesus so vividly expressed it, must receive top priority by every stake, ward, branch, and quorum leader. All inactive members should be considered candidates for activation regardless of their response to any previous approach. We must use kindness, patience, long-suffering, love, faith, and diligence. They must feel our genuine concern and untiring love.
 
@@ -81,9 +82,12 @@ The president of an elders quorum in one of our outstanding stakes in Brazil—I
 
 The Lord has promised great rewards for those who reach out to strengthen their brothers and sisters.
 
-The Lord has said in modern revelation, “And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” (D&C 18:15.)
+The Lord has said in modern revelation, “And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” ([[D&C 18.15|D&C 18:15]].)
 
 I wish I could engrave on every heart what I so keenly know and feel. I bear unwavering testimony that our Heavenly Father and His Divine Son, Jesus Christ, rule and reign, and that we must all understand that the gospel is everlasting. It is forever and applicable to all, and each of us is to be held accountable.
 
 May the Lord bless us in this important work, I pray, in the name of Jesus Christ, amen.
+
+
+
 

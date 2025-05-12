@@ -1,11 +1,12 @@
 # “Run and Not Be Weary”
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1996/10/run-and-not-be-weary?lang=eng)
 
-The early history of the Church records that during the winter of 1833, the Lord directed that a school of the prophets was to be organized “for their instruction in all things that are expedient for them” (D&C 88:127). It was to be held on the second floor of the Newel K. Whitney store. The brethren would come to the school to be instructed by the Prophet Joseph Smith. Some had acquired the habit of chewing and smoking tobacco. It became difficult for the Prophet to teach spiritual things in a temporal environment filled with smoke. Joseph Smith was troubled with the physical surroundings and inquired of the Lord if such conditions were proper for the brethren. In answer to his petition, he received a revelation known to us as the Word of Wisdom.
+The early history of the Church records that during the winter of 1832–33, the Lord directed that a school of the prophets was to be organized “for their instruction in all things that are expedient for them” ([[D&C 88.127|D&C 88:127]]). It was to be held on the second floor of the Newel K. Whitney store. The brethren would come to the school to be instructed by the Prophet Joseph Smith. Some had acquired the habit of chewing and smoking tobacco. It became difficult for the Prophet to teach spiritual things in a temporal environment filled with smoke. Joseph Smith was troubled with the physical surroundings and inquired of the Lord if such conditions were proper for the brethren. In answer to his petition, he received a revelation known to us as the Word of Wisdom.
 
 The Word of Wisdom contains some very positive aspects. It encourages us to use grains, particularly wheat, and to use fruits and vegetables and the sparing use of meat. It is also noted for its prohibition—absolute prohibition—against the use of alcohol, tobacco, tea, and coffee. Added to this has been the counsel of the Church leaders to abstain from the use of such drugs as marijuana, cocaine, etc., and the abusive use of prescription drugs.
 
@@ -17,11 +18,11 @@ In a special promise that was given in this revelation as contained in the 89th 
 
 “And shall run and not be weary, and shall walk and not faint.
 
-“And I, the Lord, give unto them a promise, that the destroying angel shall pass by them, as the children of Israel, and not slay them” (D&C 89:18–21).
+“And I, the Lord, give unto them a promise, that the destroying angel shall pass by them, as the children of Israel, and not slay them” ([[D&C 89.18|D&C 89:18–21]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]]).
 
 I will ever be grateful for the teachings of righteous parents who instilled in us the lessons taught to us in the Word of Wisdom. In addition to their teachings, we were taught carefully by Primary, Sunday School, and priesthood teachers.
 
-I particularly remember a Primary teacher reading a story to us from the Improvement Era. I had the Historical Department find it for me, and I found it was worth repeating. The story was taken from the October 1928 Improvement Era and is about Creed Haymond, a young Mormon who applied and was accepted at the University of Pennsylvania. He was an athlete known for his speed, and because of the way he acted and participated, he was chosen to be the captain of the track team.
+I particularly remember a Primary teacher reading a story to us from the *Improvement Era.* I had the Historical Department find it for me, and I found it was worth repeating. The story was taken from the October 1928 *Improvement Era* and is about Creed Haymond, a young Mormon who applied and was accepted at the University of Pennsylvania. He was an athlete known for his speed, and because of the way he acted and participated, he was chosen to be the captain of the track team.
 
 The annual meet of the Intercollegiate Association of Amateur Athletes of America was held at Harvard Stadium at the end of May of 1919. To Cambridge came the greatest college athletes—1,700 in all. In the tryouts, Penn had qualified 17 men. Cornell, their most feared rival that year, had qualified only 10. The Penn team was in position to be crowned the champions. The scores were made on the first five places—five for first, four for second, three for third, two for fourth, and one for fifth. Naturally, the team that qualified the most men had the greatest opportunity to win the meet.
 
@@ -69,11 +70,14 @@ The starter ordered the breathless men to their marks, raised his pistol, and wi
 
 Penn had lost the meet, but their captain had astounded the fans with his excellent runs.
 
-At the end of that strange day, as Creed Haymond was going to bed, there suddenly came to his memory his question of the night before regarding the divinity of the Word of Wisdom. The procession of that peculiar series of events then passed before his mind—his teammates had taken wine and had failed; his abstinence had brought victories that even amazed himself. The sweet simple assurance of the Spirit came to him: the Word of Wisdom is of God. (Adapted from Joseph J. Cannon, “Speed and the Spirit,” Improvement Era, Oct. 1928, 1001–7.)
+At the end of that strange day, as Creed Haymond was going to bed, there suddenly came to his memory his question of the night before regarding the divinity of the Word of Wisdom. The procession of that peculiar series of events then passed before his mind—his teammates had taken wine and had failed; his abstinence had brought victories that even amazed himself. The sweet, simple assurance of the Spirit came to him: the Word of Wisdom is of God. (Adapted from Joseph J. Cannon, “Speed and the Spirit,” *Improvement Era,* Oct. 1928, 1001–7.)
 
 I wonder in this age if it is enough to just have the courage to say no, or do we have a further responsibility to be of service to others in helping them overcome the great curse that is now plaguing our society? There was one time in my life that I wished that I had exerted a little more influence in preventing a friend from partaking of a harmful substance. We were on a Scout outing in Yellowstone. Late one evening we went to see Old Faithful erupt. Walking back to our tents, my friend stopped me in a dark, secluded spot and took out a can of beer. I don’t know where he managed to get it. He said, “I have a treat for us”; then he offered to share the can of beer with me. Of course, my home training and teachings of great leaders in the auxiliaries and priesthood had been such that this was no temptation for me and that I was not to accept his offer. He drank the whole can, and I made no effort to dissuade or stop him. It had a harmful effect on our friendship. I really don’t know why. Maybe it was because I had a sense of guilt for not being more aggressive in preventing him from partaking of the beverage. And maybe on his part, he was afraid that I would reveal what occurred in a way that it would get back to his parents. Over the years I have been saddened by the loss of that friendship.
 
 Today the curse of drink and drugs is becoming a national nightmare. It is the cause of most of our crime, accidents, loss of employment, and the breakup of our homes. You great young men of the Aaronic Priesthood will be required to pay the social costs for this dreaded disease as you move forward into your adult lives. Surely something must be done to stop this destructive force. I challenge you to stand up to your peers as an example of righteous living. I know the Lord will fulfill his promise to you by blessing you with health, with knowledge, with wisdom that will set you apart from the rest of the world. Your righteous example will also bless the lives of many, many others.
 
 God bless you that you will have the courage to live the way you should and be an example of one living the great gospel principles we hold so dear is my humble prayer in the name of our Lord and Savior, even Jesus Christ, amen.
+
+
+
 

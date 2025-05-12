@@ -1,11 +1,12 @@
 # “Except a Man Be Born Again”
-*By Marion G. Romney - Second Counselor in the First Presidency*
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1981/10/except-a-man-be-born-again?lang=eng)
 
-In the seventeenth chapter of John, it is recorded that as Jesus prayed to the Father in behalf of his disciples, he said, “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” (John 17:3.)
+In the seventeenth chapter of John, it is recorded that as Jesus prayed to the Father in behalf of his disciples, he said, “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” ([[John 17.3|John 17:3]].)
 
 In his prayer Jesus made it perfectly clear that the eleven disciples knew him to be the Son of God. He had taught them who he was and that he had been sent from his Father. That they had received a witness in their hearts and souls to the truth of his teachings is made clear in the following statement by John:
 
@@ -17,17 +18,17 @@ In his prayer Jesus made it perfectly clear that the eleven disciples knew him t
 
 “Now they have known that all things whatsoever thou hast given me are of thee.
 
-“For I have given unto them the words which thou gavest me; and they have received them, and have known surely that I came out from thee, and they have believed that thou didst send me.” (John 17:1–2, 6–8.)
+“For I have given unto them the words which thou gavest me; and they have received them, and have known surely that I came out from thee, and they have believed that thou didst send me.” ([[John 17.1|John 17:1–2, 6–8]][[John 17.2|]][[John 17.6|]][[John 17.7|]][[John 17.8|]].)
 
 By receiving the Savior’s message and accepting him for what he was and is, the Apostles obtained eternal life.
 
-This knowledge of “the only true God, and Jesus Christ” (John 17:3) is the most important knowledge in the universe; it is the knowledge without which the Prophet Joseph Smith said no man could be saved. The lack of it is the ignorance referred to in the revelation wherein it is written: “It is impossible for a man to be saved in ignorance.” (D&C 131:6.)
+This knowledge of “the only true God, and Jesus Christ” ([[John 17.3|John 17:3]]) is the most important knowledge in the universe; it is the knowledge without which the Prophet Joseph Smith said no man could be saved. The lack of it is the ignorance referred to in the revelation wherein it is written: “It is impossible for a man to be saved in ignorance.” ([[D&C 131.6|D&C 131:6]].)
 
 We should keep in mind that there is more than one source of knowledge. There is the knowledge obtainable through man’s normal sensory organs. Such knowledge should be sought after. The Lord has commanded us to get all such knowledge we can in this manner.
 
 There is also knowledge of divine things which comes through direct revelation—religious knowledge, it is sometimes called. And there are two aspects to religious knowledge. One of them concerns the great store of religious knowledge which we have in the scriptures. Ever since the beginning, from Father Adam’s time until now, the Lord has given through his prophets, by revelation, religious knowledge. Such knowledge concerns the verities of life. It deals with God and his Beloved Son, the great gospel plan, and the mission of Jesus as Savior and Redeemer. The other aspect to religious knowledge is the personal witness available through inspiration, a form of revelation that comes to each individual.
 
-The whole world has access to the revealed word of God as it is recorded in the Bible. And the whole world could have access to the revealed religious knowledge recorded in the Book of Mormon, the Doctrine and Covenants, and the Pearl of Great Price.
+The whole world has access to the revealed word of God as it is recorded in the Bible. And the whole world *could have* access to the revealed religious knowledge recorded in the Book of Mormon, the Doctrine and Covenants, and the Pearl of Great Price.
 
 Millions of people who read and study the Bible do not understand it. Millions do not understand what Jesus said in the prayer recorded in the seventeenth chapter of John from which our theme is taken. The reason they do not understand it is that their understanding has not been enlightened by the power of the Holy Ghost. They have not received a personal witness.
 
@@ -35,19 +36,19 @@ To know God our Eternal Father and Jesus Christ, whom he sent, one must, as did 
 
 In the third chapter of John, it is written that Nicodemus, a very wise man, in fact a member of the Sanhedrin, came to see Jesus by night—he did not yet have enough courage to come to see him during the daytime. But he came to Jesus by night, and said:
 
-“Rabbi, we know that thou art a teacher come from God: for no man can do these miracles that thou doest, except God be with him.” (John 3:2.)
+“Rabbi, we know that thou art a teacher come from God: for no man can do these miracles that thou doest, except God be with him.” ([[John 3.2|John 3:2]].)
 
 In this statement Nicodemus unwittingly but clearly revealed the fact that he did not know who Jesus was. All he could see in the Son of God was a great teacher. This was all he could be expected to see, however, because he based his knowledge of who Jesus was upon what he had seen and heard of the Master’s miracles. Perceiving this, Jesus informed him that the knowledge of divine things could not be had through man’s normal senses.
 
-“Except a man be born again, he cannot see the kingdom of God,” said Jesus. (John 3:3.)
+“Except a man be born again, he cannot see the kingdom of God,” said Jesus. ([[John 3.3|John 3:3]].)
 
 Although Nicodemus was wise in the things of the world, he could not understand this simple statement of truth. As a matter of fact, his answer revealed amazement:
 
-“How can a man be born when he is old?” he said. “Can he enter the second time into his mother’s womb, and be born?” (John 3:4.)
+“How can a man be born when he is old?” he said. “Can he enter the second time into his mother’s womb, and be born?” ([[John 3.4|John 3:4]].)
 
-Jesus, still persisting in his efforts to get him to understand, continued: “Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God.” (John 3:5.) Here we have the Savior saying that the kingdom of God can neither be seen nor entered except one be born again.
+Jesus, still persisting in his efforts to get him to understand, continued: “Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God.” ([[John 3.5|John 3:5]].) Here we have the Savior saying that the kingdom of God can neither be seen nor entered except one be born again.
 
-But Nicodemus still could not understand. Jesus then stated the great law: “That which is born of the flesh is flesh.” That is, that which we learn through our normal senses has to do with this earth. “And that which is born of the Spirit,” he said, “is spirit.” (John 3:6.) The things that we learn through the process of inspiration are of God, of the Spirit.
+But Nicodemus still could not understand. Jesus then stated the great law: “That which is born of the flesh is flesh.” That is, that which we learn through our normal senses has to do with this earth. “And that which is born of the Spirit,” he said, “is spirit.” ([[John 3.6|John 3:6]].) The things that we learn through the process of inspiration are of God, of the Spirit.
 
 Everyone who would know God the Eternal Father and Jesus Christ, whom he has sent, must receive such knowledge by the Spirit. Church members have, of course, been through the process. They have been baptized and confirmed members of the Church and have had hands laid upon their heads for the gift of the Holy Ghost. Through these ordinances the door is unlocked. Submission to this is absolutely essential to rebirth. But to obtain life eternal one must so humble and purify himself that he in fact receives through the power of the Holy Ghost a personal witness that God is his Eternal Father and that Jesus Christ is God’s Son and our personal Savior as well as the Redeemer of the world.
 
@@ -63,9 +64,12 @@ Now, her mother had not been to school very much. She was not an educated person
 
 This young girl returned to her room and there, for the first time in her life in fact, she went to the Almighty with a sincere desire to know whether he lived and whether he and the Savior actually appeared to the Prophet Joseph. Coming out of that room, she went to her Sunday School class and taught that lesson with joy, with knowledge, with conviction. She had been born of the Spirit. She knew.
 
-Now, my beloved brethren and sisters, everyone has to have a spiritual experience to gain eternal life, to know God the Eternal Father, and Jesus Christ, whom he has sent. I plead with you to seek this knowledge if you don’t already have that knowledge. You know the way now. It is not a mass experience. It must come to each individually. It must come to you. It must come to those whom you teach. We must teach by the Spirit, “and if ye receive not the Spirit ye shall not teach,” said the Savior. “The Spirit shall be given unto you by the prayer of faith.” (D&C 42:14.)
+Now, my beloved brethren and sisters, everyone has to have a spiritual experience to gain eternal life, to know God the Eternal Father, and Jesus Christ, whom he has sent. I plead with you to seek this knowledge if you don’t already have that knowledge. You know the way now. It is not a mass experience. It must come to each individually. It must come to you. It must come to those whom you teach. We must teach by the Spirit, “and if ye receive not the Spirit ye shall not teach,” said the Savior. “The Spirit shall be given unto you by the prayer of faith.” ([[D&C 42.14|D&C 42:14]].)
 
 You who have been baptized have the right to it. Desire it. Pray for it. Work for it, and God will give it to you.
 
 That you may each receive that knowledge of God the Eternal Father and Jesus Christ whom he has sent, to know which is eternal life, I humbly pray, in the name of Jesus Christ, amen.
+
+
+
 

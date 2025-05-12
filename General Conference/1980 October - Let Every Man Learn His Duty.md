@@ -1,5 +1,6 @@
 # Let Every Man Learn His Duty
-*By Joseph B. Wirthlin - Of the First Quorum of the Seventy*
+
+By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -13,25 +14,19 @@ In my assignments I have some responsibility for directing the work of the Churc
 
 “How about visiting teaching?”
 
-“One hundred percent.”
-
 “Attendance at sacrament meeting?”
 
-“One hundred percent.”
-
 “Tithe payers?”
-
-“One hundred percent.”
 
 For a group of some eighty-five members of the Church to perform so admirably and to set such a wonderful example, I think that we can assume that they know their duty and perform it faithfully. They truly understand the meaning of an impressive revelation given to the Prophet Joseph Smith:
 
 “Wherefore, now let every man learn his duty, and to act in the office in which he is appointed, in all diligence.
 
-“He that is slothful shall not be counted worthy to stand, and he that learns not his duty and shows himself not approved shall not be counted worthy to stand.” (D&C 107:99–100.)
+“He that is slothful shall not be counted worthy to stand, and he that learns not his duty and shows himself not approved shall not be counted worthy to stand.” ([[D&C 107.99|D&C 107:99–100]][[D&C 107.100|]].)
 
-Inscribed beneath Robert E. Lee’s bust in the Hall of Fame are his words: “Duty is the sublimest word in our language. Do your duty in all things. You cannot do more. You should never wish to do less.” (In John Bartlett, Familiar Quotations, Boston: Little, Brown and Co., 1968, p. 620.)
+Inscribed beneath Robert E. Lee’s bust in the Hall of Fame are his words: “Duty is the sublimest word in our language. Do your duty in all things. You cannot do more. You should never wish to do less.” (In John Bartlett, *Familiar Quotations,* Boston: Little, Brown and Co., 1968, p. 620.)
 
-Most of us don’t mind doing what we ought to do when it doesn’t interfere with what we want to do, but it takes discipline and maturity to do what we ought to do whether we want to or not. Duty is too often what one expects from others and not what one does. What people think and believe and plan are all very important, but what they do is the thing that counts most. It is a call to throw out selfishness and to think of the common good of all.
+Most of us don’t mind doing what we *ought* to do when it doesn’t interfere with what we *want* to do, but it takes discipline and maturity to do what we ought to do whether we want to or not. Duty is too often what one expects from others and not what one does. What people think and believe and plan are all very important, but what they *do* is the thing that counts most. It is a call to throw out selfishness and to think of the common good of all.
 
 We must always remember that duty reminds us we are stewards of all that our Creator has entrusted to us. When we accept duties willingly and faithfully, we find happiness. Those who make happiness the chief objective of life are bound to fail, for happiness is a by-product rather than an end in itself. Happiness comes from doing one’s duty and knowing that his life is in harmony with God and his commandments. The members of the Jamaica Branch know that they are living in harmony with our Father’s commandments, and this brings them great happiness.
 
@@ -43,31 +38,19 @@ In Jamaica, as in many other parts of the world, missionaries ride bicycles to c
 
 It is obvious that doing our duty is the best way to solve our problems. The proper pattern of duty has been set by those who have gone before us and is continued today by devoted teachers and leaders throughout the Church. The attitude and spirit central to a lifetime of duty is pinpointed in this poem.
 
-Who does his task from day to day
-
-And meets whatever comes his way,
-
-Believing God has willed it so,
-
-Has found true greatness here below.
-
-Who guards his post no matter where,
-
-Believing God must need him there,
-
-Although but lowly toil it be,
-
-Has risen to nobility.
-
-For great and low there is one test,
-
-’Tis that each man shall do his best,
-
-Who works with all the strength he can
-
-Shall never die in debt to man.
-
-(Anonymous.)
+>Who does his task from day to day
+>And meets whatever comes his way,
+>Believing God has willed it so,
+>Has found true greatness here below.
+>Who guards his post no matter where,
+>Believing God must need him there,
+>Although but lowly toil it be,
+>Has risen to nobility.
+>For great and low there is one test,
+>’Tis that each man shall do his best,
+>Who works with all the strength he can
+>Shall never die in debt to man.
+>
 
 Every successful man and woman in the history of the world has known his or her duty and has had a firm desire to fulfill it. The Savior had a perfect sense of duty. Even though what was required of him surpassed the limits of human capabilities, he submitted himself to his Father’s will and fulfilled his divine duty by atoning for the sins of mankind.
 
@@ -75,7 +58,7 @@ Joseph Smith was true to his calling and fulfilled his duty even in the face of 
 
 Brigham Young also carried out his responsibilities. Over a period of many years of faithful service and duty, he brought the Saints to the valley of freedom and established a great and mighty empire. He was duty-bound and thereby achieved great things.
 
-President Spencer W. Kimball has accepted the charge to take the gospel to the ends of the earth. He faithfully pursues his duty and is a wonderful example to us in all that he does to spread the gospel of love. The result is a worldwide Church and the fulfillment of latter-day prophecy.
+President Spencer W. Kimball has accepted the charge to take the gospel to the ends of the earth. He faithfully pursues his duty and is a wonderful example to us in all that he does to spread the gospel of love. The result is a worldwide Church and the fulfillment of latter-day prophecy.
 
 These great men have all had the agency to choose. They might have chosen to follow a path easier than the one where duty led. But they did not. Certainly their duty did not always lead to personal comfort or casual convenience. Their duty frequently meant great sacrifice and personal hardship; but nevertheless, duty they chose, and duty they performed.
 
@@ -83,7 +66,7 @@ Life requires us to perform many duties—some routine, others more meaningful a
 
 Every member of the Church—every man, woman, and child—is faced with an obligation to fulfill his duty. Every member of the Church is commanded to live the laws of God and keep his commandments. Each has the duty to pray daily, study the scriptures, draw close to the Savior, and serve others. Each should partake of the sacrament worthily and labor to strengthen the influence of the Holy Ghost in his life.
 
-Each father has the duty to provide for his family and to teach them by example to obey the statutes of God. Our lovely wives have a glorious duty to bring children into this life and to create a loving, learning, and supporting home atmosphere. Together, parents have the divine duty to bring up their children in the “nurture and admonition of the Lord” (Eph. 6:4).
+Each father has the duty to provide for his family and to teach them by example to obey the statutes of God. Our lovely wives have a glorious duty to bring children into this life and to create a loving, learning, and supporting home atmosphere. Together, parents have the divine duty to bring up their children in the “nurture and admonition of the Lord” ([[Ephesians 6.4|Eph. 6:4]]).
 
 It is the duty of children to obey their parents, to learn, and to help with household chores. They carry the scriptural charge not to contend and quarrel with one another but to accept their part in fostering family unity and progress.
 
@@ -103,9 +86,12 @@ The absolute necessity to do our duties at home, in the Church, in our daily wor
 
 “He is like a man which built an house, and digged deep, and laid the foundation on a rock: and when the flood arose, the stream beat vehemently upon that house, and could not shake it: for it was founded upon a rock.
 
-“But he that heareth, and doeth not, is like a man that without a foundation built an house upon the earth; against which the stream did beat vehemently, and immediately it fell; and the ruin of that house was great.” (Luke 6:43–49.)
+“But he that heareth, and doeth not, is like a man that without a foundation built an house upon the earth; against which the stream did beat vehemently, and immediately it fell; and the ruin of that house was great.” ([[Luke 6.43|Luke 6:43–49]][[Luke 6.44|]][[Luke 6.45|]][[Luke 6.46|]][[Luke 6.47|]][[Luke 6.48|]][[Luke 6.49|]].)
 
-“Be not weary in well-doing” (D&C 64:33), my brothers and sisters. Being true to one’s duty is a mark of true disciples of the Lord and the children of God. Be valiant in your duty. Stay in step. Do not fail in your most important task, that of keeping your second estate. Be true to your duty, for it will bring you to God.
+“Be not weary in well-doing” ([[D&C 64.33|D&C 64:33]]), my brothers and sisters. Being true to one’s duty is a mark of true disciples of the Lord and the children of God. Be valiant in your duty. Stay in step. Do not fail in your most important task, that of keeping your second estate. Be true to your duty, for it will bring you to God.
 
 I bear you my deep and sincere testimony that this is the only way to obtain happiness and help the kingdom grow and flourish, in the name of Jesus Christ, amen.
+
+
+
 

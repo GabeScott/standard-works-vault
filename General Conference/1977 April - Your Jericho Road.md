@@ -1,5 +1,6 @@
 # Your Jericho Road
-*By Thomas S. Monson - Of the Council of the Twelve*
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -7,7 +8,7 @@
 
 My dear brothers and sisters, I seek the help of our Heavenly Father as I respond to the invitation to speak to you today. A great number of you have journeyed many miles to attend this conference. From the north, the south, the east, and the west you have traveled the roads to Salt Lake City.
 
-The word road is most intriguing. A generation ago movie moguls featured Bob Hope, Bing Crosby, and Dorothy Lamour in films entitled The Road to Rio, The Road to Morocco, and The Road to Zanzibar. Earlier yet, Rudyard Kipling immortalized another road when he penned the lines of “On the Road to Mandalay.”
+The word *road* is most intriguing. A generation ago movie moguls featured Bob Hope, Bing Crosby, and Dorothy Lamour in films entitled *The Road to Rio, The Road to Morocco,* and *The Road to Zanzibar.* Earlier yet, Rudyard Kipling immortalized another road when he penned the lines of “On the Road to Mandalay.”
 
 This afternoon my thoughts have returned to a road made famous by a parable Jesus told. I speak of the road to Jericho. May I open the Bible to the Gospel of St. Luke, that we might together relive the memorable event which made famous for all time the Jericho Road.
 
@@ -35,7 +36,7 @@ A certain lawyer stood and tempted the Master, saying, “What shall I do to inh
 
 “Which now of these three, thinkest thou, was neighbour unto him that fell among the thieves?
 
-“And he said, He that shewed mercy on him. Then said Jesus unto him, Go, and do thou likewise.” (Luke 10:25–37.)
+“And he said, He that shewed mercy on him. Then said Jesus unto him, Go, and do thou likewise.” ([[Luke 10.25|Luke 10:25–37]][[Luke 10.26|]][[Luke 10.27|]][[Luke 10.28|]][[Luke 10.29|]][[Luke 10.30|]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]][[Luke 10.36|]][[Luke 10.37|]].)
 
 Each of us, in the journey through mortality, will travel his own Jericho Road. What will be your experience? What will be mine? Will I fail to notice him who has fallen among thieves and requires my help? Will you?
 
@@ -49,13 +50,13 @@ Now the Jericho Road may not be clearly marked. Neither may the injured cry out,
 
 Note the many examples provided by the Master: the crippled man at the pool of Bethesda; the woman taken in adultery; the woman at Jacob’s well; the daughter of Jairus; Lazarus, brother of Mary and Martha—each represented a casualty on the Jericho Road. Each needed help.
 
-To the cripple at Bethesda, Jesus said, “Rise, take up thy bed, and walk.” (John 5:8.) To the sinful woman came the counsel, “Go, and sin no more.” (John 8:11.) To her who came to draw water, He provided a well of water springing up into everlasting life. To the dead daughter of Jairus came the command, “Damsel, I say unto thee, arise.” (Mark 5:41.) To the entombed Lazarus, the memorable words, “Lazarus, come forth.” (John 11:43.)
+To the cripple at Bethesda, Jesus said, “Rise, take up thy bed, and walk.” ([[John 5.8|John 5:8]].) To the sinful woman came the counsel, “Go, and sin no more.” ([[John 8.11|John 8:11]].) To her who came to draw water, He provided a well of water springing up into everlasting life. To the dead daughter of Jairus came the command, “Damsel, I say unto thee, arise.” ([[Mark 5.41|Mark 5:41]].) To the entombed Lazarus, the memorable words, “Lazarus, come forth.” ([[John 11.43|John 11:43]].)
 
 One may well ask the penetrating question, “These accounts pertained to the Redeemer of the world. Can there actually occur in my own life, on my Jericho Road, such a treasured experience?”
 
 My answer is a resounding “yes.” Let me share with you two such examples—first, the account of one who was injured and was helped; second, the learning experience of one who traveled the Jericho Road.
 
-Some years ago there went to his eternal reward one of the kindest and most loved men to grace the earth. I speak of Louis C. Jacobsen. He ministered to those in need, he assisted the immigrant to find employment, and he delivered more sermons at more funeral services than any other I have known.
+Some years ago there went to his eternal reward one of the kindest and most loved men to grace the earth. I speak of Louis C. Jacobsen. He ministered to those in need, he assisted the immigrant to find employment, and he delivered more sermons at more funeral services than any other I have known.
 
 One day while in a reflective mood, Louis Jacobsen told me of his boyhood. He was the son of a poor Danish widow. He was small in stature, not comely in appearance—easily the object of his classmates’ thoughtless jokes. In Sunday School one Sabbath morning, the children made light of his patched trousers and his worn shirt. Too proud to cry, tiny Louis fled from the chapel, stopping at last, out of breath, to sit and rest on the curb which ran along Second West in Salt Lake City. Clear water flowed along the gutter next to the curb where Louis sat. From his pocket he took a piece of paper which contained the outlined Sunday School lesson and skillfully shaped a paper boat, which he launched on the flowing water. From his hurt boyish heart came the determined words, “I’ll never go back.”
 
@@ -69,49 +70,30 @@ Later Louis himself presided over that same Sunday School. Throughout his long l
 
 When I first learned of that far-reaching experience, I reflected on the words:
 
-He stood at the crossroads all alone,
-
-The sunlight in his face.
-
-He had no thought for the world unknown—
-
-He was set for a manly race.
-
-But the roads stretched east and the roads stretched west,
-
-And the lad knew not which road was best.
-
-So he chose the road that led him down,
-
-And he lost the race and the victor’s crown.
-
-He was caught at last in an angry snare
-
-Because no one stood at the crossroads there
-
-To show him the better road.
-
-Another day at the self-same place
-
-A boy with high hopes stood.
-
-He, too, was set for a manly race;
-
-He, too, was seeking the things that were good.
-
-But one was there who the roads did know,
-
-And that one showed him which way to go.
-
-So he turned from the road that would lead him down,
-
-And he won the race and the victor’s crown.
-
-He walks today the highway fair
-
-Because one stood at the crossroads there
-
-To show him the better way.
+>He stood at the crossroads all alone,
+>The sunlight in his face.
+>He had no thought for the world unknown—
+>He was set for a manly race.
+>But the roads stretched east and the roads stretched west,
+>And the lad knew not which road was best.
+>So he chose the road that led him down,
+>And he lost the race and the victor’s crown.
+>He was caught at last in an angry snare
+>Because no one stood at the crossroads there
+>To show him the better road.
+>
+>Another day at the self-same place
+>A boy with high hopes stood.
+>He, too, was set for a manly race;
+>He, too, was seeking the things that were good.
+>But one was there who the roads did know,
+>And that one showed him which way to go.
+>So he turned from the road that would lead him down,
+>And he won the race and the victor’s crown.
+>He walks today the highway fair
+>Because one stood at the crossroads there
+>To show him the better way.
+>
 
 May I relate to you my first journey along a personal Jericho Road. In about my tenth year, as Christmas approached, I yearned as only a boy can yearn for an electric train. My desire was not to receive the economical and everywhere-to-be-found wind-up model train, but rather one that operated through the miracle of electricity.
 
@@ -140,4 +122,7 @@ My brothers and sisters, today there are hearts to gladden, there are deeds to b
 The road signs of life enticingly invite every traveler: This way to fame; this way to affluence; this way to popularity; this way to luxury. Pause at the crossroads before you continue your journey. Listen for that still, small voice which ever so gently beckons, “Come, follow me. This way to Jericho.”
 
 May each of us follow Him along that Jericho Road, I pray in the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # The Banner of the Lord
-*By By Bishop Victor L. Brown - Presiding Bishop*
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -31,17 +32,17 @@ As an Aaronic Priesthood holder, your contest is with yourself as you honor your
 
 The priesthood you hold was restored to the earth on 15 May 1829, by a heavenly messenger, John the Baptist—the same John who with the authority of the Aaronic Priesthood baptized Jesus of Nazareth in the River Jordan and later, as a resurrected being, laid his hands on Joseph Smith and Oliver Cowdery and said:
 
-“Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins; and this shall never be taken again from the earth, until the sons of Levi do offer again an offering unto the Lord in righteousness.” (D&C 13.)
+“Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins; and this shall never be taken again from the earth, until the sons of Levi do offer again an offering unto the Lord in righteousness.” ([[D&C 13.1|D&C 13]].)
 
 John the Baptist said he came at the direction of Peter, James, and John. The ordination was performed before the Church was organized again upon the earth.
 
 The Aaronic Priesthood is a preparatory priesthood. It is an appendage to the Melchizedek Priesthood and has to do largely with outward ordinances and temporal responsibilities. However, in the ordination, John the Baptist said that it “holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins.” These are essential for admittance into the Church of Jesus Christ and to achieve the goal of exaltation in the kingdom of God.
 
-I feel sometimes we consider the preparation and handling of the sacrament and the collecting of fast offerings and so forth as almost the sum and substance of the Aaronic Priesthood responsibility. This is not true. These activities, of course, are very important, but there is so much more. As a preparatory priesthood it is preparing you ultimately, of course, for eternal life and exaltation. The Lord said, “This is my work and my glory—to bring to pass the immortality and eternal life of man.” (Moses 1:39.) And further He has told us that eternal life—exaltation—is the greatest gift of God to man.
+I feel sometimes we consider the preparation and handling of the sacrament and the collecting of fast offerings and so forth as almost the sum and substance of the Aaronic Priesthood responsibility. This is not true. These activities, of course, are very important, but there is so much more. As a preparatory priesthood it is preparing you ultimately, of course, for eternal life and exaltation. The Lord said, “This is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].) And further He has told us that eternal life—exaltation—is the greatest gift of God to man.
 
 As a holder of the priesthood you are a servant of our Heavenly Father. If you are to honor the priesthood, you must truly be a servant and serve your fellowmen. If you make this service a part of your life, you won’t have to continually make decisions about what is right and what is wrong. It will become second nature to your way of living because through service you will be drawing closer to your Heavenly Father.
 
-I am very much aware that you and some of your peers are living that way now. For instance, a fifteen-year-old Korean boy took his weekly allowance and bought newspapers with it. Then he and some friends sold these on the streets of Seoul, Korea, to raise money to help a fellow student who did not have sufficient funds to stay in school. This young man also gave part of his lunch to this boy each day so that he would not go hungry. Why did he do these things? Because he had been studying the story of the Good Samaritan and didn’t just want to learn about the Good Samaritan but wanted to know what it felt like to be one by doing what a Good Samaritan would do. (See Luke 10:25–37.) He related these things to his father only after careful questioning by his father about his activities. He had done them without any thought of recognition.
+I am very much aware that you and some of your peers are living that way now. For instance, a fifteen-year-old Korean boy took his weekly allowance and bought newspapers with it. Then he and some friends sold these on the streets of Seoul, Korea, to raise money to help a fellow student who did not have sufficient funds to stay in school. This young man also gave part of his lunch to this boy each day so that he would not go hungry. Why did he do these things? Because he had been studying the story of the Good Samaritan and didn’t just want to learn about the Good Samaritan but wanted to know what it felt like to be one by doing what a Good Samaritan would do. (See [[Luke 10.25|Luke 10:25–37]][[Luke 10.26|]][[Luke 10.27|]][[Luke 10.28|]][[Luke 10.29|]][[Luke 10.30|]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]][[Luke 10.36|]][[Luke 10.37|]].) He related these things to his father only after careful questioning by his father about his activities. He had done them without any thought of recognition.
 
 I doubt very much that the bishop of this young man would have to worry about how he looked when he came to participate at the sacrament table or whether his heart and hands were clean and pure. I don’t think his father would have to worry about whether or not he was honest in his relationships with others, or whether or not he cheated at school.
 
@@ -52,4 +53,7 @@ In another instance, some of the young men and women in one ward found themselve
 I don’t think any of us will ever forget the sight of hundreds of young athletes marching proudly behind the flags and banners of their respective countries, thrilled to have been chosen to represent their nation at the Olympic games. You, my brother of the Aaronic Priesthood, seated in the balcony here, at a stake center in New Jersey, or in a chapel in France, Samoa, or Brazil, you are a chosen representative of God, having received the authority to act in His name, as has every worthy young man who holds the priesthood. The banner you carry every day may not be seen by millions of people, but it is seen by Him whose banner it is and by those who know who you are, both members of the Church and nonmembers. It is the banner of the Lord, displaying what you really are deep down inside as you show your love of God by keeping His commandments and by serving your fellowmen.
 
 It is my firm prayer that each of you bishops and quorum advisers of these young men will aid in their understanding what it means to hold the holy priesthood and to put on the whole armor of God, in the name of Jesus Christ, amen.
+
+
+
 

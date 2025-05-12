@@ -1,5 +1,6 @@
 # Relief Society’s Role in Welfare Services
-*By By Barbara B. Smith - Relief Society General President*
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -11,7 +12,7 @@ I am pleased to represent the feminine half of the Church family in this meeting
 
 The Relief Society plays a very important role in Welfare Services. By mandate of the Lord through his prophets, the Relief Society has been given an assignment to assist in planning and implementing the Welfare Services program. To fulfill our welfare stewardship, the Relief Society works with the priesthood at every level in the Church. The general presidency of the Relief Society works with the Presiding Bishopric; a called stake Relief Society president works with the area and region priesthood Welfare Services leaders; the stake Relief Society presidency works with the stake presidency; and the ward Relief Society presidency works with the ward bishopric.
 
-In a Relief Society conference held in 1946, Harold B. Lee, then of the Council of the Twelve, told of a survey conducted in the early days of the welfare plan among those needing welfare assistance. It was found in the families of those surveyed that most of the fathers were not highly skilled workmen and their wives did not possess many of the homemaking and home managerial proficiencies that could help them take care of the resources available to families. Few had learned the skills that would help them be independent. (See Relief Society Magazine, Dec. 1946, pp. 809–17.)
+In a Relief Society conference held in 1946, Harold B. Lee, then of the Council of the Twelve, told of a survey conducted in the early days of the welfare plan among those needing welfare assistance. It was found in the families of those surveyed that most of the fathers were *not* highly skilled workmen and their wives *did not* possess many of the homemaking and home managerial proficiencies that could help them take care of the resources available to families. Few had learned the skills that would help them be independent. (See *Relief Society Magazine,* Dec. 1946, pp. 809–17.)
 
 If we are to succeed in carrying out the Welfare Services program of family preparedness, it is necessary for women to develop the qualities of industry, thrift, independence, work, and prudence—qualities which, if applied, will help to fortify individuals and families with a secure feeling of self-reliance against the day of need.
 
@@ -19,7 +20,7 @@ In order to respond to the challenge for every family in the Church to be prepar
 
 Through its education program, continuing and new courses of study on welfare-related subjects will be taught in all classes. Among the lessons are those on money, home, and time-management and home nursing. By helping women to acquire knowledge and skills, many problems can be prevented or overcome.
 
-A program of instruction for stake and ward Relief Society presidencies will be offered on how Relief Society officers may more effectively and efficiently carry out their assignments as outlined in the Welfare Services Handbook.
+A program of instruction for stake and ward Relief Society presidencies will be offered on how Relief Society officers may more effectively and efficiently carry out their assignments as outlined in the *Welfare Services Handbook.*
 
 In-depth instruction will be given to visiting teachers so that they may become more sensitive to the needs of those they visit and more alert to conditions that should be reported through the Relief Society president to the bishop for welfare action.
 
@@ -48,4 +49,7 @@ Within a short time both the Relief Society president and the bishop arrived at 
 As women in this Church family, we have been instructed to “stretch out our hands to the poor and the needy,” to “look to the ways of our households”; for through such involvement, both the helped and the helper grow. The Relief Society as an organization can do much toward ward and family preparedness and awaits your invitation to work with you.
 
 I testify to you that we will rejoice in the opportunity to serve in this great capacity with all of our hearts, minds, might, and strength. In the name of Jesus Christ. Amen.
+
+
+
 

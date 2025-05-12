@@ -1,13 +1,14 @@
 # Motherhood and the Family
-*By By Mary F. Foulger - Of the Relief Society General Board*
+
+By Mary F. Foulger - *Of the Relief Society General Board*
 
 *Given in the October session of the 1980 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1980/10/motherhood-and-the-family?lang=eng)
 
-My dear sisters, I believe that you, like our priesthood brethren, have been “called and prepared from the foundation of the world according to the foreknowledge of God, on account of ... exceeding faith and good works, ... having chosen good.” Therefore you are “called with a holy calling.” (Alma 13:3.)
+My dear sisters, I believe that you, like our priesthood brethren, have been “called and prepared from the foundation of the world according to the foreknowledge of God, on account of … exceeding faith and good works, … having chosen good.” Therefore you are “called with a holy calling.” ([[Alma 13.3|Alma 13:3]].)
 
-We stand in awe at Mary’s assignment to be the mother of the Lord, but we, too, have been called to mother gods. Latter-day Saint women understand that the very purpose of creation depends upon our participation as earthly mothers to the spirit children of God. As it is his work and his glory to bring his children unto eternal life, it is also our work and our glory as mothers. That it is work, no mother will deny. That it is glory, our Father’s greatest promises concern themselves with joy in posterity. “Wherefore, be not weary in well-doing, for ye are laying the foundation of a great work” (D&C 64:33). Indeed, there is none greater.
+We stand in awe at Mary’s assignment to be the mother of the Lord, but we, too, have been called to mother gods. Latter-day Saint women understand that the very purpose of creation depends upon our participation as earthly mothers to the spirit children of God. As it is his work and his glory to bring his children unto eternal life, it is also our work and our glory as mothers. That it is work, no mother will deny. That it is glory, our Father’s greatest promises concern themselves with joy in posterity. “Wherefore, be not weary in well-doing, for ye are laying the foundation of a great work” ([[D&C 64.33|D&C 64:33]]). Indeed, there is none greater.
 
 Our six children were young and completely dependent when my husband invited me to accompany him on a business trip. I had never before been far away from my nest of little ones. At first I was delighted, but as my departure drew near I became obsessed with fear. If something happened to me, what would become of them? I worked myself into such a frenzy that the night before I was to leave I spent the night composing a letter of instruction to one I prayed would care for them in case I didn’t return. I listed all the things I felt were essential to their welfare, and then added a PS: “Please put your arms around them often.”
 
@@ -17,7 +18,7 @@ As a mother I have made mistakes. Regardless of culture or country, we all make 
 
 To mothers raising children alone, remember that you and the Lord constitute a majority. As your arms encircle your little ones, his arms are there, too. Feel secure, for his arms are lengthened out toward us all the day long.
 
-Elder John A. Widtsoe said: “Motherhood may be exercised as universally and vicariously as Priesthood” (Priesthood and Church Government, rev. ed., Salt Lake City: Deseret Book Company, 1954, p. 85).
+Elder John A. Widtsoe said: “Motherhood may be exercised as universally and vicariously as Priesthood” (*Priesthood and Church Government,* rev. ed., Salt Lake City: Deseret Book Company, 1954, p. 85).
 
 For those who have not yet borne a child—exercise motherhood. Let your arms be an extension of the Savior’s in providing love and security for all his children.
 
@@ -30,4 +31,7 @@ My mother died three weeks before my first child was born. How I longed for her.
 God has called Latter-day Saint women to prepare his children for the challenges of the last days. In order to fulfill this calling, we must be both learners and teachers of eternal truths. We must study the scriptures that we might arm our children with knowledge of Jesus Christ and his gospel. We must guard our homes against any intrusion of evil. We must seek the guidance of the Holy Spirit. We must make our homes holy places in which to stand. Sisters, we must faithfully fulfill here the sacred trust we willingly accepted there.
 
 Let us learn and then teach that the Lord has given us a prophet to guide us back to him; learn and then teach that Jesus is the Christ, that he lives, and that our only security lies in his arms. To this I testify in the holy name of Jesus Christ, amen.
+
+
+
 

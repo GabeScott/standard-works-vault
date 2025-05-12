@@ -1,7 +1,10 @@
 # Learning in the Priesthood
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2011 General Conference*
+
+>*If you will be diligent and obedient in the priesthood, treasures of spiritual knowledge will be poured out upon you.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/04/learning-in-the-priesthood?lang=eng)
 
@@ -13,7 +16,7 @@ While I was still a deacon, my family moved to Utah. There I found three wonderf
 
 It wasn’t the well-established ward that made the difference. What was there in that ward could be anywhere, in whatever unit of the Church you are in.
 
-These three things may be so much a part of your experience in the priesthood that you hardly notice them. For others you may not feel the need for growth, so these helps may be invisible to you. Either way, I pray that the Spirit will help me make them clear and attractive to you.
+These three things may be so much a part of your experience in the priesthood that you hardly notice them. For others, you may not feel the need for growth, so these helps may be invisible to you. Either way, I pray that the Spirit will help me make them clear and attractive to you.
 
 My purpose in speaking of these three aids to growing in the priesthood is to urge you to value them and to use them. If you do, your service will be transformed for the better. And if it is magnified, your priesthood service will bless Heavenly Father’s children more than you can now imagine is possible.
 
@@ -21,7 +24,7 @@ I found the first when I was welcomed into a priests quorum, with the bishop as 
 
 As near as I could tell, he treated the opinions of young priests as if we were the wisest men in the world. He waited until all who would speak had spoken. He listened. And when he decided what should be done, it seemed to me that the Spirit confirmed the decisions to us and to him.
 
-I realize now I had felt what the scripture means when it says that the president is to sit in council with the members of his quorum.1 And years later as I was a bishop with my priests quorum, both they and I were taught by what I had learned as a young priest.
+I realize now I had felt what the scripture means when it says that the president is to sit in council with the members of his quorum.[^1] And years later as I was a bishop with my priests quorum, both they and I were taught by what I had learned as a young priest.
 
 Twenty years later as a bishop, I had the opportunity to see the effectiveness of a council not just in the meetinghouse but also in the mountains. During a Saturday activity, a member of our quorum had been lost in the forest overnight. As far as we knew, he was alone and without warm clothes, food, or shelter. We searched for him without success.
 
@@ -33,13 +36,13 @@ The second key to increased learning is to have love for each other that comes f
 
 In the early days of the Church in this dispensation, he received a command from God to build strength in the priesthood. He was directed to create schools for priesthood holders. The Lord set the requirement that there be love for each other among those who were to teach and to be taught. Here are the words of the Lord about creating a place of priesthood learning and what it was like for those who were to learn in it:
 
-“Organize yourselves; ... establish a house ... of learning, ... a house of order. ...
+“Organize yourselves; … establish a house … of learning, … a house of order. …
 
-“Appoint among yourselves a teacher, and let not all be spokesmen at once; but let one speak at a time and let all listen unto his sayings, that when all have spoken that all may be edified of all, and that every man may have an equal privilege.”2
+“Appoint among yourselves a teacher, and let not all be spokesmen at once; but let one speak at a time and let all listen unto his sayings, that when all have spoken that all may be edified of all, and that every man may have an equal privilege.”[^2]
 
 The Lord is describing what we have already seen is the strength of a priesthood council or a class to bring revelation by the Spirit. Revelation is the only way we can come to know that Jesus is the Christ. That great faith is the first rung on the ladder we climb to learn the principles of the gospel.
 
-In section 88 of the Doctrine and Covenants, in verses 123 and 124, the Lord stressed love for each other and not finding fault with each other. Each gained entry into the priesthood school established by the Lord’s prophet by making a covenant with uplifted hands to be a “friend and brother ... in the bonds of love.”3
+In [[D&C 88.123|section 88 of the Doctrine and Covenants, in verses 123 and 124]][[D&C 88.124|]], the Lord stressed love for each other and not finding fault with each other. Each gained entry into the priesthood school established by the Lord’s prophet by making a covenant with uplifted hands to be a “friend and brother … in the bonds of love.”[^3]
 
 Now, we do not follow that practice today, but wherever I have seen remarkable learning in the priesthood, there are those bonds of love. Again I have seen it as both a cause and an effect of learning gospel truths. Love invites the Holy Ghost to be present to confirm truth. And the joy of learning divine truths creates love in the hearts of people who shared the experience of learning.
 
@@ -49,11 +52,11 @@ The priesthood holders who learn well together always seem to me to have great p
 
 With enough of the pure love of Christ and a desire to be peacemakers, unity is possible in priesthood councils and in classes. It takes patience and humility, but I have seen it happen even when issues are difficult and the people in councils or classes come from vastly different backgrounds.
 
-It is possible to rise to the lofty standard set by the Lord for priesthood holders in making decisions in quorums. It is possible when there is great faith and love and the absence of contention. Here is the Lord’s requirement for His endorsement of our decisions: “And every decision made by either of these quorums must be by the unanimous voice of the same; that is, every member in each quorum must be agreed to its decisions, in order to make their decisions of the same power or validity one with the other.”4
+It is possible to rise to the lofty standard set by the Lord for priesthood holders in making decisions in quorums. It is possible when there is great faith and love and the absence of contention. Here is the Lord’s requirement for His endorsement of our decisions: “And every decision made by either of these quorums must be by the unanimous voice of the same; that is, every member in each quorum must be agreed to its decisions, in order to make their decisions of the same power or validity one with the other.”[^4]
 
 The third aid to learning in the priesthood comes with a shared conviction about why the Lord blesses and trusts us to hold and to exercise His priesthood. It is to labor for the salvation of men. This shared conviction brings unity in quorums. We can begin to learn about this from the scriptural account of how we spirit sons were prepared before birth for this rare honor of holding the priesthood.
 
-Speaking of those given great priesthood trust in this life, the Lord said, “Even before they were born, they, with many others, received their first lessons in the world of spirits and were prepared to come forth in the due time of the Lord to labor in his vineyard for the salvation of the souls of men.”5
+Concerning those given great priesthood trust in this life, the Lord revealed that “even before they were born, they, with many others, received their first lessons in the world of spirits and were prepared to come forth in the due time of the Lord to labor in his vineyard for the salvation of the souls of men.”[^5]
 
 In the priesthood we share the sacred duty to labor for the souls of men. We must do more than learn that this is our duty. It must go down into our hearts so deeply that neither the many demands on our efforts in the bloom of life nor the trials that come with age can turn us from that purpose.
 
@@ -97,5 +100,18 @@ You may have thought at one time how much better your life would have been if on
 
 If you will be diligent and obedient in the priesthood, treasures of spiritual knowledge will be poured out upon you. You will grow in your power to resist evil and to proclaim the truth that leads to salvation. You will find joy in the happiness of those you lead toward exaltation. Your family will become a place of learning.
 
-I testify that the keys of the priesthood have been restored. President Thomas S. Monson holds and exercises those keys. God lives and knows you perfectly. Jesus Christ lives. You were chosen for the honor of holding the sacred priesthood. In the name of Jesus Christ, amen.
+I testify that the keys of the priesthood have been restored. President Thomas S. Monson holds and exercises those keys. God lives and knows you perfectly. Jesus Christ lives. You were chosen for the honor of holding the sacred priesthood. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See [[D&C 107.87|Doctrine and Covenants 107:87]].
+
+[^2]: [[D&C 88.119|Doctrine and Covenants 88:119, 122]][[D&C 88.122|]].
+
+[^3]: [[D&C 88.133|Doctrine and Covenants 88:133]].
+
+[^4]: [[D&C 107.27|Doctrine and Covenants 107:27]].
+
+[^5]: [[D&C 138.56|Doctrine and Covenants 138:56]].
 

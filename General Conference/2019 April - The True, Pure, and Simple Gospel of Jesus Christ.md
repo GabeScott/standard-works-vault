@@ -1,7 +1,10 @@
 # The True, Pure, and Simple Gospel of Jesus Christ
-*By M. Russell Ballard - Acting President of the Quorum of the Twelve Apostles*
+
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
+
+>*Loving God and loving our neighbors is the doctrinal foundation of ministering; home-centered, Church-supported learning; Sabbath-day spiritual worship; and the work of salvation.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/04/23ballard?lang=eng)
 
@@ -9,29 +12,29 @@ My brothers and sisters, it’s difficult for me to believe that it was 71 years
 
 In thinking about my last 43 years of service as a General Authority and the privilege I have had to minister to Heavenly Father’s children, I have come to realize more fully that He wants all of His children to find peace, joy, and happiness in their lives.
 
-The prophet Lehi taught, “Men [and women] are, that they might have joy.” There are many reasons why peace, joy, and happiness may elude us in this life, including poverty, war, natural disasters, and unexpected setbacks in employment, health, and family relationships.
+The prophet Lehi taught, “Men \[and women\] are, that they might have joy.”[^1] There are many reasons why peace, joy, and happiness may elude us in this life, including poverty, war, natural disasters, and unexpected setbacks in employment, health, and family relationships.
 
 But even though we cannot control those external forces that impact our lives here on earth, as we strive to become faithful disciples of the Lord Jesus Christ, we can find peace, joy, and happiness despite the worldly troubles that swirl around us.
 
 One of my children once said, “Dad, I wonder if I will ever be able to make it.” I responded, “All Heavenly Father asks of us is to do the very best we can each day.” Brothers and sisters, do the best you can do day after day, and before you know it, you will come to realize that your Heavenly Father knows you and that He loves you. And when you know that—really know it—your life will have real purpose and meaning and you will be filled with joy and peace.
 
-As the Light of the World, the Savior said, “Whosoever believeth on me should not abide in darkness.”
+As the Light of the World, the Savior said, “Whosoever believeth on me should not abide in darkness.”[^2]
 
-“Jesus Christ is the name which is given of the Father, and there is none other name given whereby [we] can be saved;
+“Jesus Christ is the name which is given of the Father, and there is none other name given whereby \[we\] can be saved;
 
-“Wherefore, all men [and women] must take upon them the name which is given of the Father.”
+“Wherefore, all men \[and women\] must take upon them the name which is given of the Father.”[^3]
 
-The scriptures teach us that Satan desires to lead people into darkness. His every effort is to shut out the light and truth of Jesus Christ and His gospel. As Lehi taught his children, the devil “seeketh that all men might be miserable like unto himself.” If Heavenly Father’s “work and ... glory” is “to bring to pass the immortality and eternal life of [men and women],” Lucifer’s “work” is to bring to pass the misery and endless woe of God’s children. Sin and transgression dim the Light of Christ in our lives. That is why our quest is to bask in the Light of Christ, which brings peace, joy, and happiness.
+The scriptures teach us that Satan desires to lead people into darkness. His every effort is to shut out the light and truth of Jesus Christ and His gospel. As Lehi taught his children, the devil “seeketh that all men might be miserable like unto himself.”[^4] If Heavenly Father’s “work and … glory” is “to bring to pass the immortality and eternal life of \[men and women\],”[^5] Lucifer’s “work” is to bring to pass the misery and endless woe of God’s children. Sin and transgression dim the Light of Christ in our lives. That is why our quest is to bask in the Light of Christ, which brings peace, joy, and happiness.
 
 In the last 18 months, the Lord has inspired His prophet and the Apostles to implement a number of wonderful adjustments. However, I worry that the spiritual purposes of these adjustments might become lost in the excitement about the changes themselves.
 
-Joseph F. Smith said: “The true, pure, simple gospel of Jesus Christ has been restored. We are responsible for maintaining it upon the earth.” He added that the true, pure, and simple gospel is the “saving doctrines of Christ.”
+Joseph F. Smith said: “The true, pure, simple gospel of Jesus Christ has been restored. We are responsible for maintaining it upon the earth.”[^6] He added that the true, pure, and simple gospel is the “saving doctrines of Christ.”[^7]
 
-In the Articles of Faith, the Prophet Joseph Smith taught that “through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.”
+In the Articles of Faith, the Prophet Joseph Smith taught that “through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.”[^8]
 
-The first principles of the gospel are faith in the Lord Jesus Christ, repentance, baptism, the gift of the Holy Ghost, and enduring to the end. His brother Hyrum taught: “Preach them over [and over] again: you will find that day after day new ideas and additional light concerning them will be revealed to you. You can enlarge upon them ... to comprehend them clearly. You will then be able to make them more plainly understood by those [you] teach.”
+The first principles of the gospel are faith in the Lord Jesus Christ, repentance, baptism, the gift of the Holy Ghost, and enduring to the end. His brother Hyrum taught: “Preach them over \[and over\] again: you will find that day after day new ideas and additional light concerning them will be revealed to you. You can enlarge upon them … to comprehend them clearly. You will then be able to make them more plainly understood by those \[you\] teach.”[^9]
 
-The best ways for us to see the spiritual purposes of the Church are to live the true, pure, and simple teachings of Christ and also to apply the Savior’s two great commandments: “Thou shalt love the Lord thy God with all thy heart. ... Thou shalt love thy neighbor as thyself.”
+The best ways for us to see the spiritual purposes of the Church are to live the true, pure, and simple teachings of Christ and also to apply the Savior’s two great commandments: “Thou shalt love the Lord thy God with all thy heart. … Thou shalt love thy neighbor as thyself.”[^10]
 
 Obedience to those two commandments provides a way to experience more peace and joy. When we love and serve the Lord and love and serve our neighbors, we will naturally feel more happiness that comes to us in no better way.
 
@@ -41,9 +44,9 @@ Living the true, pure, and simple gospel plan will allow us more time to visit t
 
 The Sabbath-day adjustments that emphasize home-centered, Church-supported gospel learning and studying are an opportunity to renew our spirit and our devotion to God within the walls of our homes. What could possibly be more simple, basic, and profound? Brothers and sisters, can you see that learning and teaching the gospel in our families is an important way to find joy and happiness in our lives?
 
-Speaking of the Sabbath, the Savior said, “For verily this is a day appointed unto you to rest from your labors, and to pay thy devotions unto the Most High.” He added, “That thy joy may be full ... [through] rejoicing and prayer ... ye [should] do these things with thanksgiving, with cheerful hearts and countenances ... [and] with a glad heart and a cheerful countenance.”
+Speaking of the Sabbath, the Savior said, “For verily this is a day appointed unto you to rest from your labors, and to pay thy devotions unto the Most High.”[^11] He added, “That thy joy may be full … \[through\] rejoicing and prayer … ye \[should\] do these things with thanksgiving, with cheerful hearts and countenances … \[and\] with a glad heart and a cheerful countenance.”[^12]
 
-Please note some of the key words in this revelation: joy, rejoicing, thanksgiving, cheerful hearts, glad heart, and a cheerful countenance. It sounds to me like Sabbath-day observance should bring smiles to our faces.
+Please note some of the key words in this revelation: *joy*, *rejoicing*, *thanksgiving*, *cheerful hearts*, *glad* *heart, and a cheerful countenance*. It sounds to me like Sabbath-day observance should bring smiles to our faces.
 
 As we minister in a higher and holier way, please consider how essential it is that we greet everyone who comes to our Church meetings, especially new members and visitors. We should all enjoy singing the hymns and listening carefully to the words of the sacrament prayers with an open heart and mind.
 
@@ -53,17 +56,46 @@ Effective ministering is best viewed through the focused lens of loving God and 
 
 Let’s not complicate things with additional meetings, expectations, or requirements. Keep it simple. It is in that simplicity that you will find the peace, joy, and happiness I have been talking about.
 
-For years the leadership purposes of the Church, as stated in Handbook 2, are outcomes that are clear and simple, from which I quote:
+For years the leadership purposes of the Church, as stated in *Handbook 2,* are outcomes that are clear and simple, from which I quote:
 
-“Leaders encourage every member to receive all essential priesthood ordinances, keep the associated covenants, and qualify for exaltation and eternal life. ...
+“Leaders encourage every member to receive all essential priesthood ordinances, keep the associated covenants, and qualify for exaltation and eternal life. …
 
-“Adults: Encourage each adult to be worthy to receive the ordinances of the temple. Teach all adults to identify their ancestors and perform vicarious temple ordinances for them.
+“**Adults:** Encourage each adult to be worthy to receive the ordinances of the temple. Teach all adults to identify their ancestors and perform vicarious temple ordinances for them.
 
-“Youth: Help prepare each young man to receive the Melchizedek Priesthood, to receive the ordinances of the temple, and to be worthy to serve a full-time mission. Help prepare each young woman to be worthy to make and keep sacred covenants and receive the ordinances of the temple. Strengthen youth through participation in meaningful activities.
+“**Youth:** Help prepare each young man to receive the Melchizedek Priesthood, to receive the ordinances of the temple, and to be worthy to serve a full-time mission. Help prepare each young woman to be worthy to make and keep sacred covenants and receive the ordinances of the temple. Strengthen youth through participation in meaningful activities.
 
-“All Members: Help priesthood and auxiliary leaders, ward councils, ward and full-time missionaries, and members work cooperatively in a balanced effort to rescue individuals, strengthen families and Church units, increase priesthood activity, and gather Israel through conversion, retention, and activation. Teach members to provide for themselves and their families and to assist the poor and needy in the Lord’s way.”
+“**All Members:** Help priesthood and auxiliary leaders, ward councils, ward and full-time missionaries, and members work cooperatively in a balanced effort to rescue individuals, strengthen families and Church units, increase priesthood activity, and gather Israel through conversion, retention, and activation. Teach members to provide for themselves and their families and to assist the poor and needy in the Lord’s way.”[^13]
 
 My service in the Church has blessed me with many remarkable and special spiritual experiences. I am a witness that the Lord directs His Church to accomplish His purposes. I have received divine guidance far beyond my capacity. The joy of gospel living for me has been centered on the true, pure, and simple doctrine and gospel of Jesus Christ.
 
-I have served under the keys and directions of six prophets and Church Presidents, from Spencer W. Kimball to Russell M. Nelson. I testify that each one of them was and is God’s chosen prophet. They have taught us essential principles about the Church and the gospel and doctrine of Christ. President Nelson is carrying the Lord’s work forward at a breathtaking pace. I say “breathtaking” because he’s the only one of the Apostles who is older than me, and I am having a difficult time keeping up with him! I am a witness that the priesthood keys and the mantle of a prophet of God are upon him. President Nelson teaches the true, pure, and simple gospel of Jesus Christ. I bear my testimony that Jesus is the Christ and this is His Church—of which I testify humbly in the name of Jesus Christ, amen.
+I have served under the keys and directions of *six* prophets and Church Presidents, from Spencer W. Kimball to Russell M. Nelson. I testify that each one of them was and is God’s chosen prophet. They have taught us essential principles about the Church and the gospel and doctrine of Christ. President Nelson is carrying the Lord’s work forward at a breathtaking pace. I say “breathtaking” because he’s the only one of the Apostles who is older than me, and I am having a difficult time keeping up with him! I am a witness that the priesthood keys and the mantle of a prophet of God are upon him. President Nelson teaches the true, pure, and simple gospel of Jesus Christ. I bear my testimony that Jesus is the Christ and this is His Church—of which I testify humbly in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[2 Nephi 2.25|2 Nephi 2:25]].
+
+[^2]: [[John 12.46|John 12:46]].
+
+[^3]: [[D&C 18.23|Doctrine and Covenants 18:23–24]][[D&C 18.24|]].
+
+[^4]: [[2 Nephi 2.27|2 Nephi 2:27]].
+
+[^5]: [[Moses 1.39|Moses 1:39]].
+
+[^6]: Joseph F. Smith, “Principle, Not Popularity,” *Improvement Era,* July 1906, 732.
+
+[^7]: Joseph F. Smith, “Principle, Not Popularity,” 732.
+
+[^8]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
+
+[^9]: Hyrum Smith, in “[What Is My Purpose as a Missionary?](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng&id=aside2#aside2)” *Preach My Gospel: A Guide to Missionary Service,* rev. ed. (2019), 6.
+
+[^10]: [[D&C 59.5|Doctrine and Covenants 59:5–6]][[D&C 59.6|]]; see also [[Leviticus 19.18|Leviticus 19:18]]; [[Deuteronomy 6.5|Deuteronomy 6:5]]; [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
+
+[^11]: [[D&C 59.10|Doctrine and Covenants 59:10]].
+
+[^12]: [[D&C 59.13|Doctrine and Covenants 59:13–15]][[D&C 59.14|]][[D&C 59.15|]].
+
+[^13]: *Handbook 2: Administering the Church* (2010), 3.4.
 

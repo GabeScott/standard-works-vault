@@ -1,5 +1,6 @@
 # What the Gospel Teaches
-*By LeGrand Richards - Of the Quorum of the Twelve Apostles*
+
+By Elder LeGrand Richards - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -7,7 +8,7 @@
 
 I am proud to be a member of this great church—The Church of Jesus Christ of Latter-day Saints. What an appropriate name for the true church of Christ to bear in this, the dispensation of the fulness of times. I love the Church because of what it teaches me.
 
-Some years ago during the war, Elder John A. Widtsoe went to the land of Great Britain to preside over the European Mission. When the immigration official saw his papers and who he was, he said, “Nothing doing. We have been letting your missionaries in, but we don’t want any of your leaders—go sit down.” So Brother Widtsoe went and sat down.
+Some years ago during the war, Elder John A. Widtsoe went to the land of Great Britain to preside over the European Mission. When the immigration official saw his papers and who he was, he said, “Nothing doing. We have been letting your missionaries in, but we don’t want any of your leaders—go sit down.” So Brother Widtsoe went and sat down.
 
 In a few minutes, he called him back and he said, “If I let you enter my country, what will you teach my countrymen?”
 
@@ -23,25 +24,25 @@ To me, that knowledge is worth more than all the wealth in this world. If we don
 
 My church teaches me that I am a son of God the Eternal Father, and therefore I have all of the attributes in embryo to develop like my Father, just like my sons have become like me and I became like my earthly father.
 
-The Lord stood in the midst of the spirits before this world was created. He said there were many of the noble and great ones—and they couldn’t be noble and great if they hadn’t done something to achieve nobility and greatness before they were born here in this world. He said to those who were with him, “We will go down, for there is space there, ... and we will make an earth whereon these may dwell;
+The Lord stood in the midst of the spirits before this world was created. He said there were many of the noble and great ones—and they couldn’t be noble and great if they hadn’t done something to achieve nobility and greatness before they were born here in this world. He said to those who were with him, “We will go down, for there is space there, … and we will make an earth whereon these may dwell;
 
 “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them.”
 
-Then he adds: “And they who keep their first estate shall be added upon; and they who keep not their first estate shall not have glory in the same kingdom with those who keep their first estate; and they who keep their second estate shall have glory added upon their heads for ever and ever.” (Abr. 3:24–26.)
+Then he adds: “And they who keep their first estate shall be added upon; and they who keep not their first estate shall not have glory in the same kingdom with those who keep their first estate; and they who keep their second estate shall have glory added upon their heads for ever and ever.” ([[Abraham 3.24|Abr. 3:24–26]][[Abraham 3.25|]][[Abraham 3.26|]].)
 
-I thank the Lord that my church teaches me that I kept my first estate in that spirit world or else I would have been cast down to this earth with Satan and a third of the hosts of heaven. And the cry went out: “Woe to the inhabiters of the earth ... for the devil is come down unto you,” and he “walketh about, seeking whom he may devour.” (Rev. 12:12; 1 Pet. 5:8.) And so the fact that I kept my first estate entitled me to all the beauties and the joys of this world that have been mentioned here in this meeting today. And it gave me the right to have this body—and maybe I can’t appreciate as much what that ought to mean to me as I do by reading the scriptures.
+I thank the Lord that my church teaches me that I kept my first estate in that spirit world or else I would have been cast down to this earth with Satan and a third of the hosts of heaven. And the cry went out: “Woe to the inhabiters of the earth … for the devil is come down unto you,” and he “walketh about, seeking whom he may devour.” ([[Revelation 12.12|Rev. 12:12]]; [[1 Peter 5.8|1 Pet. 5:8]].) And so the fact that I kept my first estate entitled me to all the beauties and the joys of this world that have been mentioned here in this meeting today. And it gave me the right to have this body—and maybe I can’t appreciate as much what that ought to mean to me as I do by reading the scriptures.
 
-Then we read of when Jesus cast the devils out of the man who was possessed. And he asked his name, and he said: “Legion,” because legions had entered into the man. And so eager were those devils to get a body that they asked permission to take possession of the bodies of the swine that were feeding in the field. And Jesus permitted it, and they ran off into the sea and were drowned, as I remember about two thousand of them. (See Mark 5:1–17.) Just think how eager those spirits were to get a body, and because we kept our first estate we are now in our second estate.
+Then we read of when Jesus cast the devils out of the man who was possessed. And he asked his name, and he said: “Legion,” because legions had entered into the man. And so eager were those devils to get a body that they asked permission to take possession of the bodies of the swine that were feeding in the field. And Jesus permitted it, and they ran off into the sea and were drowned, as I remember about two thousand of them. (See [[Mark 5.1|Mark 5:1–17]][[Mark 5.2|]][[Mark 5.3|]][[Mark 5.4|]][[Mark 5.5|]][[Mark 5.6|]][[Mark 5.7|]][[Mark 5.8|]][[Mark 5.9|]][[Mark 5.10|]][[Mark 5.11|]][[Mark 5.12|]][[Mark 5.13|]][[Mark 5.14|]][[Mark 5.15|]][[Mark 5.16|]][[Mark 5.17|]].) Just think how eager those spirits were to get a body, and because we kept our first estate we are now in our second estate.
 
-I love the statement in the Bible where Enoch of old, that prophet who was translated into heaven with his people, obtained the assurance while yet here in mortality that he had pleased the Lord. (See Heb. 11:5.) I think by the keeping of His commandments—doing all things, as the Lord said, that the Lord God had commanded (see Deut. 12:32; Matt. 28:20)—that we can get an assurance that comes through the Holy Spirit that our labors are acceptable to the Lord and that we have pleased him.
+I love the statement in the Bible where Enoch of old, that prophet who was translated into heaven with his people, obtained the assurance while yet here in mortality that he had pleased the Lord. (See [[Hebrews 11.5|Heb. 11:5]].) I think by the keeping of His commandments—doing all things, as the Lord said, that the Lord God had commanded (see [[Deuteronomy 12.32|Deut. 12:32]]; [[Matthew 28.20|Matt. 28:20]])—that we can get an assurance that comes through the Holy Spirit that our labors are acceptable to the Lord and that we have pleased him.
 
 I thank Him for the many beautiful truths, many of which have been proclaimed here today. This principle of eternal marriage—I just can’t imagine living on forever and forever after I pass out of this life without the companionship of my sweet wife and my children. How I thank God for them, and for the knowledge that marriage and the family unit are intended by Him, as proclaimed so plainly in the Holy Scriptures, to endure for ever.
 
 Then I think of my children one by one (and I have over a hundred descendants!), and I see what they are accomplishing and the nobility of their lives, and I can hardly realize that I can be their daddy. I feel that that is nearer to becoming a god than anything else I can do here in mortality. And from the days of my youth and young manhood, I have tried to live before those children and descendants of mine so that if they walked in my footsteps they would be honoring their second estate and preparing themselves to have glory added upon their heads forever and forever.
 
-Then there are so many other beautiful principles of the gospel. When I first became a missionary, I never met anybody who believed in a personal God. My, what a joy to realize that Christ gave his life for us, and took upon him the sins of the world—as Paul said: “As in Adam all die, even so in Christ shall all be made alive” (1 Cor. 15:22)—and to know that his Father is as real as my father, and that they have revealed themselves as two glorified personages in this dispensation, after centuries of darkness, unto the Prophet Joseph Smith. The Lord had him in waiting thousands of years ago, according to the Book of Mormon, for his day and time to come, to bring men to a knowledge of the truth and to bring forth his truth among the people of this world. These are great truths, and many more can be taught.
+Then there are so many other beautiful principles of the gospel. When I first became a missionary, I never met anybody who believed in a personal God. My, what a joy to realize that Christ gave his life for us, and took upon him the sins of the world—as Paul said: “As in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]])—and to know that his Father is as real as my father, and that they have revealed themselves as two glorified personages in this dispensation, after centuries of darkness, unto the Prophet Joseph Smith. The Lord had him in waiting thousands of years ago, according to the Book of Mormon, for his day and time to come, to bring men to a knowledge of the truth and to bring forth his truth among the people of this world. These are great truths, and many more can be taught.
 
-When I wrote the book A Marvelous Work and a Wonder as a missionary tool, I chose the statement of Isaiah when he said, “Forasmuch as this people draw near me with their mouth, and with their lips do honour me, but have removed their heart far from me, and their fear toward me is taught by the precept of men.” Then he goes on: “Therefore, behold, I [the Lord] will proceed to do a marvellous work among this people, even a marvellous work and a wonder: for the wisdom of their wise men shall perish, and the understanding of their prudent men shall be hid.” (Isa. 29:13–14.) The message of this great church is that marvelous work and a wonder that Isaiah saw would come forth when men would teach for doctrine the precepts of men.
+When I wrote the book *A Marvelous Work and a Wonder* as a missionary tool, I chose the statement of Isaiah when he said, “Forasmuch as this people draw near me with their mouth, and with their lips do honour me, but have removed their heart far from me, and their fear toward me is taught by the precept of men.” Then he goes on: “Therefore, behold, I \[the Lord\] will proceed to do a marvellous work among this people, even a marvellous work and a wonder: for the wisdom of their wise men shall perish, and the understanding of their prudent men shall be hid.” ([[Isaiah 29.13|Isa. 29:13–14]][[Isaiah 29.14|]].) The message of this great church is that marvelous work and a wonder that Isaiah saw would come forth when men would teach for doctrine the precepts of men.
 
 Being a missionary, as long as I have time, let me give you one or two little missionary experiences to indicate what Isaiah meant when he said that they would worship Him by the precepts of men.
 
@@ -57,13 +58,13 @@ Then I stood up and I said, “The last time I talked with my friend, we had a d
 
 “Leaving the principles of the doctrine of Christ, let us go on unto perfection; not laying again the foundation of repentance from dead works, and of faith toward God,
 
-“Of the doctrine of baptisms, and of laying on of hands, and of resurrection of the dead, and of eternal judgment.” (Heb. 6:1–2.)
+“Of the doctrine of baptisms, and of laying on of hands, and of resurrection of the dead, and of eternal judgment.” ([[Hebrews 6.1|Heb. 6:1–2]][[Hebrews 6.2|]].)
 
 I hurried over faith and repentance—I thought they believed in them. I spoke on baptism by immersion for the remission of sin until everybody was giving me accord.
 
 Then it came to the laying on of hands for the gift of the Holy Ghost. And they didn’t believe that. I never found a church that did believe it outside of our Church—they think the Holy Ghost comes just like the breezes that blow over the head. I quoted them the passage saying that when the Apostles at Jerusalem heard that Samaria had accepted the word of God through the preaching of Philip, they sent Peter and John. And when they came, they prayed for them, they laid their hands upon them, and they received the Holy Ghost. And when Simon the sorcerer saw that the Holy Ghost was conveyed by the laying on of the Apostles’ hands, he offered them money, saying: “Give me also this power, that on whomsoever I lay my hands, he may receive the Holy Ghost.
 
-“But Peter said unto him, Thy money perish with thee, because thou hast thought that the gift of God may be purchased with money.” (Acts 8:19–20.)
+“But Peter said unto him, Thy money perish with thee, because thou hast thought that the gift of God may be purchased with money.” ([[Acts 8.19|Acts 8:19–20]][[Acts 8.20|]].)
 
 And then I gave them a few more references on the laying on of hands for the gift of the Holy Ghost, and sat down.
 
@@ -97,7 +98,10 @@ Now I will tell you one more if there is time for it. Over in Utrecht, Holland, 
 
 I convinced one of those young men that baptism was to be by immersion for the remission of sins, and the laying on of hands for the gift of the Holy Ghost—he hadn’t been taught that and he didn’t believe it. He said: “Mr. Richards, do you think the Lord will hold us responsible if we teach things that we know are not in full accord with the Holy Scriptures?”
 
-I said, “My friend, I’d rather let the Apostle Paul answer that question. He said, ‘Though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.’ (Gal. 1:8.)” We didn’t have any more arguments then.
+I said, “My friend, I’d rather let the Apostle Paul answer that question. He said, ‘Though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.’ ([[Galatians 1.8|Gal. 1:8]].)” We didn’t have any more arguments then.
 
 I think my time is up. God bless you all. I love the Lord. I love his church. I love the Saints. I love them all. God bless you, I pray, and leave you my blessing in the name of the Lord Jesus Christ, amen.
+
+
+
 

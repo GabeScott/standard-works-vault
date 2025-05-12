@@ -1,71 +1,74 @@
 # Pathways to Perfection
-*By Thomas S. Monson - First Counselor in the First Presidency*
+
+By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2002 General Conference*
+
+>*Exemplify in your lives four tested, specific virtues: an attitude of gratitude, a longing for learning, a devotion to discipline, and a willingness to work.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2002/04/pathways-to-perfection?lang=eng)
 
 Our Young Women presidency have done so well, haven’t they? I sustain and endorse all that you have heard from these splendid women today. They are truly servants of our Heavenly Father and have presented His holy word.
 
-“Happiness,” the Prophet Joseph Smith wrote, “is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God.”1
+“Happiness,” the Prophet Joseph Smith wrote, “is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God.”[^1]
 
 But how does one find that pathway, and what’s more, how does one stay on that pathway which leads to perfection?
 
-In Lewis Carroll’s classic Alice’s Adventures in Wonderland, Alice finds herself coming to a crossroads with two paths before her, each stretching onward but in opposite directions. She is confronted by the Cheshire Cat, of whom she asks, “Which path shall I take?”
+In Lewis Carroll’s classic *Alice’s Adventures in Wonderland,* Alice finds herself coming to a crossroads with two paths before her, each stretching onward but in opposite directions. She is confronted by the Cheshire Cat, of whom she asks, “Which path shall I take?”
 
-The cat answers: “That depends where you want to go. If you do not know where you want to go, it doesn’t really matter which path you take!”2
+The cat answers: “That depends where you want to go. If you do not know where you want to go, it doesn’t really matter which path you take!”[^2]
 
-Unlike Alice, each of you knows where you want to go. It does matter which way you go, for the path you follow in this life leads to the path you will follow in the next.
+Unlike Alice, each of you knows where you want to go. It *does* matter which way you go, for the path you follow in this life leads to the path you will follow in the next.
 
 A lilting ballad, popular many years ago, contains the provocative line, “If wishing can make it so, then keep on wishing and cares will go.” Another formula for failure comes from the more recent song, “Don’t worry; be happy!”
 
-Our theme for this evening, “Stand Ye in Holy Places,” is more appropriate. I also appreciate the words which follow: “Stand ye in holy places, and be not moved.”3
+Our theme for this evening, “Stand Ye in Holy Places,” is more appropriate. I also appreciate the words which follow: “Stand ye in holy places, *and be not moved.*”[^3]
 
-President George Albert Smith, eighth President of the Church, urged: “Let us plant our feet upon the highway that leads to happiness and the celestial kingdom, not just occasionally, but every day, and every hour, because if we will stay on the Lord’s side of the line, if we will remain under the influence of our Heavenly Father, the adversary cannot even tempt us. But if we go into the devil’s territory ... we will be unhappy and that unhappiness will increase as the years go by, unless we repent of our sins and turn to the Lord.”4
+President George Albert Smith, eighth President of the Church, urged: “Let us plant our feet upon the highway that leads to happiness and the celestial kingdom, not just occasionally, but every day, and every hour, because if we will stay on the Lord’s side of the line, if we will remain under the influence of our Heavenly Father, the adversary cannot even tempt us. But if we go into the devil’s territory … we will be unhappy and that unhappiness will increase as the years go by, unless we repent of our sins and turn to the Lord.”[^4]
 
 In speaking to young men of the Aaronic Priesthood, I have frequently quoted the advice of a father to a precious son: “If you ever find yourself where you hadn’t ought to be—then get out!” The same truth is applicable to you young women here in the Conference Center and to you assembled in meetinghouses throughout the world.
 
 I have always felt that if we speak in generalities, we rarely have success; but if we speak in specifics, we will rarely have a failure. Therefore, I urge that you exemplify in your lives four tested, specific virtues. They are:
 
-An attitude of gratitude,
+1. An attitude of gratitude,
 
-A longing for learning,
+2. A longing for learning,
 
-A devotion to discipline, and
+3. A devotion to discipline, and
 
-A willingness to work.
+4. A willingness to work.
 
-First, an attitude of gratitude. In the book of Luke, chapter 17, we read the account of the 10 lepers. The Savior, in traveling toward Jerusalem, passed through Galilee and Samaria and entered a certain village where He was met on the outskirts by 10 lepers who were forced, because of their condition, to live apart from others. They stood “afar off” and cried, “Jesus, Master, have mercy on us.”
+First, *an attitude of gratitude.* In the book of Luke, chapter 17, we read the account of the 10 lepers. The Savior, in traveling toward Jerusalem, passed through Galilee and Samaria and entered a certain village where He was met on the outskirts by 10 lepers who were forced, because of their condition, to live apart from others. They stood “afar off” and cried, “Jesus, Master, have mercy on us.”
 
-The Savior, full of sympathy and love for them, said, “Go shew yourselves unto the priests,” and as they went they discovered that they were healed. The scriptures tell us, “One of them, when he saw that he was healed, turned back, and with a loud voice glorified God, and fell down on his face at [the Master’s] feet, giving him thanks: and he was a Samaritan.”
+The Savior, full of sympathy and love for them, said, “Go shew yourselves unto the priests,” and as they went they discovered that they were healed. The scriptures tell us, “One of them, when he saw that he was healed, turned back, and with a loud voice glorified God, and fell down on his face at \[the Master’s\] feet, giving him thanks: and he was a Samaritan.”
 
-The Savior responded, “Were there not ten cleansed? but where are the nine? There are not found that returned to give glory to God, save this stranger. And he said unto him, Arise, go thy way: thy faith hath made thee whole.”5
+The Savior responded, “Were there not ten cleansed? but where are the nine? There are not found that returned to give glory to God, save this stranger. And he said unto him, Arise, go thy way: thy faith hath made thee whole.”[^5]
 
 Through divine intervention, those who were lepers were spared from a cruel, lingering death and given a new lease on life. The gratitude expressed by one merited the Master’s blessing, the ingratitude by the nine His disappointment.
 
 Like the leprosy of yesteryear are the plagues of today. They linger; they debilitate; they destroy. They are to be found everywhere. Their pervasiveness knows no boundaries. We know them as selfishness, greed, indulgence, cruelty, and crime—to identify but a few.
 
-At a regional conference, President Gordon B. Hinckley declared: “We live in a world of so much filth. It is everywhere. It is on the streets. It is on television. It is in books and magazines. ... It is like a great flood, ugly and dirty and mean, engulfing the world. We have got to stand above it. ... The world is slipping in its moral standards. That can only bring misery. The way to happiness lies in a return to strong family life and the observance of moral standards, the value of which has been proven through centuries of time.”6
+At a regional conference, President Gordon B. Hinckley declared: “We live in a world of so much filth. It is everywhere. It is on the streets. It is on television. It is in books and magazines. … It is like a great flood, ugly and dirty and mean, engulfing the world. We have got to stand above it. … The world is slipping in its moral standards. That can only bring misery. The way to happiness lies in a return to strong family life and the observance of moral standards, the value of which has been proven through centuries of time.”[^6]
 
 By following President Hinckley’s counsel, we can make this a wonderful time to be living here on earth. Our opportunities are limitless. There are so many things right—such as teachers who teach, friends who help, marriages that make it, and parents who sacrifice.
 
 Be grateful for your mother, for your father, for your family, and for your friends. Express gratitude for your Young Women teachers. They love you; they pray for you; they serve you. You are precious in their sight and in the sight of your Heavenly Father. He hears your prayers. He extends to you His peace and His love. Stay close to Him and to His Son, and you will not walk alone.
 
-Second, a longing for learning.
+Second, *a longing for learning.*
 
-The Apostle Paul said to Timothy, “Let no man despise thy youth; but be thou an example of the believers.”7
+The Apostle Paul said to Timothy, “Let no man despise thy youth; but be thou an example of the believers.”[^7]
 
 President Stephen L Richards, who was a counselor in the First Presidency many years ago, was a profound thinker. He said, “Faith and doubt cannot exist in the same mind at the same time, for one will dispel the other.” My advice is to seek faith and dispel doubt.
 
-The Lord counseled, “Seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.”8
+The Lord counseled, “Seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.”[^8]
 
 We can find truth in the scriptures, the teachings of the prophets, the instructions from our parents, and the inspiration that comes to us as we bend our knees and seek the help of God.
 
-We must be true to our ideals, for ideals are like the stars: you can’t touch them with your hands, but by following them you reach your destination.9
+We must be true to our ideals, for ideals are like the stars: you can’t touch them with your hands, but by following them you reach your destination.[^9]
 
-Many of your teachers are assembled with you this evening. I trust that each teacher would fit the description written of one: “She created in her classroom an atmosphere where warmth and acceptance weave their magic spell; where growth and learning, the soaring of the imagination, and the spirit of the young are assured.”10
+Many of your teachers are assembled with you this evening. I trust that each teacher would fit the description written of one: “She created in her classroom an atmosphere where warmth and acceptance weave their magic spell; where growth and learning, the soaring of the imagination, and the spirit of the young are assured.”[^10]
 
-Third, may we discuss a devotion to discipline.
+Third, may we discuss *a devotion to discipline.*
 
 Our Heavenly Father has given to each of us the power to think and reason and decide. With such power, self-discipline becomes a necessity.
 
@@ -73,33 +76,25 @@ Each of us has the responsibility to choose. You may ask, “Are decisions reall
 
 May I provide a simple formula by which you can measure the choices which confront you. It’s easy to remember: “You can’t be right by doing wrong; you can’t be wrong by doing right.” Your personal conscience always warns you as a friend before it punishes you as a judge.
 
-The Lord, in a revelation given through Joseph Smith the Prophet, counseled: “That which doth not edify is not of God, and is darkness. That which is of God is light.”11
+The Lord, in a revelation given through Joseph Smith the Prophet, counseled: “That which doth not edify is not of God, and is darkness. That which is of God is light.”[^11]
 
 Some foolish persons turn their backs on the wisdom of God and follow the allurement of fickle fashion, the attraction of false popularity, and the thrill of the moment. Courage is required to think right, choose right, and do right, for such a course will rarely, if ever, be the easiest to follow.
 
 The battle for self-discipline may leave you a bit bruised and battered but always a better person. Self-discipline is a rigorous process at best; too many of us want it to be effortless and painless. Should temporary setbacks afflict us, a very significant part of our struggle for self-discipline is the determination and the courage to try again.
 
-My dear young sisters, I know of no truer description of you than that expressed by the First Presidency on April 6, 1942: “How glorious and near to the angels is youth that is clean; this youth has joy unspeakable here and eternal happiness hereafter.”12
+My dear young sisters, I know of no truer description of you than that expressed by the First Presidency on April 6, 1942: “How glorious and near to the angels is youth that is clean; this youth has joy unspeakable here and eternal happiness hereafter.”[^12]
 
 Eternal life in the kingdom of our Father is your goal, and self-discipline will surely be required if you are to achieve it.
 
-Finally, let each of us cultivate a willingness to work. President J. Reuben Clark, many years ago a counselor in the First Presidency, said: “I believe that we are here to work, and I believe there is no escape from it. I think that we cannot get that thought into our souls and into our beings too soon. Work we must, if we shall succeed or if we shall advance. There is no other way.”13
+Finally, let each of us cultivate *a willingness to work.* President J. Reuben Clark, many years ago a counselor in the First Presidency, said: “I believe that we are here to work, and I believe there is no escape from it. I think that we cannot get that thought into our souls and into our beings too soon. Work we must, if we shall succeed or if we shall advance. There is no other way.”[^13]
 
-“Put your shoulder to the wheel, push along”14 is more than a line from a favorite hymn; it is a summons to work.
+“Put your shoulder to the wheel, push along”[^14] is more than a line from a favorite hymn; it is a summons to work.
 
 Perhaps an example would be helpful. Procrastination is truly a thief of time—especially when it comes to downright hard work. I speak of the need to study diligently as you prepare for the tests of school and, indeed, the tests of life.
 
 I know of a university student who was so busy with the joys of student life that preparation for an exam was postponed. The night before, she realized the hour was late and the preparation was not done. She rationalized, “Now what is more important—my health, which requires that I must sleep, or the drudgery of study?” Well, you can probably guess the outcome. Sleep won, study failed, and the test was a personal disaster. Work we must.
 
 This, then, is the suggested formula:
-
-An attitude of gratitude,
-
-A longing for learning,
-
-A devotion to discipline, and
-
-A willingness to work.
 
 There will come into every life moments of despair and the need for direction from a divine source—even an unspoken plea for help. With all my heart and soul I testify to you that our Heavenly Father loves you, is mindful of you, and will not abandon you.
 
@@ -123,5 +118,38 @@ The mother then spoke to me: “Before you came to our conference so many years 
 
 I hold before you tonight that gift—even a symbol of faith and assurance of the heavenly help our Father and His Son, Jesus Christ, will provide you.
 
-On this Easter eve, may our thoughts turn to Him who atoned for our sins, who showed us the way to live, how to pray, and who demonstrated by His own actions how we might do so. Born in a stable, cradled in a manger, this Son of God—even Jesus Christ the Lord—beckons to each of us to follow Him. “Oh, sweet the joy this sentence gives: ‘I know that my Redeemer lives!’”15 In the name of Jesus Christ, amen.
+On this Easter eve, may our thoughts turn to Him who atoned for our sins, who showed us the way to live, how to pray, and who demonstrated by His own actions how we might do so. Born in a stable, cradled in a manger, this Son of God—even Jesus Christ the Lord—beckons to each of us to follow Him. “Oh, sweet the joy this sentence gives: ‘I know that my Redeemer lives!’”[^15] In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: *Teachings of the Prophet Joseph Smith,* ed. Joseph Fielding Smith (1970), 255–56.
+
+[^2]: Adapted from Lewis Carroll, *Alice’s Adventures in Wonderland* (1992), 76.
+
+[^3]: [[D&C 87.8|D&C 87:8]]; emphasis added.
+
+[^4]: In Conference Report, Apr. 1944, 31–32.
+
+[^5]: [[Luke 17.11|Luke 17:11–19]][[Luke 17.12|]][[Luke 17.13|]][[Luke 17.14|]][[Luke 17.15|]][[Luke 17.16|]][[Luke 17.17|]][[Luke 17.18|]][[Luke 17.19|]].
+
+[^6]: Berlin Germany Regional Conference, 16 June 1996.
+
+[^7]: [[1 Timothy 4.12|1 Tim. 4:12]].
+
+[^8]: [[D&C 88.118|D&C 88:118]].
+
+[^9]: See Carl Schurz, 1859, in John Bartlett, comp., *Familiar Quotations,* 15th ed. (1980), 602.
+
+[^10]: From Grand Street Boys Club and Foundation, quoted in the *New York Times.*
+
+[^11]: [[D&C 50.23|D&C 50:23–24]][[D&C 50.24|]].
+
+[^12]: In James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (1965–75), 6:150.
+
+[^13]: J. Reuben Clark Jr., *Work—Work Always!* BYU Speeches of the Year (25 May 1960), 4.
+
+[^14]: Will L. Thompson, “Put Your Shoulder to the Wheel,” *Hymns,* no. 252.
+
+[^15]: Samuel Medley, “I Know That My Redeemer Lives,” *Hymns,* no. 136.
 

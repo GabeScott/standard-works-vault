@@ -1,5 +1,6 @@
 # What Will the Church Do for You, a Man?
-*By Gordon B. Hinckley - Of the Council of the Twelve*
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -9,11 +10,11 @@ In the hope that some may be listening, I wish to direct my remarks to two group
 
 I do so under the question, “What will the Church do for you, a man?” My answer:
 
-First, it will bring you into the greatest fraternity in the world.
+*First, it will bring you into the greatest fraternity in the world.*
 
 Every man hungers for brotherhood. That desire finds a degree of fulfillment in many service clubs, trade associations, social groups, and similar organizations. And while all of these may be beneficial, there is none quite like the brotherhood of the priesthood of God.
 
-Here will be found hundreds of thousands of men, from all honorable walks of life, endowed with authority to act in the name of God and obligated under the very nature of the sacred gift each has received to strengthen and assist one another. The words of the Lord to Peter are pertinent to their situation. Declared he: “Simon, ... Satan hath desired to have you, that he may sift you as wheat: But I have prayed for thee, that thy faith fail not: and when thou art converted, strengthen thy brethren.” (Luke 22:31–32.)
+Here will be found hundreds of thousands of men, from all honorable walks of life, endowed with authority to act in the name of God and obligated under the very nature of the sacred gift each has received to strengthen and assist one another. The words of the Lord to Peter are pertinent to their situation. Declared he: “Simon, … Satan hath desired to have you, that he may sift you as wheat: But I have prayed for thee, that thy faith fail not: and when thou art converted, strengthen thy brethren.” ([[Luke 22.31|Luke 22:31–32]][[Luke 22.32|]].)
 
 This is one of the great purposes of quorum organization in the priesthood of the Church—to bring an awareness of the needs of others and an opportunity and a vehicle to strengthen one another.
 
@@ -25,9 +26,9 @@ With the expertise that came of their professional and business experience, the 
 
 Order was brought out of chaos. Peace was restored in the home. A new sense of security came into his life. His wife developed for him a respect she had never previously shown. Over a period of two or three years his creditors all received what was due them. And the man and his wife learned principles that qualified them to manage a home as it should be managed.
 
-Said Paul to the Romans: “We then that are strong ought to bear the infirmities of the weak,” and then he added, “and not to please ourselves.” (Rom. 15:1.) This is the spirit of this great brotherhood of men—to bear the infirmities of one another, not necessarily to please themselves, but in fulfillment of a divine obligation.
+Said Paul to the Romans: “We then that are strong ought to bear the infirmities of the weak,” and then he added, “and not to please ourselves.” ([[Romans 15.1|Rom. 15:1]].) This is the spirit of this great brotherhood of men—to bear the infirmities of one another, not necessarily to please themselves, but in fulfillment of a divine obligation.
 
-Second, active membership in the Church will motivate a man to clean up his life, if that is necessary.
+*Second, active membership in the Church will motivate a man to clean up his life, if that is necessary.*
 
 There are in the aggregate experiences of this church thousands upon thousands of cases of men who, under the uplifting impulses of the gospel of Jesus Christ and under the inspiration of association with good men, have received the strength to lay aside habits that held them in bondage for many years.
 
@@ -39,7 +40,7 @@ With his conversion came purpose into his life, the will to forsake old habits, 
 
 At the time of our conversation he was serving as a member of the branch presidency and as an active member of an elders quorum. His case, in essence, can be multiplied thousands of times. There is no other power like the reforming power of the gospel of Jesus Christ to give men the desire and the will to change their lives.
 
-Third, activity in the Church will afford you growth through responsibility.
+*Third, activity in the Church will afford you growth through responsibility.*
 
 It is an axiom as true as life itself that we grow as we serve. The Church of Jesus Christ of Latter-day Saints is, among other things, a great school for the development of leadership. I have told groups of our missionaries, as I have met with them in various parts of the world, “You’re not much to look at, but you’re all the Lord has.” And the miracle is that as they serve the Lord, they become giants in capacity and in achievement.
 
@@ -53,15 +54,15 @@ And now he was prepared for a major responsibility. His entire life had changed.
 
 Robert Browning said, “A man’s reach should exceed his grasp.” Growth comes as we constantly seek to achieve that which is just beyond our immediate capacity. One of the noteworthy aspects of the Church program is that it constantly motivates men to stretch themselves, to reach a little higher.
 
-Fourth, membership in the Church and active participation therein will give a new dimension to your life, a spiritual dimension that will become as a rock of faith, with an endowment of authority to speak in the name of God.
+*Fourth, membership in the Church and active participation therein will give a new dimension to your life, a spiritual dimension that will become as a rock of faith, with an endowment of authority to speak in the name of God.*
 
-In the opening of this work, in this dispensation of time, the Lord declared one of the purposes of the restoration of the gospel to be “that every man might speak in the name of God the Lord, even the Savior of the world.” (D&C 1:20.)
+In the opening of this work, in this dispensation of time, the Lord declared one of the purposes of the restoration of the gospel to be “that every man might speak in the name of God the Lord, even the Savior of the world.” ([[D&C 1.20|D&C 1:20]].)
 
 Blessed is the man who prays with the assurance that prayers are heard and answered. Blessed is the man whose companion is the Holy Spirit. Blessed is the man who possesses the authority to speak in the name of God.
 
 When King Belshazzar gathered about him his friends in a night of feasting and revelry, the fingers of a man’s hand appeared and wrote upon the wall. The astrologers and the soothsayers were called to interpret the writing, and they could not, and the king was greatly troubled.
 
-And the queen said, “There is a man in thy kingdom, in whom is the spirit of the holy gods; and in the days of thy father light and understanding and wisdom, like the wisdom of the gods, was found in him. ...” (Dan. 5:11.)
+And the queen said, “There is a man in thy kingdom, in whom is the spirit of the holy gods; and in the days of thy father light and understanding and wisdom, like the wisdom of the gods, was found in him. …” ([[Daniel 5.11|Dan. 5:11]].)
 
 Daniel was brought before the king, and by virtue of the power in him he interpreted the writing on the wall.
 
@@ -69,7 +70,7 @@ I should like to suggest that every man who holds and magnifies the priesthood m
 
 What will active membership in the Church do for you, a man? It will verily add a spiritual dimension to your life with which to bless your family, your associates, and yourself.
 
-Fifth, it will assist you in the governance of your home.
+*Fifth, it will assist you in the governance of your home.*
 
 How much stronger the nation would be—any nation—if there were presiding in each home a man who looked upon his wife as an eternal companion, engaged with him in a partnership with God in bringing to pass divine, eternal purposes, and who looked upon his children as children of our Heavenly Father, who has given to earthly parents a stewardship for those children.
 
@@ -81,13 +82,13 @@ A convert to the Church once said, “As a father I believed in caning my childr
 
 “Yes,” I added, “what a difference the gospel makes when it is accepted and lived.”
 
-Finally, the Church makes it possible for you, a man, to bind to you for eternity those you love most.
+*Finally, the Church makes it possible for you, a man, to bind to you for eternity those you love most.*
 
 No other relationship in life is so sacred, so satisfying, so important in its consequences as the family relationship. Then how tragic are the implications of those words so often spoken on the day of marriage—“Till death do ye part.”
 
 As certainly as there has been a joining together in marriage with such a ceremony, there also has been decreed a separation and cancellation of family relationships in death. To think of eternal life without eternal love is to construct a paradox, a contradiction.
 
-A loving Eternal Father, with concern for his children, has made possible a continuation of those sacred relationships. Declared the Lord to his chosen Twelve, “And I will give unto thee the keys of the kingdom of heaven: and whatsoever thou shalt bind on earth shall be bound in heaven. ...” (Matt. 16:19.)
+A loving Eternal Father, with concern for his children, has made possible a continuation of those sacred relationships. Declared the Lord to his chosen Twelve, “And I will give unto thee the keys of the kingdom of heaven: and whatsoever thou shalt bind on earth shall be bound in heaven. …” ([[Matthew 16.19|Matt. 16:19]].)
 
 That same power, to bind in heaven what is bound on earth, is in this church today. It is exercised in holy temples, and there, under the authority of the priesthood of God, father and mother and children are sealed together under a covenant and in a relationship that time cannot break and death cannot destroy.
 
@@ -102,4 +103,7 @@ To our brethren everywhere, to those who have become careless and who have drift
 My brethren, the door is open. You will be warmly welcomed, and you will find many good men anxious to help you. Furthermore, as a servant of the Lord, I do not hesitate to promise that you will come to know a joy that you have never previously experienced.
 
 I bear witness of these things in soberness and with appreciation, in the name of Jesus Christ. Amen.
+
+
+
 

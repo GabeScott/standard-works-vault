@@ -1,5 +1,6 @@
 # What Manner of Men? “As I Am”
-*By Marion D. Hanks - Assistant to the Council of the Twelve*
+
+By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -7,7 +8,7 @@
 
 It is my purpose today to bear testimony to some who have special needs, and to those who have accepted commission from the Lord and covenanted with him to try to help satisfy those needs.
 
-As Christ taught the gospel to the people of this hemisphere, he asked them, “... what manner of men ought ye to be?” and answered, “Verily I say unto you, even as I am.” (3 Ne. 27:27.)
+As Christ taught the gospel to the people of this hemisphere, he asked them, “… what manner of men ought ye to be?” and answered, “Verily I say unto you, even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
 
 As Christians, we accept that instruction reverently as our guide and our goal.
 
@@ -19,17 +20,17 @@ He was gracious but he was not timid. He taught men the truth about his Father, 
 
 Christ knows the worth of souls.
 
-He came as Isaiah had prophesied and as he affirmed in the synagogue in Nazareth: “... to preach the gospel to the poor; ... to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised.” (Luke 4:18.)
+He came as Isaiah had prophesied and as he affirmed in the synagogue in Nazareth: “… to preach the gospel to the poor; … to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised.” ([[Luke 4.18|Luke 4:18]].)
 
-He taught the parables of the lost sheep and the lost coin and the lost son, and he lunched with accused Zacchaeus; admonished men to emulate the compassionate act of the demeaned Samaritan—“Go thou and do likewise.” He exalted the humble Publican, who, in contrast to the self-righteous Pharisee, “would not lift up so much as his eyes unto heaven, but smote upon his breast, saying, God be merciful to me a sinner” (Luke 18:13); and he confronted the accusers of the repentant woman.
+He taught the parables of the lost sheep and the lost coin and the lost son, and he lunched with accused Zacchaeus; admonished men to emulate the compassionate act of the demeaned Samaritan—“Go thou and do likewise.” He exalted the humble Publican, who, in contrast to the self-righteous Pharisee, “would not lift up so much as his eyes unto heaven, but smote upon his breast, saying, God be merciful to me a sinner” ([[Luke 18.13|Luke 18:13]]); and he confronted the accusers of the repentant woman.
 
 So closely is he tied with his fellowmen that in one of the most powerful parables he taught that bread given to one of the least of his brethren is bread given to him, and so is any kindness or act of grace or mercy or service. To deny help to one of the least of his brethren, he said, was to deny him.
 
-His message is one of hope and promise and peace to those who mourn the loss of loved ones: “And ye now therefore have sorrow; but I will see you again, and your heart shall rejoice, and your joy no man taketh from you.” (John 16:22.)
+His message is one of hope and promise and peace to those who mourn the loss of loved ones: “And ye now therefore have sorrow; but I will see you again, and your heart shall rejoice, and your joy no man taketh from you.” ([[John 16.22|John 16:22]].)
 
-To the lonely and the hopeless and those who are afraid, his reassurance reaches out: “I will never leave thee, nor forsake thee.” (Heb. 13:5.)
+To the lonely and the hopeless and those who are afraid, his reassurance reaches out: “I will never leave thee, nor forsake thee.” ([[Hebrews 13.5|Heb. 13:5]].)
 
-Christ understands. “Wherefore in all things it behoved him to be made like unto his brethren, that he might be a merciful and faithful high priest in things pertaining to God, to make reconciliation for the sins of the people. For in that he himself hath suffered being tempted, he is able to succour them that are tempted.” (Heb. 2:17–18.) “For we have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin.” (Heb. 4:15.)
+Christ understands. “Wherefore in all things it behoved him to be made like unto his brethren, that he might be a merciful and faithful high priest in things pertaining to God, to make reconciliation for the sins of the people. For in that he himself hath suffered being tempted, he is able to succour them that are tempted.” ([[Hebrews 2.17|Heb. 2:17–18]][[Hebrews 2.18|]].) “For we have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin.” ([[Hebrews 4.15|Heb. 4:15]].)
 
 He prayed to the Father for those who were not obedient, and he wept.
 
@@ -39,7 +40,7 @@ He taught us to pray.
 
 These and much more he taught and did. They represent the manner of person he was.
 
-Of course he was more: he was the Divine Redeemer, the Savior of all mankind, the Firstborn in the spirit and the Only Begotten in the flesh. He was the Prince of Peace. He “came into the world ... to be crucified for the world, and to bear the sins of the world, and to sanctify the world, and to cleanse it from all unrighteousness; That through him all might be saved. ...” (D&C 76:41–42.)
+Of course he was more: he was the Divine Redeemer, the Savior of all mankind, the Firstborn in the spirit and the Only Begotten in the flesh. He was the Prince of Peace. He “came into the world … to be crucified for the world, and to bear the sins of the world, and to sanctify the world, and to cleanse it from all unrighteousness; That through him all might be saved. …” ([[D&C 76.41|D&C 76:41–42]][[D&C 76.42|]].)
 
 What he did for us we could never do for ourselves, and his example of love and service and sacrifice and seeking first the kingdom of God is our guidestar and our path.
 
@@ -51,7 +52,7 @@ All about us are opportunities.
 
 There came the other day the story of the small boy who had lost his pet and who in tears beseeched his anxious mother for help. She reminded him lovingly that she had tried as hard as she could to find the pet without success. “What more can I do, son?” she asked. “You can cry with me,” he said.
 
-“Bear ye one another’s burdens, and so fulfil the law of Christ.” (Gal. 6:2.)
+“Bear ye one another’s burdens, and so fulfil the law of Christ.” ([[Galatians 6.2|Gal. 6:2]].)
 
 A cherished friend who works with little children who have difficulties told me recently of a nine-year-old girl who has lived in 17 foster homes. She needs someone to cry with her, and laugh with her, and teach her, and love her.
 
@@ -65,21 +66,24 @@ After a meeting with our servicemen at DaNang in South Vietnam, we talked with a
 
 Those nearest us need love also.
 
-There are so many who grieve and are weighted down because they have not behaved in a way their own conscience can approve. To them the Lord still speaks through his prophets ancient and modern. Recall the words of Jacob to his brethren: “And now my beloved brethren, seeing that our merciful God has given us so great knowledge concerning these things, let us remember him, and lay aside our sins, and not hang down our heads, for we are not cast off. ...” (2 Ne. 10:20.)
+There are so many who grieve and are weighted down because they have not behaved in a way their own conscience can approve. To them the Lord still speaks through his prophets ancient and modern. Recall the words of Jacob to his brethren: “And now my beloved brethren, seeing that our merciful God has given us so great knowledge concerning these things, let us remember him, and lay aside our sins, and not hang down our heads, for we are not cast off. …” ([[2 Nephi 10.20|2 Ne. 10:20]].)
 
-In the last recorded letter of the great prophet Mormon to his son Moroni are written the lamentings of the prophet over the wickedness of the people, described in the record to be “without principle, and past feeling.” Mormon’s final testimony to his beloved son included this marvelous admonition and explanation of the effect Christ’s gifts should have in all of our lives: “My son, be faithful in Christ; and may not the things which I have written grieve thee, to weigh thee down unto death; but may Christ lift thee up, and may his sufferings and death [and his resurrection], ... and his mercy and long-suffering, and the hope of his glory of eternal life, rest in your mind forever.” (Moro. 9:25.)
+In the last recorded letter of the great prophet Mormon to his son Moroni are written the lamentings of the prophet over the wickedness of the people, described in the record to be “without principle, and past feeling.” Mormon’s final testimony to his beloved son included this marvelous admonition and explanation of the effect Christ’s gifts should have in all of our lives: “My son, be faithful in Christ; and may not the things which I have written grieve thee, to weigh thee down unto death; but may Christ lift thee up, and may his sufferings and death \[and his resurrection\], … and his mercy and long-suffering, and the hope of his glory of eternal life, rest in your mind forever.” ([[Moroni 9.25|Moro. 9:25]].)
 
-Christ in our lives is not meant to grieve us or weigh us down unto death because we have been imperfect. Through him we may be lifted up by accepting his gifts and his mercy and long-suffering. These blessings we must seek to keep in our minds always. “For how knoweth a man the master whom he has not served, and who is a stranger unto him, and is far from the thoughts and intents of his heart?” (Mosiah 5:13.)
+Christ in our lives is not meant to grieve us or weigh us down unto death because we have been imperfect. Through him we may be lifted up by accepting his gifts and his mercy and long-suffering. These blessings we must seek to keep in our minds always. “For how knoweth a man the master whom he has not served, and who is a stranger unto him, and is far from the thoughts and intents of his heart?” ([[Mosiah 5.13|Mosiah 5:13]].)
 
 They who would follow him and be the manner of person he is will, as he did, lift up the repentant who suffer and sorrow for sin, and bless them with love and forgiveness.
 
-Of course, all honest men on occasion feel their weakness and groan in the face of their inadequacies and ignorance and pride. Even Job, that good and godly man who possessed a faith which all his afflictions could not shake, bore this witness at the conclusion of his ordeal, when, seeing God, he said, “I know that thou canst do every thing, and that no thought can be withholden from thee. I have heard of thee by the hearing of the ear: but now mine eye seeth thee. Wherefore I abhor myself, and repent in dust and ashes.” (Job 42:2, 5–6.)
+Of course, all honest men on occasion feel their weakness and groan in the face of their inadequacies and ignorance and pride. Even Job, that good and godly man who possessed a faith which all his afflictions could not shake, bore this witness at the conclusion of his ordeal, when, seeing God, he said, “I know that thou canst do every thing, and that no thought can be withholden from thee. I have heard of thee by the hearing of the ear: but now mine eye seeth thee. Wherefore I abhor myself, and repent in dust and ashes.” ([[Job 42.2|Job 42:2, 5–6]][[Job 42.5|]][[Job 42.6|]].)
 
 But Christ will lift us up and help us to become as he is as we do as he did; as we love our Father and give him our lives; as we love each other and all men, and learn to live and teach his word; believe in the worth of souls and let our lives be the warrant of our earnestness; mourn with those who mourn, and bring hope to them; understand and comfort those who weep; cry unto the Lord.
 
 “Yea, and when you do not cry unto the Lord, let your hearts be full, drawn out in prayer unto him continually for your welfare, and also for the welfare of those who are around you.
 
-“And now behold, my beloved brethren, I say unto you, do not suppose that this is all; for after ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.” (Alma 34:27–28.)
+“And now behold, my beloved brethren, I say unto you, do not suppose that this is all; for after ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.” ([[Alma 34.27|Alma 34:27–28]][[Alma 34.28|]].)
 
 God bless us to look up and to look around and to kneel down, and to be worthy, and to become the manner of person he is, I pray in the name of Jesus Christ. Amen.
+
+
+
 

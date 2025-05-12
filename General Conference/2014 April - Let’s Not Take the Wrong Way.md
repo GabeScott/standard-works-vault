@@ -1,15 +1,18 @@
 # Let’s Not Take the Wrong Way
-*By Claudio D. Zivic - Of the Seventy*
+
+By Elder Claudio D. Zivic - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
+
+>*I pray that we will not lose sight of the way so that we may always be connected with the heavens.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/04/lets-not-take-the-wrong-way?lang=eng)
 
 A little boy was practicing the piano, and a salesman, upon seeing him through the window, asked, “Is your mother home?”
 
-To which the child replied, “And ... what do you think?”
+To which the child replied, “And … what do you think?”
 
-Our five dear children play the piano, thanks to the motivation of my wife! When the teacher arrived at our home, our son Adrián would run and hide in order to skip his lesson. But one day something marvelous occurred! He began to love music so much that he continued practicing on his own.
+Our five dear children play the piano, thanks to the motivation of my wife! When the teacher arrived at our home, our son Adrián would run and hide in order to skip his lesson. But one day something marvelous occurred! He began to love music so much that he continued practicing on his own.
 
 If we could reach that point in the process of our conversion, it would be marvelous. It would be wonderful to have a desire deep in our hearts to keep the commandments without anyone constantly reminding us and to have a firm conviction that if we follow the right path, we will have the blessings promised in the scriptures.
 
@@ -27,7 +30,7 @@ A marvelous teaching is found in the book of John:
 
 “Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me.
 
-“I am the vine, ye are the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing” (John 15:4–5).
+“I am the vine, ye are the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing” ([[John 15.4|John 15:4–5]][[John 15.5|]]).
 
 Using this analogy, we can see the very close, transcendent relationship we have with Jesus Christ and the importance He places on each one of us. He is the root and the trunk that conducts the living water to us, the sap that will allow us to be nourished so that we can produce much fruit. Jesus Christ taught us in such a way that as branches—or beings dependent upon Him—we would never underestimate the value of His teachings.
 
@@ -35,23 +38,23 @@ There are some mistakes that may be serious, and if we do not correct them in ti
 
 I want to give an example of this concept by making reference to one of the most dramatic moments that the Prophet Joseph Smith experienced. Through this experience, the Savior has given us invaluable teachings regarding principles that we ought to keep in mind throughout our lives. It happened when Martin Harris lost the 116 translated pages of the first part of the Book of Mormon.
 
-After repenting for not following God’s counsel, the Prophet received the revelation that is found in section 3 of the Doctrine and Covenants (see Teachings of Presidents of the Church: Joseph Smith [2007], 69–71). From what is written in verses 1 to 10, I wish to highlight three principles that we should always remember:
+After repenting for not following God’s counsel, the Prophet received the revelation that is found in [[D&C 3.1|section 3]][[D&C 3.2|]][[D&C 3.3|]][[D&C 3.4|]][[D&C 3.5|]][[D&C 3.6|]][[D&C 3.7|]][[D&C 3.8|]][[D&C 3.9|]][[D&C 3.10|]][[D&C 3.11|]][[D&C 3.12|]][[D&C 3.13|]][[D&C 3.14|]][[D&C 3.15|]][[D&C 3.16|]][[D&C 3.17|]][[D&C 3.18|]][[D&C 3.19|]][[D&C 3.20|]][[D&C 3.21|]][[D&C 3.22|]][[D&C 3.23|]][[D&C 3.24|]][[D&C 3.25|]][[D&C 3.26|]][[D&C 3.27|]][[D&C 3.28|]][[D&C 3.29|]][[D&C 3.30|]][[D&C 3.31|]][[D&C 3.32|]][[D&C 3.33|]][[D&C 3.34|]][[D&C 3.35|]][[D&C 3.36|]][[D&C 3.37|]][[D&C 3.38|]][[D&C 3.39|]][[D&C 3.40|]][[D&C 3.41|]][[D&C 3.42|]] of the Doctrine and Covenants (see *Teachings of Presidents of the Church: Joseph Smith* \[2007\], 69–71). From what is written in [[D&C 3.1|verses 1 to 10]][[D&C 3.2|]][[D&C 3.3|]][[D&C 3.4|]][[D&C 3.5|]][[D&C 3.6|]][[D&C 3.7|]][[D&C 3.8|]][[D&C 3.9|]][[D&C 3.10|]], I wish to highlight three principles that we should always remember:
 
-The works and the purposes of God cannot be frustrated.
+1. The works and the purposes of God cannot be frustrated.
 
-We must not fear man more than God.
+2. We must not fear man more than God.
 
-There is a need of constant repentance.
+3. There is a need of constant repentance.
 
-In verse 13, the Lord teaches us four actions that we should never do:
+In [[D&C 3.13|verse 13]], the Lord teaches us four actions that we should never do:
 
-Set at naught the counsels of God.
+1. Set at naught the counsels of God.
 
-Break the most sacred promises made before God.
+2. Break the most sacred promises made before God.
 
-Depend upon our own judgment.
+3. Depend upon our own judgment.
 
-Boast in our own wisdom.
+4. Boast in our own wisdom.
 
 I pray that we will not lose sight of the way so that we may always be connected with the heavens, so that the currents of the world do not sweep us away.
 
@@ -65,5 +68,8 @@ During childhood and youth, people think they will never become old; the idea of
 
 The day will come in which we shall again meet up with our Redeemer and Savior, Jesus Christ. I plead that on that sacred and sublime occasion we can recognize Him because of the knowledge we have of Him and because of having followed His teachings. He will show us the marks in His hands and feet, and we will join together in a lasting embrace, weeping for joy at having followed His way.
 
-I testify to the four ends of the earth that Jesus Christ lives. He exhorts us, “Hearken, O ye nations of the earth, and hear the words of that God who made you” (D&C 43:23). May we have the capacity to grasp, give heed to, comprehend, and correctly interpret the message of “that God who made [us]” so as not to stray from His way, I plead in the name of Jesus Christ, amen.
+I testify to the four ends of the earth that Jesus Christ lives. He exhorts us, “Hearken, O ye nations of the earth, and hear the words of that God who made you” ([[D&C 43.23|D&C 43:23]]). May we have the capacity to grasp, give heed to, comprehend, and correctly interpret the message of “that God who made \[us\]” so as not to stray from His way, I plead in the name of Jesus Christ, amen.
+
+
+
 

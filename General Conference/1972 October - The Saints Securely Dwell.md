@@ -1,5 +1,6 @@
 # The Saints Securely Dwell
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -7,11 +8,11 @@
 
 After yesterday morning and this morning with President Lee, I think you can imagine the experience that is ours when we, as the Brethren, go to the temple, there to take sweet counsel together with him.
 
-It was in such a meeting a short time ago that there came to me the inspiration for the subject that I speak upon today. We sang as the opening hymn in that meeting “How Gentle God’s Commands.” Later, in a prayer, President Lee included this phrase from the hymn: “Beneath his watchful eye, His saints securely dwell.” (Hymns, no. 67.) He then reverently gave thanks to the Almighty for the security and protection of his saints, and in that prayer he invited a continuation of that watch-care over them.
+It was in such a meeting a short time ago that there came to me the inspiration for the subject that I speak upon today. We sang as the opening hymn in that meeting “How Gentle God’s Commands.” Later, in a prayer, President Lee included this phrase from the hymn: “Beneath his watchful eye, His saints securely dwell.” (*Hymns,* no. 67.) He then reverently gave thanks to the Almighty for the security and protection of his saints, and in that prayer he invited a continuation of that watch-care over them.
 
 I was deeply touched with gratitude that in a world characterized by unrest, even by violence, there is a people who care for one another.
 
-Paul told the saints at Ephesus: “Now therefore ye are no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.” (Eph. 2:19.)
+Paul told the saints at Ephesus: “Now therefore ye are no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.” ([[Ephesians 2.19|Eph. 2:19]].)
 
 To be a fellow citizen with the saints has great meaning. All can receive that citizenship through the ordinance of baptism, if they will—if they will repent and prepare themselves. Then, as members of The Church of Jesus Christ of Latter-day Saints, they never need be alone.
 
@@ -85,7 +86,7 @@ I am reminded of the scriptural declaration:
 
 “I command and men obey not; I revoke and they receive not the blessing.
 
-“Then they say in their hearts: This is not the work of the Lord, for his promises are not fulfilled. But wo unto such, for their reward lurketh beneath, and not from above.” (D&C 58:31–33.)
+“Then they say in their hearts: This is not the work of the Lord, for his promises are not fulfilled. But wo unto such, for their reward lurketh beneath, and not from above.” ([[D&C 58.31|D&C 58:31–33]][[D&C 58.32|]][[D&C 58.33|]].)
 
 To you who are home teachers—you who perform the routine visit, not infrequently considered a drudgery—do not take the assignment lightly or pass it off as being routine. Every hour you spend in it and every step you take in it and every door you knock upon, every home you greet, every encouragement you give, is twice a blessing.
 
@@ -123,13 +124,14 @@ Only a home teacher. Only the guardian of a flock. Only the one appointed where 
 
 It is because of you, the priesthood home teacher, that a verse of the hymn stands true:
 
-“Beneath his watchful eye,
-
-His saints securely dwell;
-
-That hand which bears all nature up
-
-Shall guard his children well.”
+>“Beneath his watchful eye,
+>His saints securely dwell;
+>That hand which bears all nature up
+>Shall guard his children well.”
+>
 
 I bear witness that Jesus is the Christ. This is his church and kingdom. We hold the priesthood and authority delegated of him. There presides over us a prophet, who as a man cannot extend himself to the far reaches of the earth, to every branch, to every mission, or to every stake. Yet by delegation of the authority and the keys held by him, he can reach, not just to the stakes and the wards and the branches, but he can reach into the homes, to the individuals, and bless and sustain them, that the saints might securely dwell. In the name of Jesus Christ. Amen.
+
+
+
 

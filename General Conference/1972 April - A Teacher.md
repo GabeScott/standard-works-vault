@@ -1,5 +1,6 @@
 # A Teacher
-*By Howard W. Hunter - Of the Council of the Twelve*
+
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -14,4 +15,7 @@ Then I saw the big bird fly up into a tree. He pecked at the bark for a little w
 The big bird flew away, and I didn’t see it again, but I watched the little bird. After a while, the little bird hopped out on the lawn, thumped its feet, cocked its head, and pulled a big worm out of the lawn.
 
 God bless the good people who teach our children and our youth, I humbly pray, in Jesus’ name. Amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # The Plan of Happiness
-*By Boyd K. Packer - President of the Quorum of the Twelve Apostles*
+
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
+
+>*The end of all activity in the Church is to see that a man and a woman with their children are happy at home, sealed for eternity.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/04/the-plan-of-happiness?lang=eng)
 
@@ -15,11 +18,11 @@ In the beginning:
 
 “The Gods went down to organize man in their own image, in the image of the Gods to form they him, male and female to form they them.
 
-“And the Gods said: We will bless them. And the Gods said: We will cause them to be fruitful and multiply, and replenish the earth, and subdue it” (Abraham 4:27–28).
+“And the Gods said: We will bless them. And the Gods said: We will cause them to be fruitful and multiply, and replenish the earth, and subdue it” ([[Abraham 4.27|Abraham 4:27–28]][[Abraham 4.28|]]).
 
 And so the cycle of human life began on this earth as “Adam knew his wife, and she bare unto him sons and daughters, and they began to multiply and to replenish the earth.
 
-“And ... the sons and daughters of Adam began to divide two and two in the land, ... and they also begat sons and daughters” (Moses 5:2–3).
+“And … the sons and daughters of Adam began to divide two and two in the land, … and they also begat sons and daughters” ([[Moses 5.2|Moses 5:2–3]][[Moses 5.3|]]).
 
 The commandment to multiply and replenish the earth has never been rescinded. It is essential to the plan of redemption and is the source of human happiness. Through the righteous exercise of this power, we may come close to our Father in Heaven and experience a fulness of joy, even godhood. The power of procreation is not an incidental part of the plan; it is the plan of happiness; it is the key to happiness.
 
@@ -31,33 +34,33 @@ And if you suppose that the full-blown rapture of young romantic love is the sum
 
 True love requires reserving until after marriage the sharing of that affection which unlocks those sacred powers in that fountain of life. It means avoiding situations where physical desire might take control. Pure love presupposes that only after a pledge of eternal fidelity, a legal and lawful ceremony, and ideally after the sealing ordinance in the temple are those procreative powers released in God’s eye for the full expression of love. It is to be shared solely and only with that one who is your companion forever.
 
-When entered into worthily, this process combines the most exquisite and exalted physical, emotional, and spiritual feelings associated with the word love. That part of life has no equal, no counterpart, in all human experience. It will, when covenants are made and kept, last eternally, “for therein are the keys of the holy priesthood ordained, that you may receive honor and glory” (D&C 124:34), “which glory shall be a fulness and a continuation of the seeds forever and ever” (D&C 132:19).
+When entered into worthily, this process combines the most exquisite and exalted physical, emotional, and spiritual feelings associated with the word *love.* That part of life has no equal, no counterpart, in all human experience. It will, when covenants are made and kept, last eternally, “for therein are the keys of the holy priesthood ordained, that you may receive honor and glory” ([[D&C 124.34|D&C 124:34]]), “which glory shall be a fulness and a continuation of the seeds forever and ever” ([[D&C 132.19|D&C 132:19]]).
 
 But romantic love is incomplete; it is a prelude. Love is nourished by the coming of children, who spring from that fountain of life entrusted to couples in marriage. Conception takes place in a wedded embrace between husband and wife. A tiny body begins to form after a pattern of magnificent complexity. A child comes forth in the miracle of birth, created in the image of its earthly father and mother. Within its mortal body is a spirit able to feel and perceive spiritual things. Dormant in that mortal body of this child is the power to beget offspring in its own image.
 
-“The spirit and the body are the soul of man” (D&C 88:15), and there are spiritual and physical laws to obey if we are to be happy. There are eternal laws, including laws relating to this power to give life, “irrevocably decreed in heaven before the foundations of this world, upon which all blessings are predicated” (D&C 130:20). These are spiritual laws which define the moral standard for mankind (see Joseph Smith Translation, Romans 7:14–15 [in the Bible appendix]; 2 Nephi 2:5; D&C 29:34; 134:6). There are covenants which bind, seal, and safeguard and give promise of eternal blessings.
+“The spirit and the body are the soul of man” ([[D&C 88.15|D&C 88:15]]), and there are spiritual and physical laws to obey if we are to be happy. There are eternal laws, including laws relating to this power to give life, “irrevocably decreed in heaven before the foundations of this world, upon which all blessings are predicated” ([[D&C 130.20|D&C 130:20]]). These are spiritual laws which define the moral standard for mankind (see [[JST Romans 7.14|Joseph Smith Translation, Romans 7:14–15]][[JST Romans 7.15|]] \[in the Bible appendix\]; [[2 Nephi 2.5|2 Nephi 2:5]]; [[D&C 29.34|D&C 29:34]]; [[D&C 134.6|134:6]]). There are covenants which bind, seal, and safeguard and give promise of eternal blessings.
 
-Alma admonished his son Shiblon, “See that ye bridle all your passions, that ye may be filled with love” (Alma 38:12). A bridle is used to guide, to direct, to restrain. Our passion is to be controlled. When lawfully used, the power of procreation will bless and will sanctify (see Teachings of Presidents of the Church: Joseph F. Smith [1998], 158).
+Alma admonished his son Shiblon, “See that ye bridle all your passions, that ye may be filled with love” ([[Alma 38.12|Alma 38:12]]). A bridle is used to guide, to direct, to restrain. Our passion is to be controlled. When lawfully used, the power of procreation will bless and will sanctify (see *Teachings of Presidents of the Church: Joseph F. Smith* \[1998\], 158).
 
-Temptations are ever present. Because the adversary cannot beget life, he is jealous toward all who have that supernal power. He and those who followed him were cast out and forfeited the right to a mortal body. “He seeketh that all men might be miserable like unto himself” (2 Nephi 2:27). He will tempt, if he can, to degrade, to corrupt, and, if possible, to destroy this gift by which we may, if we are worthy, have eternal increase (see D&C 132:28–31).
+Temptations are ever present. Because the adversary cannot beget life, he is jealous toward all who have that supernal power. He and those who followed him were cast out and forfeited the right to a mortal body. “He seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Nephi 2:27]]). He will tempt, if he can, to degrade, to corrupt, and, if possible, to destroy this gift by which we may, if we are worthy, have eternal increase (see [[D&C 132.28|D&C 132:28–31]][[D&C 132.29|]][[D&C 132.30|]][[D&C 132.31|]]).
 
-If we pollute our fountains of life or lead others to transgress, there will be penalties more “exquisite” and “hard to bear” (D&C 19:15) than all the physical pleasure could ever be worth.
+If we pollute our fountains of life or lead others to transgress, there will be penalties more “exquisite” and “hard to bear” ([[D&C 19.15|D&C 19:15]]) than all the physical pleasure could ever be worth.
 
-Alma told his son Corianton, “Know ye not, my son, that these things are an abomination in the sight of the Lord; yea, most abominable above all sins save it be the shedding of innocent blood or denying the Holy Ghost?” (Alma 39:5). We cannot escape the consequences when we transgress.
+Alma told his son Corianton, “Know ye not, my son, that these things are an abomination in the sight of the Lord; yea, most abominable above all sins save it be the shedding of innocent blood or denying the Holy Ghost?” ([[Alma 39.5|Alma 39:5]]). We cannot escape the consequences when we transgress.
 
-The only legitimate, authorized expression of the powers of procreation is between husband and wife, a man and a woman, who have been legally and lawfully married. Anything other than this violates the commandments of God. Do not yield to the awful temptations of the adversary, for every debt of transgression must be paid “till thou hast paid the uttermost farthing” (Matthew 5:26).
+The only legitimate, authorized expression of the powers of procreation is between husband and wife, a man and a woman, who have been legally and lawfully married. Anything other than this violates the commandments of God. Do not yield to the awful temptations of the adversary, for every debt of transgression must be paid “till thou hast paid the uttermost farthing” ([[Matthew 5.26|Matthew 5:26]]).
 
 Nowhere is the generosity and mercy of God more manifest than in repentance.
 
 Our physical bodies, when harmed, are able to repair themselves, sometimes with the help of a physician. If the damage is extensive, however, often a scar will remain as a reminder of the injury.
 
-With our spiritual bodies it is another matter. Our spirits are damaged when we make mistakes and commit sins. But unlike the case of our mortal bodies, when the repentance process is complete, no scars remain because of the Atonement of Jesus Christ. The promise is: “Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more” (D&C 58:42).
+With our spiritual bodies it is another matter. Our spirits are damaged when we make mistakes and commit sins. But unlike the case of our mortal bodies, when the repentance process is complete, no scars remain because of the Atonement of Jesus Christ. The promise is: “Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more” ([[D&C 58.42|D&C 58:42]]).
 
 When we speak of marriage and family life, there inevitably comes to mind, “What about the exceptions?” Some are born with limitations and cannot beget children. Some innocents have their marriage wrecked because of the infidelity of their spouse. Others do not marry and live in single worthiness.
 
-For now I offer this comfort: God is our Father! All the love and generosity manifest in the ideal earthly father is magnified in Him who is our Father and our God beyond the capacity of the mortal mind to comprehend. His judgments are just; His mercy without limit; His power to compensate beyond any earthly comparison. “If in this life only we have hope in Christ, we are of all men most miserable” (1 Corinthians 15:19).
+For now I offer this comfort: God is our Father! All the love and generosity manifest in the ideal earthly father is magnified in Him who is our Father and our God beyond the capacity of the mortal mind to comprehend. His judgments are just; His mercy without limit; His power to compensate beyond any earthly comparison. “If in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.19|1 Corinthians 15:19]]).
 
-Reverently now I use the word temple. I envision a sealing room and an altar with a young couple kneeling there. This sacred temple ordinance is much more than a wedding, for this marriage can be sealed by the Holy Spirit of Promise, and the scriptures declare that we “shall inherit thrones, kingdoms, principalities, and powers, dominions” (D&C 132:19). I see the joy that awaits those who accept this supernal gift and use it worthily.
+Reverently now I use the word *temple.* I envision a sealing room and an altar with a young couple kneeling there. This sacred temple ordinance is much more than a wedding, for this marriage can be sealed by the Holy Spirit of Promise, and the scriptures declare that we “shall inherit thrones, kingdoms, principalities, and powers, dominions” ([[D&C 132.19|D&C 132:19]]). I see the joy that awaits those who accept this supernal gift and use it worthily.
 
 Sister Donna Smith Packer and I have been side by side in marriage for nearly 70 years. When it comes to my wife, the mother of our children, I am without words. The feeling is so deep and the gratitude so powerful that I am left almost without expression. The greatest reward we have received in this life, and the life to come, is our children and our grandchildren. Toward the end of our mortal days together, I am grateful for each moment I am with her side by side and for the promise the Lord has given that there will be no end.
 
@@ -66,4 +69,7 @@ I bear witness that Jesus is the Christ and the Son of the living God. He stands
 I am so grateful for the blessings of the Lord Jesus Christ, for the power of procreation, for the power of redemption, for the Atonement—the Atonement which can wash clean every stain no matter how difficult or how long or how many times repeated. The Atonement can put you free again to move forward, cleanly and worthily, to pursue that path that you have chosen in life.
 
 I bear witness that God lives, that Jesus is the Christ, that the Atonement is not a general thing that is for the whole Church. The Atonement is individual, and if you have something that is bothering you—sometimes so long ago you can hardly remember it—put the Atonement to work. It will clean it up, and you, as does He, will remember your sins no more. In the name of Jesus Christ, amen.
+
+
+
 

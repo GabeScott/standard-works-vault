@@ -1,7 +1,10 @@
 # Choose Eternal Life
-*By Randall K. Bennett - Of the Seventy*
+
+By Elder Randall K. Bennett - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
+
+>*Your eternal destiny will not be the result of chance but of choice. It is never too late to begin to choose eternal life!*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/10/choose-eternal-life?lang=eng)
 
@@ -15,49 +18,66 @@ Miraculously, it seemed, a lifeguard was immediately at my side. I wasn’t awar
 
 That day I made a poor choice that produced potentially serious consequences for me and for my family. As we now consider together the gift of choice, I pray that the Holy Ghost will help each of us individually evaluate the choices we are making.
 
-Our beloved prophet, President Thomas S. Monson, has taught: “I can’t stress too strongly that decisions determine destiny. You can’t make eternal decisions without eternal consequences.”1
+Our beloved prophet, President Thomas S. Monson, has taught: “I can’t stress too strongly that decisions determine destiny. You can’t make eternal decisions without eternal consequences.”[^1]
 
-Each of you—as we have been taught this conference—is a beloved spirit son or daughter of heavenly parents. You do have a divine nature and destiny.2 During your premortal life you learned to love truth. You made correct eternal choices. You knew that here in mortality, there would be afflictions and adversity, sorrow and suffering, tests and trials to help you grow and progress. You also knew that you could continue making correct choices, repent of incorrect choices, and through the Atonement of Jesus Christ inherit eternal life.
+Each of you—as we have been taught this conference—is a beloved spirit son or daughter of heavenly parents. You do have a divine nature and destiny.[^2] During your premortal life you learned to love truth. You made correct eternal choices. You knew that here in mortality there would be afflictions and adversity, sorrow and suffering, tests and trials to help you grow and progress. You also knew that you could continue making correct choices, repent of incorrect choices, and through the Atonement of Jesus Christ inherit eternal life.
 
-What did the prophet Lehi teach about choice? He counseled that we are “free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil.” He then instructed, “Ye should look to the great Mediator, and hearken unto his great commandments; and be faithful unto his words, and choose eternal life.”3
+What did the prophet Lehi teach about choice? He counseled that we are “free to *choose* liberty and *eternal life,* through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil.” He then instructed, “Ye should look to the great Mediator, and hearken unto his great commandments; and be faithful unto his words, and *choose eternal life.*”[^3]
 
-Brothers and sisters, in what we choose to think about, feel, and do, are you and I choosing eternal life?
+Brothers and sisters, in what we choose to think about, feel, and do, are you and I *choosing eternal life*?
 
-Our grandchildren are learning that when they make a choice, they also choose its consequences. Recently one of our three-year-old granddaughters refused to eat her dinner. Her mother explained, “It’s almost bedtime. If you choose to eat dinner, you are choosing ice cream for dessert. If you choose not to eat dinner, you are choosing to go to bed now, without ice cream.” Our granddaughter considered her two choices and then stated emphatically, “I want this choice—to play and eat only ice cream and not go to bed.”
+Our grandchildren are learning that when they make a choice, they also choose its consequences. Recently one of our three-year-old granddaughters refused to eat her dinner. Her mother explained, “It’s almost bedtime. If you choose to eat dinner, you are choosing ice cream for dessert. If you choose not to eat dinner, you are choosing to go to bed now, without ice cream.” Our granddaughter considered her two choices and then stated emphatically, “I want *this* choice—to play *and* eat only ice cream *and* not go to bed.”
 
 Brothers and sisters, do we wish we could play, eat only ice cream, never go to bed, and somehow avoid consequences like malnutrition and exhaustion?
 
-In reality we have only two eternal choices, each with eternal consequences: choose to follow the Savior of the world and thus choose eternal life with our Heavenly Father or choose to follow the world and thus choose to separate ourselves from Heavenly Father eternally.
+In reality we have only two eternal choices, each with eternal consequences: choose to follow the Savior of the world and thus choose eternal life with our Heavenly Father, or choose to follow the world and thus choose to separate ourselves from Heavenly Father eternally.
 
 We cannot successfully choose both the safety of righteousness and the dangers of worldliness. Wading or dabbling in worldliness may seem harmless, but so did my “refreshing” swim!
 
 Like the current that could have changed the course of my family’s lives, today’s currents of worldliness, deceptive philosophies, false teachings, and rampant immorality seek to drag us away and eternally separate us from our families and from our Heavenly Father.
 
-Our living prophets, seers, and revelators both see and seek to warn us of the often subtle but dangerous worldly currents that threaten us. They lovingly invite, encourage, teach, remind, and warn us. They know that our safety depends on choosing to follow (1) the insights we gain during daily scripture study, pondering, and prayer; (2) the guidance of the Holy Ghost; and (3) their prophetic counsel. They know that there is safety and ultimately joy only in and through our Savior, Jesus Christ, and living His gospel. As Elder Dallin H. Oaks just taught, our Savior declared, “I am the way, the truth, and the life: no man cometh unto the Father, but by me.”4
+Our living prophets, seers, and revelators both see and seek to warn us of the often subtle but dangerous worldly currents that threaten us. They lovingly invite, encourage, teach, remind, and warn us. They know that our safety depends on choosing to follow (1) the insights we gain during daily scripture study, pondering, and prayer; (2) the guidance of the Holy Ghost; and (3) their prophetic counsel. They know that there is safety and ultimately joy only in and through our Savior, Jesus Christ, and living His gospel. As Elder Dallin H. Oaks just taught, our Savior declared, “I am the way, the truth, and the life: no man cometh unto the Father, but by me.”[^4]
 
-During adversity and suffering in post-Soviet Russia, Anatoly and Svetlana Reshetnikov chose righteousness over worldliness. After joining the Church, they were persecuted. He was demoted from his position at work. Valiantly they thought, “Now we have more time to serve God!” They repeatedly received threats, yet they chose to live gospel-centered lives. Elder Anatoly Reshetnikov was called as the first Russian Area Seventy. Through their choices the Reshetnikovs continue to choose eternal life.
+During adversity and suffering in post-Soviet Russia, Anatoly and Svetlana Reshetnikov chose righteousness over worldliness. After joining the Church, they were persecuted. He was demoted from his position at work. Valiantly they thought, “Now we have more time to serve God!” They repeatedly received threats, yet they chose to live gospel-centered lives. Elder Anatoly Reshetnikov was called as the first Russian Area Seventy. Through their choices the Reshetnikovs continue to *choose eternal life.*
 
 We all face adversity. We all have temptations. We all have made mistakes. It is never too hard or too late to make correct choices. Repentance is one of those critical correct choices.
 
-President Dieter F. Uchtdorf has taught:
+President Dieter F. Uchtdorf has taught:
 
 “Small errors and minor drifts away from the doctrine of the gospel of Jesus Christ can bring sorrowful consequences into our lives. It is therefore of critical importance that we become self-disciplined enough to make early and decisive corrections to get back on the right track and not wait or hope that errors will somehow correct themselves.
 
-“The longer we delay corrective action, the larger the needed changes become, and the longer it takes to get back on the correct course—even to the point where a disaster might be looming.”5
+“The longer we delay corrective action, the larger the needed changes become, and the longer it takes to get back on the correct course—even to the point where a disaster might be looming.”[^5]
 
-The Savior’s arms of mercy are always extended to each of us.6 When we sincerely and fully repent, we can be completely forgiven of our mistakes and the Savior will remember our sins no more.7
+The Savior’s arms of mercy are always extended to each of us.[^6] When we sincerely and fully repent, we can be completely forgiven of our mistakes and the Savior will remember our sins no more.[^7]
 
 In evaluating your choices and their consequences, you might ask yourself:
 
-Am I seeking divine direction through daily scripture study, pondering, and prayer, or have I chosen to be so busy or apathetic that I don’t take time to study the words of Christ, ponder them, and converse with my Heavenly Father?
+- Am I seeking divine direction through daily scripture study, pondering, and prayer, or have I chosen to be so busy or apathetic that I don’t take time to study the words of Christ, ponder them, and converse with my Heavenly Father?
 
-Am I choosing to follow the counsel of living prophets of God, or am I following the worldly ways and the opposing opinions of others?
+- Am I choosing to follow the counsel of living prophets of God, or am I following the worldly ways and the opposing opinions of others?
 
-Am I seeking the guidance of the Holy Ghost daily in what I choose to think about, feel, and do?
+- Am I seeking the guidance of the Holy Ghost daily in what I choose to think about, feel, and do?
 
-Am I consistently reaching out to assist, serve, or help rescue others?
+- Am I consistently reaching out to assist, serve, or help rescue others?
 
-My dear brothers and sisters, your eternal destiny will not be the result of chance but of choice. It is never too late to begin to choose eternal life!
+My dear brothers and sisters, your eternal destiny will not be the result of chance but of choice. It is never too late to begin to *choose eternal life*!
 
 I bear my witness that because of Heavenly Father’s great plan of happiness, each of us can be perfected through the Atonement of Jesus Christ. With our families we can live with our Heavenly Father eternally and receive a fulness of joy. Of these things I testify in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Thomas S. Monson, “Decisions Determine Destiny” (Church Educational System fireside for young adults, Nov. 6, 2005), [institute.lds.org](https://www.churchofjesuschrist.org/si/institute).
+
+[^2]: See “The Family: A Proclamation to the World,” *Liahona* and *Ensign,* Nov. 2010, 129.
+
+[^3]: [[2 Nephi 2.27|2 Nephi 2:27, 28]][[2 Nephi 2.28|]]; emphasis added.
+
+[^4]: [[John 14.6|John 14:6]].
+
+[^5]: Dieter F. Uchtdorf, in Conference Report, Apr. 2008, 59; or *Ensign,* May 2008, 59.
+
+[^6]: See [[Alma 5.33|Alma 5:33]].
+
+[^7]: See [[D&C 58.42|Doctrine and Covenants 58:42]].
 

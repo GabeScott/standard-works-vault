@@ -1,5 +1,6 @@
 # Rowing Your Boat
-*By By Chieko N. Okazaki - First Counselor in the Relief Society General Presidency*
+
+By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1994 General Conference*
 
@@ -7,9 +8,9 @@
 
 My dear sisters and brothers, aloha! What a joy it is to be with you today, feeling the strength of our sisterhood in the gospel of Jesus Christ. We are met as women with a purpose, as sisters in the Relief Society, which is the Lord’s organization for women. I, with this wonderful choir, plead that we may all come to Christ and find rest in his eternal love.
 
-May I share with you some thoughts on the power of learning and its relation to self-reliance. To the Saints of this dispensation, the Lord gave important instructions to seek balanced learning. The terms in the scriptures are study and faith. For example, in D&C 88:118, the Lord invites us: “Seek ye diligently and teach one another words of wisdom; yea, seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.” This same invitation is repeated twice more in the Doctrine and Covenants (see D&C 109:7, 14).
+May I share with you some thoughts on the power of learning and its relation to self-reliance. To the Saints of this dispensation, the Lord gave important instructions to seek balanced learning. The terms in the scriptures are *study* and *faith.* For example, in [[D&C 88.118|D&C 88:118]], the Lord invites us: “Seek ye diligently and teach one another words of wisdom; yea, seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.” This same invitation is repeated twice more in the Doctrine and Covenants (see [[D&C 109.7|D&C 109:7, 14]][[D&C 109.14|]]).
 
-To me, the terms learning by study and learning by faith say that self-reliance comes from both efforts. Everyone involved in the Relief Society literacy effort knows that literacy takes both study and faith. We need to cultivate both of them.
+To me, the terms *learning by study* and *learning by faith* say that self-reliance comes from both efforts. Everyone involved in the Relief Society literacy effort knows that literacy takes both study *and* faith. We need to cultivate both of them.
 
 Let me give you an example. Suppose you want to know how the human body works. Faith tells us that our bodies were created through an inspired process, that they were made in the image of our Heavenly Parents, that we have a stewardship over them to keep them sacred and healthy during our mortal probation, and that we will reclaim them as perfect after the resurrection. That is the message of faith. That’s like one oar on a boat.
 
@@ -21,7 +22,7 @@ Think what great progress has been made in medicine by those who use both oars i
 
 It is the same with us. Each woman needs to develop both gifts, the gift of faith and the gift of study, to the utmost of her capacity. We need to exercise both study and faith to become self-reliant. We need to understand their relationship to each other and to us.
 
-There are many kinds of self-reliance. According to the Church’s welfare guidelines, Providing in the Lord’s Way, “as we work toward self-reliance, we should prepare ourselves in the following areas: education; health; employment; home storage; resource management; and social, emotional, and spiritual strength.”1 Let’s look at one aspect of self-reliance—employment—and see how learning by both study and faith relates to this topic.
+There are many kinds of self-reliance. According to the Church’s welfare guidelines, *Providing in the Lord’s Way,* “as we work toward self-reliance, we should prepare ourselves in the following areas: education; health; employment; home storage; resource management; and social, emotional, and spiritual strength.”[^1] Let’s look at one aspect of self-reliance—employment—and see how learning by both study and faith relates to this topic.
 
 We have faith in our prophets. They have counseled us that mothers with young children are especially needed at home. They remind us of the great needs of our children and their vulnerabilities during their growing years. The importance of the mother in building a secure, loving, stimulating environment in which children can grow up as healthy and self-reliant individuals is very important. The ideal family for raising children, we believe, is a stable, loving, two-parent family where young children receive full-time parenting.
 
@@ -33,9 +34,9 @@ We do not know what soul-searching went into her decisions. Whether she is a sis
 
 Let our Relief Societies be supportive and sharing. We are all in the Relief Society boat, and it needs all of us to paddle just as hard as we can. Let us value everyone’s contributions. Let us not exclude a sister, whatever her life choices and whatever her circumstances. Let us express trust that she used both study and prayer in making her decisions, and provide a supportive environment in which she can carry out those decisions, evaluate them for their success, and modify them if necessary. If change is necessary or desirable, it will be easier in a nurturing, supportive atmosphere.
 
-Each year it becomes increasingly important for women to improve their abilities to take care of themselves and their children economically, if circumstances should require it. Elder Howard W. Hunter, then a member of the Quorum of the Twelve, addressed this point specifically in 1975: “There are impelling reasons for our sisters to plan toward employment also. We want them to obtain all the education and vocational training possible before marriage. If they become widowed or divorced and need to work, we want them to have dignified and rewarding employment. If a sister does not marry, she has every right to engage in a profession that allows her to magnify her talents and gifts.”2 If anything, his counsel has become even more relevant in the almost twenty years that have passed as the national economy has made it increasingly difficult for one wage to support a family, as more mothers are left alone to raise their children, and as more women spend lengthy portions of their lives single. He is telling all of us to use the oar of study to prepare ourselves professionally for worthy and rewarding activities, including paid employment.
+Each year it becomes increasingly important for women to improve their abilities to take care of themselves and their children economically, if circumstances should require it. Elder Howard W. Hunter, then a member of the Quorum of the Twelve, addressed this point specifically in 1975: “There are impelling reasons for our sisters to plan toward employment also. We want them to obtain all the education and vocational training possible before marriage. If they become widowed or divorced and need to work, we want them to have dignified and rewarding employment. If a sister does not marry, she has every right to engage in a profession that allows her to magnify her talents and gifts.”[^2] If anything, his counsel has become even more relevant in the almost twenty years that have passed as the national economy has made it increasingly difficult for one wage to support a family, as more mothers are left alone to raise their children, and as more women spend lengthy portions of their lives single. He is telling all of us to use the oar of study to prepare ourselves professionally for worthy and rewarding activities, including paid employment.
 
-But President Hunter’s example also shows us the importance of faith. He describes his first career as “glamorous in some respects”; however, it required him to associate with some people whose standards made him uncomfortable, so he changed to another line of work.3 This example shows that we should seek work in which we can be attended by the Spirit of the Lord. In other words, row, row, row your boat and use both oars!
+But President Hunter’s example also shows us the importance of faith. He describes his first career as “glamorous in some respects”; however, it required him to associate with some people whose standards made him uncomfortable, so he changed to another line of work.[^3] This example shows that we should seek work in which we can be attended by the Spirit of the Lord. In other words, row, row, row your boat and use both oars!
 
 Learning by study was a very high priority in my family. My parents were plantation laborers on the “big island” of Hawaii. Both of them had been obliged to leave school at about the sixth grade. High school was out of the question for both of them, and college was an impossible dream. But they desperately desired an education for their children. Perhaps because I was their only child for five years, they dreamed that dream for me, even though it is unusual for a daughter to receive more advantages than a son in traditional Japanese families. They made many sacrifices so that I could go to high school and more so I could graduate from college. They did the same for my brothers with their chosen professions, although my brothers did not pursue academic interests. Neither one of my parents ever set foot on a college campus until my graduation. The only college graduate they knew socially was one teacher in our village.
 
@@ -47,7 +48,7 @@ Because I was willing to study the gospel of Jesus Christ, I became a member of 
 
 Learning by study and learning from the Spirit are the two halves of my life. These oars have helped me row my professional boat, make a good marriage, raise my sons, and serve in the Church. I need them both as I strive for self-reliance. You need them both as you strive for self-reliance.
 
-Peter’s last recorded words to the Saints of his day are counsel to “grow in grace, and in the knowledge of our Lord and Saviour Jesus Christ” (2 Pet. 3:18), and King Benjamin urged his people to “grow in the knowledge of the glory of him that created you, or in the knowledge of that which is just and true” (Mosiah 4:12).
+Peter’s last recorded words to the Saints of his day are counsel to “grow in grace, and in the knowledge of our Lord and Saviour Jesus Christ” ([[2 Peter 3.18|2 Pet. 3:18]]), and King Benjamin urged his people to “grow in the knowledge of the glory of him that created you, or in the knowledge of that which is just and true” ([[Mosiah 4.12|Mosiah 4:12]]).
 
 Sisters, we need to keep growing. Part of our mortal responsibility is to increase in learning and wisdom. We need to use the two oars of study and faith so that our boats will not be swamped by the storms of life. We need to teach our children to use these same oars. Let’s encourage them to value education and to increase in learning and wisdom through study and faith.
 
@@ -58,4 +59,13 @@ My dear sisters, trust in the Lord. Life will bring you many difficult and even 
 I have been a lifelong learner, and I love the things I learn each day about the glory of the gospel and the wonders of the world we live in. The promise of eternal progression is a thrilling one to me as I look forward to an eternity of learning. Let us trust both study and faith to keep us going straight, instead of around in circles.
 
 My dear sisters, I am so grateful for the Relief Society and the great strength that it can be for women. I am grateful for the atonement of the Savior and the gospel of Jesus Christ which lifts us, opens eternal doors of learning to us, and gives us reasons for our faith. I am grateful for the restoration of the Church of Jesus Christ through the Prophet Joseph Smith. I am grateful for the support of our priesthood leaders in our righteous endeavors. I know the Lord hears and answers our prayers. May we love and trust and serve each other, “by study and also by faith,” I pray in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: *A Leader’s Guide to Welfare: Providing in the Lord’s Way* (Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1990), p. 6.
+
+[^2]: Howard W. Hunter, *Ensign,* Nov. 1975, p. 124.
+
+[^3]: “Valiant Servant of the Lord,” *Church News,* 11 June 1994, p. 4.
 

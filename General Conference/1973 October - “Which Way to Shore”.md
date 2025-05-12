@@ -1,5 +1,6 @@
 # “Which Way to Shore?”
-*By William H. Bennett - Assistant to the Council of the Twelve*
+
+By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -11,7 +12,7 @@ That illustration used by a home teacher to motivate the members of his stake to
 
 Let me say, my brothers and sisters, that if we want to save individuals, to save the souls of our Father’s children, we must be willing to get involved and to help others get involved in meaningful ways also.
 
-Some of those who are calling out for help are the honest in heart who are earnestly seeking the truth, but they do not know where to find it. They fit into the category referred to in the Doctrine and Covenants, Section 123, verse 12, which reads as follows:
+Some of those who are calling out for help are the honest in heart who are earnestly seeking the truth, but they do not know where to find it. They fit into the category referred to in the [[D&C 123.12|Doctrine and Covenants, Section 123, verse 12]], which reads as follows:
 
 “For there are many yet on the earth among all sects, parties, and denominations, who are blinded by the subtle craftiness of men, whereby they lie in wait to deceive, and who are only kept from the truth because they know not where to find it.”
 
@@ -19,7 +20,7 @@ My brothers and sisters, The Church of Jesus Christ of Latter-day Saints has the
 
 We say to the honest in heart everywhere: Listen to our message; give it prayerful, careful consideration, and then seek a witness from on high through the power of the Holy Ghost that our message is true. There is just too much at stake to do otherwise. We make some strong claims in our Church; we do not apologize for that. We have that responsibility. We have the truth. We are proclaiming the truth. Give it careful, prayerful consideration.
 
-Some of those who are calling out for help are confused and disturbed by this complex, somewhat contradictory world in which we live, a world that has many crosswinds and crosscurrents, and even some eddies and whirlpools that can entrap and destroy. Let us remember that. Many of these people are yearning for the inner peace and joy that really can come only through love of God and love of fellowmen and from keeping God’s commandments. We have been promised in Deuteronomy, in chapter 4, verse 29, that if we seek the Lord diligently we shall surely find him, and these are the words:
+Some of those who are calling out for help are confused and disturbed by this complex, somewhat contradictory world in which we live, a world that has many crosswinds and crosscurrents, and even some eddies and whirlpools that can entrap and destroy. Let us remember that. Many of these people are yearning for the inner peace and joy that really can come only through love of God and love of fellowmen and from keeping God’s commandments. We have been promised in [[Deuteronomy 4.29|Deuteronomy, in chapter 4, verse 29]], that if we seek the Lord diligently we shall surely find him, and these are the words:
 
 “But if from thence thou shalt seek the Lord thy God, thou shalt find him, if thou seek him with all thy heart and with all thy soul.”
 
@@ -31,41 +32,30 @@ Some who need help are in bondage to sin and seemingly cannot break those bonds 
 
 Some who need help are disillusioned because they have been taken advantage of by dishonest individuals. Then there are those who do not have loved ones or friends, and who are lonely and discouraged, and need the hand of fellowship extended to them.
 
-My brothers and sisters, how fortunate we are to have the gospel of Jesus Christ in its fulness, and the marvelous programs of this Church, and a living prophet, a true prophet of God to guide us and direct us in these troubled times. I say to you, my brothers and sisters, that the gospel of Jesus Christ is the way to shore and to safety, to happiness in this life and to eternal life and eternal joy in the life to come. It can light the way for all who will open their eyes, their ears, and their hearts. But it isn’t enough for us to just look and listen. We must listen and apply. We must act. This has been stated very effectively by the poet, Longfellow, in his poem, “Psalm of Life,” which is one of my favorites. I should like to repeat part of that at this time:
+My brothers and sisters, how fortunate we are to have the gospel of Jesus Christ in its fulness, and the marvelous programs of this Church, and a living prophet, a true prophet of God to guide us and direct us in these troubled times. I say to you, my brothers and sisters, that *the gospel of Jesus Christ is the way to shore and to safety, to happiness in this life and to eternal life and eternal joy in the life to come.* It can light the way for all who will open their eyes, their ears, and their hearts. But it isn’t enough for us to just look and listen. We must listen and apply. We must act. This has been stated very effectively by the poet, Longfellow, in his poem, “Psalm of Life,” which is one of my favorites. I should like to repeat part of that at this time:
 
-Trust no Future, howe’er pleasant!
+>Trust no Future, howe’er pleasant!
+>Let the dead Past bury its dead!
+>Act, act in the living Present!
+>Heart within, and God o’erhead!
+>
+>Lives of great men all remind us
+>We can make our lives sublime,
+>And, departing, leave behind us
+>Footprints on the sands of time.
+>
+>Footprints, that perhaps another,
+>Sailing o’er life’s solemn main,
+>A forlorn and shipwrecked brother,
+>Seeing, shall take heart again.
+>
+>Let us then be up and doing,
+>With a heart for any fate;
+>Still achieving, still pursuing,
+>Learn to labor and to wait.
+>
 
-Let the dead Past bury its dead!
-
-Act, act in the living Present!
-
-Heart within, and God o’erhead!
-
-Lives of great men all remind us
-
-We can make our lives sublime,
-
-And, departing, leave behind us
-
-Footprints on the sands of time.
-
-Footprints, that perhaps another,
-
-Sailing o’er life’s solemn main,
-
-A forlorn and shipwrecked brother,
-
-Seeing, shall take heart again.
-
-Let us then be up and doing,
-
-With a heart for any fate;
-
-Still achieving, still pursuing,
-
-Learn to labor and to wait.
-
-Let us remind ourselves, my brothers and sisters, that the gospel of Jesus Christ is to be lived, not just read about or talked about or thought about. It is to be lived. That is when it takes on its great power in the lives of men and women, and in building the kingdom of God. As we learn to do that, my brothers and sisters, we are blessed, for the Lord has said, “I, the Lord, am bound when ye do what I say; but when ye do not what I say, ye have no promise.” (D&C 82:10.)
+Let us remind ourselves, my brothers and sisters, that the gospel of Jesus Christ is to be lived, not just read about or talked about or thought about. It is to be lived. That is when it takes on its great power in the lives of men and women, and in building the kingdom of God. As we learn to do that, my brothers and sisters, we are blessed, for the Lord has said, “I, the Lord, am bound when ye do what I say; but when ye do not what I say, ye have no promise.” ([[D&C 82.10|D&C 82:10]].)
 
 As we are able to perfect our lives, the blessings of the gospel of Jesus Christ become more and more meaningful, and we experience that inner joy and peace for which there is no substitute.
 
@@ -75,15 +65,15 @@ The scriptures are replete with examples of what happens when people do not heed
 
 I think we should also remember that the scriptures, and even the pages of secular history, are replete with examples of what can happen when people do keep the commandments of God. Those great blessings have been referred to in various ways during this conference.
 
-Reference was made, I believe, in the welfare meeting this morning to Enoch and the righteousness of the people who were associated with him. Let me just read verse 67 from chapter 7 of Moses in the Pearl of Great Price:
+Reference was made, I believe, in the welfare meeting this morning to Enoch and the righteousness of the people who were associated with him. Let me just read [[Moses 7.67|verse 67 from chapter 7 of Moses]] in the Pearl of Great Price:
 
 “And the Lord showed Enoch all things, even unto the end of the world; and he saw the day of the righteous, the hour of their redemption; and received a fulness of joy.”
 
 There are many other things that could be said, but let me just summarize some of the things that have already been said pertaining to the great blessings that come through keeping the commandments and obeying the laws.
 
-President Lee in his opening message talked about self-respect. That is a great blessing we can get if we really keep the commandments and we won’t have self-respect unless we do. Other great blessings I should like to mention are: a clear conscience, inner peace, the companionship of the Holy Ghost to guide us and direct us, and the blessings promised to those who keep the Word of Wisdom.
+President Lee in his opening message talked about *self-respect.* That is a great blessing we can get if we really keep the commandments and we won’t have self-respect unless we do. Other great blessings I should like to mention are: a clear conscience, inner peace, the companionship of the Holy Ghost to guide us and direct us, and the blessings promised to those who keep the Word of Wisdom.
 
-The Word of Wisdom has had special meaning in my life because of my involvement in athletics, my interest in education, and the appreciation I have had for good health. Let us remind ourselves of the promises given in verses 18 to 21 of the 89th section of the Doctrine and Covenants:
+The Word of Wisdom has had special meaning in my life because of my involvement in athletics, my interest in education, and the appreciation I have had for good health. Let us remind ourselves of the promises given in [[D&C 89.18|verses 18 to 21 of the 89th section of the Doctrine and Covenants]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]]:
 
 “And all saints who remember to keep and do these sayings, walking in obedience to the commandments, shall receive health in their navel and marrow to their bones;
 
@@ -96,4 +86,7 @@ The Word of Wisdom has had special meaning in my life because of my involvement 
 What great promises! My brothers and sisters, let me just end by emphasizing the great blessings of eternal happiness, eternal joy, and eternal life, and those are related of course; they are tied together. They cannot be separated.
 
 I leave you my testimony, my brothers and sisters, that the gospel of Jesus Christ is the way to shore, and to safety, and to happiness here and to joy eternally. I bear testimony that God does live, his Son Jesus Christ lives. The gospel of Jesus Christ is true, and we have a true and living prophet guiding us today, pointing the way under guidance and direction from on high in the troubled conditions under which we live. I leave you that testimony, my brothers and sisters, in all humility, and in the name of the Lord Jesus Christ. Amen.
+
+
+
 

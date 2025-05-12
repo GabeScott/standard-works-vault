@@ -1,13 +1,16 @@
 # Be Valiant in Courage, Strength, and Activity
-*By By Bishop Gary E. Stevenson - Presiding Bishop*
+
+By Bishop Gary E. Stevenson - *Presiding Bishop*
 
 *Given in the October session of the 2012 General Conference*
 
+>*Qualify yourselves as did the 2,000 stripling soldiers by being valiant in courage as worthy priesthood holders.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/10/be-valiant-in-courage-strength-and-activity?lang=eng)
 
-Tonight I feel especially blessed to speak as a bishop to the young men, holders of the Aaronic Priesthood, gathered from around the world for this general priesthood meeting. I share with you narrative from the Book of Mormon describing Helaman and his 2,000 stripling soldiers. This scripture will provide insight into the character of those ancient young men—and inspiration for you, latter-day young men. I quote a favorite scripture: “And they were all young men, and they were exceedingly valiant for courage, and also for strength and activity; but behold, this was not all—they were men who were true at all times.”1 Courage, strength, activity, and truth—what admirable traits!
+Tonight I feel especially blessed to speak as a bishop to the young men, holders of the Aaronic Priesthood, gathered from around the world for this general priesthood meeting. I share with you narrative from the Book of Mormon describing Helaman and his 2,000 stripling soldiers. This scripture will provide insight into the character of those ancient young men—and inspiration for you, latter-day young men. I quote a favorite scripture: “And they were all young men, and they were exceedingly valiant for courage, and also for strength and activity; but behold, this was not all—they were men who were true at all times.”[^1] Courage, strength, activity, and truth—what admirable traits!
 
-I would like to focus on the first trait that describes them: “valiant for courage.” To me, this describes the conviction of these young men to courageously do what is right, or as Alma describes, “to stand as witnesses of God at all times ... and in all places.”2 The 2,000 stripling soldiers had countless moments to demonstrate their courage. Each of you will also have defining moments in your life requiring courage. A friend of mine, John, shared with me one of those moments in his life.
+I would like to focus on the first trait that describes them: “valiant for courage.” To me, this describes the conviction of these young men to courageously do what is right, or as Alma describes, “to stand as witnesses of God at all times … and in all places.”[^2] The 2,000 stripling soldiers had countless moments to demonstrate their courage. Each of you will also have defining moments in your life requiring courage. A friend of mine, John, shared with me one of those moments in his life.
 
 Some years ago, John was accepted at a prestigious Japanese university. He would be part of the international student program with many other top students from around the world. Some enrolled with a hope to deepen their understanding of the culture and language, others viewed it as a stepping-stone to an eventual profession and employment in Japan, but all had left home to study in a foreign country.
 
@@ -17,25 +20,50 @@ Following an elevator ride to the top floor of the building, John and his friend
 
 When the police appeared at the top of the stairs, the students quickly threw the illegal drugs off the roof so they wouldn’t be caught. After securing the stairway, however, the officers lined up everyone on the roof and asked each student to extend both hands. The officers then walked down the line, carefully smelling each student’s thumbs and index fingers. All who had held the marijuana, whether they had smoked it or not, were presumed guilty, and there were huge consequences. Almost without exception, the students who had remained on the rooftop were expelled from their respective universities, and those convicted of a crime were likely deported from Japan. Dreams of an education, years of preparation, and the possibility of future employment in Japan were dashed in a moment.
 
-Now let me tell you what happened to these three friends. The friend who stayed on the roof was expelled from the university in Japan to which he had worked so hard to be accepted and was required to return home. The friend who left the party that night with John finished school in Japan and went on to earn degrees from two top-tier universities in the United States. His career took him back to Asia, where he has enjoyed immense professional success. He remains grateful to this day for John’s courageous example. As for John, the consequences in his life have been immeasurable. His time in Japan that year led him to a happy marriage and the subsequent birth of two sons. He has been a very successful businessman and recently became a professor at a Japanese university. Imagine how different his life would have been had he not had the courage to leave the party on that important evening in Japan.3
+Now let me tell you what happened to these three friends. The friend who stayed on the roof was expelled from the university in Japan to which he had worked so hard to be accepted and was required to return home. The friend who left the party that night with John finished school in Japan and went on to earn degrees from two top-tier universities in the United States. His career took him back to Asia, where he has enjoyed immense professional success. He remains grateful to this day for John’s courageous example. As for John, the consequences in his life have been immeasurable. His time in Japan that year led him to a happy marriage and the subsequent birth of two sons. He has been a very successful businessman and recently became a professor at a Japanese university. Imagine how different his life would have been had he not had the courage to leave the party on that important evening in Japan.[^3]
 
-Young men, there will be times when you, like John, will have to demonstrate your righteous courage in plain view of your peers, the consequence of which may be ridicule and embarrassment. Additionally, in your world, skirmishes with the adversary will also be fought on a silent, solitary battlefield in front of a screen. Technology with its substantial benefits also brings challenges not faced by generations before you. A recent national survey found that today’s teens are tempted at alarming levels each day not only in schools but also in cyberspace. It revealed that teens who were exposed to images of drinking or drug use on social networking sites were three to four times more likely to use alcohol or drugs. Commenting on the survey, a former U.S. cabinet secretary stated: “This year’s survey reveals a new kind of potent peer pressure—digital peer pressure. Digital peer pressure moves beyond a child’s friends and the kids they hang out with. It invades the home and a child’s bedroom via the Internet.”4 The demonstration of righteous courage will often be as subtle as to click or not to click. Missionaries are taught from Preach My Gospel, “What you choose to think and do when you are alone and you believe no one is watching is a strong measure of your virtue.”5 Be courageous! Be strong! “Stand ye in holy places, and be not moved.”6
+Young men, there will be times when you, like John, will have to demonstrate your righteous courage in plain view of your peers, the consequence of which may be ridicule and embarrassment. Additionally, in your world, skirmishes with the adversary will also be fought on a silent, solitary battlefield in front of a screen. Technology with its substantial benefits also brings challenges not faced by generations before you. A recent national survey found that today’s teens are tempted at alarming levels each day not only in schools but also in cyberspace. It revealed that teens who were exposed to images of drinking or drug use on social networking sites were three to four times more likely to use alcohol or drugs. Commenting on the survey, a former U.S. cabinet secretary stated: “This year’s survey reveals a new kind of potent peer pressure—digital peer pressure. Digital peer pressure moves beyond a child’s friends and the kids they hang out with. It invades the home and a child’s bedroom via the Internet.”[^4] The demonstration of righteous courage will often be as subtle as to click or not to click. Missionaries are taught from *Preach My Gospel,* “What you choose to think and do when you are alone and you believe no one is watching is a strong measure of your virtue.”[^5] Be courageous! Be strong! “Stand ye in holy places, and be not moved.”[^6]
 
-Young men, I promise the Lord will empower you. “For God hath not given us the spirit of fear; but of power.”7 He will reward you for your courage and righteous behavior—with happiness and joy. Such courage will be a byproduct of your faith in Jesus Christ and His Atonement, your prayers, and your obedience to commandments.
+Young men, I promise the Lord will empower you. “For God hath not given us the spirit of fear; but of power.”[^7] He will reward you for your courage and righteous behavior—with happiness and joy. Such courage will be a by-product of your faith in Jesus Christ and His Atonement, your prayers, and your obedience to commandments.
 
-President N. Eldon Tanner stated: “One young boy on the school ground can wield a mighty influence for good. One young man on the football team, or the campus, or among his fellow workers can, by living the gospel, honoring his priesthood, and taking a stand for the right, do untold good. Often you will experience much criticism and ridicule even by those who believe as you do, even though they may respect you for doing right. But remember that the Savior himself was tormented, ridiculed, spat upon, and finally crucified because he would not waver in his conviction. Have you ever stopped to think what would have happened had he weakened and said, ‘Oh, what’s the use?’ and abandoned his mission? Do we want to be quitters, or do we want to be valiant servants in spite of all the opposition and evil in the world? Let us have the courage to stand up and be counted as true, devoted followers of Christ.”8
+President N. Eldon Tanner stated: “One young boy on the school ground can wield a mighty influence for good. One young man on the football team, or the campus, or among his fellow workers can, by living the gospel, honoring his priesthood, and taking a stand for the right, do untold good. Often you will experience much criticism and ridicule even by those who believe as you do, even though they may respect you for doing right. But remember that the Savior himself was tormented, ridiculed, spat upon, and finally crucified because he would not waver in his conviction. Have you ever stopped to think what would have happened had he weakened and said, ‘Oh, what’s the use?’ and abandoned his mission? Do we want to be quitters, or do we want to be valiant servants in spite of all the opposition and evil in the world? Let us have the courage to stand up and be counted as true, devoted followers of Christ.”[^8]
 
-I invite you to qualify yourselves as did the 2,000 stripling soldiers by being valiant in courage as worthy priesthood holders. Remember, what you do, where you go, and what you see will shape who you become. Who do you want to become? Become a worthy deacon, a worthy teacher, a worthy priest. Set a goal to be worthy to enter the temple now and to be worthy to receive your next ordinance at the proper age and ultimately to receive the Melchizedek Priesthood. This is a pathway of righteousness which invites divine assistance. The Lord stated, “In the ordinances thereof, the power of godliness is manifest.”9
+I invite you to qualify yourselves as did the 2,000 stripling soldiers by being valiant in courage as worthy priesthood holders. Remember, what you do, where you go, and what you see will shape who you become. Who do you want to become? Become a worthy deacon, a worthy teacher, a worthy priest. Set a goal to be worthy to enter the temple now and to be worthy to receive your next ordinance at the proper age and ultimately to receive the Melchizedek Priesthood. This is a pathway of righteousness which invites divine assistance. The Lord stated, “In the ordinances thereof, the power of godliness is manifest.”[^9]
 
-Parents, priesthood leaders, and prophetic priorities found in your Duty to God and For the Strength of Youth pamphlets will guide you along the way.
+Parents, priesthood leaders, and prophetic priorities found in your *Duty to God* and *For the Strength of Youth* pamphlets will guide you along the way.
 
-President Thomas S. Monson recently counseled:
+President Thomas S. Monson recently counseled:
 
-“To make [decisions] wisely, courage is needed—the courage to say no, the courage to say yes. ...
+“To make \[decisions\] wisely, courage is needed—the courage to say no, the courage to say yes. …
 
-“I plead with you to make a determination ... right now, not to deviate from the path which will lead to our goal: eternal life with our Father in Heaven.”10
+“I plead with you to make a determination … right now, not to deviate from the path which will lead to our goal: eternal life with our Father in Heaven.”[^10]
 
-Just as the 2,000 soldiers responded to the battle cry of their leader, Helaman, and marshaled their valiant courage, you too can do the same by following your prophet-leader, President Thomas S. Monson.
+Just as the 2,000 soldiers responded to the battle cry of their leader, Helaman, and marshaled their valiant courage, you too can do the same by following your prophet-leader, President Thomas S. Monson.
 
-My young Aaronic Priesthood holders, in closing I offer my testimony of God the Father and Jesus Christ and the words of Joseph Smith: “Brethren, shall we not go on in so great a cause? Go forward and not backward. Courage, brethren; and on, on to the victory!”11 In the name of Jesus Christ, amen.
+My young Aaronic Priesthood holders, in closing I offer my testimony of God the Father and Jesus Christ and the words of Joseph Smith: “Brethren, shall we not go on in so great a cause? Go forward and not backward. Courage, brethren; and on, on to the victory!”[^11] In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Alma 53.20|Alma 53:20]].
+
+[^2]: [[Mosiah 18.9|Mosiah 18:9]].
+
+[^3]: Personal story told to author.
+
+[^4]: Joseph A. Califano Jr., founder and chairman emeritus of the National Center on Addiction and Substance Abuse at Columbia University, in a press release regarding the research, casacolumbia.org.
+
+[^5]: *Preach My Gospel: A Guide to Missionary Service* (2004), 118.
+
+[^6]: [[D&C 87.8|Doctrine and Covenants 87:8]].
+
+[^7]: [[2 Timothy 1.7|2 Timothy 1:7]].
+
+[^8]: N. Eldon Tanner, “For They Loved the Praise of Men More Than the Praise of God,” *Ensign,* Nov. 1975, 74–75.
+
+[^9]: [[D&C 84.20|Doctrine and Covenants 84:20]].
+
+[^10]: Thomas S. Monson, “The Three Rs of Choice,” *Liahona* and *Ensign,* Nov. 2010, 68.
+
+[^11]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 

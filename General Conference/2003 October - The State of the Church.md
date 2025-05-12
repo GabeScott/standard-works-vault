@@ -1,7 +1,10 @@
 # The State of the Church
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2003 General Conference*
+
+>*This is only the beginning. We have scarcely scratched the surface. We are engaged in a work for the souls of men and women everywhere.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2003/10/the-state-of-the-church?lang=eng)
 
@@ -15,11 +18,11 @@ In the opening of this work the Lord declared:
 
 “Hearken, O ye people of my church, saith the voice of him who dwells on high, and whose eyes are upon all men; yea, verily I say: Hearken ye people from afar; and ye that are upon the islands of the sea, listen together.
 
-“For verily the voice of the Lord is unto all men, and there is none to escape; and there is no eye that shall not see, neither ear that shall not hear, neither heart that shall not be penetrated. ...
+“For verily the voice of the Lord is unto all men, and there is none to escape; and there is no eye that shall not see, neither ear that shall not hear, neither heart that shall not be penetrated. …
 
 “And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days.
 
-“And they shall go forth and none shall stay them, for I the Lord have commanded them” (D&C 1:1–2, 4–5).
+“And they shall go forth and none shall stay them, for I the Lord have commanded them” ([[D&C 1.1|D&C 1:1–2, 4–5]][[D&C 1.2|]][[D&C 1.4|]][[D&C 1.5|]]).
 
 There can be no doubt concerning our responsibility to the peoples of the earth. There can be no doubt that we are moving forward in pursuing that responsibility.
 
@@ -39,9 +42,9 @@ A California newspaper recently commented: “The white shirts, backpacks and bi
 
 “Contact with their loved ones is limited to letters and two calls a year.
 
-“They live frugally, in private homes and apartments with companion missionaries, rising at 6 a.m. to study and pray for guidance in the work they will do until long after the sun sets. ...
+“They live frugally, in private homes and apartments with companion missionaries, rising at 6 a.m. to study and pray for guidance in the work they will do until long after the sun sets. …
 
-“This life, they say, is a sacrifice—and the most ‘fun’ they can imagine” (Priscilla Nordyke Roden, “Answering the Call,” San Bernardino County Sun, 26 Aug. 2003, p. B1).
+“This life, they say, is a sacrifice—and the most ‘fun’ they can imagine” (Pricilla Nordyke Roden, “Answering the Call,” *San Bernardino County Sun,* 26 Aug. 2003, p. B1).
 
 That might have been written of our missionaries in the more than 120 nations in which they are found serving.
 
@@ -63,11 +66,11 @@ We invited those who wished to help in this plan to contribute to a fund called 
 
 Because of your generous contributions, we have been able to keep current with the growing need for loans. To date the Church has granted about 10,000 loans to young men and women in Latin America, Asia, Africa, and other areas of the Church. These young people have committed to repay their loans so that others may enjoy the same opportunities they are experiencing.
 
-Many have graduated and are experiencing the benefits of their training. To date about 600 young men and women have completed their training. The majority of these have found good employment. Many more will graduate and enter the workforce in their own communities in the months ahead. They will make their mark in the world, rear families, and serve the Church. Many are already achieving these objectives.
+Many have graduated and are experiencing the benefits of their training. To date, about 600 young men and women have completed their training. The majority of these have found good employment. Many more will graduate and enter the workforce in their own communities in the months ahead. They will make their mark in the world, rear families, and serve the Church. Many are already achieving these objectives.
 
 For example, Patrick was the first Perpetual Education Fund student to complete school in Jamaica. His basic training in management earned him a well-paying job at the national airport, with a promising future. Repayment of his loan began immediately.
 
-Flavia, a sister from a poorer part of South America, found little opportunity and means for training and regular employment until help came through the PEF to receive training in operating computers. With the help of LDS Employment Services, she found work in a good company after completing her training. She reports: “Today I am responsible for the financial consulting area of one of the largest hospitals in Recife using [a sophisticated] computer system. I was among the crew that implemented this financial system in the company.”
+Flavia, a sister from a poorer part of South America, found little opportunity and means for training and regular employment until help came through the PEF to receive training in operating computers. With the help of LDS Employment Services, she found work in a good company after completing her training. She reports: “Today I am responsible for the financial consulting area of one of the largest hospitals in Recife using \[a sophisticated\] computer system. I was among the crew that implemented this financial system in the company.”
 
 These examples could be multiplied. We are happy to report that the plan is working well and gradually expanding as we gain experience. Early reports of loan repayments are encouraging. Again, we thank you for your generosity, interest, and prayers in behalf of the Perpetual Education Fund.
 
@@ -75,9 +78,9 @@ It was said that at one time the sun never set on the British Empire. That empir
 
 And this is only the beginning. We have scarcely scratched the surface. We are engaged in a work for the souls of men and women everywhere. Our work knows no boundaries. Under the providence of the Lord it will continue. Those nations now closed to us will someday be open. That is my faith. That is my belief. That is my testimony.
 
-The little stone which was cut out of the mountain without hands is rolling forth to fill the earth (see Dan. 2:31–45; D&C 65:2).
+The little stone which was cut out of the mountain without hands is rolling forth to fill the earth (see [[Daniel 2.31|Daniel 2:31–45]][[Daniel 2.32|]][[Daniel 2.33|]][[Daniel 2.34|]][[Daniel 2.35|]][[Daniel 2.36|]][[Daniel 2.37|]][[Daniel 2.38|]][[Daniel 2.39|]][[Daniel 2.40|]][[Daniel 2.41|]][[Daniel 2.42|]][[Daniel 2.43|]][[Daniel 2.44|]][[Daniel 2.45|]]; [[D&C 65.2|D&C 65:2]]).
 
-To the Latter-day Saints everywhere, as we gather in this great conference I say, may God bless you. Keep the faith; be true to your covenants. Walk in the light of the gospel. Build the kingdom of God in the earth.
+To the Latter-day Saints everywhere, as we gather in this great conference, I say, may God bless you. Keep the faith; be true to your covenants. Walk in the light of the gospel. Build the kingdom of God in the earth.
 
 The Church is in wonderful condition and can and will improve. It will grow and strengthen.
 
@@ -89,17 +92,18 @@ During the next two days we shall hear from many of our number, not one of whom 
 
 May the blessings of heaven attend you. May you be faithful and true to the great and glorious cause which you have embraced is my humble prayer, in the name of our Redeemer, even the Lord Jesus Christ, amen.
 
-Now we have a special treat. I would like to ask Brother David B. Haight to come to the pulpit. Here is a grand old warrior. He is 97 years of age. He has lived longer than any other Apostle in the history of this dispensation. He recently became ill and has had a little difficulty. But he wanted to come this morning and just wave to you with a feeling of gratitude and appreciation for you and the great love which he feels for you. And to him, dear friend, we say, God bless you and heal you. We love you, we sustain you, we pray for you. May heaven’s blessings rest upon you, dear Brother Haight. Thank you.
+Now we have a special treat. I would like to ask Brother David B. Haight to come to the pulpit. Here is a grand old warrior. He is 97 years of age. He has lived longer than any other Apostle in the history of this dispensation. He recently became ill and has had a little difficulty. But he wanted to come this morning and just wave to you with a feeling of gratitude and appreciation for you and the great love which he feels for you. And to him, dear friend, we say, God bless you and heal you. We love you; we sustain you; we pray for you. May heaven’s blessings rest upon you, dear Brother Haight. Thank you.
 
-Elder Haight: Thank you.
+**Elder Haight:** Thank you.
 
-President Hinckley: Do you want to wave to these people?
+**President Hinckley:** Do you want to wave to these people?
 
-Elder Haight: Yes, I must. I am waving. Thank you, thank you. Nice to be with you.
+**Elder Haight:** Yes, I must. I am waving. Thank you, thank you. Nice to be with you.
 
-President Hinckley: Thank you.
+**President Hinckley:** Thank you.
 
-Elder Haight: Thank you.
+**President Hinckley:** We will excuse him now. He will be watching on television. What a great soldier he has been in the army of the Lord. Thank you so much, Brother Haight.
 
-President Hinckley: We will excuse him now. He will be watching on television. What a great soldier he has been in the army of the Lord. Thank you so much, Brother Haight.
+
+
 

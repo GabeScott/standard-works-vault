@@ -1,5 +1,6 @@
 # A Foundation Whereon Men Cannot Fall
-*By David B. Haight - Assistant to the Council of the Twelve*
+
+By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -25,15 +26,15 @@ The Savior warned mankind of what could happen to our homes if we failed to heed
 
 “And every one that heareth these sayings of mine, and doeth them not, shall be likened unto a foolish man, which built his house upon the sand:
 
-“And the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell: and great was the fall of it.” (Matt. 7:24–27.)
+“And the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell: and great was the fall of it.” ([[Matthew 7.24|Matt. 7:24–27]][[Matthew 7.25|]][[Matthew 7.26|]][[Matthew 7.27|]].)
 
 Couldn’t you imagine that if a family purposely built their house on sand, their neighbors would come running to their aid, would probably warn them and try to persuade them not to make such a critical error? But we are actually witnessing this tragic mistake taking place. Some houses are being built on sand.
 
 We all know of families that seem to be unified with love for one another, respect for the parents, active in church assignments; but as the children grow older, the roof seems to start leaking, the family grows apart, their beliefs now seem to differ. The rains of other influences are beating and beating hard on their homes.
 
-“And ye will not suffer your children that they go hungry, or naked,” said King Benjamin; “neither will ye suffer that they transgress the laws of God ... and serve the devil. ... But ye will teach them to walk in the ways of truth and soberness; ye will teach them to love one another, and to serve one another.” (Mosiah 4:14–15.)
+“And ye will not suffer your children that they go hungry, or naked,” said King Benjamin; “neither will ye suffer that they transgress the laws of God … and serve the devil. … But ye will teach them to walk in the ways of truth and soberness; ye will teach them to love one another, and to serve one another.” ([[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]].)
 
-Remember, this scripture says to teach our children. How can we teach them if we don’t get together as a family (and not just as a place to exchange the car keys)?
+Remember, this scripture says to *teach our children.* How can we teach them if we don’t get together as a family (and not just as a place to exchange the car keys)?
 
 All over the world Monday evening has been set aside by the First Presidency as family night. A night of participation, involvement, and wholesome fun. The importance of the family unit cannot be overemphasized. Every home in the Church has been instructed to build a solid foundation for sound citizenship and active church participation.
 
@@ -43,7 +44,7 @@ I remember our family around the piano singing and trying to learn harmony. It w
 
 The activities and teaching at family home evening can be the vehicle for the building of strong faith and character.
 
-You are aware, as I am, of the comments of juvenile court judges, law enforcement officers, social workers, and educators who seem to unanimously indicate that there is only one sure solution to our present moral challenge. They all point to the home, not more laws. They say, “If only the father would take command! If only father and mother unitedly would guide their children with love and affection!”
+You are aware, as I am, of the comments of juvenile court judges, law enforcement officers, social workers, and educators who seem to unanimously indicate that there is only one sure solution to our present moral challenge. They all point to the home, not more laws. They say, “If only the *father* would take command! If only father and mother unitedly would guide their children with love and affection!”
 
 The evidence is overwhelming and the need so critical for a strong bond of respect and admiration in our homes. The trend is growing more acute daily. Latter-day Saint parents must analyze the foundation on which their homes are being built, for the rains of evil are descending. Parents must prayerfully prepare for their particular family needs.
 
@@ -57,19 +58,22 @@ Henry Ward Beecher wrote: “We are not born as the partridge in the wood, or th
 
 We are all aware that our youth are being pressured from all sides with bizarre sensationalism that attempts to present a new morality—even a nonfamily concept—that is in complete opposition to the true teachings of the gospel. The words to some of the rock music, some of the films, and the pictures in some of the magazines indicate with a resounding ring that the rains are pouring, not just on your neighbor’s family, but also upon yours.
 
-Now, if some of you are finding resistance in getting your families together each week and are tempted to give up, please find strength in these words of Elder Marion G. Romney: “It is not enough to do our best. Unless we do all we can, we do less than we ought. We must succeed in doing what is necessary. Unless we get the job done, it is not enough.”
+Now, if some of you are finding resistance in getting your families together each week and are tempted to give up, please find strength in these words of Elder Marion G. Romney: “It is not enough to do our best. Unless we do all we can, we do less than we ought. We must succeed in doing what is necessary. Unless we get the job done, it is not enough.”
 
 A few days ago we witnessed a little family, with the grandmothers and grandfathers and some of the uncles all united to participate, as a loving father conferred the Aaronic Priesthood on his oldest son. This was a special and sacred occasion and an opportunity to teach and strengthen this little family’s foundation.
 
-Elder James E. Talmage wrote: “We regard children literally as gifts from God, committed to our parental care, for whose support, protection, and training in righteousness we shall be held to a strict accounting.” (The Marriage Institution [pamphlet, Church Historian’s Department], pp. 4–5.)
+Elder James E. Talmage wrote: “We regard children literally as gifts from God, committed to our parental care, for whose support, protection, and training in righteousness we shall be held to a strict accounting.” (*The Marriage Institution* \[pamphlet, Church Historian’s Department\], pp. 4–5.)
 
 With our own God-given desire and intelligence, we will find solutions to today’s pressing issues, but we must be willing to draw from the wisdom and the strength of our Church leaders, who continually seek and receive divine guidance.
 
-Years ago President Joseph F. Smith gave us an answer and a promise when he said, “If you will gather your children around you once a week and instruct them in the gospel, they will not go astray.”
+Years ago President Joseph F. Smith gave us an answer and a promise when he said, “If you will gather your children around you once a week and instruct them in the gospel, they will not go astray.”
 
 The prophet Nephi’s counsel applies today as it did in days of old. He admonished:
 
-“... remember that it is upon the rock of our Redeemer ... that ye must build your foundation; that when the devil shall send forth his mighty winds, ... when all of his hail and his mighty storm shall beat upon you, it shall have no power over you ... because of the rock upon which ye are built, which is a sure foundation, a foundation whereon if men build they cannot fall.” (Hel. 5:12.)
+“… remember that it is upon the rock of our Redeemer … that ye must build your foundation; that when the devil shall send forth his mighty winds, … when all of his hail and his mighty storm shall beat upon you, it shall have no power over you … because of the rock upon which ye are built, which is a sure foundation, a foundation whereon if men build they cannot fall.” ([[Helaman 5.12|Hel. 5:12]].)
 
 May this be so with your family, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

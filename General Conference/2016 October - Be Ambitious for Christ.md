@@ -1,15 +1,18 @@
 # Be Ambitious for Christ
-*By Kazuhiko Yamashita - Of the Seventy*
+
+By Elder Kazuhiko Yamashita - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
+
+>*We are ambitious for Christ when we serve faithfully, accept humbly, endure nobly, pray fervently, and partake worthily.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/10/be-ambitious-for-christ?lang=eng)
 
 My dear brothers and sisters, today I would like to speak to the young people of the Church, including our wonderful missionaries. Of course, brothers and sisters who are young at heart are warmly invited to listen.
 
-Last August 21, President Russell M. Nelson dedicated the beautiful Sapporo Temple—the third temple in Japan. The Sapporo Temple is built in northern Japan in a place called Hokkaido. Like Utah, Hokkaido was settled by industrious, hardworking pioneers.
+Last August 21, President Russell M. Nelson dedicated the beautiful Sapporo Temple—the third temple in Japan. The Sapporo Temple is built in northern Japan in a place called Hokkaido. Like Utah, Hokkaido was settled by industrious, hardworking pioneers.
 
-In 1876, a renowned educator named Dr. William Clark was invited to come to Hokkaido to teach. He lived in Japan for just eight months, but his Christian spirit left a lasting impression on his young non-Christian students. Before leaving, he gave his students a parting message that has become immortalized in this bronze statue. He said, “Boys, be ambitious!”—“Be ambitious for Christ.” His injunction to “be ambitious for Christ” can help direct daily decisions for today’s Latter-day Saints.
+In 1876, a renowned educator named Dr. William Clark[^1] was invited to come to Hokkaido to teach. He lived in Japan for just eight months, but his Christian spirit left a lasting impression on his young non-Christian students. Before leaving, he gave his students a parting message that has become immortalized in this bronze statue.[^2] He said, “Boys, be ambitious!”—“Be ambitious for Christ.”[^3] His injunction to “be ambitious for Christ” can help direct daily decisions for today’s Latter-day Saints.
 
 What does it mean to “be ambitious for Christ”? Being ambitious for Christ means being motivated, focused, and dedicated to His work. Being ambitious for Christ will seldom mean that we are singled out for public honor. Being ambitious for Christ means that we serve faithfully and diligently in our wards and branches without complaint and with joyful hearts.
 
@@ -29,7 +32,7 @@ He said, “Yes, President, I did.”
 
 I responded, “Elder Cowan, you were called to the Japan Nagoya Mission, where you would have to ride a bike. Did you tell this to your stake president?”
 
-I was surprised by his answer. He said, “No, I didn’t. I determined that if that is where the Lord called me, I would go to the gym and train my body to be able to ride a bike.”
+I was surprised by his answer. He said, “No, I didn’t. I determined that if *that* is where the Lord called me, I would go to the gym and train my body to be able to ride a bike.”
 
 At the conclusion of our interview, he asked me this question with tears in his eyes: “President Yamashita, why did I come to Japan? Why am I here?”
 
@@ -41,11 +44,11 @@ The Book of Mormon contains many accounts of those who were ambitious for Christ
 
 This Alma gave his son Helaman the following counsel:
 
-“Whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions. ...
+“Whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions. …
 
-“... Keep the commandments of God. ...
+“… Keep the commandments of God. …
 
-“Counsel with the Lord in all thy doings, and he will direct thee for good.”
+“Counsel with the Lord in all thy doings, and he will direct thee for good.”[^4]
 
 Our second son lived much of his youth apart from the Church. When he turned 20, he had an experience that made him want to change his life. With love, prayers, and help from his family and members of the Church, and ultimately through the compassion and grace of the Lord, he returned to the Church.
 
@@ -53,7 +56,7 @@ He was later called to serve in the Washington Seattle Mission. He initially suf
 
 After he served for a year, we received an email that was an answer to our prayers. He wrote: “Right now I can really feel the love of God and of Jesus. I will work hard to become like the prophets of old. Though I am also experiencing a lot of difficulties, I am truly happy. Serving Jesus really is the best thing ever. There is nothing as wonderful as this. I am so happy.”
 
-He felt as Alma did: “And oh, what joy, and what marvelous light I did behold; yea, my soul was filled with joy as exceeding as was my pain!”
+He felt as Alma did: “And oh, what joy, and what marvelous light I did behold; yea, my soul was filled with joy as exceeding as was my pain!”[^5]
 
 In our lives we experience trials, but if we are ambitious for Christ, we can focus on Him and feel joy even in the midst of them. Our Redeemer is the ultimate example. He understood His holy mission and was obedient to the will of God the Father. What a choice blessing it is to bring His wonderful example to our remembrance each week as we partake of the sacrament.
 
@@ -62,4 +65,17 @@ My dear brothers and sisters, we are ambitious for Christ when we serve faithful
 May we be ambitious for Christ as we accept our difficulties and trials with patience and faith and find joy in our covenant path.
 
 I testify that the Lord knows you. He knows your struggles and concerns. He knows of your desires to serve Him with devotion and, yes, even ambition. May He guide and bless you as you do so. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: William Smith Clark (1826–86) was a professor of chemistry, botany, and zoology and served as a colonel during the American Civil War. He was a leader in agricultural education and president of Massachusetts Agricultural College. (See “William S. Clark,” wikipedia.com.)
+
+[^2]: Statue located at Sapporo Hitsujigaoka Observation Hill.
+
+[^3]: William S. Clark, in Ann B. Irish, *Hokkaido: A History of Ethnic Transition and Development on Japan’s Northern Island* (2009), 156.
+
+[^4]: [[Alma 36.3|Alma 36:3]]; [[Alma 37.35|37:35, 37]][[Alma 37.37|]].
+
+[^5]: [[Alma 36.20|Alma 36:20]].
 

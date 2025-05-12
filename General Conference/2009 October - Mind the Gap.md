@@ -1,7 +1,10 @@
 # Mind the Gap
-*By By Barbara Thompson - Second Counselor in the Relief Society General Presidency*
+
+By Barbara Thompson - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2009 General Conference*
+
+>*Gaps can be reminders of ways in which we can improve or, if ignored, can be stumbling blocks in our lives.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2009/10/mind-the-gap?lang=eng)
 
@@ -11,25 +14,25 @@ Many of us have gaps in our own lives. Sometimes it is the difference between wh
 
 I want to mention a few gaps I see either in my own life or in the lives of others. The ones I will address tonight are the following:
 
-First, the gap between believing you are a daughter of God and knowing in your heart and soul that you are a precious, beloved daughter of God.
+First, the gap between *believing* you are a daughter of God and *knowing* in your heart and soul that you are a precious, beloved daughter of God.
 
-Second, the gap between completion of the Young Women program and becoming a fully participating member of Relief Society—“the Lord’s organization for women.”
+Second, the gap between completion of the Young Women program and becoming a fully participating member of Relief Society—“the Lord’s organization for women.”[^1]
 
-Third, the gap between believing in Jesus Christ and being valiant in the testimony of Jesus Christ.
+Third, the gap between *believing* in Jesus Christ and being *valiant* in the testimony of Jesus Christ.
 
 Number one, the gap between believing and knowing that you are a precious, beloved daughter of God.
 
-Most of us who have been in the Church for more than just a few months have sung the song “I Am a Child of God.” I have sung this song since I was a young child and have always believed it. Even though most of us believe this, it seems that at times of hardship or difficulty we have a tendency to doubt or forget this.
+Most of us who have been in the Church for more than just a few months have sung the song “I Am a Child of God.”[^2] I have sung this song since I was a young child and have always believed it. Even though most of us believe this, it seems that at times of hardship or difficulty we have a tendency to doubt or forget this.
 
 Some have said such things as: “If God really loved me, He would not let this illness come upon my child.” “If God loved me, He would help me find a worthy husband I could be married and sealed to in the holy temple.” “If God loved me, we would have enough money to buy a house for our family.” Or, “I have sinned and so God couldn’t possibly love me anymore.”
 
-Unfortunately, we hear these types of statements all too often. You need to know that there is nothing that can “separate [you] from the love of Christ.” The scriptures clearly tell us that no tribulation, distress, persecution, power, nor any other creature can separate us from the love of God.
+Unfortunately, we hear these types of statements all too often. You need to know that there is nothing that can “separate \[you\] from the love of Christ.” The scriptures clearly tell us that no tribulation, distress, persecution, power, nor any other creature can separate us from the love of God.[^3]
 
-Our Heavenly Father loved us so much that He sent His Only Begotten Son to atone for our sins. The Savior not only suffered for every sin, but He also felt every pain, sorrow, discomfort, loneliness, and sadness that any of us could ever experience. Is this not great love? President Henry B. Eyring has said, “It is the Holy Ghost that testifies of the reality of God and allows us to feel the joy of His love.”
+Our Heavenly Father loved us so much that He sent His Only Begotten Son to atone for our sins. The Savior not only suffered for every sin, but He also felt every pain, sorrow, discomfort, loneliness, and sadness that any of us could ever experience. Is this not great love? President Henry B. Eyring has said, “It is the Holy Ghost that testifies of the reality of God and allows us to feel the joy of His love.”[^4]
 
 We need to accept His love, love ourselves, and love others. Remember that every soul on this earth is also a child of God. We must treat each other with the love and kindness befitting a child of God.
 
-Most of you work very hard to perform your duty, to keep the commandments, and to obey the Lord. You need to be able to recognize the Lord’s approval. You need to know that the Lord is well pleased and has accepted your offering.
+Most of you work very hard to perform your duty, to keep the commandments, and to obey the Lord. You need to be able to recognize the Lord’s approval. You need to know that the Lord is well pleased and has accepted your offering.[^5]
 
 Remember to mind this gap and to not let doubt and uncertainty enter into your minds. Be assured that God loves you dearly and you are His precious child.
 
@@ -51,13 +54,13 @@ One work colleague who was not a member of our Church said to me, “Why do you 
 
 Remember, it’s not just what you get out of active participation in Relief Society but what you can give and contribute as well.
 
-My dear sisters, especially you younger single adults, I testify to you that God loves you; He is mindful of you; He has a plan for you. He needs you to serve His children. He needs you to be active and faithful and fully participating women in His Church. He needs you to “comfort the weary and strengthen the weak.”
+My dear sisters, especially you younger single adults, I testify to you that God loves you; He is mindful of you; He has a plan for you. He needs you to serve His children. He needs you to be active and faithful and fully participating women in His Church. He needs you to “comfort the weary and strengthen the weak.”[^6]
 
-Sister Eliza R. Snow, second Relief Society general president, spoke to a large group of sisters—both teenage and adult women—gathered in Ogden, Utah, in 1873. She gave the following counsel that was timely then and is still appropriate today.
+Sister Eliza R. Snow, second Relief Society general president, spoke to a large group of sisters—both teenage and adult women—gathered in Ogden, Utah, in 1873. She gave the following counsel that was timely then and is still appropriate today.
 
-Speaking to the younger women, she said: “If you associate together [meaning older and younger women], your minds are improved, you are gaining intelligence, and you are retrenching from ignorance. The Spirit of God will impart instruction to your minds, and you will impart it to each other. I say, God bless you my young sisters. Remember that you are Saints of God; and that you have important works to perform in Zion.”
+Speaking to the younger women, she said: “If you associate together \[meaning older and younger women\], your minds are improved, you are gaining intelligence, and you are retrenching from ignorance. The Spirit of God will impart instruction to your minds, and you will impart it to each other. I say, God bless you my young sisters. Remember that you are Saints of God; and that you have important works to perform in Zion.”
 
-She further counseled all women: “Paul the Apostle anciently spoke of holy women. It is the duty of each one of us to be a holy woman. We shall have elevated aims, if we are holy women. We shall feel that we are called to perform important duties. No one is exempt from them. There is no sister so isolated, and her sphere so narrow but what she can do a great deal towards establishing the Kingdom of God upon the earth.”
+She further counseled all women: “Paul the Apostle anciently spoke of holy women. It is the duty of each one of us to be a holy woman. We shall have elevated aims, if we are holy women. We shall feel that we are called to perform important duties. No one is exempt from them. There is no sister so isolated, and her sphere so narrow but what she can do a great deal towards establishing the Kingdom of God upon the earth.”[^7]
 
 Please mind this gap, and don’t let a gap of inactivity come into your life in any manner. You need the Church, and the Church needs you.
 
@@ -67,17 +70,46 @@ Many people believe in Jesus Christ—that He was born of Mary in humble circums
 
 However, for us as Latter-day Saints, we know that we must do more than believe in Christ. We must have faith in Him, repent of our sins, be baptized in His name, and receive the gift of the Holy Ghost, and then we must endure faithfully to the end.
 
-We must share our testimonies with others. We must faithfully keep the covenants we have made with God. We know that all things will be revealed and given to those “who have endured valiantly for the gospel of Jesus Christ.”
+We must share our testimonies with others. We must faithfully keep the covenants we have made with God. We know that all things will be revealed and given to those “who have endured valiantly for the gospel of Jesus Christ.”[^8]
 
-When we are converted, there is a natural tendency for us to share the gospel with those we love. Lehi was converted and wanted his family to partake of the goodness of the gospel. Nephi talked of Christ, rejoiced in Christ, and preached of Christ so his children would know the source of the remission of their sins or, in other words, where they would find peace and joy.
+When we are converted, there is a natural tendency for us to share the gospel with those we love. Lehi was converted and wanted his family to partake of the goodness of the gospel.[^9] Nephi talked of Christ, rejoiced in Christ, and preached of Christ so his children would know the source of the remission of their sins or, in other words, where they would find peace and joy.[^10]
 
-When Enos was converted and received a remission of his sins, he was concerned for the welfare of his brethren. He wanted them to receive the blessings he had received.
+When Enos was converted and received a remission of his sins, he was concerned for the welfare of his brethren. He wanted them to receive the blessings he had received.[^11]
 
-Throughout the scriptures we read of men and women who became converted and then desired to “strengthen” their brothers and sisters.
+Throughout the scriptures we read of men and women who became converted and then desired to “strengthen” their brothers and sisters.[^12]
 
-Let your voice be heard among the faithful as you valiantly declare that He lives, that His Church has been restored, and that the plan of happiness is available to all.
+Let your voice be heard among the faithful as you valiantly declare that He lives,[^13] that His Church has been restored, and that the plan of happiness is available to all.
 
 As we mind these gaps by paying careful attention and removing ourselves from danger, we will begin to realize the fulness of the blessings of the gospel of Jesus Christ in our lives.
 
 My dear sisters, I love you. I know the Savior lives. I know He loves each one of us. I know this is His true Church. Of this I testify in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Spencer W. Kimball, “Relief Society—Its Promise and Potential,” *Ensign,* Mar. 1976, 4.
+
+[^2]: “I Am a Child of God,” *Hymns,* no. 301.
+
+[^3]: See [[Romans 8.35|Romans 8:35–39]][[Romans 8.36|]][[Romans 8.37|]][[Romans 8.38|]][[Romans 8.39|]].
+
+[^4]: Henry B. Eyring, “The Love of God in Missionary Work” (address given at the mission presidents’ seminar, June 25, 2009).
+
+[^5]: See [[D&C 97.27|D&C 97:27]]; [[D&C 124.1|124:1]].
+
+[^6]: “As Sisters in Zion,” *Hymns,* no. 309.
+
+[^7]: Eliza R. Snow, “An Address,” *Woman’s Exponent,* Sept. 15, 1873, 62.
+
+[^8]: [[D&C 121.29|D&C 121:29]].
+
+[^9]: See [[1 Nephi 8.10|1 Nephi 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]].
+
+[^10]: See [[2 Nephi 25.26|2 Nephi 25:26]].
+
+[^11]: See [[Enos 1.5|Enos 1:5–11]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]][[Enos 1.9|]][[Enos 1.10|]][[Enos 1.11|]].
+
+[^12]: See [[Luke 22.32|Luke 22:32]].
+
+[^13]: See [[D&C 76.22|D&C 76:22]].
 

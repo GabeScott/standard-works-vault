@@ -1,5 +1,6 @@
 # “They’re Not Really Happy”
-*By By Bishop Glenn L. Pace - Second Counselor in the Presiding Bishopric*
+
+By Bishop Glenn L. Pace - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1987 General Conference*
 
@@ -17,9 +18,9 @@ You young men are growing up in a most challenging and confusing world. Activiti
 
 Lehi’s vision of the tree of life is appropriate for our day. In that vision, he saw a great and spacious building, which represents the pride and temptations of the world:
 
-“And I ... beheld ... a great and spacious building; ...
+“And I … beheld … a great and spacious building; …
 
-“And it was filled with people, both old and young, ... and their manner of dress was exceedingly fine; and they were in the attitude of mocking and pointing their fingers towards those who ... were partaking of the fruit” (1 Ne. 8:26–27).
+“And it was filled with people, both old and young, … and their manner of dress was exceedingly fine; and they were in the attitude of mocking and pointing their fingers towards those who … were partaking of the fruit” ([[1 Nephi 8.26|1 Ne. 8:26–27]][[1 Nephi 8.27|]]).
 
 Even though you have a testimony and want to do what is right, it is difficult not to be drawn to the great and spacious building. From all appearances, the people in the building seem to be having a great time. The music and laughter are deafening. You would say to me what my children have said, “They’re not really happy, huh, Dad?” as you watch them party.
 
@@ -27,7 +28,7 @@ They look happy and free, but don’t mistake telestial pleasure for celestial h
 
 When I was in junior high school, I would get out of bed on cold winter mornings and head for the heat vent to get warm. The family cat would always beat me there, so I would gently shoo her away and sit down. Soon my mother would tell me it was time to leave for school. I would look out at the icicles on the house and dread going out into the cold, let alone begin another day of school.
 
-As I kissed my mother good-bye and went out the door, I would look longingly at my comfortable spot in front of the heat vent and find that the cat had repossessed it. How I envied that cat! If that weren’t enough, she would look up at me with heavy eyelids and an expression as if to laugh at me and say “Have fun in school, Glenn. I’m sure glad I’m not a human!” I hated it when she did that!
+As I kissed my mother good-bye and went out the door, I would look longingly at my comfortable spot in front of the heat vent and find that the cat had repossessed it. How I envied that cat! If that weren’t enough, she would look up at me with heavy eyelids and an expression as if to laugh at me and say, “Have fun in school, Glenn. I’m sure glad I’m not a human!” I hated it when she did that!
 
 However, an interesting thing would happen as the day went on. I would come home after experiencing the joys and sorrows of the school day and see that lazy cat still curled up in front of the vent, and I would smile and say to her, “I’m sure glad I’m not a cat.”
 
@@ -37,7 +38,7 @@ Compare the blessings of living the Word of Wisdom to those available to you if 
 
 The members of many churches in the world have been putting pressure on their leaders to change doctrine to fit the changing life-style of the members. Many have been successful, and more and more we see churches made up of the doctrines of men. There are absolute truths of eternity. They do not change as a society drifts from them. No popular vote can change an absolute, eternal truth. Legalizing an act does not make it moral. Don’t be fooled by the argument “Everybody’s doing it.” Your spirit should be offended and your intelligence insulted by such reasoning.
 
-When all of the evidence is in, the world’s graduate school of hard knocks will teach what you young men were taught in the kindergarten of your spiritual training, “Wickedness never was happiness” (Alma 41:10). Why wait for finite man to prove what his infinite Creator has already revealed to his prophets?
+When all of the evidence is in, the world’s graduate school of hard knocks will teach what you young men were taught in the kindergarten of your spiritual training, “Wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]). Why wait for finite man to prove what his infinite Creator has already revealed to his prophets?
 
 I know how much you like thrills, adventure, and excitement. Do you want excitement? I’ll give you excitement. Do you realize you are outnumbered in the world 1,000 to 1? The sons of Helaman didn’t face those odds. As the winds of popular opinion intensify and the mocking increases from those who are trying to justify their own unrighteous actions, you will be required to put on the full armor of God. You will need to fight with all of your strength to keep unspotted from the world. We plead with you to stay true—not for us, but for you.
 
@@ -48,4 +49,7 @@ We love you, the youth of the Church, and we know you will collectively succeed.
 To those of you who are struggling and losing ground, you who have been lured into that building through one of its many doors and now find no doors going out, you who feel trapped and defeated, we assure you there is hope, and all is not lost. Through his atonement, our Lord and Savior Jesus Christ has provided a way for you to escape that awful place. He knows you intimately. He knows your name, and he knows your pain. If you will approach your Father in Heaven with a broken heart and contrite spirit, you will find yourself miraculously lifted out of that great and spacious building and into the loving and comforting arms of the Savior of mankind.
 
 At your earthly home, you will find your father’s arms have always been open for you and that during your absence your mother never stopped setting your place at the table in front of your empty chair. You will see clearly the difference between telestial happiness and celestial happiness, and you will experience and savor celestial joy through this life and throughout all eternity. I so testify and promise, in the name of Jesus Christ, amen.
+
+
+
 

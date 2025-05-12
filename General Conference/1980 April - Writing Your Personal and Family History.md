@@ -1,5 +1,6 @@
 # Writing Your Personal and Family History
-*By John H. Groberg - Of the First Quorum of the Seventy*
+
+By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -13,7 +14,7 @@ As bearers of the priesthood, we have an obligation to follow the counsel of the
 
 Why is the writing of personal and family histories so important? There are many reasons. I will focus on just a few.
 
-By writing personal and family histories and doing the research required thereby, we inevitably have our hearts turned to our fathers as well as to our children. The Lord says this must happen, “lest I come and smite the earth with a curse” (Mal. 4:6). Let us not be part of a curse.
+By writing personal and family histories and doing the research required thereby, we inevitably have our hearts turned to our fathers as well as to our children. The Lord says this must happen, “lest I come and smite the earth with a curse” ([[Malachi 4.6|Mal. 4:6]]). Let us not be part of a curse.
 
 Also, by writing personal and family histories, we are helped immeasurably in gaining a true, eternal perspective of life. Writing our histories with the proper blend of fact and feeling (and so often, feelings in spiritual things are the real facts) gives us a deep spiritual insight into the meaning and purpose of our lives.
 
@@ -66,4 +67,7 @@ All of you have similar incidents in your families. Search them out. Record them
 I have a strong feeling that when this life is over, our personal and family histories and the influence they wield will be of much greater importance than we now think.
 
 Brethren, this is the work of the Lord. I testify that he lives and that he has great influence in our lives. May we have this understanding of eternity and see and feel and record his influence in our lives, I do humbly pray, in the name of Jesus Christ, amen.
+
+
+
 

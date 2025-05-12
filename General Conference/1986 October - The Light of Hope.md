@@ -1,5 +1,6 @@
 # The Light of Hope
-*By By Dwan J. Young - Primary General President*
+
+By Dwan J. Young - *Primary General President*
 
 *Given in the October session of the 1986 General Conference*
 
@@ -31,19 +32,19 @@ All of the family members had a special fast. The morning the respirator was rem
 
 Amy is now three years old—normal and happy. And what if there hadn’t been such a blessed outcome? Could we still go on with hope? Yes, because hope is knowing that whatever comes, the Lord can whisper peace. Our hope in Christ gives us an unchanging reason to rejoice.
 
-As Paul said to the Romans: “Now the God of hope fill you with all joy and peace in believing, that ye may abound in hope” (Rom. 15:13).
+As Paul said to the Romans: “Now the God of hope fill you with all joy and peace in believing, that ye may abound in hope” ([[Romans 15.13|Rom. 15:13]]).
 
-The Lord wants us to be filled with hope—not just because it points us to a brighter tomorrow, but because it changes the quality of our lives today. Hopeless may be the saddest word in our language. Despair is the enemy of our souls. It can paralyze us, halt our progress, and cause us to lose our way. But hope awakens us like a light shining in the darkness.
+The Lord wants us to be filled with hope—not just because it points us to a brighter tomorrow, but because it changes the quality of our lives today. *Hopeless* may be the saddest word in our language. Despair is the enemy of our souls. It can paralyze us, halt our progress, and cause us to lose our way. But hope awakens us like a light shining in the darkness.
 
-You remember that the thirteenth article of faith states: “We believe all things, we hope all things, we have endured many things, and hope to be able to endure all things” [A of F 1:13] (italics added).
+You remember that the thirteenth article of faith states: “We believe all things, we *hope* all things, we have endured many things, and *hope* to be able to endure all things” \[[[Articles of Faith 1.13|A of F 1:13]]\] (italics added).
 
 We can endure all things when our hope is centered in one who will never fail us—our Savior, Jesus Christ, who is the light of the world.
 
-How do we develop that hope—that hope that lights our way across life’s stormy seas? There are times, as there were for our family, when darkness surrounds us and threatens to engulf us altogether. At such times we can take a lesson from the brother of Jared. You remember the Lord instructed the brother of Jared to make barges so his people could travel safely to the promised land. But because these boats were dark and without air, the brother of Jared took his concerns to the Lord in words that any of us might use to describe our own troubled times: “There is no light. ... we cannot breathe” (Ether 2:19).
+How do we develop that hope—that hope that lights our way across life’s stormy seas? There are times, as there were for our family, when darkness surrounds us and threatens to engulf us altogether. At such times we can take a lesson from the brother of Jared. You remember the Lord instructed the brother of Jared to make barges so his people could travel safely to the promised land. But because these boats were dark and without air, the brother of Jared took his concerns to the Lord in words that any of us might use to describe our own troubled times: “There is no light. … we cannot breathe” ([[Ether 2.19|Ether 2:19]]).
 
-How does a person venture out into the darkness without fear? How do any of us venture out day after day into a world where there are no guarantees of safety? The Lord gave a profound answer that again applies not just to the dark sea the brother of Jared faced, but to our own dark seas as well: “Ye cannot cross this great deep save I prepare you against the waves of the sea” (Ether 2:25). “I will bring you up again out of the depths of the sea” (Ether 2:24). The Lord was not going to spare the Jaredites from the experience, but he prepared them for it and gave them the sweet promise of bringing them up again out of the depths of the sea.
+How does a person venture out into the darkness without fear? How do any of us venture out day after day into a world where there are no guarantees of safety? The Lord gave a profound answer that again applies not just to the dark sea the brother of Jared faced, but to our own dark seas as well: “Ye cannot cross this great deep save I prepare you against the waves of the sea” ([[Ether 2.25|Ether 2:25]]). “I will bring you up again out of the depths of the sea” ([[Ether 2.24|Ether 2:24]]). The Lord was not going to spare the Jaredites from the experience, but he prepared them for it and gave them the sweet promise of bringing them up again out of the depths of the sea.
 
-Then the brother of Jared asked the Lord, How are we to get light in vessels without windows? And the Lord said: “What will ye that I should do that ye may have light in your vessels?” (Ether 2:23).
+Then the brother of Jared asked the Lord, How are we to get light in vessels without windows? And the Lord said: “What will ye that I should do that ye may have light in your vessels?” ([[Ether 2.23|Ether 2:23]]).
 
 The Lord wanted the brother of Jared to suggest a solution, and he did well. He went to the mountain and refined out of a rock sixteen stones clear as transparent glass. I cannot imagine that this was an easy task; it took time and faith. When he finished, he took these stones to the Lord, asking the Lord to stretch forth His finger and make them shine so that his people might not travel in the terrifying darkness. And the Lord did touch the stones with light.
 
@@ -53,17 +54,20 @@ Like the Jaredites, we’re afraid of traveling in the darkness, and we need lig
 
 Why do we need to have hope?
 
-Hope casts out fear. This is a world where our safety is never assured. One eleven-year-old girl I talked to hopes she will have a friend this year at school. Facing a new school year alone is frightening. But the Lord understands her concern and can fill her with hope. Not only will he help her, he will help us through our trials; he will consecrate them to our good. Our seeming misfortunes can often become blessings.
+*Hope casts out fear.* This is a world where our safety is never assured. One eleven-year-old girl I talked to hopes she will have a friend this year at school. Facing a new school year alone is frightening. But the Lord understands her concern and can fill her with hope. Not only will he help her, he will help us through our trials; he will consecrate them to our good. Our seeming misfortunes can often become blessings.
 
-Hope means we really trust the Lord.
+*Hope means we really trust the Lord*.
 
-Hope gives us perspective. Because we know we are living not just for this life, but for another, eternal one as well, we look at life’s events differently. As you review the last year or the last ten years, what is the best day you remember? A person without hope centered in Christ may choose a day that was simply fun or easy. But the best day may really have been the one when life’s events forced you to your knees to communicate with your Father with new intent; it may have been a day that wasn’t convenient or even happy, but you became a bigger and better person when you faced a problem with courage.
+*Hope gives us perspective.* Because we know we are living not just for this life, but for another, eternal one as well, we look at life’s events differently. As you review the last year or the last ten years, what is the best day you remember? A person without hope centered in Christ may choose a day that was simply fun or easy. But the best day may really have been the one when life’s events forced you to your knees to communicate with your Father with new intent; it may have been a day that wasn’t convenient or even happy, but you became a bigger and better person when you faced a problem with courage.
 
-Hope moves us to action. A ten-year-old girl said, “I hope I can grow up to be a good person and always obey the commandments.” With determination, she is starting today to reach her lifetime goals. When we have no hope for tomorrow, we do not move as effectively today. It is hope combined with faith that motivates us to plant the seed, that moves us when we’re too weary, that causes us to take the first step and then another.
+*Hope moves us to action.* A ten-year-old girl said, “I hope I can grow up to be a good person and always obey the commandments.” With determination, she is starting today to reach her lifetime goals. When we have no hope for tomorrow, we do not move as effectively today. It is hope combined with faith that motivates us to plant the seed, that moves us when we’re too weary, that causes us to take the first step and then another.
 
 Young girls, you will have many challenges in your lives, but if you will always center your life in Jesus Christ and never lose hope, you will have peace. Remember that darkness has no power against the light.
 
 Like the brother of Jared, like our family with Amy, it is only with the Lord’s light that we can see all things clearly.
 
 I pray that each of us will seek this gift of hope so that we will be filled with joy and with peace, in the name of Jesus Christ, amen.
+
+
+
 

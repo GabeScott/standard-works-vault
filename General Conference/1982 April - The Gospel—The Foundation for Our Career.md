@@ -1,5 +1,6 @@
 # The Gospel—The Foundation for Our Career
-*By Boyd K. Packer - Of the Quorum of the Twelve Apostles*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -7,33 +8,33 @@
 
 There is a recurring theme in the revelations having to do with learning. And, from the beginning, Church leaders have counseled us to get all of the education we can as a preparation for and as an improvement of our careers. For example:
 
-“Seek ye diligently and teach one another words of wisdom; yea, seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.” (D&C 88:118; italics added. See also D&C 90:15; 109:7.)
+“Seek ye diligently and teach one another words of wisdom; yea, seek ye out of the best books words of wisdom; seek learning, even by *study* and also by *faith.*” ([[D&C 88.118|D&C 88:118]]; italics added. See also [[D&C 90.15|D&C 90:15]]; [[D&C 109.7|109:7]].)
 
-Learning is to be accompanied by faith, and as the Book of Mormon teaches us, learning “is good if [we] hearken unto the counsels of God.” (2 Ne. 9:29.)
+Learning is to be accompanied by faith, and as the Book of Mormon teaches us, learning “is good if \[we\] hearken unto the counsels of God.” ([[2 Nephi 9.29|2 Ne. 9:29]].)
 
 There is one thought that must come at the very beginning of a discussion on occupations and careers in order to establish it as preeminent, and it is this:
 
-Do not ever belittle anyone, including yourself, nor count them, or you, a failure, if your livelihood has been modest. Do not ever look down on those who labor in occupations of lower income. There is great dignity and worth in any honest occupation. Do not use the word menial for any labor that improves the world or the people who live in it.
+Do not ever belittle anyone, including yourself, nor count them, or you, a failure, if your livelihood has been modest. Do not ever look down on those who labor in occupations of lower income. There is great dignity and worth in any honest occupation. Do not use the word *menial* for any labor that improves the world or the people who live in it.
 
 There is no shame in any honorable work, and the principle of faith, which the Lord connected with learning, is precious above the technologies of man.
 
-There will be many who struggle through life with small ownership and low income who discover, because they have been decent, the meaning of the scripture, “He that is greatest among you,” let him be “the least and the servant of all.” (Matt. 23:11; D&C 50:26.)
+There will be many who struggle through life with small ownership and low income who discover, because they have been decent, the meaning of the scripture, “He that is greatest among you,” let him be “the least and the servant of all.” ([[Matthew 23.11|Matt. 23:11]]; [[D&C 50.26|D&C 50:26]].)
 
-While schooling and education generally go together, there are kinds of wisdom which are not usually taught in school classrooms.
+While *schooling* and *education* generally go together, there are kinds of wisdom which are not usually taught in school classrooms.
 
 To illustrate, I begin with the Old Testament record of Naaman who, as the commander of the armies of Syria, had “given deliverance” to his country. He became a leper and the king of Syria feared he would die.
 
 An Israelite slave girl who served Naaman’s wife spoke of prophets in Israel who had the power to heal.
 
-The king of Syria sent a message to the king of Israel saying, “I have ... sent Naaman my servant to thee, that thou mayest recover him of his leprosy.” The king of Israel suspected a plot and complained, “He seeketh a quarrel against me. ... Am I God, to kill and to make alive, that this man doth send unto me to recover a man of his leprosy?”
+The king of Syria sent a message to the king of Israel saying, “I have … sent Naaman my servant to thee, that thou mayest recover him of his leprosy.” The king of Israel suspected a plot and complained, “He seeketh a quarrel against me. … Am I God, to kill and to make alive, that this man doth send unto me to recover a man of his leprosy?”
 
-Elisha, the prophet, heard of the king’s distress. And “he sent to the king, saying, ... let him come now to me.” Elisha would heal Naaman, and he told why: that “he shall know that there is a prophet in Israel.”
+Elisha, the prophet, heard of the king’s distress. And “he sent to the king, saying, … let him come now to me.” Elisha would heal Naaman, and he told why: that “he shall know that there is a prophet in Israel.”
 
-When Naaman was near, Elisha sent a messenger to him, saying, “Go and wash in Jordan seven times, ... and thou shalt be clean.” Naaman was angry. There were rivers aplenty in Syria, as good, he thought, as the Jordan. He had expected Elisha to perform some impressive ceremony like clapping his hands upon him. And he “turned ... away in a rage.”
+When Naaman was near, Elisha sent a messenger to him, saying, “Go and wash in Jordan seven times, … and thou shalt be clean.” Naaman was angry. There were rivers aplenty in Syria, as good, he thought, as the Jordan. He had expected Elisha to perform some impressive ceremony like clapping his hands upon him. And he “turned … away in a rage.”
 
-But one of his servants (it seems there is always a servant) courageously chastised the general and said, “If the prophet had bid thee do some great thing, wouldest thou not have done it?”
+But one of his servants (it seems there is always a servant) courageously chastised the general and said, “If the prophet had bid thee do some *great* thing, wouldest thou not have done it?”
 
-Humbled by his servant, Naaman “went ... down, and dipped himself seven times in Jordan, according to the saying of the man of God: ... and he was clean.” (2 Kgs. 5:1–14; italics added.)
+Humbled by his servant, Naaman “went … down, and dipped himself seven times in Jordan, according to the saying of the man of God: … and he was clean.” ([[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]]; italics added.)
 
 Human nature hasn’t changed over the years. Even today some of us expect to be bidden to do some “great things” in order to receive the blessings of the Lord. When we receive ordinary counsel on ordinary things, there is disappointment, and, like Naaman, we turn away.
 
@@ -47,15 +48,15 @@ Already there is a fulfillment. Families who might have afforded a home when fir
 
 For some reason, we expect to hear, particularly in welfare sessions, some ominous great predictions of calamities to come. Instead, we hear quiet counsel on ordinary things which, if followed, will protect us in times of great calamity.
 
-It was Alma the prophet who said, “By small and simple things are great things brought to pass; and small means in many instances doth confound the wise.” (Alma 37:6.)
+It was Alma the prophet who said, “By small and simple things are great things brought to pass; and small means in many instances doth confound the wise.” ([[Alma 37.6|Alma 37:6]].)
 
 Now, all of this was to prepare you for the fact that the counsel I will give may seem ordinary, even trivial to some of you. But it will be consistent with the doctrines and principles announced by the First Presidency when the welfare program was first introduced:
 
-“Our primary purpose [is] to set up, in so far as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self-respect be once more established amongst our people. The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (In Conference Report, Oct. 1936, p. 3.)
+“Our primary purpose \[is\] to set up, in so far as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self-respect be once more established amongst our people. The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (In Conference Report, Oct. 1936, p. 3.)
 
 That emphasis, on self-reliance, suggests something about education. We cannot expect the Church to assume responsibility for the schooling of all of us.
 
-One of the questions most often asked of General Authorities as we travel usually begins in this way: “Why doesn’t the Church ... ?” And then there follows a description of some worthy project that would, if it should succeed, bring credit to the Church and benefit many people.
+One of the questions most often asked of General Authorities as we travel usually begins in this way: “Why doesn’t the Church … ?” And then there follows a description of some worthy project that would, if it should succeed, bring credit to the Church and benefit many people.
 
 For example, why doesn’t the Church establish schools to prepare members for financial security?
 
@@ -65,33 +66,33 @@ I counseled him to go back to high school and get his diploma. He thought he cou
 
 The lesson is this. I only spent ten minutes with him, sitting on a log by our front gate. I did not build a school nor ask the Church to build one. I did not pay his tuition or prepare his lessons. What he needed was some direction, some counsel, some encouragement, and some vision. In this case he took the counsel and returned to school. Now he has a family and an occupation.
 
-I only gave him vision and encouragement. It does not take additional Church budget to do that. That is the responsible role of every priesthood leader in counseling members on careers. We must help people to help themselves.
+I only gave him vision and encouragement. It does not take additional Church budget to do that. That is the responsible role of every priesthood leader in counseling members on careers. We must help people *to help themselves.*
 
 Several years ago a certain country was emerging from a long period of political and economic distress, and there was a need for skilled workers of many kinds. Some of our local leaders, sensing the need, conceived the idea of establishing vocational schools in our chapels to train the brethren in their skills. They could then upgrade themselves in their employment. It was a very appealing idea.
 
 They pointed out that the money expended would be justified on the basis that these brethren would return in tithes more than the cost of the program. They were greatly disappointed when the Brethren did not approve their idea.
 
-There were several things they’d not considered. The most important was that vocational training was already available to those who really looked for it. Classes to train new employees, and to upgrade the experienced ones, were offered by business and industry, and by their government.
+There were several things they’d not considered. The most important was that vocational training was already available to those who *really* looked for it. Classes to train new employees, and to upgrade the experienced ones, were offered by business and industry, and by their government.
 
 What our brethren needed most was counsel and encouragement to take advantage of opportunities that were already available.
 
 We ourselves are responsible to seek out and take advantage of every opportunity to improve ourselves.
 
-Now, there are some things that the Church must do, for we are commanded to do them. We must preach the gospel. We must build temples. We must perfect the Saints. These things others cannot do. The many other good things (which are not central to the mission of the Church) must take second place. For we do not have the resources to do all that is worth doing, however worthy it may be.
+Now, there are some things that the Church *must* do, for we are commanded to do them. We must preach the gospel. We must build temples. We must perfect the Saints. These things others cannot do. The many other good things (which are not central to the mission of the Church) must take second place. For we do not have the resources to do all that *is* worth doing, however worthy it may be.
 
-While we cannot build schools for everyone, there is a most important contribution the Church can make to our careers, one that is central to the mission of the Church. And that is to teach moral and spiritual values.
+While we cannot build schools for everyone, there is a most important contribution the Church *can* make to our careers, one that *is* central to the mission of the Church. And that is to teach moral and spiritual values.
 
 There are ordinary virtues which influence our careers even more than technical training; among them are these:
 
-Integrity.
+- Integrity.
 
-Dependability.
+- Dependability.
 
-Courtesy.
+- Courtesy.
 
-Respect for others.
+- Respect for others.
 
-Respect for property.
+- Respect for property.
 
 Let me illustrate one or two of these.
 
@@ -139,9 +140,12 @@ We can, however, improve ourselves. The only tuition required is the time it tak
 
 I hope you have not been too disappointed that I have not presented some “great thing” for you to do, some elaborate formula for career planning, rather than such ordinary things so obvious, so close to us, that they are often overlooked.
 
-There is a formula. The Lord said, “Verily I say unto you, that every man who is obliged to provide for his own family, let him provide, and he shall in nowise lose his crown; and let him labor in the church.” (D&C 75:28; italics added.)
+There is a formula. The Lord said, “Verily I say unto you, that every man who is obliged to provide for his own family, let him provide, and he shall in nowise lose his crown; *and let him labor in the church.*” ([[D&C 75.28|D&C 75:28]]; italics added.)
 
 The gospel of Jesus Christ is the formula for success. Every principle of the gospel, when lived, has a positive influence over your choice of an occupation and on what you will achieve. The counsel to labor in the Church has great value. Living the gospel will give you a perspective and an inspiration that will see you successful however ordinary your work may be or however ordinary your life may seem to others.
 
 God bless the members of this Church, that you can be happy with who you are and where you are, that you can improve yourselves. We pray that God will bless those who are struggling now with unemployment, with the loss of their employment, with the fear of that loss. May he bless us that we can build into our lives those principles of reliance and integrity that have been part of the gospel from the very beginning, for the gospel is true. Of this I bear witness, in the name of Jesus Christ, amen.
+
+
+
 

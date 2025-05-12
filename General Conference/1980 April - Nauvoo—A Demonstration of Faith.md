@@ -1,5 +1,6 @@
 # Nauvoo—A Demonstration of Faith
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -13,17 +14,17 @@ The Prophet Joseph Smith was forced to remain the long winter months from Novemb
 
 Even though the Prophet was haggard, pale, and penniless after his long confinement, it did not take him long to make his leadership felt. He found a swamp where the Mississippi makes a horseshoe bend. It was practically deserted; there were only a half-dozen houses. It was a place in which nobody seemed to have a great interest. The owners of this mosquito-infested swamp were happy to sell the land to the penniless Saints for promissory notes, payable over a term of years.
 
-“Characteristic of the Prophet, he renamed the place to meet his desires. Not what it was, but what, with the faith and work of man, the region might become—‘Nauvoo, the City Beautiful’” (William E. Berrett, The Restored Church, Salt Lake City: Deseret Book Co., 1965, p. 149).
+“Characteristic of the Prophet, he renamed the place to meet his desires. Not what it was, but what, with the faith and work of man, the region might become—‘Nauvoo, the City Beautiful’” (William E. Berrett, *The Restored Church,* Salt Lake City: Deseret Book Co., 1965, p. 149).
 
 The faith of the Prophet rallied the people, and a special zeal seldom witnessed in all of man’s history swept over this people. “That deep and abiding strength was to change a swamp into a great city; miserable shelters into splendid houses; penniless people to the most prosperous citizens of Illinois. That missionary zeal was to carry the gospel into many lands and double the membership of the Church. And all of this in the short time of five years!
 
-“What a program. And what an accomplishment! A people stripped of all earthly possessions, money, homes, factories, lands, rebuilt in five short years, a city-state which was the envy of long-settled communities” (Berrett, The Restored Church, p. 150). A miracle had occurred!
+“What a program. And what an accomplishment! A people stripped of all earthly possessions, money, homes, factories, lands, rebuilt in five short years, a city-state which was the envy of long-settled communities” (Berrett, *The Restored Church,* p. 150). A miracle had occurred!
 
-Colonel Thomas L. Kane, in a speech before the Historical Society of Philadelphia, gave this graphic picture of Nauvoo:
+Colonel Thomas L. Kane, in a speech before the Historical Society of Philadelphia, gave this graphic picture of Nauvoo:
 
 “A few years ago, ascending the upper Mississippi in the autumn, when its waters were low, I was compelled to travel by land past the region of the rapids. My road lay through the Half Breed tract, a fine section of Iowa, which the unsettled state of its land titles had appropriated as a sanctuary for coiners, horse thieves and other outlaws. I had left my steamer at Keokuk at the foot of the lower falls, to hire a carriage and to contend for some fragments of a dirty meal with the swarming flies, the only scavengers of the locality.
 
-“From this place to where the deep water of the river returns my eye wearied to see everywhere sordid vagabonds and idle settlers, and a country marred without being improved by their careless hands. I was descending the last hillside upon my journey, when a landscape in delightful contrast broke upon my view. Half encircled by a bend of the river, a beautiful city lay glittering in the fresh morning sun. Its bright new dwellings [were] set in cool green gardens ranging up around a stately dome-shaped hill, which was crowned by a noble marble edifice, whose high tapering spire was radiant with white and gold. The city appeared to cover several miles, and beyond it, in the background, there rolled off a fair country chequered by the careful lines of fruitful husbandry. The unmistakable marks of industry, enterprise and educated wealth everywhere, made the scene one of singular and most striking beauty” (Memoirs of John R. Young, Utah Pioneer, 1847, Salt Lake City: The Deseret News, 1920, p. 31).
+“From this place to where the deep water of the river returns my eye wearied to see everywhere sordid vagabonds and idle settlers, and a country marred without being improved by their careless hands. I was descending the last hillside upon my journey, when a landscape in delightful contrast broke upon my view. Half encircled by a bend of the river, a beautiful city lay glittering in the fresh morning sun. Its bright new dwellings \[were\] set in cool green gardens ranging up around a stately dome-shaped hill, which was crowned by a noble marble edifice, whose high tapering spire was radiant with white and gold. The city appeared to cover several miles, and beyond it, in the background, there rolled off a fair country chequered by the careful lines of fruitful husbandry. The unmistakable marks of industry, enterprise and educated wealth everywhere, made the scene one of singular and most striking beauty” (*Memoirs of John R. Young, Utah Pioneer, 1847,* Salt Lake City: The Deseret News, 1920, p. 31).
 
 Each time I visit Nauvoo today, my heart swells with pride at the accomplishments of the early Saints. I marvel at its beauty, as a portion of this miracle city has been restored under the careful direction of Dr. LeRoy Kimball.
 
@@ -31,9 +32,9 @@ I reflect on what made this city so different from others I have studied in hist
 
 “Therefore take no thought, saying, What shall we eat? or, What shall we drink? or, Wherewithal shall we be clothed?
 
-“... For your heavenly Father knoweth that ye have need of all these things.
+“… For your heavenly Father knoweth that ye have need of all these things.
 
-“But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you” (Matt. 6:31–33).
+“But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you” ([[Matthew 6.31|Matt. 6:31–33]][[Matthew 6.32|]][[Matthew 6.33|]]).
 
 Emerging out of the struggles to build Nauvoo are two fundamental principles which, when I think about them, are as necessary for our success today in 1980 as they were in 1840. First, there was a deep and abiding faith in the gospel of Jesus Christ. I marvel how tents and dugouts changed to beautiful brick and frame homes. The difference was the voice of a prophet rallying the Saints to put their trust in the Lord.
 
@@ -54,4 +55,7 @@ The history of the Lord’s dealings with His children, as revealed through His 
 Second is the process of laboring together to use the power of a child of God to build a better world. In this jubilee year let the trump sound again from the tops of the mountains. Let us rejoice and appreciate the accomplishments of the past. But more importantly, let this be a year of determined effort to teach correct principles with all of the energy we can muster. Let us learn to work together to make our homes places of love and beauty, our communities clean and wholesome, our nation fit for the blessings of the Lord, and the world a place where peace and understanding can dwell in the hearts of all mankind.
 
 I want to add my testimony to this historic conference. God lives. Jesus is the Christ. The greatest joy we can find on this earth is conforming our lives to His principles. This I humbly pray, in the name of Jesus Christ, amen.
+
+
+
 

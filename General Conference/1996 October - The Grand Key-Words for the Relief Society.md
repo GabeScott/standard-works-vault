@@ -1,5 +1,6 @@
 # The Grand Key-Words for the Relief Society
-*By James E. Faust - Second Counselor in the First Presidency*
+
+By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1996 General Conference*
 
@@ -13,11 +14,11 @@ A year ago in this meeting, President Gordon B. Hinckley, speaking for the First
 
 I revere the influence and accomplishments of Relief Society. It is the greatest women’s organization in the world. You are especially privileged to belong to this wonderful organization. My life has been richly blessed because of Relief Society. My great-grandmother was a ward Relief Society president for 33 years. I have been married to both the stake and ward Relief Society president! Both the same woman! Our eldest daughter now serves as ward Relief Society president. One of our daughters-in-law is a stake Relief Society president. As my dear Ruth faithfully attended Relief Society over the years, our home and family was blessed with more of spirituality and peace. Things seemed to go smoother because of the spiritual enrichment she received. I feel well schooled in the benefits of Relief Society. I learned long ago to sustain the priesthood and not get in the way of Relief Society.
 
-The Prophet Joseph Smith spoke of this society and quoted the Savior’s words: “‘Ye shall do the work, which ye see me do.’ These are the grand key-words for the society to act upon.”1
+The Prophet Joseph Smith spoke of this society and quoted the Savior’s words: “‘Ye shall do the work, which ye see me do.’ These are the grand key-words for the society to act upon.”[^1]
 
-For the daughters of God, doing the Savior’s work does not, of course, include the use of priesthood keys, authority, or powers. But it does include building faith by testimony and example. It includes teaching the doctrines of salvation. It includes following the Savior’s example of love for all mankind. It includes ministering to others, for, as the Prophet Joseph said when the Relief Society was organized, “This is a charitable Society, and according to your natures; it is natural for females to have feelings of charity and benevolence.”2 “Let the weight of your innocence, kindness and affection be felt ... ; not war, not jangle, not contradiction, or dispute, but meekness, love, purity—these are the things that should magnify you in the eyes of all good men.”3
+For the daughters of God, doing the Savior’s work does not, of course, include the use of priesthood keys, authority, or powers. But it does include building faith by testimony and example. It includes teaching the doctrines of salvation. It includes following the Savior’s example of love for all mankind. It includes ministering to others, for, as the Prophet Joseph said when the Relief Society was organized, “This is a charitable Society, and according to your natures; it is natural for females to have feelings of charity and benevolence.”[^2] “Let the weight of your innocence, kindness and affection be felt … ; not war, not jangle, not contradiction, or dispute, but meekness, love, purity—these are the things that should magnify you in the eyes of all good men.”[^3]
 
-This charge to the women of the Church carries a promise. Said the Prophet Joseph: “If you live up to these principles, how great and glorious will be your reward in the celestial kingdom! If you live up to your privileges, the angels cannot be restrained from being your associates.”4
+This charge to the women of the Church carries a promise. Said the Prophet Joseph: “If you live up to these principles, how great and glorious will be your reward in the celestial kingdom! If you live up to your privileges, the angels cannot be restrained from being your associates.”[^4]
 
 Your God-given role as nurturers has never been more needed. This gift is unique to your womanhood. Men are not so richly endowed with these gifts. The highest expression of this gift is motherhood, but it is also manifested in many other ways. One of these is the great intuition enjoyed by women. One of our faithful ward Relief Society presidents recalls a prompting she had:
 
@@ -25,7 +26,7 @@ Your God-given role as nurturers has never been more needed. This gift is unique
 
 “She invited me in, and I found out on that Easter Sunday that her husband had left her earlier that week. Her children had been wondering where their daddy was. And she prayed for help for the first time in a long while. We were then able to get her family involved, and our bishop and his counselor came and helped mend the crisis so that the family got back together again.
 
-“This experience taught me the importance of listening to the Spirit and following the promptings when they come. I’ve learned much from my experience of ‘leaving the ninety and nine’ to go and ‘find the one.’”5
+“This experience taught me the importance of listening to the Spirit and following the promptings when they come. I’ve learned much from my experience of ‘leaving the ninety and nine’ to go and ‘find the one.’”[^5]
 
 How can any faithful sister in this Church feel that she is unimportant if she is to do the work which the Savior did? Inherent in this is the forgetting of self and the serving of others.
 
@@ -45,13 +46,13 @@ Part of the problem is for us to live the eternal principles faithfully every da
 
 “Sundays were difficult when my children were small—getting them ready and then having them sit through three hours of meetings. Often they became tired, hungry, or even bored because the meetings were geared to an adult level. Sometimes I wondered if it was worth the effort. I seldom felt spiritually fed because I was trying so hard to help my children be reverent.
 
-“Looking back now, I can see that those early Church experiences for my children were the beginnings of a firm foundation upon which they could continue to build. Because they were there each week, they gradually learned the importance of the sacrament; they learned to listen, to be reverent, to recognize the sweet feelings of the Spirit; and their testimonies began to blossom. I recognize that this is a unique and precious time for us when our children are small and need our guidance. Now my children are grown I can clearly see that my constant, repetitive efforts were worthwhile.”6
+“Looking back now, I can see that those early Church experiences for my children were the beginnings of a firm foundation upon which they could continue to build. Because they were there each week, they gradually learned the importance of the sacrament; they learned to listen, to be reverent, to recognize the sweet feelings of the Spirit; and their testimonies began to blossom. I recognize that this is a unique and precious time for us when our children are small and need our guidance. Now my children are grown I can clearly see that my constant, repetitive efforts were worthwhile.”[^6]
 
 To meet the challenges of the eternal every day, every sister will be strengthened by daily communion with our Heavenly Father through prayer. Scriptural study will be beneficial in bringing spiritual reassurances. Attending sacrament meeting, partaking of the sacred emblems, and the renewal of our covenants will be a weekly source of strength.
 
-The sisters who try to cope with the myriad of challenges of our complex times can benefit from the sisterhood of the Church more than ever before. The words of Sister Lucy Mack Smith in one of the first meetings of the Relief Society are as relevant today as when first spoken. She said, “We must cherish one another, watch over one another, comfort one another and gain instruction, that we may all sit down in heaven together.”7
+The sisters who try to cope with the myriad of challenges of our complex times can benefit from the sisterhood of the Church more than ever before. The words of Sister Lucy Mack Smith in one of the first meetings of the Relief Society are as relevant today as when first spoken. She said, “We must cherish one another, watch over one another, comfort one another and gain instruction, that we may all sit down in heaven together.”[^7]
 
-Three sisters who live on an island near Tavira, Portugal, are so committed to attending Church meetings that each Sunday finds them walking half a mile to a waterway, where they are rowed across, then walking another five miles to the chapel. Sister Pereira is 62, Sister Neves is 73, and Sister Jesus is 84. These sisters get together every day to read the scriptures and strengthen each other spiritually.8
+Three sisters who live on an island near Tavira, Portugal, are so committed to attending Church meetings that each Sunday finds them walking half a mile to a waterway, where they are rowed across, then walking another five miles to the chapel. Sister Pereira is 62, Sister Neves is 73, and Sister Jesus is 84. These sisters get together every day to read the scriptures and strengthen each other spiritually.[^8]
 
 The bearing of testimony benefits both the one testifying as well as the one listening. Regular temple attendance will help us meet all our challenges. Accepting calls from priesthood leaders as well as visiting teaching assignments from the Relief Society president will be a great strengthening experience. In rendering compassionate service individually and as a group, you lose sight of your own problems and do the work the Savior did.
 
@@ -60,4 +61,23 @@ Recently I met with a family who had lost a precious son through an unfortunate 
 Sisters, we live in the greatest time in the history of the Church. Your opportunities to serve and bless others are endless. Your contribution to the work of God has never been greater. Your unique and special contributions are greatly needed to strengthen our homes, to teach our children and youth, and to help others. Your example of righteousness is indispensable to the onrolling of the kingdom of God.
 
 May God bless each of you, my dear sisters, for all you are and all you do. May His peace attend you. I testify that we are all in this holy work of God. We cannot deny the evidence of this as we see it roll forth throughout the world. I love the Lord and am humbled to be engaged in this holy work with you. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 239.
+
+[^2]: *Teachings,* 226.
+
+[^3]: *Teachings,* 227.
+
+[^4]: *Teachings,* 226–27.
+
+[^5]: From personal files.
+
+[^6]: From personal files.
+
+[^7]: Relief Society Minutes of Nauvoo, 24 Mar. 1842; in *History of Relief Society 1842–1966* (1966), 20.
+
+[^8]: As told by Erma Adams Kunzler, former missionary in Portugal.
 

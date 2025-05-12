@@ -1,39 +1,42 @@
 # “Some Great Thing”
-*By James E. Faust - Second Counselor in the First Presidency*
+
+By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2001 General Conference*
+
+>*May we all be faithful in doing the day-to-day, ordinary things that prove our worthiness, for they will lead us to and qualify us for great things.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2001/10/some-great-thing?lang=eng)
 
 My beloved brethren of the priesthood of God all over the world, I am pleased to be counted as one of you. This evening I would like to challenge the priesthood of the Church to be more committed in doing those things which build faith, character, and spirituality. These are the routine priesthood obligations we should be doing daily, weekly, monthly—year in and year out. The work of the Church depends upon basics such as paying tithes; taking care of family and priesthood duties; caring for the poor and the needy; having daily prayer, scripture study, and family home evening; home teaching; participation in quorum activity; and attending the temple. If called upon by the President of the Church, we would be ready, able, and willing to do “some great thing,” such as working on the Nauvoo temple, but many are not quite so anxious to do some of these basics.
 
-We are all familiar with the Old Testament story of Naaman, the captain of the Syrian hosts, who was a leper. A little Israelite servant told Naaman’s wife that there was a prophet in Israel who could heal him. Naaman came with his chariot and horses to the house of Elisha, who sent a messenger to instruct Naaman, “Go and wash in Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean.”1
+We are all familiar with the Old Testament story of Naaman, the captain of the Syrian hosts, who was a leper. A little Israelite servant told Naaman’s wife that there was a prophet in Israel who could heal him. Naaman came with his chariot and horses to the house of Elisha, who sent a messenger to instruct Naaman, “Go and wash in Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean.”[^1]
 
-You younger boys know how it is when you show your hands to your mother: she’ll tell you to go and wash! But Naaman was not a young boy. He was the captain of the Syrian hosts, and he was offended by Elisha’s instruction to wash in the Jordan. So he “went away in a rage.”2 One of Naaman’s servants with a wise head remonstrated with him and said: “If the prophet had bid thee [to] do some great thing, wouldest thou not have done it? how much rather then, when he saith to thee, Wash, and be clean?”3 Naaman then repented and followed the counsel of the prophet. The leprosy disappeared, and “his flesh came again like unto the flesh of a little child, and he was clean.”4 “Some great thing” in this instance was extraordinarily simple and easy to do.
+You younger boys know how it is when you show your hands to your mother: she’ll tell you to go and wash! But Naaman was not a young boy. He was the captain of the Syrian hosts, and he was offended by Elisha’s instruction to wash in the Jordan. So he “went away in a rage.”[^2] One of Naaman’s servants with a wise head remonstrated with him and said: “If the prophet had bid thee \[to\] do some great thing, wouldest thou not have done it? how much rather then, when he saith to thee, Wash, and be clean?”[^3] Naaman then repented and followed the counsel of the prophet. The leprosy disappeared, and “his flesh came again like unto the flesh of a little child, and he was clean.”[^4] “Some great thing” in this instance was extraordinarily simple and easy to do.
 
 We have in the modern history of the Church contrasting examples of men who were highly favored of the Lord. One, Hyrum Smith, remained totally faithful and committed, even to the giving of his life, while the other, Oliver Cowdery, despite having witnessed “some great things” in the history of the Restoration, became blinded by his personal ambition and lost his exalted place in the leadership of the Church.
 
-Oliver Cowdery shared with the Prophet Joseph Smith many of the profound events of the Restoration, such as their baptism under the authority of John the Baptist, the conferral of the Aaronic Priesthood, the marvelous appearances in the Kirtland Temple, and writing with his own pen “the entire Book of Mormon (save a few pages) as it fell from the lips of the Prophet [Joseph Smith].”5 No one except the Prophet Joseph was more honored with the ministering of angels than Oliver Cowdery.
+Oliver Cowdery shared with the Prophet Joseph Smith many of the profound events of the Restoration, such as their baptism under the authority of John the Baptist, the conferral of the Aaronic Priesthood, the marvelous appearances in the Kirtland Temple, and writing with his own pen “the entire Book of Mormon (save a few pages) as it fell from the lips of the Prophet \[Joseph Smith\].”[^5] No one except the Prophet Joseph was more honored with the ministering of angels than Oliver Cowdery.
 
-But when the Prophet Joseph fell upon hard times, Oliver was critical of him and became estranged from him. Despite the efforts of the Prophet to reach out the hand of fellowship to him, he became hostile to the Prophet and the Church and was excommunicated 12 April 1838.
+But when the Prophet Joseph fell upon hard times, Oliver was critical of him and became estranged from him. Despite the efforts of the Prophet to reach out the hand of fellowship to him, he became hostile to the Prophet and the Church and was excommunicated on April 12, 1838.
 
-A few years after the death of the Prophet, Oliver repented and expressed interest in coming back to the Church. In response, Brigham Young wrote on 22 November 1847, inviting him to “return to our father’s house, from whence thou hast wandered, ... and renew thy testimony to the truth of the Book of Mormon.”6 Oliver appeared before the high priests quorum and said: “Brethren for a number of years I have been separated from you. I now desire to come back. I wish to come humbly and be one in your midst.—I seek no station. I only wish to be identified with you.—I am out of the church. I am not a member of the church. I wish to become a member of the church again. I wish to come in at the door. I know the door. I have not come here to seek precedence. I come humbly and throw myself upon the decision of this body—knowing as I do that their decisions are right and should be obeyed.”7
+A few years after the death of the Prophet, Oliver repented and expressed interest in coming back to the Church. In response, Brigham Young wrote on November 22, 1847, inviting him to “return to our father’s house, from whence thou hast wandered, … and renew thy testimony to the truth of the Book of Mormon.”[^6] Oliver appeared before the high priests quorum and said: “Brethren for a number of years I have been separated from you. I now desire to come back. I wish to come humbly and be one in your midst.—I seek no station. I only wish to be identified with you.—I am out of the church. I am not a member of the church. I wish to become a member of the church again. I wish to come in at the door. I know the door. I have not come here to seek precedence. I come humbly and throw myself upon the decision of this body—knowing as I do that their decisions are right and should be obeyed.”[^7]
 
-He also bore his testimony in these words: “Friends and brethren my name is Cowdery, Oliver Cowdery. In the early history of this church I stood identified with [you]. ... I ... handled with my hands the gold plates from which [the Book of Mormon] was translated. I also beheld the interpreters. That book is true. Sidney Rigdon did not write it. Mr. Spaulding did not write it. I wrote it myself as it fell from the lips of the prophet.”8 Even though Oliver came back, he lost his exalted place in the Church.
+He also bore his testimony in these words: “Friends and brethren my name is Cowdery, Oliver Cowdery. In the early history of this church I stood identified with \[you.\] I … handled with my hands the gold plates from which \[the Book of Mormon\] was translated. I also beheld the interpreters. That book is true. Sidney Rigdon did not write it. Mr. Spaulding did not write it. I wrote it myself as it fell from the lips of the prophet.”[^8] Even though Oliver came back, he lost his exalted place in the Church.
 
-In contrast, President Heber J. Grant said of Hyrum Smith: “There is no better example of an older brother’s love than that exhibited in the life of Hyrum Smith for the Prophet Joseph Smith. ... They were as united and as affectionate and as loving as mortal men could be. ... There never was one particle of ... jealousy ... in the heart of Hyrum Smith. No mortal man could have been more loyal, more true, more faithful in life or in death than was Hyrum Smith to the Prophet of the living God.”9
+In contrast, President Heber J. Grant said of Hyrum Smith: “There is no better example of an older brother’s love than that exhibited in the life of Hyrum Smith for the Prophet Joseph Smith. … They were as united and as affectionate and as loving as mortal men could be. … There never was one particle of … jealousy in the heart of Hyrum Smith. No mortal man could have been more loyal, more true, more faithful in life or in death than was Hyrum Smith to the Prophet of the living God.”[^9]
 
-He responded to every need and request from his younger brother, Joseph, who led the Church and received the revelations which we have today. Hyrum was steadfast day to day, month by month, year in and year out.
+He responded to every need and request from his younger brother Joseph, who led the Church and received the revelations which we have today. Hyrum was steadfast day to day, month by month, year in and year out.
 
-After their brother Alvin’s death, Hyrum finished building the white frame home for their parents. After Joseph had received the golden plates, Hyrum provided the wooden box to store and protect them. When the plates had been translated, Joseph entrusted Hyrum with the printer’s copy of the manuscript. Hyrum, often accompanied by Oliver Cowdery, carried pages to and from the typesetter daily.10
+After their brother Alvin’s death, Hyrum finished building the white frame home for their parents. After Joseph had received the golden plates, Hyrum provided the wooden box to store and protect them. When the plates had been translated, Joseph entrusted Hyrum with the printer’s copy of the manuscript. Hyrum, often accompanied by Oliver Cowdery, carried pages to and from the typesetter daily.[^10]
 
-Hyrum worked as a farmer and laborer to support his family, but after the Church was organized in 1830 he accepted the call to preside over the Colesville Branch. He took his wife and family and went to live with the Newel Knight family, spending much of his time “preaching the gospel wherever [he] could find any who would listen.”11 Ever a good missionary, he not only preached near his home but also went to the eastern seaboard and southward in the United States. In 1831 he went with John Murdock to Missouri and back, preaching along the way.12
+Hyrum worked as a farmer and laborer to support his family, but after the Church was organized in 1830 he accepted the call to preside over the Colesville Branch. He took his wife and family and went to live with the Newel Knight family, spending much of his time “preaching the gospel wherever \[he\] could find any who would listen.”[^11] Ever a good missionary, he not only preached near his home but also went to the eastern seaboard and southward in the United States. In 1831 he went with John Murdock to Missouri and back, preaching along the way.[^12]
 
 When the construction of the Kirtland Temple was envisioned in 1833, Hyrum immediately took his scythe and cleared weeds from the temple site and began digging the foundation. In 1834 when Zion’s Camp was organized, Hyrum assisted Lyman Wight in recruiting members of the camp and led a group of Saints from Michigan to Missouri.
 
 Being thus proved in the little things, Hyrum became an Assistant President of the Church in December of 1834. He served under the direction of his younger brother, the Prophet Joseph. He was ever a source of strength and comfort to his brother, whether in Church service or in the Liberty Jail. As persecutions came and Joseph fled the mob at Nauvoo in 1844, Hyrum went with him. As they stood on the bank of the river, contemplating whether to return, Joseph turned to Hyrum and said, “You are the oldest, what shall we do?”
 
-“Let us go back and give ourselves up and see the thing out,”13 Hyrum replied.
+“Let us go back and give ourselves up and see the thing out,”[^13] Hyrum replied.
 
 They returned to Nauvoo and were taken to Carthage, where they died as martyrs within minutes of one another. Hyrum had been faithful to his trust even to the laying down of his life. In all respects he was a disciple of the Savior. But his day-to-day striving made him truly great. In contrast, Oliver Cowdery was great when handling the plates and being attended to by angels, but when called upon to faithfully endure day-to-day trials and challenges, Oliver faltered and fell away from the Church.
 
@@ -41,23 +44,60 @@ We do not prove our love for the Savior only by doing “some great thing.” If
 
 Elder Hill was a world authority on coal and a renowned scientist. He received multiple awards and honors for his scientific achievements. He was dean of the College of Mines and Mineral Resources and Envirotech professor of engineering at the University of Utah. But as a person, Elder Hill was humble, self-effacing, and totally dedicated. He served as the bishop of three different wards and as a regional representative before being called as a General Authority. After his release as a General Authority, he became a counselor in a ward bishopric. His last callings, at a time when he was in failing health, were as stake cannery director and member of a ward choir. He filled these last callings with the same commitment as he had all the others. He did whatever he was called upon to do—it did not have to be “some great thing.”
 
-As a friend of mine once said, “When we sacrifice our talents or our earthly or academic honors or our increasingly limited time on the altar to God, the act of sacrifice binds our hearts to Him, and we feel our love for Him increase.”
+As a friend of mine once said: “When we sacrifice our talents or our earthly or academic honors or our increasingly limited time on the altar to God, the act of sacrifice binds our hearts to Him, and we feel our love for Him increase. When we render any service in the kingdom—be it teaching a … lesson or dry pack canning at Welfare Square—it will be of much less value to us if we only see it as a ‘To Do’ item. … But if we visualize ourselves laying on the altar to God our talents or our time commitment, such as in attending an inconvenient church meeting, then our sacrifice becomes personal and devotional to Him.”[^14]
 
-“When we render any service in the kingdom—be it teaching a ... lesson or dry pack canning at Welfare Square—it will be of much less value to us if we only see it as a ‘To Do’ item. ... But if we visualize ourselves laying on the altar to God our talents or our time commitment, such as in attending an inconvenient church meeting, then our sacrifice becomes personal and devotional to Him.”14
+A story shared by our beloved associate Elder Henry B. Eyring illustrates this principle of commitment still further. This story is about his father, the great scientist Henry Eyring, who served on the Bonneville Stake high council. He was responsible for the welfare farm, which included a field of onions that needed to be weeded. At that time, he was nearly 80 and suffering from painful bone cancer. He assigned himself to do weeding even though the pain was so great that he pulled himself along on his stomach with his elbows. The pain was too great for him to kneel. Yet he smiled, laughed, and talked happily with the others who were there that day weeding that field of onions. I now quote what Elder Eyring said of this incident:
 
-A story shared by our beloved associate, Elder Henry B. Eyring, illustrates this principle of commitment still further. This story is about his father, the great scientist Henry Eyring, who served on the Bonneville Stake high council. He was responsible for the welfare farm, which included a field of onions that needed to be weeded. At that time, he was nearly 80 and suffering from painful bone cancer. He assigned himself to do weeding even though the pain was so great that he pulled himself along on his stomach with his elbows. The pain was too great for him to kneel. Yet he smiled, laughed, and talked happily with the others who were there that day weeding that field of onions. I now quote what Elder Eyring said of this incident:
-
-“After all the work was finished and the onions were all weeded, someone [said to] him, ‘Henry, good heavens! You didn’t pull those weeds, did you? Those weeds were sprayed two days ago, and they were going to die anyway.’
+“After all the work was finished and the onions were all weeded, someone \[said to\] him, ‘Henry, good heavens! You didn’t pull *those* weeds, did you? Those weeds were sprayed two days ago, and they were going to die anyway.’
 
 “Dad just roared. He thought that was the funniest thing. He thought it was a great joke on himself. He had worked through the day in the wrong weeds. They had been sprayed and would have died anyway.
 
-“... I [asked] him, ‘Dad how could you make a joke out of that?’ ...
+“… I \[asked\] him, ‘Dad, how could you make a joke out of that?’ …
 
-“He said something to me that I will never forget. ... He said, ‘Hal, I wasn’t there for the weeds.’”15
+“He said something to me that I will never forget. … He said, ‘Hal, I wasn’t there for the weeds.’”[^15]
 
-Small things can have great potential. Television, which is a great blessing to mankind, was conceived by a teenager in Idaho as he was plowing straight furrows in his father’s field with a disc harrow. He envisioned that he could transmit straight lines from one image dissector to be reproduced in another.16 Often we cannot see the potential in doing seemingly small things. This 14-year-old boy was doing ordinary day-to-day work when this extraordinary idea came to him. As Nephi once commented, “And thus we see that by small means the Lord can bring about great things.”17
+Small things can have great potential. Television, which is a great blessing to mankind, was conceived by a teenager in Idaho as he was plowing straight furrows in his father’s field with a disc harrow. He envisioned that he could transmit straight lines from one image dissector to be reproduced in another.[^16] Often we cannot see the potential in doing seemingly small things. This 14-year-old boy was doing ordinary day-to-day work when this extraordinary idea came to him. As Nephi once commented, “And thus we see that by small means the Lord can bring about great things.”[^17]
 
 You young men are a chosen generation for whom the future holds great promise. The future may require you to compete with young men in a worldwide market. You need special training. You may be selected for training not because of some extraordinary achievement or great thing, but because you got your Eagle Scout Award, your Duty to God Award, graduated from seminary, or served a mission.
 
-In the parable of talents, the one who had increased his talents was told, “Well done, good and faithful servant; thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy lord.”18 May we all be faithful in doing the day-to-day, ordinary things that prove our worthiness, for they will lead us to and qualify us for great things. I bear witness of this in the name of Jesus Christ, amen.
+In the parable of talents, the one who had increased his talents was told, “Well done, good and faithful servant; thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy lord.”[^18] May we all be faithful in doing the day-to-day, ordinary things that prove our worthiness, for they will lead us to and qualify us for great things. I bear witness of this in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[2 Kings 5.10|2 Kgs. 5:10]].
+
+[^2]: [[2 Kings 5.12|2 Kgs. 5:12]].
+
+[^3]: [[2 Kings 5.13|2 Kgs. 5:13]].
+
+[^4]: [[2 Kings 5.14|2 Kgs. 5:14]].
+
+[^5]: Reuben Miller, journal, 1848–1849, Family and Church History Department Archives, 21 Oct. 1848; punctuation and spelling modernized.
+
+[^6]: Letter from Brigham Young to Oliver Cowdery, 22 Nov. 1847, cited by Susan Easton Black in *Who’s Who in the Doctrine and Covenants* (1997), 76.
+
+[^7]: Miller, journal, Nov. 1848.
+
+[^8]: Miller, journal, 21 Oct. 1848.
+
+[^9]: Heber J. Grant, “Hyrum Smith and His Distinguished Posterity,” *Improvement Era,* Aug. 1918, 854–55.
+
+[^10]: See Ronald K. Esplin, “Hyrum Smith: The Mildness of a Lamb, the Integrity of Job,” *Ensign,* Feb. 2000, 32.
+
+[^11]: “Newel Knight’s Journal,” from “Scraps of Biography” in *Classic Experiences and Adventures* (1969), 65.
+
+[^12]: See [[D&C 52.8|D&C 52:8–10]][[D&C 52.9|]][[D&C 52.10|]].
+
+[^13]: See Pearson H. Corbett, *Hyrum Smith—Patriarch* (1963), 387.
+
+[^14]: James S. Jardine, “Consecration and Learning,” in Henry B. Eyring, ed., *On Becoming a Disciple-Scholar* (1995), 79–80.
+
+[^15]: See Elder Henry B. Eyring, “Waiting upon the Lord,” *Brigham Young University 1990–91 Devotional and Fireside Speeches,* 22.
+
+[^16]: Richard Folkers, “Philo Farnsworth: ‘Dr. X’s’ Instant Images,” *U.S. News and World Report,* 17 Aug. 1998, 44.
+
+[^17]: [[1 Nephi 16.29|1 Ne. 16:29]].
+
+[^18]: [[Matthew 25.23|Matt. 25:23]].
 

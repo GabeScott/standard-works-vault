@@ -1,5 +1,6 @@
 # Be a Peacemaker
-*By Franklin D. Richards - Of the First Quorum of the Seventy*
+
+By Elder Franklin D. Richards - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -23,9 +24,9 @@ We are living in a period in which there are wars and rumors of wars among natio
 
 It seems to me the most pressing need in the world today is peace—not only among nations, but also within families and in our social and business relationships.
 
-From the Passover Feast of nineteen centuries ago came this great message of promise and exhortation from our Lord and Savior Jesus Christ: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.” (John 14:27.)
+From the Passover Feast of nineteen centuries ago came this great message of promise and exhortation from our Lord and Savior Jesus Christ: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.” ([[John 14.27|John 14:27]].)
 
-Jesus Christ is called the Prince of Peace (see Isa. 9:6), and his message is a message of peace to the individual and to the world. The gospel of Jesus Christ is the plan of life that will restore peace to the world, remove inner tensions and troubles, and bring happiness to the human soul. It is the greatest philosophy of life ever given to man.
+Jesus Christ is called the Prince of Peace (see [[Isaiah 9.6|Isa. 9:6]]), and his message is a message of peace to the individual and to the world. The gospel of Jesus Christ is the plan of life that will restore peace to the world, remove inner tensions and troubles, and bring happiness to the human soul. It is the greatest philosophy of life ever given to man.
 
 A mission of The Church of Jesus Christ of Latter-day Saints is to establish this peace and happiness in the hearts and homes of the people.
 
@@ -33,7 +34,7 @@ Certainly one of the greatest messages given to man by Jesus Christ is known as 
 
 Practically all of the basic principles in man’s relationship with others are contained in this great sermon.
 
-Part of this sermon is referred to as the Beatitudes, and these begin with the word Blessed. These Beatitudes outline conditions which bring about peace and happiness. In this great sermon, the Savior admonished all to be peacemakers as he said, “Blessed are the peacemakers: for they shall be called the children of God.” (Matt. 5:9.) Blessed means happy, favored, and glorified.
+Part of this sermon is referred to as the Beatitudes, and these begin with the word *Blessed.* These Beatitudes outline conditions which bring about peace and happiness. In this great sermon, the Savior admonished all to be peacemakers as he said, “Blessed are the peacemakers: for they shall be called the children of God.” ([[Matthew 5.9|Matt. 5:9]].) *Blessed* means happy, favored, and glorified.
 
 If ever there was a time when we needed peacemakers, it is today; today seems to be a most appropriate time to discuss what we might do to assist in establishing peace, at least within our relationships.
 
@@ -71,29 +72,32 @@ Jesus, in the Sermon on the Mount, said:
 
 “Judge not, that ye be not judged.
 
-“For with what judgment ye judge, ye shall be judged.” (Matt. 7:1–2.)
+“For with what judgment ye judge, ye shall be judged.” ([[Matthew 7.1|Matt. 7:1–2]][[Matthew 7.2|]].)
 
-We can also be a peacemaker by practicing and teaching forgiveness. Jesus was asked how many times one should forgive, and he replied that we should forgive without limit. Forgive him “seventy times seven.” (Matt. 18:22.)
+We can also be a peacemaker by practicing and teaching forgiveness. Jesus was asked how many times one should forgive, and he replied that we should forgive without limit. Forgive him “seventy times seven.” ([[Matthew 18.22|Matt. 18:22]].)
 
-In modern revelation, the Lord has said, “Inasmuch as you have forgiven one another your trespasses, even so I, the Lord, forgive you.” (D&C 82:1.)
+In modern revelation, the Lord has said, “Inasmuch as you have forgiven one another your trespasses, even so I, the Lord, forgive you.” ([[D&C 82.1|D&C 82:1]].)
 
 An important part of forgiving is forgetting. In some ways, being able to forget is almost as valuable as being able to remember.
 
 Again, as one reviews the various areas of life’s activities and appreciates the many human inadequacies, the great value of patience is seen as an important part of being a peacemaker.
 
-Sometimes we are misunderstood, even by those who are closest to us. Under such circumstances, patience will develop within us the capacity to accept criticism if warranted or not. The ability to exercise forbearance under provocation means that we are following the Savior’s teachings to do good to those that despitefully use us and to turn the other cheek. (See Matt. 5:39, 44.)
+Sometimes we are misunderstood, even by those who are closest to us. Under such circumstances, patience will develop within us the capacity to accept criticism if warranted or not. The ability to exercise forbearance under provocation means that we are following the Savior’s teachings to do good to those that despitefully use us and to turn the other cheek. (See [[Matthew 5.39|Matt. 5:39, 44]][[Matthew 5.44|]].)
 
 Patience is truly a mighty virtue and can be developed as we become peacemakers and make up our mind to be patient within our own life as well as with others.
 
 I am grateful that the restored gospel of Jesus Christ incorporates the remarkable principle of patience. I am most thankful for the patience my Father in Heaven has evidenced with me in my life.
 
-In dedicating the Hyde Park chapel in London, among other things President McKay said: “If you want peace, yours is the responsibility to obtain it.” (Church News, 11 Mar. 1961, p. 15.)
+In dedicating the Hyde Park chapel in London, among other things President McKay said: “If you want peace, yours is the responsibility to obtain it.” (*Church News,* 11 Mar. 1961, p. 15.)
 
 Brothers and sisters, it is important to appreciate that the gospel has to be lived in order to be fully realized and its power received.
 
 I bear you my testimony that peace can be enjoyed by individuals, families, and society in general, as well as by nations as we live the principles of the restored gospel of Jesus Christ.
 
-I rejoice in my knowledge that God the Father and his Son, Jesus Christ, live and appeared to the Prophet Joseph Smith, and that through the instrumentality of the Prophet Joseph Smith the fulness of the gospel of Jesus Christ and the power to act in the name of God has been restored and the Church reestablished on the earth and, further, that President Spencer W. Kimball is a living prophet. May the Lord’s choicest blessings be with him and may we have the courage and good judgment to follow his counsel and advice.
+I rejoice in my knowledge that God the Father and his Son, Jesus Christ, live and appeared to the Prophet Joseph Smith, and that through the instrumentality of the Prophet Joseph Smith the fulness of the gospel of Jesus Christ and the power to act in the name of God has been restored and the Church reestablished on the earth and, further, that President Spencer W. Kimball is a living prophet. May the Lord’s choicest blessings be with him and may we have the courage and good judgment to follow his counsel and advice.
 
 May each of us in our daily lives assume the role of peacemaker that we may enjoy the peace that surpasseth all understanding, I pray in the name of Jesus Christ, amen.
+
+
+
 

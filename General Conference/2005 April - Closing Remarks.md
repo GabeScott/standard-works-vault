@@ -1,7 +1,10 @@
 # Closing Remarks
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2005 General Conference*
+
+>*Surely the Lord is blessing us as a people, and we must reach out to bless His needy wherever they may be.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2005/04/closing-remarks?lang=eng)
 
@@ -11,13 +14,13 @@ Through the miracle—and it is a miracle—of modern technology, these proceedi
 
 It has been a time for the renewal of our faith in the great eternal verities which have come to us through the instrumentality of the Prophet Joseph. How blessed we are. How fortunate we are in our knowledge of these transcendent truths.
 
-But may I say, as I have said in the past, our membership in this Church, with eligibility for all of the blessings that flow therefrom, should never be any cause for self-righteousness, for arrogance, for denigration of others, for looking down upon others. All mankind is our neighbor. When asked which was the greatest commandment of the law, the Lord said: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. ... [And] thou shalt love thy neighbour as thyself” (Matt. 22:37, 39).
+But may I say, as I have said in the past, our membership in this Church, with eligibility for all of the blessings that flow therefrom, should never be any cause for self-righteousness, for arrogance, for denigration of others, for looking down upon others. All mankind is our neighbor. When asked which was the greatest commandment of the law, the Lord said: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. … \[And\] thou shalt love thy neighbour as thyself” ([[Matthew 22.37|Matthew 22:37, 39]][[Matthew 22.39|]]).
 
 Regardless of the color of our skin, of the shape of our eyes, of the language we speak, we all are sons and daughters of God and must reach out to one another with love and concern.
 
-Wherever we may live we can be friendly neighbors. Our children can mingle with the children of those not of this Church and remain steadfast if they are properly taught. They can even become missionaries to their associates.
+Wherever we may live, we can be friendly neighbors. Our children can mingle with the children of those not of this Church and remain steadfast if they are properly taught. They can even become missionaries to their associates.
 
-We commend our wonderful youth who for the most part stand up to the evils of the world, who push these evils aside and live lives pleasing to the Lord. We constantly pray that their parents will likewise live worthily in every respect.
+We commend our wonderful youth, who for the most part stand up to the evils of the world, who push these evils aside and live lives pleasing to the Lord. We constantly pray that their parents will likewise live worthily in every respect.
 
 We repeat what we have said before: make a habit of going to the house of the Lord. There is no better way to ensure proper living than temple attendance. It will crowd out the evils of pornography, substance abuse, and spiritual atrophy. It will strengthen marriage and family relations.
 
@@ -36,4 +39,7 @@ Surely the Lord is blessing us as a people, and we must reach out to bless His n
 Now, as we leave for our homes, I invoke the blessings of heaven upon you. Be faithful to the commandments of the Lord, and He will open the windows of heaven and shower down blessings upon you. I leave with you my benediction and my love. I leave with you my witness and my testimony that God our Eternal Father lives, that He is personal and real, that He is indeed our Father, that He listens to and will answer prayer. I give you my witness that Jesus is the Christ, the Redeemer of the world, the only name under heaven whereby we may be saved, and I leave you my witness and my testimony that God and the Lord Jesus spoke in person to the boy Joseph and opened the curtains ushering in this great and final dispensation.
 
 God bless you, my beloved brothers and sisters. Peace be with you now and always is my humble prayer in the sacred name of Jesus Christ, amen.
+
+
+
 

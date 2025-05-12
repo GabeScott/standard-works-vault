@@ -1,11 +1,12 @@
 # Family Research
-*By Eldred G. Smith - Patriarch to the Church*
+
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/10/family-research?lang=eng)
 
-In the very beginning, God placed Adam on the earth and gave him dominion over the fish and the fowl and the cattle and over all the earth. Now this would seem like an exalted position for some people today, but even though Adam had dominion over all the earth, God said, “It is not good that the man should be alone,” (Gen. 2:18) and he gave unto him the woman, Eve, to be a companion and a helpmeet. Then God gave unto them the first great commandment, to multiply and replenish the earth.
+In the very beginning, God placed Adam on the earth and gave him dominion over the fish and the fowl and the cattle and over all the earth. Now this would seem like an exalted position for some people today, but even though Adam had dominion over all the earth, God said, “It is not good that the man should be alone,” ([[Genesis 2.18|Gen. 2:18]]) and he gave unto him the woman, Eve, to be a companion and a helpmeet. Then God gave unto them the first great commandment, to multiply and replenish the earth.
 
 We are not told how long they lived in the Garden of Eden before they partook of the fruit of the tree of the knowledge of good and evil and were cast out of the garden to start their mortal existence. The point I want to make clear is that God himself established the first family unit. Marriage is not an institution developed by man which can be outgrown and cast aside in the course of human progress. All that is nearest and dearest in our lives is associated with our families. Love has its center here, and where love is, there we find happiness also.
 
@@ -17,23 +18,23 @@ Those who have died without this law may have the privilege of receiving this bl
 
 Let us quote the Prophet Joseph Smith in Section 128 of the Doctrine and Covenants:
 
-“Let me assure you that these are principles in relation to the dead and the living that cannot be lightly passed over, as pertaining to our salvation. For their salvation is necessary and essential to our salvation, as Paul says concerning the fathers—that they without us cannot be made perfect—neither can we without our dead be made perfect.” (D&C 128:15; see also Heb. 11:40.)
+“Let me assure you that these are principles in relation to the dead and the living that cannot be lightly passed over, as pertaining to our salvation. For their salvation is necessary and essential to our salvation, as Paul says concerning the fathers—that they without us cannot be made perfect—neither can we without our dead be made perfect.” ([[D&C 128.15|D&C 128:15]]; see also [[Hebrews 11.40|Heb. 11:40]].)
 
 When Paul was teaching the principles of the resurrection to the Corinthians, he clinched his point by stating:
 
-“Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” (1 Cor. 15:29.)
+“Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
 
 This shows that in the days of Paul there was a practice of vicarious baptism for the dead.
 
-One of the first instructions given to the Prophet Joseph Smith by Moroni was the quotation from Malachi 4:5–6. Moroni quoted it thus:
+One of the first instructions given to the Prophet Joseph Smith by Moroni was the quotation from [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]]. Moroni quoted it thus:
 
 “Behold, I will reveal unto you the Priesthood, by the hand of Elijah the prophet, before the coming of the great and dreadful day of the Lord.
 
-“And he shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers. If it were not so, the whole earth would be utterly wasted at his coming.” (JS—H 1:38–39.)
+“And he shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers. If it were not so, the whole earth would be utterly wasted at his coming.” ([[Joseph Smith History 1.38|JS—H 1:38–39]][[Joseph Smith History 1.39|]].)
 
 The Prophet Joseph Smith has said:
 
-“The greatest responsibility in this world that God has laid upon us, is to seek after our dead.” (Teachings of the Prophet Joseph Smith, p. 356.)
+“The greatest responsibility in this world that God has laid upon us, is to seek after our dead.” (*Teachings of the Prophet Joseph Smith,* p. 356.)
 
 This means that this baptism and sealing work must be done for all of God’s children who will accept it—not just for those who live on the earth now who are members of the Church, but for all of our ancestors and all who have lived on the earth who will accept the gospel of Jesus Christ.
 
@@ -54,4 +55,7 @@ To those scattered around the world, may I say a word of encouragement? Be of go
 Many good members of the Church have many records lying on the shelf. They have gathered records but have not yet sent them in to have the temple work done for them. Get those records into the temples. Many may be waiting on the other side for that work to be done. Let’s follow President Kimball’s slogan, “Do It.” I think this could be a good slogan for this conference—“Do It.”
 
 May His blessings be upon all those who are diligent in this work, that we may prepare the way for his coming, for I testify to you that this is His work, in the name of Jesus Christ. Amen.
+
+
+
 

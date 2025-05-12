@@ -1,17 +1,20 @@
 # Special Experiences
-*By Ronald A. Rasband - Of the Presidency of the Seventy*
+
+By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
 
+>*Our personal journey through life provides us with many special experiences that become building blocks of faith and testimony.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/04/special-experiences?lang=eng)
 
-I would like to add my testimony and witness on this special day that President Thomas S. Monson is the Lord’s prophet on the earth. I am grateful to have this privilege to speak in general conference.
+I would like to add my testimony and witness on this special day that President Thomas S. Monson is the Lord’s prophet on the earth. I am grateful to have this privilege to speak in general conference.
 
 I am grateful, as you are, for the experience we have in this historic conference as we sustain, in an orderly and patterned way, our new prophet, First Presidency, and other leaders of the Church.
 
 This kind of experience fortifies our testimonies and increases our faith in the knowledge that this is indeed the Lord’s true and living Church.
 
-Our personal journey through life provides us with many special experiences that become building blocks of faith and testimony. These experiences come to us in vastly different ways and at unpredictable times. They can be powerful spiritual events or small enlightening moments. Some experiences will come as serious challenges and heavy trials that test our ability to cope with them. No matter what the experience may be, each gives us a chance for personal growth, greater wisdom, and, in many cases, service to others with more empathy and love. As the Lord stated to the Prophet Joseph Smith in a reassuring way during one of his most significant trials at Liberty Jail, “All these things shall give thee experience, and shall be for thy good” (D&C 122:7).
+Our personal journey through life provides us with many special experiences that become building blocks of faith and testimony. These experiences come to us in vastly different ways and at unpredictable times. They can be powerful spiritual events or small enlightening moments. Some experiences will come as serious challenges and heavy trials that test our ability to cope with them. No matter what the experience may be, each gives us a chance for personal growth, greater wisdom, and, in many cases, service to others with more empathy and love. As the Lord stated to the Prophet Joseph Smith in a reassuring way during one of his most significant trials at Liberty Jail, “All these things shall give thee experience, and shall be for thy good” ([[D&C 122.7|D&C 122:7]]).
 
 As experiences accumulate in our lives, they add strength and support to each other. Just as the building blocks of our homes support the rest of the structure, so too do our personal life experiences become building blocks for our testimonies and add to our faith in the Lord Jesus Christ.
 
@@ -43,11 +46,14 @@ From the preface of the Doctrine and Covenants, written in 1831, foretelling the
 
 “That mine everlasting covenant might be established;
 
-“That the fulness of my gospel might be proclaimed by the weak and the simple unto the ends of the world” (D&C 1:20–23).
+“That the fulness of my gospel might be proclaimed by the weak and the simple unto the ends of the world” ([[D&C 1.20|D&C 1:20–23]][[D&C 1.21|]][[D&C 1.22|]][[D&C 1.23|]]).
 
 Brothers and sisters, the weak and the simple members of the Church, like you and me, are taking the gospel to the ends of the earth, to Puno, Peru, and other far-off places. Faith is increasing among God’s covenant people, and I believe it is through having a personal treasury of such valued experiences that an increase of faith can happen for each of us.
 
-President Monson said: “[The Lord] commands. And to those who obey Him, whether they be wise or simple, He will reveal Himself in the toils, the conflicts, the sufferings which they shall pass through in His fellowship, and ... they shall learn in their own experience Who He is” (in “The Way of the Master,” Liahona and Ensign, Jan. 2003, 7; quoting Albert Schweitzer, The Quest of the Historical Jesus [1948], 401; emphasis added).
+President Monson said: “\[The Lord\] commands. And to those who obey Him, whether they be wise or simple, He will reveal Himself in the toils, the conflicts, the sufferings which they shall pass through in His fellowship, and … they shall learn in their *own experience* Who He is” (in “The Way of the Master,” *Liahona* and *Ensign,* Jan. 2003, 7; quoting Albert Schweitzer, *The Quest of the Historical Jesus* \[1948\], 401; emphasis added).
 
 In these days of worldly intrusions into our lives, when trials and difficulties may seem to engulf us, let us remember our own special spiritual experiences. These building blocks of faith will bring us conviction and reassurance of a caring, loving Father in Heaven, of our Lord and Savior, Jesus Christ, and of Their restored true and living Church. I so testify in the name of Jesus Christ, amen.
+
+
+
 

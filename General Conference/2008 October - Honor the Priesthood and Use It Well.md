@@ -1,7 +1,10 @@
 # Honor the Priesthood and Use It Well
-*By Richard G. Scott - Of the Quorum of the Twelve Apostles*
+
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
+
+>*The perfect role model for use of the holy priesthood is our Savior, Jesus Christ. He ministered with love, compassion, and charity.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/10/honor-the-priesthood-and-use-it-well?lang=eng)
 
@@ -31,7 +34,7 @@ Brethren, I now speak of how the priesthood should be used to bless the lives of
 
 The family proclamation states that a husband and wife should be equal partners. I feel assured that every wife in the Church would welcome that opportunity and support it. Whether it occurs or not depends upon the husband. Many husbands practice equal partnership with their companion to the benefit of both and the blessing of their children. However, many do not. I encourage any man who is reluctant to develop an equal partnership with his wife to obey the counsel inspired by the Lord and do it. Equal partnership yields its greatest benefit when both husband and wife seek the will of the Lord in making important decisions for themselves and for their family.
 
-Be sensitive to the promptings of the Spirit in the use of that consummate privilege of acting in the name of the Lord through your priesthood. Be more aware of how you can make greater use of the power of the priesthood in the lives of those you love and serve. I am thinking particularly of individuals such as a widow in need who likely could benefit from the help of an understanding, compassionate priesthood bearer. Many such will never request help. Be aware of the range of challenges you could help meet in her home, such as the relief of anxieties through an inspired priesthood blessing or the need for small repairs.
+Be sensitive to the promptings of the Spirit in the use of that consummate privilege of acting in the name of the Lord through your priesthood. Be more aware of how you can make greater use of the power of the priesthood in the lives of those you love and serve. I am thinking particularly of individuals such as a widow in need who likely could benefit from the help of an understanding, compassionate priesthood bearer. Many such will never request help. Be aware of the range of challenges that you could help meet in her home, such as the relief of anxieties through an inspired priesthood blessing or the need for small repairs.
 
 As a bishop, be sensitive and attentive to the sisters who serve in your ward council. They can identify the needs of the women in your ward who are not blessed with priesthood in the home. Through a home visit, the Relief Society can identify needs and recommend solutions to you. For matters beyond the scope of the Relief Society, you can call upon the elders quorum or the high priests group to provide assistance according to the need.
 
@@ -39,11 +42,11 @@ As a bishop, when you counsel with a husband and wife who are in marital difficu
 
 Do single sisters receive the consideration and attention they deserve when they attend family wards? Do they have opportunities to serve in significant callings where they are made to feel welcome and wanted? Do they receive the required priesthood support?
 
-The purpose of priesthood authority is to give, to serve, to lift, to inspire—not to exercise unrighteous control or force. In some cultures, tradition places a man in a role to dominate, control, and regulate all family affairs. That is not the way of the Lord. In some places the wife is almost owned by her husband, as if she were another of his personal possessions. That is a cruel, unproductive, mistaken vision of marriage encouraged by Lucifer that every priesthood holder must reject. It is founded on the false premise that a man is somehow superior to a woman. Nothing could be farther from the truth. The scriptures confirm that Father in Heaven saved His greatest, most splendid, supreme creation, woman, to the end. Only after all else was completed was woman created. Only then was the work pronounced complete and good.
+The purpose of priesthood authority is to give, to serve, to lift, to inspire—not to exercise unrighteous control or force. In some cultures, tradition places a man in a role to dominate, control, and regulate all family affairs. That is not the way of the Lord. In some places the wife is almost owned by her husband, as if she were another of his personal possessions. That is a cruel, unproductive, mistaken vision of marriage, encouraged by Lucifer, that every priesthood holder must reject. It is founded on the false premise that a man is somehow superior to a woman. Nothing could be further from the truth. The scriptures confirm that Father in Heaven saved His greatest, most splendid, supreme creation, woman, to the end. Only after all else was completed was woman created. Only then was the work pronounced complete and good.
 
-Of our wives, mothers, grandmothers, and sisters and other important women in our lives, President Hinckley declared: “Of all the creations of the Almighty, there is none more beautiful, none more inspiring than a lovely daughter of God who walks in virtue with an understanding of why she should do so, who honors and respects her body as a thing sacred and divine, who cultivates her mind and constantly enlarges the horizon of her understanding, who nurtures her spirit with everlasting truth.”
+Of our wives, mothers, grandmothers, and sisters and other important women in our lives, President Hinckley declared: “Of all the creations of the Almighty, there is none more beautiful, none more inspiring than a lovely daughter of God who walks in virtue with an understanding of why she should do so, who honors and respects her body as a thing sacred and divine, who cultivates her mind and constantly enlarges the horizon of her understanding, who nurtures her spirit with everlasting truth.”[^1]
 
-By divine design a woman is fundamentally different from a man in many ways. She is compassionate and seeks the interests of others around her. However, that compassionate nature can become overwhelming for women who identify far more to accomplish than they can possibly do, even with the help of the Lord. Some become discouraged because they do not feel they are doing all they should do. I believe this is a feeling that many worthy, effective, devoted women of the Church experience.
+By divine design a woman is fundamentally different from a man in many ways.[^2] She is compassionate and seeks the interests of others around her. However, that compassionate nature can become overwhelming for women who identify far more to accomplish than they can possibly do, even with the help of the Lord. Some become discouraged because they do not feel they are doing all they should do. I believe this is a feeling that many worthy, effective, devoted women of the Church experience.
 
 Therefore, as a husband or son, express gratitude for what your wife and mother do for you. Express your love and gratitude often. That will make life far richer, more pleasant and purposeful for many of the daughters of Father in Heaven who seldom hear a complimentary comment and are not thanked for the multitude of things they do. As a husband, when you sense that your wife needs lifting, hold her in your arms and tell her how much you love her. May each of us ever be tender and appreciative of the special women who enrich our lives.
 
@@ -51,7 +54,16 @@ Often the real value of something is not recognized until it is taken from us. T
 
 I know the immense joy and happiness that come from loving, cherishing, and respecting my precious wife with all my heart and soul. May your use of the priesthood and treatment of the important women in your life bring you the same satisfaction.
 
-As one of the 15 Apostles of the Lord Jesus Christ on earth, I express my own feelings regarding the priesthood as it has been captured perfectly by this statement of President Howard W. Hunter: “As special witnesses of our Savior, we have been given the awesome assignment to administer the affairs of his church and kingdom and to minister to his daughters and his sons wherever they are on the face of the earth. By reason of our call to testify, govern, and minister, it is required of us that despite age, infirmity, exhaustion, and feelings of inadequacy, we do the work He has given us to do, to the last breath of our lives.”
+As one of the 15 Apostles of the Lord Jesus Christ on earth, I express my own feelings regarding the priesthood as it has been captured perfectly by this statement of President Howard W. Hunter: “As special witnesses of our Savior, we have been given the awesome assignment to administer the affairs of his church and kingdom and to minister to his daughters and his sons wherever they are on the face of the earth. By reason of our call to testify, govern, and minister, it is required of us that despite age, infirmity, exhaustion, and feelings of inadequacy, we do the work he has given us to do, to the last breath of our lives.”[^3]
 
 God will hold us accountable for how we treat His precious daughters. Therefore, let us treat them as He would wish to have them treated. I pray that the Lord will guide us to be more inspired, sensitive, and productive with the priesthood we hold, especially with His daughters. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Gordon B. Hinckley, “Our Responsibility to Our Young Women,” *Ensign,* Sept. 1988, 11.
+
+[^2]: See [[Moses 4.17|Moses 4:17–19]][[Moses 4.18|]][[Moses 4.19|]]; [[Moses 5.10|5:10–11]][[Moses 5.11|]].
+
+[^3]: Howard W. Hunter, “To the Women of the Church,” *Ensign,* Nov. 1992, 96.
 

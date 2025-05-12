@@ -1,5 +1,6 @@
 # Come, Know the Lord Jesus
-*By Bruce R. McConkie - Of the Council of the Twelve*
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -31,29 +32,21 @@ I shall speak of the Gods of heaven and of our relationship to them and of what 
 
 We worship the Father, in the name of the Son, by the power of the Holy Ghost.
 
-The Father’s name is Elohim;
-
-Jehovah is his Son.
-
-Above all Gods they stand supreme,
-
-And rule the universe.
-
-Jehovah is the Holy One,
-
-By whom redemption comes;
-
-His gospel is the word of life;
-
-He is our living Lord.
-
-The Holy Spirit witness bears;
-
-Our soul the message hears—
-
-That Father, Son, and Holy Ghost,
-
-Are man’s Eternal Gods.
+>The Father’s name is Elohim;
+>Jehovah is his Son.
+>Above all Gods they stand supreme,
+>And rule the universe.
+>
+>Jehovah is the Holy One,
+>By whom redemption comes;
+>His gospel is the word of life;
+>He is our living Lord.
+>
+>The Holy Spirit witness bears;
+>Our soul the message hears—
+>That Father, Son, and Holy Ghost,
+>Are man’s Eternal Gods.
+>
 
 Be it known, then, that there is a God in heaven who is infinite and eternal. He has all power, all might, and all dominion. There is no power he does not possess and no truth he does not know. Every good thing dwells in him independently in its eternal fulness. He is the Creator, Upholder, and Preserver of all things. His name is Elohim, and he is our Father in heaven, the literal Father of the spirits of all men. He has a body of flesh and bones as tangible as man’s, and is in fact a resurrected and glorified Person. The name of the kind of life he lives is eternal life; and eternal life, by definition and in its nature, consists of life in an eternal family unit and of the possession of the fulness of the glory and power of the Father.
 
@@ -81,7 +74,7 @@ In due course came Adam and Eve; the fall of man, with its temporal and spiritua
 
 Adam and Eve made all things known to their seed so they might believe in Christ, repent of their sins, be baptized, receive the gift of the Holy Ghost, and work the works of righteousness.
 
-Christ and his laws were revealed to all the holy prophets. As Peter said, “To him give all the prophets witness, that through his name whosoever believeth in him shall receive remission of sins.” (Acts 10:43.)
+Christ and his laws were revealed to all the holy prophets. As Peter said, “To him give all the prophets witness, that through his name whosoever believeth in him shall receive remission of sins.” ([[Acts 10.43|Acts 10:43]].)
 
 He was the God of Abraham, Isaac, and Jacob, the God of Israel, the Holy One, the Lord Omnipotent. He was the promised Messiah, the Savior and Redeemer, the Son of David; and at the appointed time he was born of a virgin in Bethlehem of Judea, according to the promises.
 
@@ -93,15 +86,18 @@ He came to bring immortality to all men as a free gift. He came to make eternal 
 
 Our Lord—the Lord Jehovah, the Lord Jesus—is our hope and our salvation. He it is that hath brought life and immortality to light through the gospel. He has redeemed us from death, hell, the devil, and endless torment.
 
-After his resurrection he ascended up on high to sit on the right hand of the Father. He has appeared in our day, with his Father, who said: “This is My Beloved Son. Hear Him!” (JS—H 1:17.)
+After his resurrection he ascended up on high to sit on the right hand of the Father. He has appeared in our day, with his Father, who said: *“This is My Beloved Son. Hear Him!”* ([[Joseph Smith History 1.17|JS—H 1:17]].)
 
 He has appeared many other times to converse with his earthly friends; and in the not distant future he will come again, with ten thousand of his angels, in all the glory of his Father’s kingdom, to usher in his personal reign of righteousness and peace. When he comes he will slay the wicked and judge the world; and every corruptible thing will be destroyed by the glory of his presence.
 
 He is our Friend, our Lawgiver, our King, and our Lord. We seek his face and desire to dwell in his presence. We are his people, the sheep of his fold.
 
-Our desire is “to be reconciled to God” through his blood, “for we know that it is by grace that we are saved, after all we can do.” As one of our fellow laborers of old said: “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ,” so that all men “may know to what source they may look for a remission of their sins.” (2 Ne. 25:23, 26.)
+Our desire is “to be reconciled to God” through his blood, “for we know that it is by grace that we are saved, after all we can do.” As one of our fellow laborers of old said: “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ,” so that all men “may know to what source they may look for a remission of their sins.” ([[2 Nephi 25.23|2 Ne. 25:23, 26]][[2 Nephi 25.26|]].)
 
 And so now, in keeping with our established practice and pursuant to the divine obligation laid upon us, I bear personal testimony of the divine Sonship of him who has saved us by his blood. He is truly God’s Almighty Son in whom we shall rejoice both now and forever.
 
 In the name of the Lord Jesus Christ, amen.
+
+
+
 

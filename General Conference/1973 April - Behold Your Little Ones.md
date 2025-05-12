@@ -1,5 +1,6 @@
 # Behold Your Little Ones
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -9,19 +10,19 @@ Who has not been touched by the singing of these innocent children? I think of t
 
 The account records:
 
-“... The eye hath never seen, neither hath the ear heard, before, so great and marvelous things as we saw and heard Jesus speak unto the Father;
+“… The eye hath never seen, neither hath the ear heard, before, so great and marvelous things as we saw and heard Jesus speak unto the Father;
 
-“And no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things as we both saw and heard Jesus speak. ...”
+“And no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things as we both saw and heard Jesus speak. …”
 
 After the prayer, it is recorded that he wept. And then, “he took their little children, one by one, and blessed them, and prayed unto the Father for them.
 
 “And when he had done this he wept again;
 
-“And he spake unto the multitude, and said unto them: Behold your little ones.” (3 Ne. 17:16–17, 21–23.)
+“And he spake unto the multitude, and said unto them: Behold your little ones.” ([[3 Nephi 17.16|3 Ne. 17:16–17, 21–23]][[3 Nephi 17.17|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]].)
 
 I confess, I am not ashamed to confess, that little children get inside of me very easily. We have a little fellow at home not quite four. All he has to say to turn lights on in me is one word, “Dad.” I am indebted to him for some of the help with this assignment today.
 
-“... children are an heritage of the Lord” (Ps. 127:3), and I desire today to talk to little children. Many of them are here in the choir. Others, a great number of them, are listening in. I think the grown-ups won’t mind if I don’t talk to them.
+“… children are an heritage of the Lord” ([[Psalms 127.3|Ps. 127:3]]), and I desire today to talk to little children. Many of them are here in the choir. Others, a great number of them, are listening in. I think the grown-ups won’t mind if I don’t talk to them.
 
 There is something very important that I want to say to you children. Something I hope you’ll always remember. Something you should learn when you are children and things are easy to remember.
 
@@ -45,7 +46,7 @@ Remember my hand represents your spirit and the glove represents your body. Whil
 
 When I separate them, the glove, which represents your body, is taken away from your spirit; it cannot move anymore. It just falls down and is dead. But your spirit is still alive.
 
-“A spirit born of God is an immortal thing. When the body dies, the spirit does not die.” (First Presidency, Improvement Era, March 1912, p. 463.)
+“A spirit born of God is an immortal thing. When the body dies, the spirit does not die.” (First Presidency, *Improvement Era,* March 1912, p. 463.)
 
 It is important that you get in your mind what death is. Death is a separation.
 
@@ -75,11 +76,11 @@ If we remain separated from him and can’t get back to his presence, then it wo
 
 You are now learning to read, and you can begin to read the scriptures: the Bible, especially the Book of Mormon, the Doctrine and Covenants, and the Pearl of Great Price. From them we know that little children can learn spiritual truths. For the prophet said:
 
-“... he imparteth his word by angels unto men, yea, not only men but women also. Now this is not all; little children do have words given unto them many times which confound the wise and the learned.” (Alma 32:23.)
+“… he imparteth his word by angels unto men, yea, not only men but women also. Now this is not all; little children do have words given unto them many times which confound the wise and the learned.” ([[Alma 32.23|Alma 32:23]].)
 
 In the scriptures we learn that our spirits must be clean, in order to return to the presence of our Heavenly Father:
 
-“... there cannot any unclean thing enter into the kingdom of God. ...” (1 Ne. 15:34.)
+“… there cannot any unclean thing enter into the kingdom of God. …” ([[1 Nephi 15.34|1 Ne. 15:34]].)
 
 Two important things must happen to us then. First, somehow we must get our body back after we die—that is, we want to be resurrected; and we must find a way to keep ourselves clean, spiritually clean, so that we will not be separated from our Heavenly Father and may return to where he is when we leave this earth life.
 
@@ -121,23 +122,19 @@ I thank God for a church where you, our little children, are precious above all 
 
 You sang these words, just a few minutes ago:
 
-“I think when I read that sweet story of old,
-
-When Jesus was here among men,
-
-How he called little children like lambs to his fold,
-
-I should like to have been with him then.
-
-“I wish that his hands had been placed on my head,
-
-That his arms had been thrown around me,
-
-That I might have seen his kind look when he said,
-
-‘Let the little ones come unto me.’”
-
-—Sing with Me, no. B-69
+>“I think when I read that sweet story of old,
+>When Jesus was here among men,
+>How he called little children like lambs to his fold,
+>I should like to have been with him then.
+>
+>“I wish that his hands had been placed on my head,
+>That his arms had been thrown around me,
+>That I might have seen his kind look when he said,
+>‘Let the little ones come unto me.’”
+>
 
 My little brothers and sisters, my little children, I know that God lives. I know something of how it feels to have his hand put upon you, to call you to his service. I bear witness and share with you the witness that has been given me, that special witness. He is the Christ! He loves us! I pray for you, our little ones, and plead with him to behold our little ones and to bless them, in the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # Until We Meet Again
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2011 General Conference*
+
+>*May the spirit we have felt here be and abide with us as we go about those things which occupy us each day.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/10/until-we-meet-again?lang=eng)
 
@@ -38,4 +41,7 @@ I bear my testimony to you that this work is true, that our Savior lives, and th
 May He bless you. May His promised peace be with you now and always.
 
 I say farewell to you until we meet again in six months’ time, and I do so in the name of Jesus Christ, our Savior and Redeemer, amen.
+
+
+
 

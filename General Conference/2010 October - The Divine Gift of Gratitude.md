@@ -1,7 +1,10 @@
 # The Divine Gift of Gratitude
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2010 General Conference*
+
+>*A grateful heart … comes through expressing gratitude to our Heavenly Father for His blessings and to those around us for all that they bring into our lives.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/10/the-divine-gift-of-gratitude?lang=eng)
 
@@ -9,7 +12,7 @@ This has been a marvelous session. When I was appointed President of the Church,
 
 My mother once said of me, “Tommy, I’m very proud of all that you’ve done. But I have one comment to make to you. You should have stayed with the piano.”
 
-So I went to the piano and played a number for her: “Here we go, [here we go] to a birthday party.”1 Then I gave her a kiss on the forehead, and she embraced me.
+So I went to the piano and played a number for her: “Here we go, \[here we go\] to a birthday party.”[^1] Then I gave her a kiss on the forehead, and she embraced me.
 
 I think of her. I think of my father. I think of all those General Authorities who’ve influenced me, and others, including the widows whom I visited—85 of them—with a chicken for the oven, sometimes a little money for their pocket.
 
@@ -25,7 +28,7 @@ In the book of Luke, chapter 17, we read of Him:
 
 “And it came to pass, as he went to Jerusalem, that he passed through the midst of Samaria and Galilee.
 
-“And as he entered into a certain village, there [he met] ten men that were lepers, which stood afar off:
+“And as he entered into a certain village, there \[he met\] ten men that were lepers, which stood afar off:
 
 “And they lifted up their voices, and said, Jesus, Master, have mercy on us.
 
@@ -39,53 +42,53 @@ In the book of Luke, chapter 17, we read of Him:
 
 “There are not found that returned to give glory to God, save this stranger.
 
-“And he said unto him, Arise, go thy way: thy faith hath made thee whole.”2
+“And he said unto him, Arise, go thy way: thy faith hath made thee whole.”[^2]
 
-Through divine intervention those who were lepers were spared from a cruel, lingering death and given a new lease on life. The expressed gratitude by one merited the Master’s blessing; the ingratitude shown by the nine, His disappointment.
+Through divine intervention, those who were lepers were spared from a cruel, lingering death and given a new lease on life. The expressed gratitude by one merited the Master’s blessing; the ingratitude shown by the nine, His disappointment.
 
 My brothers and sisters, do we remember to give thanks for the blessings we receive? Sincerely giving thanks not only helps us recognize our blessings, but it also unlocks the doors of heaven and helps us feel God’s love.
 
-My beloved friend President Gordon B. Hinckley said, “When you walk with gratitude, you do not walk with arrogance and conceit and egotism, you walk with a spirit of thanksgiving that is becoming to you and will bless your lives.”3
+My beloved friend President Gordon B. Hinckley said, “When you walk with gratitude, you do not walk with arrogance and conceit and egotism, you walk with a spirit of thanksgiving that is becoming to you and will bless your lives.”[^3]
 
 In the book of Matthew in the Bible, we have another account of gratitude, this time as an expression from the Savior. As He traveled in the wilderness for three days, more than 4,000 people followed and traveled with Him. He took compassion on them, for they may not have eaten during the entire three days. His disciples, however, questioned, “Whence should we have so much bread in the wilderness, as to fill so great a multitude?” Like many of us, the disciples saw only what was lacking.
 
-“And Jesus saith unto them, How many loaves have ye? And [the disciples] said, Seven, and a few little fishes.
+“And Jesus saith unto them, How many loaves have ye? And \[the disciples\] said, Seven, and a few little fishes.
 
-“And [Jesus] commanded the multitude to sit down on the ground.
+“And \[Jesus\] commanded the multitude to sit down on the ground.
 
-“And he took the seven loaves and the fishes, and gave thanks, and brake them, and gave to his disciples, and the disciples to the multitude.”
+“And he took the seven loaves and the fishes, and *gave thanks,* and brake them, and gave to his disciples, and the disciples to the multitude.”
 
-Notice that the Savior gave thanks for what they had—and a miracle followed: “And they did all eat, and were filled: and they took up of the broken meat that was left seven baskets full.”4
+Notice that the Savior gave thanks for what they had—and a miracle followed: “And they did all eat, and were filled: and they took up of the broken meat that was left seven baskets full.”[^4]
 
-We have all experienced times when our focus is on what we lack rather than on our blessings. Said the Greek philosopher Epictetus, “He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has.”5
+We have all experienced times when our focus is on what we lack rather than on our blessings. Said the Greek philosopher Epictetus, “He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has.”[^5]
 
 Gratitude is a divine principle. The Lord declared through a revelation given to the Prophet Joseph Smith:
 
-“Thou shalt thank the Lord thy God in all things. ...
+“Thou shalt thank the Lord thy God in all things. …
 
-“And in nothing doth man offend God, or against none is his wrath kindled, save those who confess not his hand in all things.”6
+“And in nothing doth man offend God, or against none is his wrath kindled, save those who confess not his hand in all things.”[^6]
 
-In the Book of Mormon we are told to “live in thanksgiving daily, for the many mercies and blessings which [God] doth bestow upon you.”7
+In the Book of Mormon we are told to “live in thanksgiving daily, for the many mercies and blessings which \[God\] doth bestow upon you.”[^7]
 
 Regardless of our circumstances, each of us has much for which to be grateful if we will but pause and contemplate our blessings.
 
 This is a wonderful time to be on earth. While there is much that is wrong in the world today, there are many things that are right and good. There are marriages that make it, parents who love their children and sacrifice for them, friends who care about us and help us, teachers who teach. Our lives are blessed in countless ways.
 
-We can lift ourselves and others as well when we refuse to remain in the realm of negative thought and cultivate within our hearts an attitude of gratitude. If ingratitude be numbered among the serious sins, then gratitude takes its place among the noblest of virtues. Someone has said that “gratitude is not only the greatest of virtues, but the parent of all others.”8
+We can lift ourselves and others as well when we refuse to remain in the realm of negative thought and cultivate within our hearts an attitude of gratitude. If ingratitude be numbered among the serious sins, then gratitude takes its place among the noblest of virtues. Someone has said that “gratitude is not only the greatest of virtues, but the parent of all the others.”[^8]
 
-How can we cultivate within our hearts an attitude of gratitude? President Joseph F. Smith, sixth President of the Church, provided an answer. Said he: “The grateful man sees so much in the world to be thankful for, and with him the good outweighs the evil. Love overpowers jealousy, and light drives darkness out of his life.” He continued: “Pride destroys our gratitude and sets up selfishness in its place. How much happier we are in the presence of a grateful and loving soul, and how careful we should be to cultivate, through the medium of a prayerful life, a thankful attitude toward God and man!”9
+How can we cultivate within our hearts an attitude of gratitude? President Joseph F. Smith, sixth President of the Church, provided an answer. Said he: “The grateful man sees so much in the world to be thankful for, and with him the good outweighs the evil. Love overpowers jealousy, and light drives darkness out of his life.” He continued: “Pride destroys our gratitude and sets up selfishness in its place. How much happier we are in the presence of a grateful and loving soul, and how careful we should be to cultivate, through the medium of a prayerful life, a thankful attitude toward God and man!”[^9]
 
 President Smith is telling us that a prayerful life is the key to possessing gratitude.
 
 Do material possessions make us happy and grateful? Perhaps momentarily. However, those things which provide deep and lasting happiness and gratitude are the things which money cannot buy: our families, the gospel, good friends, our health, our abilities, the love we receive from those around us. Unfortunately, these are some of the things we allow ourselves to take for granted.
 
-The English author Aldous Huxley wrote, “Most human beings have an almost infinite capacity for taking things for granted.”10
+The English author Aldous Huxley wrote, “Most human beings have an almost infinite capacity for taking things for granted.”[^10]
 
-We often take for granted the very people who most deserve our gratitude. Let us not wait until it is too late for us to express that gratitude. Speaking of loved ones he had lost, one man declared his regret this way: “I remember those happy days, and often wish I could speak into the ears of the dead the gratitude which was due them in life, and so ill returned.”11
+We often take for granted the very people who most deserve our gratitude. Let us not wait until it is too late for us to express that gratitude. Speaking of loved ones he had lost, one man declared his regret this way: “I remember those happy days, and often wish I could speak into the ears of the dead the gratitude which was due to them in life, and so ill returned.”[^11]
 
 The loss of loved ones almost inevitably brings some regrets to our hearts. Let’s minimize such feelings as much as humanly possible by frequently expressing our love and gratitude to them. We never know how soon it will be too late.
 
-A grateful heart, then, comes through expressing gratitude to our Heavenly Father for His blessings and to those around us for all that they bring into our lives. This requires conscious effort—at least until we have truly learned and cultivated an attitude of gratitude. Often we feel grateful and intend to express our thanks but forget to do so or just don’t get around to it. Someone has said that “feeling gratitude and not expressing it is like wrapping a present and not giving it.”12
+A grateful heart, then, comes through expressing gratitude to our Heavenly Father for His blessings and to those around us for all that they bring into our lives. This requires conscious effort—at least until we have truly learned and cultivated an attitude of gratitude. Often we feel grateful and *intend* to express our thanks but forget to do so or just don’t get around to it. Someone has said that “feeling gratitude and not expressing it is like wrapping a present and not giving it.”[^12]
 
 When we encounter challenges and problems in our lives, it is often difficult for us to focus on our blessings. However, if we reach deep enough and look hard enough, we will be able to feel and recognize just how much we have been given.
 
@@ -111,11 +114,11 @@ On Thanksgiving morning, however, Gordon’s father showed up with a jackrabbit 
 
 The food was blessed, and everyone ate. When dinner was over, they all sat quietly. Wrote Gordon:
 
-“In the humble dimness of the old lamp we were beginning to see clearly again. ...
+“In the humble dimness of the old lamp we were beginning to see clearly again. …
 
-“It [was] a lovely meal. The jack rabbit tasted like turkey and the turnips were the mildest we could recall. ...
+“It \[was\] a lovely meal. The jack rabbit tasted like turkey and the turnips were the mildest we could recall. …
 
-“... [Our] home ... , for all its want, was so rich [to] us.”13
+“… \[Our\] home … , for all its want, was so rich \[to\] us.”[^13]
 
 My brothers and sisters, to express gratitude is gracious and honorable, to enact gratitude is generous and noble, but to live with gratitude ever in our hearts is to touch heaven.
 
@@ -123,11 +126,52 @@ As I close this morning, it is my prayer that in addition to all else for which 
 
 He taught us how to pray. He taught us how to live. He taught us how to die. His life is a legacy of love. The sick He healed; the downtrodden He lifted; the sinner He saved.
 
-Ultimately, He stood alone. Some Apostles doubted; one betrayed Him. The Roman soldiers pierced His side. The angry mob took His life. There yet rings from Golgotha’s hill His compassionate words: “Father, forgive them; for they know not what they do.”14
+Ultimately, He stood alone. Some Apostles doubted; one betrayed Him. The Roman soldiers pierced His side. The angry mob took His life. There yet rings from Golgotha’s hill His compassionate words: “Father, forgive them; for they know not what they do.”[^14]
 
-Who was this “man of sorrows, ... acquainted with grief”?15 “Who is this King of glory,”16 this Lord of lords? He is our Master. He is our Savior. He is the Son of God. He is the Author of Our Salvation. He beckons, “Follow me.”17 He instructs, “Go, and do thou likewise.”18 He pleads, “Keep my commandments.”19
+Who was this “man of sorrows, … acquainted with grief”?[^15] “Who is this King of glory,”[^16] this Lord of lords? He is our Master. He is our Savior. He is the Son of God. He is the Author of Our Salvation. He beckons, “Follow me.”[^17] He instructs, “Go, and do thou likewise.”[^18] He pleads, “Keep my commandments.”[^19]
 
 Let us follow Him. Let us emulate His example. Let us obey His words. By so doing, we give to Him the divine gift of gratitude.
 
 My sincere, heartfelt prayer is that we may in our individual lives reflect that marvelous virtue of gratitude. May it permeate our very souls, now and evermore. In the sacred name of Jesus Christ, our Savior, amen.
+
+
+
+
+[^1]: John Thompson, “Birthday Party,” *Teaching Little Fingers to Play* (1936), 8.
+
+[^2]: [[Luke 17.11|Luke 17:11–19]][[Luke 17.12|]][[Luke 17.13|]][[Luke 17.14|]][[Luke 17.15|]][[Luke 17.16|]][[Luke 17.17|]][[Luke 17.18|]][[Luke 17.19|]].
+
+[^3]: *Teachings of Gordon B. Hinckley* (1997), 250.
+
+[^4]: See [[Matthew 15.32|Matthew 15:32–38]][[Matthew 15.33|]][[Matthew 15.34|]][[Matthew 15.35|]][[Matthew 15.36|]][[Matthew 15.37|]][[Matthew 15.38|]]; emphasis added.
+
+[^5]: *The Discourses of Epictetus; with the Encheiridion and Fragments,* trans. George Long (1888), 429.
+
+[^6]: [[D&C 59.7|Doctrine and Covenants 59:7, 21]][[D&C 59.21|]].
+
+[^7]: [[Alma 34.38|Alma 34:38]].
+
+[^8]: Cicero, in *A New Dictionary of Quotations on Historical Principles,* sel. H. L. Mencken (1942), 491.
+
+[^9]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 263.
+
+[^10]: Aldous Huxley, *Themes and Variations* (1954), 66.
+
+[^11]: William H. Davies, *The Autobiography of a Super-Tramp* (1908), 4.
+
+[^12]: William Arthur Ward, in Allen Klein, comp., *Change Your Life!* (2010), 15.
+
+[^13]: Adapted from H. Gordon Green, “The Thanksgiving I Don’t Forget,” *Reader’s Digest,* Nov. 1956, 69–71.
+
+[^14]: [[Luke 23.34|Luke 23:34]].
+
+[^15]: [[Isaiah 53.3|Isaiah 53:3]].
+
+[^16]: [[Psalms 24.8|Psalm 24:8]].
+
+[^17]: [[Matthew 4.19|Matthew 4:19]].
+
+[^18]: [[Luke 10.37|Luke 10:37]].
+
+[^19]: [[John 14.15|John 14:15]].
 

@@ -1,7 +1,10 @@
 # Keep the Lines of Communication Strong
-*By Spencer W. Kimball - Acting President of the Council of the Twelve*
+
+By President Spencer W. Kimball - *Acting President of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
+
+>*Address delivered Thursday morning, April 6, 1972*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/04/keep-the-lines-of-communication-strong?lang=eng)
 
@@ -17,9 +20,9 @@ This was Jesus of Nazareth, born in a manger, reared in a small village, baptize
 
 His suffering before and on the cross and his great sacrifice can mean little or nothing to us unless we live his commandments. For he says:
 
-“... why call ye me, Lord, Lord, and do not the things which I say?” (Luke 6:46.)
+“… why call ye me, Lord, Lord, and do not the things which I say?” ([[Luke 6.46|Luke 6:46]].)
 
-“If ye love me, keep my commandments.” (John 14:15.)
+“If ye love me, keep my commandments.” ([[John 14.15|John 14:15]].)
 
 Certainly if we fail to live his teachings, we lose communication with him.
 
@@ -77,7 +80,7 @@ The sagging in spiritual conviction is frightening. Morale is often low even amo
 
 We are too affluent. We have too much money and other things. We have so many things. Even many poorer people have many things, and “things” become our life, and our vocabulary has been invaded with, “Let me do my thing.”
 
-Yet the Lord has said, “... seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.” (Matt. 6:33.) Too often, though, we want the “things” first.
+Yet the Lord has said, “… seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.” ([[Matthew 6.33|Matt. 6:33]].) Too often, though, we want the “things” first.
 
 We have a great generation of youth, but as I talk to many, I am amazed and surprised at the laxity of prayers among them, especially those who are in sin. Many have nearly ceased to pray. Their communication wires are down. Also numerous young people in their early married days cease to pray with regularity; their lines are sagging.
 
@@ -89,9 +92,9 @@ Israel’s King Ahab demanded of the prophet Elijah:
 
 “Art thou he that troubleth Israel?
 
-“And he answered, I have not troubled Israel; but thou, and thy father’s house, in that ye have forsaken the commandments of the Lord, and thou hast followed Baalim.” (1 Kgs. 18:17–18.)
+“And he answered, I have not troubled Israel; but thou, and thy father’s house, in that ye have forsaken the commandments of the Lord, and thou hast followed Baalim.” ([[1 Kings 18.17|1 Kgs. 18:17–18]][[1 Kings 18.18|]].)
 
-The spectacular drama portrayed on Mt. Carmel between Elijah the prophet and the ineffectual false priests of Baal is the story of sagging lines of communication. Great wickedness—and the Lord had sealed the heavens from rain. Elijah had said: “... if the Lord be God, follow him: but if Baal, then follow him. ...” (1 Kgs. 18:21.)
+The spectacular drama portrayed on Mt. Carmel between Elijah the prophet and the ineffectual false priests of Baal is the story of sagging lines of communication. Great wickedness—and the Lord had sealed the heavens from rain. Elijah had said: “… if the Lord be God, follow him: but if Baal, then follow him. …” ([[1 Kings 18.21|1 Kgs. 18:21]].)
 
 The contest brought about by Elijah was to prove to Israel that the gods of stone and wood and metal were powerless. When the 450 priests of Baal could not influence their gods to burn the offering, and the Lord, through Elijah, brought down fire from heaven and consumed the bullock, then with a revival of faith on the part of Israel, the clouds came and a torrential rain fell. Weak Israel had now set up new poles; they had restrung their wires, and communication was reestablished.
 
@@ -108,4 +111,7 @@ Sin comes when communication lines are down—it always does, sooner or later.
 We are living in a sagging world. There has been sin since Cain yielded to Satan, but perhaps never before has the world accepted sin so completely as a way of life. We shall continue to cry repentance from this and thousands of other pulpits. We shall continue to warn the people all too ready to accept the world as it pushes in upon them.
 
 May we always repair our sagging lines and fulfill our total obligations and thus keep close to our Lord and Savior, I pray in the name of Jesus Christ. Amen.
+
+
+
 

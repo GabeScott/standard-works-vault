@@ -1,5 +1,6 @@
 # Missions—Only You Can Decide
-*By By Devin G. Durrant - BYU First Ward, BYU Sixth Stake*
+
+By Devin G. Durrant - *BYU First Ward, BYU Sixth Stake*
 
 *Given in the April session of the 1984 General Conference*
 
@@ -25,7 +26,7 @@ And so he went to England. My dad told me that a few months into his mission he 
 
 In April of 1980 I entered the Missionary Training Center and began to learn Spanish to prepare to serve in Madrid, Spain. While in the MTC, I knew that I was doing the right thing. In my heart I wanted to someday return to play basketball. Yet at the same time I decided that even if I never played another game of collegiate ball I wouldn’t regret the decision that I had made.
 
-In Spain I had the honor of wearing a little name tag that said “Elder Durrant.” That title, Elder, was a greater honor than any I had ever before known. I had many experiences as a missionary. When someone accepted the gospel, I felt indescribable joy. When people rejected the message of the gospel, it brought me great sorrow.
+In Spain I had the honor of wearing a little name tag that said “Elder Durrant.” That title, *Elder,* was a greater honor than any I had ever before known. I had many experiences as a missionary. When someone accepted the gospel, I felt indescribable joy. When people rejected the message of the gospel, it brought me great sorrow.
 
 One of my most joyous memories began during the summer of 1981. We had walked the city streets all morning talking to businessmen about the Church. By noon we were hot and tired and ready to take a break. We decided to walk through a nearby park, and as we did so, we could see off to the side a group of young people. We decided to see if they would listen to our message.
 
@@ -66,4 +67,7 @@ I pray that the Lord will bless us in all of our decisions—decisions about mis
 I’m grateful for the honor that I had of being Elder Durrant while in Spain. I know that Jesus Christ lives, that while he was on the earth he taught us the way that we ought to live. I know that he expects us as holders of the priesthood to take what he has given us and go out and share it with others. And as we do this, he not only blesses the lives of the people we come in contact with, but he also blesses us. I know that the gospel he has given us is true. That’s why I wanted to share it—because it means so much in my life.
 
 I testify of these things in the name of Jesus Christ, amen.
+
+
+
 

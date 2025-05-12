@@ -1,5 +1,6 @@
 # The Value of People
-*By Charles A. Didier - Of the First Quorum of the Seventy*
+
+By Elder Charles A. Didier - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -27,27 +28,30 @@ I saw the fruits of sacrifice as I listened to district presidents striving to g
 
 I saw the fruits of work and dedication as I watched hundreds of members going to the temple, preparing for the coming area conferences, building the kingdom with a renewed spirit of service to their fellowmen. The complete list of the fruits would be too long, but you should know that your seeds fell into good ground and are bringing forth more and more good fruit.
 
-Yes, I remember what you have done and so do millions of people who looked for the light of example and truth. Today is already the past for many, and tomorrow wears a mask of fear. Today can still change tomorrow, but what kind of society are we building? What kind of a country will we have if we, as one people, do not defend ourselves against the assaults of evil? Was it not Moroni who took a piece of his garment and wrote on it, in order to keep his people from slavery, “In memory of our God, our religion, and freedom and our peace, our wives, and our children.” (Alma 46:12.)
+Yes, I remember what you have done and so do millions of people who looked for the light of example and truth. Today is already the past for many, and tomorrow wears a mask of fear. Today can still change tomorrow, but what kind of society are we building? What kind of a country will we have if we, as one people, do not defend ourselves against the assaults of evil? Was it not Moroni who took a piece of his garment and wrote on it, in order to keep his people from slavery, “In memory of our God, our religion, and freedom and our peace, our wives, and our children.” ([[Alma 46.12|Alma 46:12]].)
 
 I said in the beginning that the value of a country rests upon the values of its people. For the people of God, for the people who want peace, for their women and their children, there is only one way, one church, and one Lord.
 
-The way is to repent and obey the commandments of the Lord and be examples to the rest of the nations by listening to a living prophet. The church is The Church of Jesus Christ of Latter-day Saints, restored by the Prophet Joseph Smith. The Lord is the Lord Jesus Christ, of whom it is said, “For there is none other name under heaven given among men, whereby we must be saved.” (Acts 4:12.)
+The way is to repent and obey the commandments of the Lord and be examples to the rest of the nations by listening to a living prophet. The church is The Church of Jesus Christ of Latter-day Saints, restored by the Prophet Joseph Smith. The Lord is the Lord Jesus Christ, of whom it is said, “For there is none other name under heaven given among men, whereby we must be saved.” ([[Acts 4.12|Acts 4:12]].)
 
-This is eternal truth, and “whatsoever is more or less than this is the spirit of that wicked one who was a liar from the beginning.” (D&C 93:25.)
+This is eternal truth, and “whatsoever is more or less than this is the spirit of that wicked one who was a liar from the beginning.” ([[D&C 93.25|D&C 93:25]].)
 
 Today at school, at work, or wherever we may be, the choice between truth and evil will be presented to us in many different ways. It could be by papers, posters, individuals, radio, television, conversations. A mental choice has to be made concrete by accepting or refusing, by dictating or obeying, by counseling or dissuading.
 
 What are the feelings that will determine this daily choice? Love, passion, fear, courage, pride, laziness, or will? Are these feelings in accordance with our faith and testimony? The key to the righteous answer is given by a loving Father:
 
-“He that keepeth his commandments receiveth truth and light, until he is glorified in truth and knoweth all things.” (D&C 93:28.)
+“He that keepeth his commandments receiveth truth and light, until he is glorified in truth and knoweth all things.” ([[D&C 93.28|D&C 93:28]].)
 
 Obedience to the commandments must be the sole and essential condition determining our choices and thus determining our eternal life. Alma expressed it in a very clear way:
 
 “I ought not to harrow up in my desires, the firm decree of a just God, for I know that he granteth unto men according to their desire, whether it be unto death or unto life; yea, I know that he allotteth unto men according to their wills, whether they be unto salvation or unto destruction.
 
-“Yea, and I know that good and evil have come before all men; he that knoweth not good from evil is blameless; but he that knoweth good and evil, to him it is given according to his desires, whether he desireth good or evil, life or death, joy or remorse of conscience.” (Alma 29:4–5.)
+“Yea, and I know that good and evil have come before all men; he that knoweth not good from evil is blameless; but he that knoweth good and evil, to him it is given according to his desires, whether he desireth good or evil, life or death, joy or remorse of conscience.” ([[Alma 29.4|Alma 29:4–5]][[Alma 29.5|]].)
 
 May we remember together to “make a joyful noise unto the Lord, all ye lands.
 
-“Serve the Lord with gladness: ... know ye that the Lord he is God: It is he that hath made us, and not we ourselves; we are his people, and the sheep of his pasture.” (Ps. 100:1–3.) The future of the world is in the hands of the people, and following a living prophet today will determine our salvation. It is my prayer that, thanks to a great conference, we will make new resolutions so that we will be remembered forever and ever as one people who wanted to serve the Lord. In the name of Jesus Christ. Amen.
+“Serve the Lord with gladness: … know ye that the Lord he is God: It is he that hath made us, and not we ourselves; we are his people, and the sheep of his pasture.” ([[Psalms 100.1|Ps. 100:1–3]][[Psalms 100.2|]][[Psalms 100.3|]].) The future of the world is in the hands of the people, and following a living prophet today will determine our salvation. It is my prayer that, thanks to a great conference, we will make new resolutions so that we will be remembered forever and ever as one people who wanted to serve the Lord. In the name of Jesus Christ. Amen.
+
+
+
 

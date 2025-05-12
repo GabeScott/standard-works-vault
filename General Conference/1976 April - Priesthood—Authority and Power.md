@@ -1,5 +1,6 @@
 # Priesthood—Authority and Power
-*By By Bishop H. Burke Peterson - First Counselor in the Presiding Bishopric*
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -11,9 +12,9 @@ Spiritual growth, and the happiness resulting therefrom, is based on an understa
 
 “Behold, there are many called, but few are chosen. And why are they not chosen?
 
-“Because their hearts are set so much upon the things of this world, and aspire to the honors of men, that they do not learn this one lesson [listen to the lesson, brethren]—
+“Because their hearts are set so much upon the things of this world, and aspire to the honors of men, that they do not learn this one lesson \[listen to the lesson, brethren\]—
 
-“That the rights of the priesthood are inseparably connected with the powers of heaven, and that the powers of heaven cannot be controlled nor handled only upon the principles of righteousness.” (D&C 121:34–36.)
+“That the rights of the priesthood are inseparably connected with the powers of heaven, and that the powers of heaven cannot be controlled nor handled only upon the principles of righteousness.” ([[D&C 121.34|D&C 121:34–36]][[D&C 121.35|]][[D&C 121.36|]].)
 
 From this I understand that there is a difference between priesthood authority and priesthood power. Power and authority in the priesthood are not necessarily synonymous. All of us who hold the priesthood have the authority to act for the Lord, but the effectiveness of our authority—or if you please, the power that comes through that authority—depends on the pattern of our lives; it depends on our righteousness. Note again, “The powers of heaven cannot be controlled nor handled only upon the principles of righteousness.”
 
@@ -35,29 +36,29 @@ Brethren, can you hear the Lord counseling his sons? Can you hear him say to us,
 
 “We have learned by sad experience that it is the nature and disposition of almost all men, as soon as they get a little authority, as they suppose, they will immediately begin to exercise unrighteous dominion.
 
-“Hence many are called, but few are chosen.” (D&C 121:39–40.)
+“Hence many are called, but few are chosen.” ([[D&C 121.39|D&C 121:39–40]][[D&C 121.40|]].)
 
 Many are the brethren who do not understand what these sacred words mean:
 
-We must not be inconsiderate;
+- We must not be inconsiderate;
 
-We must not command;
+- We must not command;
 
-We must not be dictators;
+- We must not be dictators;
 
-We must not become puffed up in pride.
+- We must not become puffed up in pride.
 
-I would like to say something about the power of the priesthood as it can bless the lives of women. Elder John A. Widtsoe said, “The Priesthood is not bestowed on the basis of mental power but is given to good men. ... Woman has her gift of equal magnitude. ... A wiser power than any on earth understands why a spirit in the far off beginning was male or female.” (John A. Widtsoe, Priesthood and Church Government, Deseret Book Co., 1954, p. 90.)
+I would like to say something about the power of the priesthood as it can bless the lives of women. Elder John A. Widtsoe said, “The Priesthood is not bestowed on the basis of mental power but is given to good men. … Woman has her gift of equal magnitude. … A wiser power than any on earth understands why a spirit in the far off beginning was male or female.” (John A. Widtsoe, *Priesthood and Church Government,* Deseret Book Co., 1954, p. 90.)
 
 Men are not superior to women. However, by the very nature of some of the things we do, we imply this. The fact that a man holds the priesthood and is the presiding officer in the home, as well as in Church organizations, does not in any way make him a superior being. The priesthood is a divinely given authority and responsibility which will receive its ultimate fulfillment only when there is a devoted and happy wife at his side. Note “happy” is the description of the wife.
 
 No man will ever be exalted by himself, no matter how great his works on the earth.
 
-Brethren, we would do well to understand that many of the finest ideas, useful in the proper management of a family, can come from openly discussing with, and seeking counsel from, our wives. Women have a spirit and mental ability that is absolutely essential in strengthening the family relationship. It must be nurtured, however, and drawn upon by the presiding priesthood authority in that home. We should be gladdened, not threatened, by our wives’ good qualities. Elder Neal A. Maxwell once said, “I am grateful for [my wife’s] traits and qualities that excel my own in some critical dimensions of our partnership.” (BYU Twelve-Stake Fireside, Jan. 4, 1976.)
+Brethren, we would do well to understand that many of the finest ideas, useful in the proper management of a family, can come from openly discussing with, and seeking counsel from, our wives. Women have a spirit and mental ability that is absolutely essential in strengthening the family relationship. It must be nurtured, however, and drawn upon by the presiding priesthood authority in that home. We should be gladdened, not threatened, by our wives’ good qualities. Elder Neal A. Maxwell once said, “I am grateful for \[my wife’s\] traits and qualities that excel my own in some critical dimensions of our partnership.” (BYU Twelve-Stake Fireside, Jan. 4, 1976.)
 
 May I also suggest to you that it is important for the brethren to develop the same concern for the training of girls as they have for the training of the priesthood boys. We need only refer to the experience of the 2,000 Ammonite sons of Helaman for an insight into one measure of the capacity of the women. I quote from Alma:
 
-“Now behold, there were two thousand of those young men, who entered into this covenant and took their weapons of war to defend their country. ...
+“Now behold, there were two thousand of those young men, who entered into this covenant and took their weapons of war to defend their country. …
 
 “And they were all young men, and they were exceedingly valiant for courage, and also for strength and activity; but behold, this was not all—they were men who were true at all times in whatsoever thing they were entrusted.
 
@@ -65,7 +66,7 @@ May I also suggest to you that it is important for the brethren to develop the s
 
 “Now they never had fought, yet they did not fear death; and they did think more upon the liberty of their fathers than they did upon their lives; yea, they had been taught by their mothers, that if they did not doubt, God would deliver them.
 
-“And they rehearsed unto me the words of their mothers, saying: We do not doubt our mothers knew it.” (Alma 53:18, 20–21; 56:47–48.)
+“And they rehearsed unto me the words of their mothers, saying: We do not doubt our mothers knew it.” ([[Alma 53.18|Alma 53:18, 20–21]][[Alma 53.20|]][[Alma 53.21|]]; [[Alma 56.47|56:47–48]][[Alma 56.48|]].)
 
 It seems more than a coincidence to me that when mention is made of all who could be counted as being responsible for the great valor and spirit of these 2,000 young men, the recorder felt impressed to mention only the training by their mothers. Many others might have been mentioned—mothers were. The fact that mothers are one of the keys and secrets to the strength of the Aaronic Priesthood would lead me to believe that more time must be spent by priesthood leaders in training girls in proper priesthood principles, that future Aaronic Priesthood generations might be as blessed as were Helaman’s 2,000 sons.
 
@@ -83,9 +84,12 @@ And now, my brethren, in conclusion, may I continue in the Doctrine and Covenant
 
 “Let thy bowels also be full of charity towards all men, and to the household of faith, and let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven.
 
-“The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth; and thy dominion shall be an everlasting dominion, and without compulsory means it shall flow unto thee forever and ever.” (D&C 121:41–46.)
+“The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth; and thy dominion shall be an everlasting dominion, and without compulsory means it shall flow unto thee forever and ever.” ([[D&C 121.41|D&C 121:41–46]][[D&C 121.42|]][[D&C 121.43|]][[D&C 121.44|]][[D&C 121.45|]][[D&C 121.46|]].)
 
 What a beautiful promise! Blessed is the family that can look to you brethren as the vital conduit joining heaven and home.
 
 I testify to you that I know that He lives, that Jesus is the Christ, in the name of Jesus Christ. Amen.
+
+
+
 

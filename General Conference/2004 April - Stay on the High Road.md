@@ -1,7 +1,10 @@
 # Stay on the High Road
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2004 General Conference*
+
+>*Pray for the strength to walk the high road, which at times may be lonely but which will lead to peace and happiness and joy supernal.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2004/04/stay-on-the-high-road?lang=eng)
 
@@ -23,7 +26,7 @@ There has come to you as your birthright something beautiful and sacred and divi
 
 In my quiet moments, I think of the future with all of its wonderful possibilities and with all of its terrible temptations. I wonder what will happen to you in the next 10 years. Where will you be? What will you be doing? That will depend on the choices you make, some of which may seem unimportant at the time but which will have tremendous consequences.
 
-Someone has said, “It may make a difference to all eternity whether we do right or wrong today” (James Freeman Clarke, in Elbert Hubbard’s Scrap Book [1923], 95).
+Someone has said, “It may make a difference to all eternity whether we do right or wrong today” (James Freeman Clarke, in *Elbert Hubbard’s Scrap Book* \[1923\], 95).
 
 You have the potential to become anything to which you set your mind. You have a mind and a body and a spirit. With these three working together, you can walk the high road that leads to achievement and happiness. But this will require effort and sacrifice and faith.
 
@@ -47,7 +50,7 @@ But, my dear friends, we cannot accept that which has become common in the world
 
 Modesty in dress and manner will assist in protecting against temptation. It may be difficult to find modest clothing, but it can be found with enough effort. I sometimes wish every girl had access to a sewing machine and training in how to use it. She could then make her own attractive clothing. I suppose this is an unrealistic wish. But I do not hesitate to say that you can be attractive without being immodest. You can be refreshing and buoyant and beautiful in your dress and in your behavior. Your appeal to others will come of your personality, which is the sum of your individual characteristics. Be happy. Wear a smile. Have fun. But draw some rigid parameters, a line in the sand, as it were, beyond which you will not go.
 
-The Lord speaks of those who refuse counsel and who “stumble and fall when the storms descend, and the winds blow, and the rains descend, and beat upon their house” (D&C 90:5).
+The Lord speaks of those who refuse counsel and who “stumble and fall when the storms descend, and the winds blow, and the rains descend, and beat upon their house” ([[D&C 90.5|D&C 90:5]]).
 
 Stay away from sleazy entertainment. It may be attractive, but in all too many cases it is degrading. I do not wish to be prudish about this. I do not wish to be regarded as a killjoy. I do not wish to be thought of as an old man who knows nothing about youth and their problems. I think I do know something about these things, and it is out of my heart and my love that I plead with you to stay on the high road. Create fun with your good friends. Sing and dance, swim and hike, become involved in projects together, and live life with zest and excitement.
 
@@ -55,9 +58,9 @@ Respect your bodies. The Lord has described them as temples. So many these days 
 
 And while I am speaking of things to avoid, I again mention drugs. Please do not experiment with them. Stay away from them as if they were a foul disease, for such they really are.
 
-Never assume that you can make it alone. You need the help of the Lord. Never hesitate to get on your knees in some private place and speak with Him. What a marvelous and wonderful thing is prayer. Think of it. We can actually speak with our Father in Heaven. He will hear and respond, but we need to listen to that response. Nothing is too serious and nothing too unimportant to share with Him. He has said, “Come unto me, all ye that labour and are heavy laden, and I will give you rest” (Matt. 11:28). He continues, “For my yoke is easy, and my burden is light” (Matt. 11:30).
+Never assume that you can make it alone. You need the help of the Lord. Never hesitate to get on your knees in some private place and speak with Him. What a marvelous and wonderful thing is prayer. Think of it. We can actually speak with our Father in Heaven. He will hear and respond, but we need to listen to that response. Nothing is too serious and nothing too unimportant to share with Him. He has said, “Come unto me, all ye that labour and are heavy laden, and I will give you rest” ([[Matthew 11.28|Matthew 11:28]]). He continues, “For my yoke is easy, and my burden is light” ([[Matthew 11.30|Matthew 11:30]]).
 
-That simply means that when all is said and done, His way is easy to bear, and His path is easy to trod. Paul wrote to the Romans, “For the kingdom of God is not meat and drink; but righteousness, and peace, and joy in the Holy Ghost” (Rom. 14:17).
+That simply means that when all is said and done, His way is easy to bear, and His path is easy to trod. Paul wrote to the Romans, “For the kingdom of God is not meat and drink; but righteousness, and peace, and joy in the Holy Ghost” ([[Romans 14.17|Romans 14:17]]).
 
 Faith in the Lord Jesus Christ must be a beacon light before you, a polar star in your sky.
 
@@ -84,4 +87,7 @@ I pray that your lives will not be wasted but that they may be fruitful of great
 I wish to emphasize that if you make a mistake, it can be forgiven, it can be overcome, it can be lived above. You can go on to success and happiness. But I hope that such an experience will not come your way, and I am confident it will not if you will set your mind and pray for the strength to walk the high road, which at times may be lonely but which will lead to peace and happiness and joy supernal in this life and everlastingly hereafter.
 
 For this I pray in the sacred name of Him who gave His life to make it possible for us to live eternally, even the Lord Jesus Christ, amen.
+
+
+
 

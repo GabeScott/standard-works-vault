@@ -1,5 +1,6 @@
 # “Let Us Not Weary in Well Doing”
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -17,9 +18,12 @@ One cannot study the history of the Church without being impressed with how stea
 
 We have been entrusted with a special message for all the world. We must ever be conscious of that trust and ever be on the alert. There is a tide to be taken now in the affairs of the Church in all the earth which will lift us up and carry us forward as never before. Let us then not weary in well doing.
 
-Now, my brothers and sisters, as we move into the last half of the Church’s second century, let us keep our faith beautifully simple. May we, as Paul said, be “wise unto that which is good, and simple concerning evil” (Rom. 16:19). Learn to recognize evil, and shun it always. May we keep Church programs and organizations simple. If we do, we will build to a thrilling and rewarding momentum in the days and months and years ahead. The Savior urged his followers to be “wise as serpents, and harmless as doves” (Matt. 10:16). Let us follow that counsel today. Let us so live that if people speak critically of us they must do so falsely and without justification.
+Now, my brothers and sisters, as we move into the last half of the Church’s second century, let us keep our faith beautifully simple. May we, as Paul said, be “wise unto that which is good, and simple concerning evil” ([[Romans 16.19|Rom. 16:19]]). Learn to recognize evil, and shun it always. May we keep Church programs and organizations simple. If we do, we will build to a thrilling and rewarding momentum in the days and months and years ahead. The Savior urged his followers to be “wise as serpents, and harmless as doves” ([[Matthew 10.16|Matt. 10:16]]). Let us follow that counsel today. Let us so live that if people speak critically of us they must do so falsely and without justification.
 
-Let us hold fast to the iron rod. The Savior urged us to put our hand to the plow without looking back. In that spirit we are being asked to have humility and a deep and abiding faith in the Lord and to move forward—trusting in him, refusing to be diverted from our course, either by the ways of the world or the praise of the world. I see that quality of readiness and devotion in our people today. There is so much yet to be done! let us, then, move forward; let us continue the journey with lengthened stride. The Lord will lead us along, and he will be in our midst and not forsake us.
+Let us hold fast to the iron rod. The Savior urged us to put our hand to the plow without looking back. In that spirit we are being asked to have humility and a deep and abiding faith in the Lord and to move forward—trusting in him, refusing to be diverted from our course, either by the *ways* of the world or the *praise* of the world. I see that quality of readiness and devotion in our people today. There is so much yet to be done! let us, then, move forward; let us continue the journey with lengthened stride. The Lord will lead us along, and he will be in our midst and not forsake us.
 
 I know with all my soul that Jesus Christ is the Son of God, that he died on the cross and was resurrected from the dead. He is the risen Lord, the Great Presiding High Priest, and he stands at the head of the Church. Of this I testify this beautiful Easter Sunday, on this great anniversary of the restoration and organization of the Church on this very spot 150 years ago. In the name of Jesus Christ. Amen.
+
+
+
 

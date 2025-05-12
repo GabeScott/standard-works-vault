@@ -1,5 +1,6 @@
 # Worthy of Proper Recommendation
-*By N. Eldon Tanner - First Counselor in the First Presidency*
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -39,13 +40,13 @@ A few years ago the Church distributed to our young people a series of small car
 
 “Some critics of modern youth claim that cheating in high schools and colleges is increasing. Even worse, they claim that it is common for fellow students—noncheaters—and some teachers to condone this practice. Various excuses for classroom cheating are offered:
 
-“—to stay eligible for athletic teams or other activities;
+- “—to stay eligible for athletic teams or other activities;
 
-“—to win the favor of fellow students or teachers;
+- “—to win the favor of fellow students or teachers;
 
-“—to satisfy parents who believe their sons or daughters are, and should be, ‘as smart as anybody’;
+- “—to satisfy parents who believe their sons or daughters are, and should be, ‘as smart as anybody’;
 
-“—or simply to stay in school.
+- “—or simply to stay in school.
 
 “None of these reasons is an honest reason; none will hold up in the test of time and conscience. Cheating is dishonest wherever you find it—always was and always will be.
 
@@ -53,7 +54,7 @@ A few years ago the Church distributed to our young people a series of small car
 
 “When anyone cheats, whether by taking help to pass a school test or through more flagrant forms of dishonesty, he cheats himself first.
 
-“Don’t do it! Always, in all ways—be honest with yourself.”
+“Don’t do it! Always, in all ways—*be honest with yourself.*”
 
 This training in honesty begins in the home. Each of us has personal possessions which are ours alone. We can and should share such things as toys and games and our services to one another; but we have money, or jewelry, or clothing that is the personal property of each and should not be taken without the consent of the owner. A child who respects such honesty in the home is not apt to violate the principle outside the home. On the other hand, lack of such training fosters disrespect for the rights and property of others.
 
@@ -61,7 +62,7 @@ I realize that young people today are under a lot of pressure from outside influ
 
 As a child matures and starts working for money, whether for his parents or his neighbors, he will deal honestly and give honest labor for the returns he gets. Often the earliest employment for a young man is as a newsboy. Countless numbers of our successful businessmen today got their start in this occupation. They learned to be prompt and dependable. I knew a newsboy who always had his papers delivered on time regardless of the weather, and he handled his collections in a pleasant, courteous, and businesslike manner. He had many satisfied customers and had no difficulty in getting new subscriptions. This early training helped him to become a most successful businessman.
 
-Another boy I knew—and I have known several like him—did not deliver his papers on time, got mixed up on his collections, and the news office had so many complaints about him that they had to replace him. It is not what work we do, but how we do it that counts.
+Another boy I knew—and I have known several like him—did not deliver his papers on time, got mixed up on his collections, and the news office had so many complaints about him that they had to replace him. It is not *what* work we do, but *how* we do it that counts.
 
 When I was president of TransCanada Pipelines, we had an office boy who did only what we asked him to do. He would wait until called to run an errand, or stand around waiting for instructions, never offering to be helpful. As the company grew and the job became more than he could handle, we hired another lad, even younger, who was alert and always looking for extra things to do to be helpful. He would finish an errand and then see or ask for something else to do. In just a few months one of the departments wanted him for a position of greater responsibility, and within two years he had three advancements, salary increases, and more responsibilities. The other lad remained an errand boy.
 
@@ -87,7 +88,10 @@ Now, young men, if you were to ask me for my help in seeking employment, what ki
 
 If it is so important to be highly recommended or to have adequate references in order to get employment, how much more important it is that we live worthy of a good or satisfactory recommendation from our Church authorities so that we can progress in the various offices and functions of the priesthood, and eventually gain admission to the kingdom of heaven.
 
-As holders of the priesthood we should know that God is our Father; that his Son Jesus Christ is our Savior; that through his atoning sacrifice we can be resurrected, and by following his teachings gain eternal life; that through revelation The Church of Jesus Christ of Latter-day Saints was established; that Spencer W. Kimball is a prophet of God and President of the church of Jesus Christ; and that the priesthood which we hold is the power of God delegated to us to act in his name.
+As holders of the priesthood we should know that God is our Father; that his Son Jesus Christ is our Savior; that through his atoning sacrifice we can be resurrected, and by following his teachings gain eternal life; that through revelation The Church of Jesus Christ of Latter-day Saints was established; that Spencer W. Kimball is a prophet of God and President of the church of Jesus Christ; and that the priesthood which we hold is the power of God delegated to us to act in his name.
 
 May we strive every day to live worthy in every way of this great privilege and blessing, I humbly pray in the name of the Lord Jesus Christ. Amen.
+
+
+
 

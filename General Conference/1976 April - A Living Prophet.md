@@ -1,5 +1,6 @@
 # A Living Prophet
-*By Loren C. Dunn - Of the Seventy*
+
+By Elder Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -13,9 +14,9 @@ The conference itself was very interesting. I think the theme more than anything
 
 President Brigham Young, of course, was President of the Church, and four members of the Twelve who were in attendance at that conference were to be future presidents of the Church.
 
-Among the teachings that caught my eye at that April 1876 conference were these words from Wilford Woodruff, and I quote, “It may be asked—What are the commandments of the Lord? Many of them are contained in these records, the Bible, Book of Mormon and the Book of Doctrine and Covenants; and we have the living oracles with us, and have had from the commencement. The Lord will never leave his kingdom without a lawgiver, leader, president ... to direct the affairs of his Church on the earth, for the reason that it is the dispensation of the fullness of times, in which God has set up a kingdom which is to be an everlasting kingdom, and to whose dominion there will be no end.” (Journal of Discourses, 18:189).
+Among the teachings that caught my eye at that April 1876 conference were these words from Wilford Woodruff, and I quote, “It may be asked—What are the commandments of the Lord? Many of them are contained in these records, the Bible, Book of Mormon and the Book of Doctrine and Covenants; and we have the living oracles with us, and have had from the commencement. The Lord will never leave his kingdom without a lawgiver, leader, president … to direct the affairs of his Church on the earth, for the reason that it is the dispensation of the fullness of times, in which God has set up a kingdom which is to be an everlasting kingdom, and to whose dominion there will be no end.” (*Journal of Discourses,* 18:189).
 
-That caused me to reflect on the absolute importance of a living oracle, and also on the words of Elder Orson F. Whitney of the Council of the Twelve, who said: “The Latter-day Saints do not do things because they happen to be printed in a book. They do not do things because God told the Jews to do them; nor do they do or leave undone anything because of instructions that Christ gave to the Nephites. Whatever is done by this Church is because God speaking from heaven in our day has commanded this Church to do it. No book presides over this Church and no books lie at its foundation. You cannot pile up books enough to take the place of God’s priesthood inspired by the power of the Holy Ghost.” (Conference Reports, Oct. 1916.)
+That caused me to reflect on the absolute importance of a living oracle, and also on the words of Elder Orson F. Whitney of the Council of the Twelve, who said: “The Latter-day Saints do not do things because they happen to be printed in a book. They do not do things because God told the Jews to do them; nor do they do or leave undone anything because of instructions that Christ gave to the Nephites. Whatever is done by this Church is because God speaking from heaven in our day has commanded this Church to do it. No book presides over this Church and no books lie at its foundation. You cannot pile up books enough to take the place of God’s priesthood inspired by the power of the Holy Ghost.” (*Conference Reports,* Oct. 1916.)
 
 Elder Whitney was not taking away from the power and majesty of the scriptures—he was just putting them into perspective. He also said, “No man ought to contend for what is in the books in the face of God’s mouthpiece who speaks for him and interprets his word. To so contend is to defer to the dead letter in preference to the living oracles, which is always a false position.”
 
@@ -37,7 +38,7 @@ In the Tahiti area conference he urged us to do missionary work and to send our 
 
 I think we all recognize these messages for he has repeated them from this pulpit many times. The only thing left to be done is to follow the prophet.
 
-President Kimball’s visit to Australia was the second official visit of a president of the Church. The first was President David O. McKay in 1955. When President McKay was in Brisbane, Australia, the mission president one day took him out to see the city. During the course of the day they were looking across the Brisbane River into a new suburb which was known as Chermside. President McKay said to the mission president, “Do we have any missionaries in that area?” The mission president said, “No.” President McKay said, “Send the missionaries in, for the people are ready.” Missionaries were sent into the area and they enjoyed tremendous success. Today Chermside is part of the Brisbane Fourth Ward of the Brisbane Australia Stake.
+President Kimball’s visit to Australia was the second official visit of a president of the Church. The first was President David O. McKay in 1955. When President McKay was in Brisbane, Australia, the mission president one day took him out to see the city. During the course of the day they were looking across the Brisbane River into a new suburb which was known as Chermside. President McKay said to the mission president, “Do we have any missionaries in that area?” The mission president said, “No.” President McKay said, “Send the missionaries in, for the people are ready.” Missionaries were sent into the area and they enjoyed tremendous success. Today Chermside is part of the Brisbane Fourth Ward of the Brisbane Australia Stake.
 
 These are the kinds of blessings that come when people not only listen to the living oracle, but do what he says. The blessings are found in doing the word and not just in hearing the word. The Church today is also responding to a prophet. President Kimball has asked every young man who is worthy and able to go into the mission field, and because of this we now have more missionaries in the field than ever before in the history of this dispensation. But many more are still needed.
 
@@ -47,5 +48,8 @@ Thank God for the scriptures which help us to grow in the gospel of Jesus Christ
 
 Oh, truly we thank thee, oh God, for a prophet, to lead us in these latter days.
 
-I bear you my witness that that prophet today is Spencer W. Kimball. I know that God our Father lives, and that Jesus the Christ is his son. I know this. I bear you that witness. In the name of Jesus Christ. Amen.
+I bear you my witness that that prophet today is Spencer W. Kimball. I know that God our Father lives, and that Jesus the Christ is his son. I know this. I bear you that witness. In the name of Jesus Christ. Amen.
+
+
+
 

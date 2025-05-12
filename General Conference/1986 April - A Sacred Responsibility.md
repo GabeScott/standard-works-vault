@@ -1,5 +1,6 @@
 # A Sacred Responsibility
-*By Ezra Taft Benson - President of the Church*
+
+By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1986 General Conference*
 
@@ -11,7 +12,7 @@ I have not words to express my gratitude to God, the Father of our spirits, to o
 
 I wish to convey my appreciation to all those who raised their hands in a covenant to the Lord to sustain me. I have felt the expression of your hearts and your commitment to the Lord as your hands pointed heavenward.
 
-I am reminded how Moses up on the hill raised his arms for the victory of the armies of Israel. As long as his arms were raised, Israel prevailed, but when they dropped from weariness, then the enemy prevailed. And so Aaron and Hur “stayed up his hands, the one on the one side, and the other on the other side,” and Israel was victorious. (Ex. 17:12.) So will we be victorious as we hold up the arms of the Lord’s anointed servants.
+I am reminded how Moses up on the hill raised his arms for the victory of the armies of Israel. As long as his arms were raised, Israel prevailed, but when they dropped from weariness, then the enemy prevailed. And so Aaron and Hur “stayed up his hands, the one on the one side, and the other on the other side,” and Israel was victorious. ([[Exodus 17.12|Ex. 17:12]].) So will we be victorious as we hold up the arms of the Lord’s anointed servants.
 
 I have been aware of those who preceded me in this office as President of the Church. I have felt very keenly my dependence upon the Lord and the absolute necessity of relying upon Him for His direction in the conduct of the affairs of the Church as those in the past have done.
 
@@ -21,7 +22,7 @@ I am grateful for the strong counselors whom the Lord has provided me—Presiden
 
 I love the members of the Council of the Twelve, with whom I have been privileged to labor most closely over the years. It has also been a joy to serve with members of the First Quorum of the Seventy and the Presiding Bishopric.
 
-There is a great spirit of unity among the General Authorities of the Church. That unity is very real and most important, for the Lord has said, “If ye are not one ye are not mine.” (D&C 38:27.)
+There is a great spirit of unity among the General Authorities of the Church. That unity is very real and most important, for the Lord has said, “If ye are not one ye are not mine.” ([[D&C 38.27|D&C 38:27]].)
 
 We shall continue to work together as Brethren, united in one purpose—to move forward the work of the Lord.
 
@@ -65,13 +66,13 @@ In the opening session of this conference we talked about cleansing the inner ve
 
 The Lord inspired His servant Lorenzo Snow to reemphasize the principle of tithing to redeem the Church from financial bondage. In those days the General Authorities took that message to the members of the Church.
 
-Now, in our day, the Lord has revealed the need to reemphasize the Book of Mormon to get the Church and all the children of Zion out from under condemnation—the scourge and judgment. (See D&C 84:54–58.) This message must be carried to the members of the Church throughout the world.
+Now, in our day, the Lord has revealed the need to reemphasize the Book of Mormon to get the Church and all the children of Zion out from under condemnation—the scourge and judgment. (See [[D&C 84.54|D&C 84:54–58]][[D&C 84.55|]][[D&C 84.56|]][[D&C 84.57|]][[D&C 84.58|]].) This message must be carried to the members of the Church throughout the world.
 
 Now, as we come to the close of this great conference, I want you to know that I know that Christ is at the helm. This is His world. This is His Church. His purposes will be accomplished.
 
-Christ is our ideal. He is our exemplar. What manner of men and women should we be? Even as He is. (See 3 Ne. 27:27.) The best measure of true greatness is how Christlike we are.
+Christ is our ideal. He is our exemplar. What manner of men and women should we be? Even as He is. (See [[3 Nephi 27.27|3 Ne. 27:27]].) The best measure of true greatness is how Christlike we are.
 
-The Book of Mormon declares that “every thing which inviteth and enticeth to do good, and to love God, and to serve him, is inspired of God.” And “whatsoever thing persuadeth men to do evil, and believe not in Christ, and deny him, and serve not God, then ye may know with a perfect knowledge it is of the devil.” (Moro. 7:13, 17.)
+The Book of Mormon declares that “every thing which inviteth and enticeth to do good, and to love God, and to serve him, is inspired of God.” And “whatsoever thing persuadeth men to do evil, and believe not in Christ, and deny him, and serve not God, then ye may know with a perfect knowledge it is of the devil.” ([[Moroni 7.13|Moro. 7:13, 17]][[Moroni 7.17|]].)
 
 Let us use that standard to judge what we read, the music we hear, the entertainment we watch, the thoughts we think. Let us be more Christlike.
 
@@ -79,7 +80,10 @@ I assure you of my love and God’s love for all of His children in every part o
 
 Now, in the authority of the sacred priesthood in me vested, I invoke my blessing upon the Latter-day Saints and upon good people everywhere.
 
-I bless you with increased discernment to judge between Christ and anti-Christ. I bless you with increased power to do good and to resist evil. I bless you with increased understanding of the Book of Mormon. I promise you that from this moment forward, if we will daily sup from its pages and abide by its precepts, God will pour out upon each child of Zion and the Church a blessing hitherto unknown—and we will plead to the Lord that He will begin to lift the condemnation—the scourge and judgment. Of this I bear solemn witness.
+I bless you with increased discernment to judge between Christ and anti-Christ. I bless you with increased power to do good and to resist evil. I bless you with increased *understanding* of the Book of Mormon. I promise you that from this moment forward, if we will daily sup from its pages and abide by its precepts, God will pour out upon each child of Zion and the Church a blessing hitherto unknown—and we will plead to the Lord that He will begin to lift the condemnation—the scourge and judgment. Of this I bear solemn witness.
 
 I testify that the Book of Mormon is the word of God. Jesus is the Christ. Joseph Smith is His prophet. The Church of Jesus Christ of Latter-day Saints is true. In the name of Jesus Christ, amen.
+
+
+
 

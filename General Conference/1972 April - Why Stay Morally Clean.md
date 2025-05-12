@@ -1,5 +1,6 @@
 # Why Stay Morally Clean
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -87,7 +88,7 @@ The only righteous use of this sacred power is within the covenant of marriage.
 
 Never misuse these sacred powers.
 
-And now, my young friends, I must tell you soberly and seriously that God has declared in unmistakable language that misery and sorrow will follow the violation of the laws of chastity. “... wickedness never was happiness.” (Alma 41:10.)
+And now, my young friends, I must tell you soberly and seriously that God has declared in unmistakable language that misery and sorrow will follow the violation of the laws of chastity. “… wickedness never was happiness.” ([[Alma 41.10|Alma 41:10]].)
 
 These laws were set up to guide all of his children in the use of this gift.
 
@@ -111,7 +112,7 @@ This experience can come, insofar as I know, only through having children of you
 
 Some of you may not experience the blessings of marriage. Protect nonetheless these sacred powers of creation, for there is a great power of compensation that may well apply to you.
 
-Through this loving one more than you love yourself, you become truly Christian. Then you know, as few others know, what the word Father means when it is spoken of in the scriptures. You may then feel something of the love and concern that he has for us.
+Through this loving one more than you love yourself, you become truly Christian. Then you know, as few others know, what the word *Father* means when it is spoken of in the scriptures. You may then feel something of the love and concern that he has for us.
 
 It should have great meaning that of all the titles of respect and honor and admiration that could be given him, God himself, he who is the highest of all, chose to be addressed simply as Father.
 
@@ -124,4 +125,7 @@ I picture you with a companion whom you love and who loves you. I picture you at
 I cannot frame this picture. I would not if I could, for it has no bounds. Your happiness will have no ends if you obey his laws.
 
 I pray God’s blessings upon you, our youth. May our Heavenly Father watch over you and sustain you, that in the expression of this sacred gift you may draw close to him. He lives. He is our Father. Of this I bear witness in the name of Jesus Christ. Amen.
+
+
+
 

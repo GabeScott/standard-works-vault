@@ -1,5 +1,6 @@
 # “They Taught and Did Minister One to Another”
-*By James M. Paramore - Of the First Quorum of the Seventy*
+
+By Elder James M. Paramore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1986 General Conference*
 
@@ -19,11 +20,11 @@ My friend prayed harder and harder for guidance and direction, went to the homes
 
 One of the fathers he was teaching had what was thought to be an incurable alcohol problem. Every day after work for twenty years, he bought alcohol and consumed it until he could hardly find his way home. He received friendship and encouragement to pray to heaven for help. One day after his work, while he was driving into the countryside with his bottle, a voice came into his heart to stop his car, walk out into the field, and pray to Father in Heaven for help. His simple prayer was heard by his Father in Heaven, and as he stood up and walked back to his car, all desire to drink liquor left his life. The powers of heaven had descended upon him, and he knew that God lived and loved him.
 
-I heard him later stand before the members and testify of the love of God and of my friend and others who had ministered unto him and taught him. My heart has been touched as I think of how powerful and important the words are: “They taught and did minister one to another.” (3 Ne. 26:19.)
+I heard him later stand before the members and testify of the love of God and of my friend and others who had ministered unto him and taught him. My heart has been touched as I think of how powerful and important the words are: “They taught and did minister one to another.” ([[3 Nephi 26.19|3 Ne. 26:19]].)
 
-President Spencer W. Kimball gave these insights about the ministry of the Savior: “Never did the Savior give in expectation. I know of no case in his life in which there was an exchange. He was always the giver, seldom the recipient. Never did he give shoes, hose, or a vehicle; never did he give perfume, a shirt, or a fur wrap. His gifts were of such a nature that the recipient could hardly exchange or return the value. His gifts were rare ones: eyes to the blind, ears to the deaf, and legs to the lame; cleanliness to the unclean, wholeness to the infirm, and breath to the lifeless. His gifts were opportunity to the downtrodden, freedom to the oppressed, light in the darkness, forgiveness to the repentant, hope to the despairing. His friends gave him shelter, food, and love. He gave them of himself, his love, his service, his life. The wise men brought him gold and frankincense. He gave them and all their fellow mortals resurrection, salvation, and eternal life. We should strive to give as he gave. To give of oneself is a holy gift.” (The Wondrous Gift, Salt Lake City: Deseret Book Co., 1978, p. 2.)
+President Spencer W. Kimball gave these insights about the ministry of the Savior: “Never did the Savior give in expectation. I know of no case in his life in which there was an exchange. He was always the giver, seldom the recipient. Never did he give shoes, hose, or a vehicle; never did he give perfume, a shirt, or a fur wrap. His gifts were of such a nature that the recipient could hardly exchange or return the value. His gifts were rare ones: eyes to the blind, ears to the deaf, and legs to the lame; cleanliness to the unclean, wholeness to the infirm, and breath to the lifeless. His gifts were opportunity to the downtrodden, freedom to the oppressed, light in the darkness, forgiveness to the repentant, hope to the despairing. His friends gave him shelter, food, and love. He gave them of himself, his love, his service, his life. The wise men brought him gold and frankincense. He gave them and all their fellow mortals resurrection, salvation, and eternal life. We should strive to give as he gave. To give of oneself is a holy gift.” (*The Wondrous Gift,* Salt Lake City: Deseret Book Co., 1978, p. 2.)
 
-One of the great stories on ministering to others comes from Alma in the Book of Mormon. (See Alma 17–19.) Ammon, one of the sons of Mosiah, truly gave himself to teaching and ministering unto the people for over fourteen years. He had waxed strong in the knowledge of truth by searching the scriptures diligently, by much prayer and fasting, and he received the spirit of prophecy and revelation and taught with power and authority from God. He prayed that he might be an instrument in the hands of God to bring the knowledge of the truth unto the Lamanites, a wild and hardened and ferocious people. As he came to the land of Ishmael, the Lamanites bound him and carried him before the king, Lamoni, to slay him or to make a slave of him. And now the ministry and teaching began.
+One of the great stories on ministering to others comes from Alma in the Book of Mormon. (See [[Alma 17.1|Alma 17–19]][[Alma 17.2|]][[Alma 17.3|]][[Alma 17.4|]][[Alma 17.5|]][[Alma 17.6|]][[Alma 17.7|]][[Alma 17.8|]][[Alma 17.9|]][[Alma 17.10|]][[Alma 17.11|]][[Alma 17.12|]][[Alma 17.13|]][[Alma 17.14|]][[Alma 17.15|]][[Alma 17.16|]][[Alma 17.17|]][[Alma 17.18|]][[Alma 17.19|]][[Alma 17.20|]][[Alma 17.21|]][[Alma 17.22|]][[Alma 17.23|]][[Alma 17.24|]][[Alma 17.25|]][[Alma 17.26|]][[Alma 17.27|]][[Alma 17.28|]][[Alma 17.29|]][[Alma 17.30|]][[Alma 17.31|]][[Alma 17.32|]][[Alma 17.33|]][[Alma 17.34|]][[Alma 17.35|]][[Alma 17.36|]][[Alma 17.37|]][[Alma 17.38|]][[Alma 17.39|]].) Ammon, one of the sons of Mosiah, truly gave himself to teaching and ministering unto the people for over fourteen years. He had waxed strong in the knowledge of truth by searching the scriptures diligently, by much prayer and fasting, and he received the spirit of prophecy and revelation and taught with power and authority from God. He prayed that he might be an instrument in the hands of God to bring the knowledge of the truth unto the Lamanites, a wild and hardened and ferocious people. As he came to the land of Ishmael, the Lamanites bound him and carried him before the king, Lamoni, to slay him or to make a slave of him. *And now the ministry and teaching began.*
 
 The king asked him if he desired to stay among the Lamanites.
 
@@ -43,21 +44,24 @@ The king, feeling this power, told Ammon that he would grant unto him anything h
 
 Ponder these points as you feel the influence of Ammon’s teachings, his ministry and great example:
 
-The desire of his heart was to bring people to God.
+1. The desire of his heart was to bring people to God.
 
-He was always a servant, a minister. He was out among the people.
+2. He was always a servant, a minister. He was out among the people.
 
-He prepared himself by fasting, studying the scriptures, and prayer.
+3. He prepared himself by fasting, studying the scriptures, and prayer.
 
-He went forth believing he could make a difference with the help of God.
+4. He went forth believing he could make a difference with the help of God.
 
-He anxiously looked for every possible opportunity to serve.
+5. He anxiously looked for every possible opportunity to serve.
 
-He kept all of the commandments.
+6. He kept all of the commandments.
 
-As a result of doing all of these things, he taught with power and authority and established the Church of God.
+7. As a result of doing all of these things, he taught with power and authority and established the Church of God.
 
-The great promise to all of God’s children who truly minister, serve, love, and teach the gospel is that one day they may sit at the right hand of the Savior and be received into His presence. May the Lord make us “able ministers” (2 Cor. 3:6), as were Ammon and my friend. This should be the end result of every principle and truth we learn in the gospel. This is truly the gospel in action.
+The great promise to all of God’s children who truly minister, serve, love, and teach the gospel is that one day they may sit at the right hand of the Savior and be received into His presence. May the Lord make us “able ministers” ([[2 Corinthians 3.6|2 Cor. 3:6]]), as were Ammon and my friend. This should be the end result of every principle and truth we learn in the gospel. This is truly the gospel in action.
 
-May we truly minister and teach all of our people, but especially reach out to those who plead in their hearts and through the long, lonely nights for help—our widows, our divorced, our nonmembers, our aged, our less active—to let them know of our concern, our love, and the love of God, until a happier people cannot be found upon the whole land, for “they taught and did minister one to another.” In the name of Jesus Christ, amen.
+May we truly minister and teach *all* of our people, but especially reach out to those who plead in their hearts and through the long, lonely nights for help—our widows, our divorced, our nonmembers, our aged, our less active—to let them know of our concern, our love, and the love of God, until a happier people cannot be found upon the whole land, for “they taught and did minister one to another.” In the name of Jesus Christ, amen.
+
+
+
 

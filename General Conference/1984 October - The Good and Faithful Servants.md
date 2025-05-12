@@ -1,5 +1,6 @@
 # The Good and Faithful Servants
-*By Gordon B. Hinckley - Second Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -7,7 +8,7 @@
 
 Now brethren, if I may say just a word. I am going to set aside my prepared talk and speak extemporaneously. This has been a great meeting. Every boy who is here should have had cultivated in his heart tonight an increased desire to go into the world as a representative of the Lord Jesus Christ.
 
-I wish to say to you boys, you should prepare for that great responsibility. Coach Edwards talked to you about the importance of preparation. The Lord said, “If ye are prepared, ye shall not fear” (D&C 38:30.) This is the day of preparation for you boys, whether you are twelve or fourteen or sixteen or eighteen. Watch yourselves. Never use language when you are with your friends that would be incompatible with the calling that will come to you, if you are worthy of it, to go into the world to represent this church and to serve as an ambassador of the Lord. God bless you to this end.
+I wish to say to you boys, you should prepare for that great responsibility. Coach Edwards talked to you about the importance of preparation. The Lord said, “If ye are prepared, ye shall not fear.” ([[D&C 38.30|D&C 38:30]].) This is the day of preparation for you boys, whether you are twelve or fourteen or sixteen or eighteen. Watch yourselves. Never use language when you are with your friends that would be incompatible with the calling that will come to you, if you are worthy of it, to go into the world to represent this church and to serve as an ambassador of the Lord. God bless you to this end.
 
 I hope that you have listened carefully to what Coach LaVell Edwards has said. He is a winner who believes in training and in following the rules of the game. He served as a bishop for seven years. He is a wise and able man with a wealth of experience. He made a tremendous effort to get here tonight, and we very much appreciate what he has done and what he has said. Thank you, Coach Edwards, and congratulations on another victory today.
 
@@ -38,4 +39,7 @@ I cannot say enough of appreciation for you. Your sustaining vote in this confer
 God bless you. I pray for you, that there may be peace and love in your homes, that you may be prospered in your honest endeavors, and that when the time comes you may stand before the Lord and receive his welcome: “Well done, thou good and faithful servant.”
 
 I invoke the blessings of heaven upon each of you and upon your loved ones and do it with gratitude in my heart, in the name of Jesus Christ, amen.
+
+
+
 

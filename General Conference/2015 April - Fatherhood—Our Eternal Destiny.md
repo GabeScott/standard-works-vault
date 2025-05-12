@@ -1,7 +1,10 @@
 # Fatherhood—Our Eternal Destiny
-*By By Larry M. Gibson - Recently Released First Counselor in the Young Men General Presidency*
+
+By Larry M. Gibson - *Recently Released First Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2015 General Conference*
+
+>*May we each enjoy the fulness of Father’s blessings in this life and the fulfillment of *His work* and *His glory* by becoming fathers to our families for eternity.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/04/fatherhood-our-eternal-destiny?lang=eng)
 
@@ -29,17 +32,17 @@ I had no idea, so he escorted me to a full-length mirror and asked, “Now what 
 
 “No,” he replied, “what you see is silver reflecting you. If you focus on the silver, all you will see is yourself, and like a veil, it will keep you from seeing clearly the eternal destiny Heavenly Father has prepared just for you.”
 
-“Larry,” he continued, “‘seek not the things of this world but seek ... first ... the kingdom of God, and to establish [His] righteousness, and all these things shall be added unto you’” (Joseph Smith Translation, Matthew 6:38 [in Matthew 6:33, footnote a]).
+“Larry,” he continued, “‘seek not the things of this world but seek … first … the kingdom of God, and to establish \[*His*\] righteousness, and all these things shall be added unto you’” ([[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]] \[in [[Matthew 6.note33a|Matthew 6:33, footnote a]]\]).
 
 He told me to keep the dollar and never lose it. Each time I looked at it, I was to think about the eternal destiny that Heavenly Father has for me.
 
 I loved my father and how he taught. I wanted to be like him. He planted in my heart the desire to be a good father, and my deepest hope is that I am living up to his example.
 
-Our beloved prophet, President Thomas S. Monson, has often said that our decisions determine our destiny and have eternal consequences (see “Decisions Determine Destiny” [Church Educational System fireside, Nov. 6, 2005], 2; lds.org/broadcasts).
+Our beloved prophet, President Thomas S. Monson, has often said that our decisions determine our destiny and have eternal consequences (see “Decisions Determine Destiny” \[Church Educational System fireside, Nov. 6, 2005\], 2; ).
 
-Should we not, then, develop a clear vision of our eternal destiny, particularly the one that Heavenly Father wants us to achieve—eternal fatherhood? Let our eternal destiny drive all of our decisions. Regardless of how difficult those decisions may be, Father will sustain us.
+Should we not, then, develop a clear vision of our *eternal destiny,* particularly the one that Heavenly Father wants us to achieve—eternal fatherhood? Let our *eternal destiny* drive *all* of our decisions. Regardless of how difficult those decisions may be, Father will sustain us.
 
-I learned about the power of such a vision when I joined my 12- and 13-year-old sons for a 50/20 competition. A 50/20 consists of walking 50 miles (80 km) in less than 20 hours. We started at 9:00 p.m. and walked all that night and most of the next day. It was an excruciating 19 hours, but we succeeded.
+I learned about the power of such a vision when I joined my 12- and 13-year-old sons for a 50/20 competition. A 50/20 consists of walking 50 miles (80 km) in less than 20 hours. We started at 9:00 p.m. and walked all that night and most of the next day. It was an excruciating 19 hours, but we succeeded.
 
 Upon returning home, we literally crawled into the house, where a wonderful wife and mother had prepared a lovely dinner, which we didn’t touch. My younger son collapsed, totally exhausted, on the couch, while my older son crawled downstairs to his bedroom.
 
@@ -63,9 +66,9 @@ Tears came as I expressed how grateful I was for him. I told him I knew he was g
 
 These words of the Savior took on a much deeper meaning to me as a father:
 
-“The Son can do nothing of himself, but what he seeth the Father do: for [whatsoever things He] doeth, these also doeth the Son likewise” (John 5:19).
+“The Son can do nothing of himself, but what he seeth the Father do: for \[whatsoever things He\] doeth, these also doeth the Son likewise” ([[John 5.19|John 5:19]]).
 
-“I do nothing of myself; but as my Father hath taught me” (John 8:28).
+“I do nothing of myself; but as my Father hath taught me” ([[John 8.28|John 8:28]]).
 
 I love being a husband and father—married to a chosen daughter of heavenly parents. I love her. It is one of the most fulfilling parts of my life. My hope that night was that my five sons and their sister would always see in me the joy that comes from eternal marriage, fatherhood, and family.
 
@@ -73,45 +76,48 @@ Fathers, I am sure you have heard the saying “Preach the gospel at all times, 
 
 Do they know how much you love and cherish their mother and how much you love being their father?
 
-They will learn how to treat their future wife and children as they watch you treat each one of them just as Heavenly Father would.
+They will learn how to treat their future wife and children as they watch you treat *each one of them* just as Heavenly Father would.
 
 Through your example, they can learn how to respect, honor, and protect womanhood.
 
-In your home, they can learn to preside over their family in love and righteousness. They can learn to provide the necessities of life and protection for their family—temporally and spiritually (see “The Family: A Proclamation to the World,” Ensign or Liahona, Nov. 2010, 129).
+In your home, they can learn to preside over their family in love and righteousness. They can learn to provide the necessities of life and protection for their family—temporally and spiritually (see “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129).
 
-Brethren, with all the energy of my soul, I ask you to consider this question: Do your sons see you striving to do what Heavenly Father would have them do?
+Brethren, with all the energy of my soul, I ask you to consider this question: Do your sons see you striving to do what Heavenly Father would have *them* do?
 
 I pray the answer is yes. If the answer is no, it’s not too late to change, but you must begin today. And I testify that Heavenly Father will help you.
 
-Now, you young men, whom I dearly love, you know you are preparing to receive the Melchizedek Priesthood, receive sacred temple ordinances, fulfill your duty and obligation to serve a full-time mission, and then, without waiting too long, get married in the temple to a daughter of God and have a family. You are then to lead your family in spiritual things as guided by the Holy Ghost (see D&C 20:44; 46:2; 107:12).
+Now, you young men, whom I dearly love, you know you are preparing to receive the Melchizedek Priesthood, receive sacred temple ordinances, fulfill your *duty* and *obligation* to serve a full-time mission, and then, without waiting too long, get married in the temple to a daughter of God and have a family. You are then to lead your family in spiritual things as guided by the Holy Ghost (see [[D&C 20.44|D&C 20:44]]; [[D&C 46.2|46:2]]; [[D&C 107.12|107:12]]).
 
 I have asked many young men around the world, “Why are you here?”
 
 So far, not one has responded, “To learn to be a father, that I might be prepared and qualified to receive all that Heavenly Father has.”
 
-Let’s examine your Aaronic Priesthood duties as described in section 20 of the Doctrine and Covenants. Be sensitive to what you feel as I apply these duties to your service in your family.
+Let’s examine *your* Aaronic Priesthood duties as described in [[D&C 20.1|section 20]][[D&C 20.2|]][[D&C 20.3|]][[D&C 20.4|]][[D&C 20.5|]][[D&C 20.6|]][[D&C 20.7|]][[D&C 20.8|]][[D&C 20.9|]][[D&C 20.10|]][[D&C 20.11|]][[D&C 20.12|]][[D&C 20.13|]][[D&C 20.14|]][[D&C 20.15|]][[D&C 20.16|]][[D&C 20.17|]][[D&C 20.18|]][[D&C 20.19|]][[D&C 20.20|]][[D&C 20.21|]][[D&C 20.22|]][[D&C 20.23|]][[D&C 20.24|]][[D&C 20.25|]][[D&C 20.26|]][[D&C 20.27|]][[D&C 20.28|]][[D&C 20.29|]][[D&C 20.30|]][[D&C 20.31|]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]][[D&C 20.35|]][[D&C 20.36|]][[D&C 20.37|]][[D&C 20.38|]][[D&C 20.39|]][[D&C 20.40|]][[D&C 20.41|]][[D&C 20.42|]][[D&C 20.43|]][[D&C 20.44|]][[D&C 20.45|]][[D&C 20.46|]][[D&C 20.47|]][[D&C 20.48|]][[D&C 20.49|]][[D&C 20.50|]][[D&C 20.51|]][[D&C 20.52|]][[D&C 20.53|]][[D&C 20.54|]][[D&C 20.55|]][[D&C 20.56|]][[D&C 20.57|]][[D&C 20.58|]][[D&C 20.59|]][[D&C 20.60|]][[D&C 20.61|]][[D&C 20.62|]][[D&C 20.63|]][[D&C 20.64|]][[D&C 20.65|]][[D&C 20.66|]][[D&C 20.67|]][[D&C 20.68|]][[D&C 20.69|]][[D&C 20.70|]][[D&C 20.71|]][[D&C 20.72|]][[D&C 20.73|]][[D&C 20.74|]][[D&C 20.75|]][[D&C 20.76|]][[D&C 20.77|]][[D&C 20.78|]][[D&C 20.79|]][[D&C 20.80|]][[D&C 20.81|]][[D&C 20.82|]][[D&C 20.83|]][[D&C 20.84|]] of the Doctrine and Covenants. Be sensitive to what *you* feel as I apply these duties to your service in your family.
 
-“Invite all [of your family] to come unto Christ” (verse 59).
+“Invite all \[of your family\] to come unto Christ” ([[D&C 20.59|verse 59]]).
 
-“Watch over [them] always, and be with and strengthen them” (verse 53).
+“Watch over \[them\] always, and be with and strengthen them” ([[D&C 20.53|verse 53]]).
 
-“Preach, teach, expound, exhort, and baptize” members of your family (verse 46).
+“Preach, teach, expound, exhort, and baptize” members of your family ([[D&C 20.46|verse 46]]).
 
-“Exhort them to pray vocally and in secret and attend to all family duties” (verse 47).
+“Exhort them to pray vocally and in secret and attend to all family duties” ([[D&C 20.47|verse 47]]).
 
-“See that there is no iniquity in [your family], neither hardness with each other, neither lying, backbiting, nor evil speaking” (verse 54).
+“See that there is no iniquity in \[your family\], neither hardness with each other, neither lying, backbiting, nor evil speaking” ([[D&C 20.54|verse 54]]).
 
-“See that [your family meets] together often” (verse 55).
+“See that \[your family meets\] together often” ([[D&C 20.55|verse 55]]).
 
-Assist your father in his duties as patriarch. Support your mother with priesthood strength when a father is not present (see verses 52, 56).
+Assist your father in his duties as patriarch. Support your mother with priesthood strength when a father is not present (see [[D&C 20.52|verses 52, 56]][[D&C 20.56|]]).
 
-When asked, “ordain other priests, teachers, and deacons” in your family (verse 48).
+When asked, “ordain other priests, teachers, and deacons” in your family ([[D&C 20.48|verse 48]]).
 
-Doesn’t this sound like the work and role of a father?
+Doesn’t this sound like *the work and role of a father*?
 
-Fulfilling your Aaronic Priesthood duties is preparing you young men for fatherhood. The Duty to God resource can help you learn about and make specific plans to fulfill your duties. It can serve as a guide and assistance as you seek Heavenly Father’s will and set goals to accomplish it.
+Fulfilling your Aaronic Priesthood duties is preparing you young men for *fatherhood.* The *Duty to God* resource can help you learn about and make specific plans to fulfill your duties. It can serve as a guide and assistance as you seek Heavenly Father’s will and set goals to accomplish it.
 
 Father in Heaven has brought you here at this particular time for a special work and eternal purpose. He wants you to see clearly and understand what that purpose is. He is your Father, and you can always turn to Him for guidance.
 
-I know that Heavenly Father is concerned about each of us individually and has a personal plan for us to achieve our eternal destiny. He has sent His Only Begotten Son, Jesus Christ, to help us overcome our imperfections through the Atonement. He has blessed us with the Holy Ghost to be a witness, companion, and guide to our eternal destination if we will rely on Him. May we each enjoy the fulness of Father’s blessings in this life and the fulfillment of His work and His glory by becoming fathers to our families for eternity (see Moses 1:39). In the name of Jesus Christ, amen.
+I know that Heavenly Father is concerned about each of us individually and has a personal plan for us to achieve our eternal destiny. He has sent His Only Begotten Son, Jesus Christ, to help us overcome our imperfections through the Atonement. He has blessed us with the Holy Ghost to be a witness, companion, and guide *to our eternal destination* if we will rely on Him. May we each enjoy the fulness of Father’s blessings in this life and the fulfillment of *His work* and *His glory* by becoming fathers to our families for eternity (see [[Moses 1.39|Moses 1:39]]). In the name of Jesus Christ, amen.
+
+
+
 

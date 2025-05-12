@@ -1,7 +1,10 @@
 # Prepare the Way
-*By By Bishop Gérald Caussé - Presiding Bishop*
+
+By Bishop Gérald Caussé - *Presiding Bishop*
 
 *Given in the April session of the 2017 General Conference*
+
+>*Even though they are vested with different missions and authority, the Aaronic Priesthood and the Melchizedek Priesthood are inseparable partners in the work of salvation.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/04/prepare-the-way?lang=eng)
 
@@ -27,17 +30,17 @@ This gathering of generations offers a marvelous vision of the unity and brother
 
 The perfect model of the close relationship that exists between the two priesthoods is found in the interaction between Jesus and John the Baptist. Can one possibly imagine John the Baptist without Jesus? What would the Savior’s mission have been like without the preparatory work performed by John?
 
-John the Baptist was given one of the most noble missions to ever exist: “to prepare the way of the Lord,” to baptize Him with water, and to make ready a people to receive Him. This “just ... and ... holy [man],” who had been ordained to the lesser priesthood, was perfectly aware of both the importance and the limits of his mission and his authority.
+John the Baptist was given one of the most noble missions to ever exist: “to prepare the way of the Lord,”[^1] to baptize Him with water, and to make ready a people to receive Him. This “just … and … holy \[man\],”[^2] who had been ordained to the lesser priesthood, was perfectly aware of both the importance and the limits of his mission and his authority.
 
-People flocked to John to hear him and be baptized by him. He was honored and revered in his own right as a man of God. But when Jesus appeared, John humbly deferred to One greater than himself and declared, “I baptize with water: but there standeth one among you, ... who coming after me is preferred before me, whose shoe’s latchet I am not worthy to unloose.”
+People flocked to John to hear him and be baptized by him. He was honored and revered in his own right as a man of God. But when Jesus appeared, John humbly deferred to One greater than himself and declared, “I baptize with water: but there standeth one among you, … who coming after me is preferred before me, whose shoe’s latchet I am not worthy to unloose.”[^3]
 
-For His part, Jesus the Christ, the Only Begotten of the Father, who held the higher priesthood, humbly recognized the authority of John. Of him, the Savior said, “Among them that are born of women there hath not risen a greater than John the Baptist.”
+For His part, Jesus the Christ, the Only Begotten of the Father, who held the higher priesthood, humbly recognized the authority of John. Of him, the Savior said, “Among them that are born of women there hath not risen a greater than John the Baptist.”[^4]
 
-Just think of what would take place in our priesthood quorums if the relationships between the holders of the two priesthoods were inspired by the pattern established by Jesus and John the Baptist. My young brethren of the Aaronic Priesthood, like John’s, your role is to “prepare the way” for the great work of the Melchizedek Priesthood. You are doing this in many different ways. You administer the ordinances of baptism and of the sacrament. You help prepare a people for the Lord by preaching the gospel, by “[visiting] the house of each member,” and by “[watching] over the church.” You provide assistance to the poor and needy by collecting fast offerings, and you participate in taking care of Church meetinghouses and other temporal resources. Your role is important, needful, and sacred.
+Just think of what would take place in our priesthood quorums if the relationships between the holders of the two priesthoods were inspired by the pattern established by Jesus and John the Baptist. My young brethren of the Aaronic Priesthood, like John’s, your role is to “prepare the way”[^5] for the great work of the Melchizedek Priesthood. You are doing this in many different ways. You administer the ordinances of baptism and of the sacrament. You help prepare a people for the Lord by preaching the gospel, by “\[visiting\] the house of each member,”[^6] and by “\[watching\] over the church.”[^7] You provide assistance to the poor and needy by collecting fast offerings, and you participate in taking care of Church meetinghouses and other temporal resources. Your role is important, needful, and sacred.
 
-My adult brethren, whether you are fathers, bishops, Young Men advisers, or simply holders of the Melchizedek Priesthood, you can follow the Savior’s example by turning to your brothers who hold the lesser priesthood and inviting them to labor with you. In reality, this invitation comes from the Lord Himself. He said, “Therefore, take with you those who are ordained unto the lesser priesthood, and send them before you to make appointments, and to prepare the way, and to fill appointments that you yourselves are not able to fill.”
+My adult brethren, whether you are fathers, bishops, Young Men advisers, or simply holders of the Melchizedek Priesthood, you can follow the Savior’s example by turning to your brothers who hold the lesser priesthood and inviting them to labor with you. In reality, this invitation comes from the Lord Himself. He said, “Therefore, take with you those who are ordained unto the lesser priesthood, and send them before you to make appointments, and to prepare the way, and to fill appointments that you yourselves are not able to fill.”[^8]
 
-As you invite your younger brothers to “prepare the way,” you help them recognize and honor the sacred authority they hold. By doing so, you help them prepare their own way as they prepare for the day that they receive and exercise the higher priesthood.
+As you invite your younger brothers to “prepare the way,” you help them recognize and honor the sacred authority they hold. By doing so, you help them prepare their own way as they prepare for the day that they receive and exercise the higher priesthood.
 
 Allow me to share the true story of Alex, a quiet, thoughtful, and bright young priest. One Sunday, Alex’s bishop found him alone in a classroom in a state of great distress. The young man explained how painfully difficult it was for him to attend church without his father, who was not a member. Then he tearfully said it would probably be better for him to leave the Church.
 
@@ -47,7 +50,7 @@ Quickly the priesthood brethren and all the ward members rallied around Alex and
 
 The bishop said: “We kept Alex busy. He ushered at weddings, ushered at funerals, assisted me at graveside dedications, baptized several new members, ordained young men to Aaronic Priesthood offices, taught youth lessons, taught with the missionaries, unlocked the building for conferences, and locked up the building late at night after conferences. He did service projects, accompanied me on visits to elderly members in hospices, gave talks in sacrament meeting, administered the sacrament to the sick in hospitals or in their homes, and became one of only a very small handful of people that I could totally rely on as bishop.”
 
-Little by little, Alex changed. His faith in the Lord increased. He gained confidence in himself and in the power of the priesthood that he held. The bishop concluded: “Alex has been and will always be one of my greatest blessings in my time as bishop. What a privilege it has been to associate with him. I genuinely believe that no young man has ever gone into the mission field more prepared by his priesthood service.”
+Little by little, Alex changed. His faith in the Lord increased. He gained confidence in himself and in the power of the priesthood that he held. The bishop concluded: “Alex has been and will always be one of my greatest blessings in my time as bishop. What a privilege it has been to associate with him. I genuinely believe that no young man has ever gone into the mission field more prepared by his priesthood service.”[^9]
 
 My dear bishops, you have, included in your ordination and setting apart as bishop of your ward, the sacred calling to serve as president of the Aaronic Priesthood and of the priests quorum. I am aware of the heavy burdens you carry, but you should make your duty toward these young men one of your highest priorities. You cannot neglect it or delegate your role in this responsibility to others.
 
@@ -55,5 +58,28 @@ I invite you to reflect upon each of the young Aaronic Priesthood holders in you
 
 The Aaronic Priesthood is more than just an age group, a teaching or activity program, or even a term to designate the young men of the Church. It is power and authority to participate in the great work of saving souls—both the souls of those young men who hold it and the souls of those they serve. Let us put the Aaronic Priesthood in its rightful place, a choice place—a place of service, preparation, and accomplishment for all the young men of the Church.
 
-My dear brethren of the Melchizedek Priesthood, I invite you to strengthen the essential link that unites the two priesthoods of God. Empower your Aaronic Priesthood youth to prepare the way before you. Tell them with confidence, “I need you.” To you young holders of the Aaronic Priesthood, I pray that, as you serve with your older brethren, you will hear the voice of the Lord telling you: “Thou art blessed, for thou shalt do great things. Behold thou wast sent forth, even as John, to prepare the way before me.” In the name of Jesus Christ, amen.
+My dear brethren of the Melchizedek Priesthood, I invite you to strengthen the essential link that unites the two priesthoods of God. Empower your Aaronic Priesthood youth to prepare the way before you. Tell them with confidence, “I need you.” To you young holders of the Aaronic Priesthood, I pray that, as you serve with your older brethren, you will hear the voice of the Lord telling you: “Thou art blessed, for thou shalt do great things. Behold thou wast sent forth, even as John, to prepare the way before me.”[^10] In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[1 Nephi 10.7|1 Nephi 10:7]].
+
+[^2]: [[Mark 6.20|Mark 6:20]].
+
+[^3]: [[John 1.26|John 1:26–27]][[John 1.27|]].
+
+[^4]: [[Matthew 11.11|Matthew 11:11]].
+
+[^5]: [[D&C 35.4|Doctrine and Covenants 35:4]].
+
+[^6]: [[D&C 20.51|Doctrine and Covenants 20:51]].
+
+[^7]: [[D&C 20.53|Doctrine and Covenants 20:53]].
+
+[^8]: [[D&C 84.107|Doctrine and Covenants 84:107]].
+
+[^9]: Personal correspondence.
+
+[^10]: [[D&C 35.4|Doctrine and Covenants 35:4]].
 

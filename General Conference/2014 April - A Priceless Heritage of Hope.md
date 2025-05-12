@@ -1,7 +1,10 @@
 # A Priceless Heritage of Hope
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
+
+>*When you choose whether to make or keep a covenant with God, you choose whether you will leave an inheritance of hope to those who might follow your example.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/04/a-priceless-heritage-of-hope?lang=eng)
 
@@ -21,9 +24,9 @@ Heinrich was Charlotte and Edward’s first son. Charlotte died at the age of 31
 
 Heinrich, my great-grandfather, had lost both of his parents and a great worldly inheritance. He was penniless. He recorded in his history that he felt his best hope lay in going to America. Although he had neither family nor friends there, he had a feeling of hope about going to America. He first went to New York City. Later he moved to St. Louis, Missouri.
 
-In St. Louis one of his co-workers was a Latter-day Saint. From him he obtained a copy of a pamphlet written by Elder Parley P. Pratt. He read it and then studied every word he could obtain about the Latter-day Saints. He prayed to know if there really were angels that appeared to men, whether there was a living prophet, and whether he had found a true and revealed religion.
+In St. Louis one of his co-workers was a Latter-day Saint. From him he obtained a copy of a pamphlet written by Elder Parley P. Pratt. He read it and then studied every word he could obtain about the Latter-day Saints. He prayed to know if there really were angels that appeared to men, whether there was a living prophet, and whether he had found a true and revealed religion.
 
-After two months of careful study and prayer, Heinrich had a dream in which he was told he was to be baptized. A man whose name and priesthood I hold in sacred memory, Elder William Brown, was to perform the ordinance. Heinrich was baptized in a pool of rainwater on March 11, 1855, at 7:30 in the morning.
+After two months of careful study and prayer, Heinrich had a dream in which he was told he was to be baptized. A man whose name and priesthood I hold in sacred memory, Elder William Brown, was to perform the ordinance. Heinrich was baptized in a pool of rainwater on March 11, 1855, at 7:30 in the morning.
 
 I believe that Heinrich Eyring knew then that what I am teaching you today is true. He knew that the happiness of eternal life comes through family bonds which continue forever. Even when he had so recently found the Lord’s plan of happiness, he knew that his hope for eternal joy depended on the free choices of others to follow his example. His hope of eternal happiness depended on people not yet born.
 
@@ -31,15 +34,15 @@ As a part of our family’s inheritance of hope, he left a history to his descen
 
 In that history I can feel his love for those of us who would follow him. In his words I feel his hope that his descendants might choose to follow him on the path back to our heavenly home. He knew it would not be one great choice to make to do so but many small choices. I quote from his history:
 
-“From the time I first heard Elder Andrus speak ... I have always attended the meeting of the Latter day Saints and the instances are very rare indeed, when I [have] failed to go to meeting, it being at the same time my duty to do so.
+“From the time I first heard Elder Andrus speak … I have always attended the meeting of the Latter day Saints and the instances are very rare indeed, when I \[have\] failed to go to meeting, it being at the same time my duty to do so.
 
-“I name this in my history that my children may imitate my example and never neglect this ... important duty [to assemble] with the Saints.”1
+“I name this in my history that my children may imitate my example and never neglect this … important duty \[to assemble\] with the Saints.”[^1]
 
 Heinrich knew that in sacrament meetings we could renew our promise to always remember the Savior and have His Spirit to be with us.
 
-It was that Spirit that sustained him on the mission to which he was called only a few months after accepting the baptismal covenant. He left as his heritage his example of staying faithful to his mission for six years in what was then called the Indian Territories. To receive his release from his mission, he walked and joined a wagon train from Oklahoma to Salt Lake City, a distance of approximately 1,100 miles (1,770 km).
+It was that Spirit that sustained him on the mission to which he was called only a few months after accepting the baptismal covenant. He left as his heritage his example of staying faithful to his mission for six years in what was then called the Indian Territories. To receive his release from his mission, he walked and joined a wagon train from Oklahoma to Salt Lake City, a distance of approximately 1,100 miles (1,770 km).
 
-Soon thereafter he was called by the prophet of God to move to southern Utah. From there he answered another call to serve a mission in his native Germany. He then accepted the invitation of an Apostle of the Lord Jesus Christ to help build up the Latter-day Saint colonies in northern Mexico. From there he was called to Mexico City as a full-time missionary again. He honored those calls. He lies buried in a small cemetery in Colonia Juárez, Chihuahua, Mexico.
+Soon thereafter he was called by the prophet of God to move to southern Utah. From there he answered another call to serve a mission in his native Germany. He then accepted the invitation of an Apostle of the Lord Jesus Christ to help build up the Latter-day Saint colonies in northern Mexico. From there he was called to Mexico City as a full-time missionary again. He honored those calls. He lies buried in a small cemetery in Colonia Juárez, Chihuahua, Mexico.
 
 I recite these facts not to claim greatness for him or for what he did or for his descendants. I recite those facts to honor him for the example of faith and hope that was in his heart.
 
@@ -53,7 +56,7 @@ You remember the words from the book of Abraham:
 
 “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them;
 
-“And they who keep their first estate shall be added upon; and they who keep not their first estate shall not have glory in the same kingdom with those who keep their first estate; and they who keep their second estate shall have glory added upon their heads for ever and ever.”2
+“And they who keep their first estate shall be added upon; and they who keep not their first estate shall not have glory in the same kingdom with those who keep their first estate; and they who keep their second estate shall have glory added upon their heads for ever and ever.”[^2]
 
 Keeping our second estate depends on our making covenants with God and faithfully performing the duties they require of us. It takes faith in Jesus Christ as our Savior to keep sacred covenants for a lifetime.
 
@@ -69,7 +72,7 @@ Alma’s son and King Mosiah’s sons returned from fierce rebellion against the
 
 An angel was sent to the young Alma and the sons of Mosiah. The angel came because of the faith and prayers of their fathers and of God’s people. From those examples of the power of the Atonement working in human hearts, you can receive courage and comfort.
 
-The Lord has given us all the source of hope as we struggle to help those we love accept their eternal inheritance. He has made promises to us as we keep trying to gather people to Him, even when they resist His invitation to do so. Their resistance saddens Him, but He does not quit, nor should we. He sets the perfect example for us with His persistent love: “And again, how oft would I have gathered you as a hen gathereth her chickens under her wings, yea, O ye people of the house of Israel, who have fallen; yea, O ye people of the house of Israel, ye that dwell at Jerusalem, as ye that have fallen; yea, how oft would I have gathered you as a hen gathereth her chickens, and ye would not.”3
+The Lord has given us all the source of hope as we struggle to help those we love accept their eternal inheritance. He has made promises to us as we keep trying to gather people to Him, even when they resist His invitation to do so. Their resistance saddens Him, but He does not quit, nor should we. He sets the perfect example for us with His persistent love: “And again, how oft would I have gathered you as a hen gathereth her chickens under her wings, yea, O ye people of the house of Israel, who have fallen; yea, O ye people of the house of Israel, ye that dwell at Jerusalem, as ye that have fallen; yea, how oft would I have gathered you as a hen gathereth her chickens, and ye would not.”[^3]
 
 We can depend on that unfailing desire of the Savior to bring all of Heavenly Father’s spirit children back to their home with Him. Every faithful parent, grandparent, and great-grandparent shares in that desire. Heavenly Father and the Savior are our perfect examples of what we can and must do. They never force righteousness because righteousness must be chosen. They make righteousness discernible to us, and They let us see that its fruits are delicious.
 
@@ -98,4 +101,13 @@ Some of Heinrich Eyring’s descendants have seemed to wander. But many of his g
 After all we can do in faith, the Lord will justify our hopes for greater blessings for our families than we can imagine. He wants the best for them and for us, as His children.
 
 We are all children of a living God. Jesus of Nazareth is His Beloved Son and our resurrected Savior. This is His Church. In it are the keys of the priesthood, and so families can be forever. This is our priceless heritage of hope. I testify that it is true in the name of the Lord Jesus Christ, amen.
+
+
+
+
+[^1]: See Henry Eyring reminiscences, 1896, typescript, Church History Library, 16–21.
+
+[^2]: [[Abraham 3.24|Abraham 3:24–26]][[Abraham 3.25|]][[Abraham 3.26|]].
+
+[^3]: [[3 Nephi 10.5|3 Nephi 10:5]].
 

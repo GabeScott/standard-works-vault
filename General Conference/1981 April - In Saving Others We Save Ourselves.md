@@ -1,5 +1,6 @@
 # In Saving Others We Save Ourselves
-*By F. Burton Howard - Of the First Quorum of the Seventy*
+
+By Elder F. Burton Howard - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -7,7 +8,7 @@
 
 For many months I have been away from the headquarters of the Church. I have learned much and have come to understand better many things I had known before. I have observed firsthand the challenges which confront Church members as they endeavor to build the kingdom. I have seen the time and financial burdens borne by adults. I have sensed the preoccupation of parents for their children.
 
-I have come to know that in this age of anxiety, and sometimes selfishness, there are not many of us willing to forego comforts or hard-earned security in order to concern ourselves with the welfare of others outside of our immediate circle of acquaintance. But some are—and some do. Everywhere I have been, I have met some faithful Saints who love, pray for, and watch over their fellowmen, both in and out of the Church. By means of a parable (I believe I can call it that), I would like to speak to that comparative handful of God’s children who have learned to live for others—and more particularly to those who have not.
+I have come to know that in this age of anxiety, and sometimes selfishness, there are not many of us willing to forego comforts or hard-earned security in order to concern ourselves with the welfare of others outside of our immediate circle of acquaintance. But *some* are—and some *do.* Everywhere I have been, I have met *some* faithful Saints who love, pray for, and watch over their fellowmen, both in and *out* of the Church. By means of a parable (I believe I can call it that), I would like to speak to that comparative handful of God’s children who have learned to *live* for others—and more particularly to those who have not.
 
 In a desert region one day, a number of travelers set out on a trip. It was hot and the journey was long. They had little in common except their shared desire to arrive at a distant city. Each carried provisions and water expecting to replenish their supplies along the way. Not long after leaving their homes, a great storm arose. Dust clouds darkened the sun, and the wind brought swirling sands which quickly filled the low places in the road. What at first had seemed a pleasant outing suddenly became a hazardous undertaking. The travelers soon realized that the question was not merely when they would arrive at the city, but whether they would arrive at all.
 
@@ -31,9 +32,12 @@ The Lord is the director of the work in which we are engaged. He established the
 
 He knows that sometimes clouds block the sun and that the road is hard to find. He must know how difficult it is just to get there. Can He reasonably expect us to try to bring others who are lost with us as well?
 
-The answer is clear. To what else did He refer when He said, “All things whatsoever ye would that men should do to you, do ye even so to them?” (Matt. 7:12.) Surely He had in mind our obligations to others when He spoke of lost sheep and living water. If the parable of the good Samaritan has application anywhere, it must apply to one who, having the gospel, encounters another in need without it. But lest there be any doubt, the Lord has directed plain language to the Latter-day Saints. His words in the Doctrine and Covenants are pointed: “The gospel is unto all who have not received it. But, verily I say unto all those to whom the kingdom has been given—from you it must be preached unto them.” (D&C 84:75–76; italics added.)
+The answer is clear. To what else did He refer when He said, “All things whatsoever ye would that men should do to you, do ye even so to them?” ([[Matthew 7.12|Matt. 7:12]].) Surely He had in mind our obligations to others when He spoke of lost sheep and living water. If the parable of the good Samaritan has application anywhere, it must apply to one who, having the gospel, encounters another in need without it. But lest there be any doubt, the Lord has directed plain language to the Latter-day Saints. His words in the Doctrine and Covenants are pointed: “The gospel is unto all who have not received it. But, verily I say unto all those to whom the kingdom *has* been given—from *you* it *must* be preached unto *them.*” ([[D&C 84.75|D&C 84:75–76]][[D&C 84.76|]]; italics added.)
 
-What directions has He given to help us arrive at our destination? Once again, He has clearly spoken through a modern prophet: “And now, behold, I say unto you, that the thing which will be of the most worth unto you will be to declare repentance unto this people, that you may bring souls unto me, that you may rest with them in the kingdom of my Father.” (D&C 15:6; italics added.) For, as he spoke to the disciples of old, “As I have loved you, ... love one another.” (John 13:34.)
+What directions has He given to help us arrive at our destination? Once again, He has clearly spoken through a modern prophet: “And now, behold, I say unto you, that the thing which will be of the *most* worth unto you will be to declare repentance unto this people, that *you* may bring souls unto me, that *you* may rest with *them* in the kingdom of my Father.” ([[D&C 15.6|D&C 15:6]]; italics added.) For, as he spoke to the disciples of old, “As I have loved you, … love one another.” ([[John 13.34|John 13:34]].)
 
 My brothers and sisters, may we better understand the duties associated with our discipleship, I pray humbly in the name of the Lord Jesus Christ, amen.
+
+
+
 

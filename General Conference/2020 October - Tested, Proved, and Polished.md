@@ -1,7 +1,10 @@
 # Tested, Proved, and Polished
-*By Henry B. Eyring - Second Counselor in the First Presidency*
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2020 General Conference*
+
+>*The greatest blessing that will come when we prove ourselves faithful to our covenants during our trials will be a change in our natures.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/10/51eyring?lang=eng)
 
@@ -23,7 +26,7 @@ The reason for Mother’s loving smile became clear years later when I read of H
 
 “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them;
 
-“And they who keep their first estate shall be added upon; and they who keep not their first estate shall not have glory in the same kingdom with those who keep their first estate; and they who keep their second estate shall have glory added upon their heads for ever and ever.”1
+“And they who keep their first estate shall be added upon; and they who keep not their first estate shall not have glory in the same kingdom with those who keep their first estate; and they who keep their second estate shall have glory added upon their heads for ever and ever.”[^1]
 
 You and I accepted that invitation to be tested and to prove that we would choose to keep the commandments of God when we would no longer be in the presence of our Heavenly Father.
 
@@ -31,11 +34,11 @@ Even with such a loving invitation from our Heavenly Father, Lucifer persuaded a
 
 Those of us who accepted the plan did so because of our faith in Jesus Christ, who offered to become our Savior and Redeemer. We must have believed then that whatever mortal weaknesses we would have and whatever evil forces would be against us, the forces of good would be overwhelmingly greater.
 
-Heavenly Father and Jesus Christ know and love you. They want you to return to Them and become like Them. Your success is Their success. You have felt that love confirmed by the Holy Ghost when you have read or heard these words: “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.”2
+Heavenly Father and Jesus Christ know and love you. They want you to return to Them and become like Them. Your success is Their success. You have felt that love confirmed by the Holy Ghost when you have read or heard these words: “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.”[^2]
 
-God has the power to make our way easier. He fed manna to the children of Israel in their wandering to the promised land. The Lord in His mortal ministry healed the sick, raised the dead, and calmed the sea. After His Resurrection, He opened “the prison to them that were bound.”3
+God has the power to make our way easier. He fed manna to the children of Israel in their wandering to the promised land. The Lord in His mortal ministry healed the sick, raised the dead, and calmed the sea. After His Resurrection, He opened “the prison to them that were bound.”[^3]
 
-Yet the Prophet Joseph Smith, one of the greatest of His prophets, suffered in prison and was taught the lesson we all profit from and need in our recurring tests of faith: “And if thou shouldst be cast into the pit, or into the hands of murderers, and the sentence of death passed upon thee; if thou be cast into the deep; if the billowing surge conspire against thee; if fierce winds become thine enemy; if the heavens gather blackness, and all the elements combine to hedge up the way; and above all, if the very jaws of hell shall gape open the mouth wide after thee, know thou, my son, that all these things shall give thee experience, and shall be for thy good.”4
+Yet the Prophet Joseph Smith, one of the greatest of His prophets, suffered in prison and was taught the lesson we all profit from and need in our recurring tests of faith: “And if thou shouldst be cast into the pit, or into the hands of murderers, and the sentence of death passed upon thee; if thou be cast into the deep; if the billowing surge conspire against thee; if fierce winds become thine enemy; if the heavens gather blackness, and all the elements combine to hedge up the way; and above all, if the very jaws of hell shall gape open the mouth wide after thee, know thou, my son, that all these things shall give thee experience, and shall be for thy good.”[^4]
 
 You might reasonably wonder why a loving and all-powerful God allows our mortal test to be so hard. It is because He knows that we must grow in spiritual cleanliness and stature to be able to live in His presence in families forever. To make that possible, Heavenly Father gave us a Savior and the power to choose for ourselves by faith to keep His commandments and to repent and so come unto Him.
 
@@ -47,13 +50,13 @@ You are being nourished and comforted by a loving Savior, who knows how to succo
 
 “And he shall go forth, suffering pains and afflictions and temptations of every kind; and this that the word might be fulfilled which saith he will take upon him the pains and the sicknesses of his people.
 
-“And he will take upon him death, that he may loose the bands of death which bind his people; and he will take upon him their infirmities, that his bowels may be filled with mercy, according to the flesh, that he may know according to the flesh how to succor his people according to their infirmities.”5
+“And he will take upon him death, that he may loose the bands of death which bind his people; and he will take upon him their infirmities, that his bowels may be filled with mercy, according to the flesh, that he may know according to the flesh how to succor his people according to their infirmities.”[^5]
 
 One way He will succor you will be to invite you always to remember Him and to come unto Him. He has encouraged us:
 
 “Come unto me, all ye that labour and are heavy laden, and I will give you rest.
 
-“Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls.”6
+“Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls.”[^6]
 
 The way to come unto Him is to feast upon His words, to exercise faith unto repentance, to choose to be baptized and confirmed by His authorized servant, and then to keep your covenants with God. He sends the Holy Ghost to be your companion, comforter, and guide.
 
@@ -61,9 +64,9 @@ As you live worthy of the gift of the Holy Ghost, the Lord can direct you to saf
 
 The Lord explained:
 
-“Ye cannot behold with your natural eyes, for the present time, the design of your God concerning those things which shall come hereafter, and the glory which shall follow ... much tribulation.
+“Ye cannot behold with your natural eyes, for the present time, the design of your God concerning those things which shall come hereafter, and the glory which shall follow … much tribulation.
 
-“For after much tribulation come the blessings.”7
+“For after much tribulation come the blessings.”[^7]
 
 The greatest blessing that will come when we prove ourselves faithful to our covenants during our trials will be a change in our natures. By our choosing to keep our covenants, the power of Jesus Christ and the blessings of His Atonement can work in us. Our hearts can be softened to love, to forgive, and to invite others to come unto the Savior. Our confidence in the Lord increases. Our fears decrease.
 
@@ -71,11 +74,11 @@ Now, even with such blessings promised through tribulation, we do not seek tribu
 
 In addition, we must notice the tribulation of others and try to help. That will be especially hard when we are being sorely tested ourselves. But we will discover as we lift another’s burden, even a little, that our backs are strengthened and we sense a light in the darkness.
 
-In this, the Lord is our Exemplar. On the cross of Golgotha, having already suffered pain so great that He would have died were He not the Begotten Son of God, He looked on His executioners and said to His Father, “Forgive them; for they know not what they do.”8 While suffering for all who would ever live, He looked, from the cross, on John and on His own sorrowing mother and ministered to her in her trial:
+In this, the Lord is our Exemplar. On the cross of Golgotha, having already suffered pain so great that He would have died were He not the Begotten Son of God, He looked on His executioners and said to His Father, “Forgive them; for they know not what they do.”[^8] While suffering for all who would ever live, He looked, from the cross, on John and on His own sorrowing mother and ministered to her in her trial:
 
 “When Jesus therefore saw his mother, and the disciple standing by, whom he loved, he saith unto his mother, Woman, behold thy son!
 
-“Then saith he to the disciple, Behold thy mother! And from that hour that disciple took her unto his own home.”9
+“Then saith he to the disciple, Behold thy mother! And from that hour that disciple took her unto his own home.”[^9]
 
 By His actions on that most sacred of days, He voluntarily gave His life for each of us, offering not only succor in this life but eternal life in the time to come.
 
@@ -85,9 +88,30 @@ I learned another lesson from my mother. As a girl she had diphtheria and nearly
 
 All her life, she felt the effects of the trials of illness. In her last 10 years of life, she required multiple operations. But through it all, she proved faithful to the Lord, even when bedridden. The only picture on her bedroom wall was of the Savior. Her last words to me on her deathbed were these: “Hal, you sound as if you are getting a cold. You ought to take care of yourself.”
 
-At her funeral the last speaker was Elder Spencer W. Kimball. After saying something of her trials and her faithfulness, he said essentially this: “Some of you may wonder why Mildred had to suffer so much and so long. I will tell you why. It was because the Lord wanted to polish her a little more.”
+At her funeral the last speaker was Elder Spencer W. Kimball. After saying something of her trials and her faithfulness, he said essentially this: “Some of you may wonder why Mildred had to suffer so much and so long. I will tell you why. It was because the Lord wanted to polish her a little more.”
 
 I express my gratitude for the many faithful members of the Church of Jesus Christ who bear burdens with steady faith and who help others to bear theirs as the Lord seeks to polish them a little more. I also express love and admiration for caregivers and leaders across the world who serve others while they and their families endure such polishing.
 
-I testify that we are children of a Heavenly Father, who loves us. I feel President Russell M. Nelson’s love for us all. He is the Lord’s prophet in the world today. I so testify in the sacred name of the Lord Jesus Christ, amen.
+I testify that we are children of a Heavenly Father, who loves us. I feel President Russell M. Nelson’s love for us all. He is the Lord’s prophet in the world today. I so testify in the sacred name of the Lord Jesus Christ, amen.
+
+
+
+
+[^1]: [[Abraham 3.25|Abraham 3:25–26]][[Abraham 3.26|]].
+
+[^2]: [[Moses 1.39|Moses 1:39]].
+
+[^3]: [[D&C 138.42|Doctrine and Covenants 138:42]].
+
+[^4]: [[D&C 122.7|Doctrine and Covenants 122:7]].
+
+[^5]: [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
+
+[^6]: [[Matthew 11.28|Matthew 11:28–29]][[Matthew 11.29|]].
+
+[^7]: [[D&C 58.3|Doctrine and Covenants 58:3–4]][[D&C 58.4|]].
+
+[^8]: [[Luke 23.34|Luke 23:34]].
+
+[^9]: [[John 19.26|John 19:26–27]][[John 19.27|]].
 

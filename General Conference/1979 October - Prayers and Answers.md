@@ -1,5 +1,6 @@
 # Prayers and Answers
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -49,23 +50,23 @@ One day we came to realize that each would hear only the one to which we were as
 
 We have commented on this over the years, convinced that you can train yourself to hear what you want to hear, to see and feel what you desire, but it takes some conditioning.
 
-There are so many of us who go through life and seldom, if ever, hear that voice of inspiration, because “the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned” (1 Cor. 2:14).
+There are so many of us who go through life and seldom, if ever, hear that voice of inspiration, because “the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned” ([[1 Corinthians 2.14|1 Cor. 2:14]]).
 
 The scriptures have many lessons on this subject.
 
 Lehi told his sons of a vision, but Laman and Lemuel resisted his teachings:
 
-“For he truly spake many great things unto them, which were hard to be understood, save a man should inquire of the Lord; and they being hard in their hearts, therefore they did not look unto the Lord as they ought” (1 Ne. 15:3).
+“For he truly spake many great things unto them, which were hard to be understood, save a man should inquire of the Lord; and they being hard in their hearts, therefore they did not look unto the Lord as they ought” ([[1 Nephi 15.3|1 Ne. 15:3]]).
 
 They complained to their younger brother, Nephi, that they could not understand their father, and Nephi asked this question:
 
 “Have ye inquired of the Lord?
 
-“And they said unto [him]: We have not; for the Lord maketh no such thing known unto us” (1 Ne. 15:8–9).
+“And they said unto \[him\]: We have not; for the Lord maketh no such thing known unto us” ([[1 Nephi 15.8|1 Ne. 15:8–9]][[1 Nephi 15.9|]]).
 
 Later they intended to do Nephi harm and he said to them:
 
-“Ye are swift to do iniquity but slow to remember the Lord your God. Ye have seen an angel, and he spake unto you; yea, ye have heard his voice from time to time; and he hath spoken unto you in a still small voice, but ye were past feeling, that ye could not feel his words” (1 Ne. 17:45; italics added).
+“Ye are swift to do iniquity but slow to remember the Lord your God. Ye have seen an angel, and he spake unto you; yea, ye have heard his voice from time to time; and he hath spoken unto you in a still small voice, but ye were past *feeling,* that ye could not *feel* his words” ([[1 Nephi 17.45|1 Ne. 17:45]]; italics added).
 
 I have come to know that inspiration comes more as a feeling than as a sound.
 
@@ -85,7 +86,7 @@ Even if you keep the Word of Wisdom, there are some things that can happen to yo
 
 When you become a father or a mother, don’t live so that your children go unled because of habits that leave you uninspired.
 
-The Lord has a way of pouring pure intelligence into our minds to prompt us, to guide us, to teach us, to warn us. You can know the things you need to know instantly! Learn to receive inspiration.
+The Lord has a way of pouring pure intelligence into our minds to prompt us, to guide us, to teach us, to warn us. You can know the things you need to know *instantly!* Learn to receive inspiration.
 
 Even in our youth activities there is something to do with inspiration, for they include service to others. Inspiration comes more quickly when we need it to help others than when we are concerned about ourselves.
 
@@ -109,7 +110,7 @@ You have a conscience even as a little boy and girl. It will prompt you to know 
 
 Once again the scriptures tell us something. Read the Book of Mormon—Moroni, chapter 7. I quote only one verse:
 
-“For behold, my brethren, it is given unto you to judge, that ye may know good from evil; and the way to judge is as plain, that ye may know with a perfect knowledge, as the daylight is from the dark night” (Moro. 7:15).
+“For behold, my brethren, it is given unto you to judge, that ye may know good from evil; and the way to judge is as plain, that ye may know with a perfect knowledge, as the daylight is from the dark night” ([[Moroni 7.15|Moro. 7:15]]).
 
 You read the whole chapter. It tells of a way to judge such things.
 
@@ -133,21 +134,16 @@ All right, Joseph, give the manuscript to Martin Harris. Do it your own way, and
 
 Someone wrote:
 
-With thoughtless and impatient hands
-
-We tangle up the plans
-
-The Lord hath wrought.
-
-And when we cry in pain He saith,
-
-‘Be quiet, man, while I untie the knot.’
-
-(Anonymous)
+>With thoughtless and impatient hands
+>We tangle up the plans
+>The Lord hath wrought.
+>And when we cry in pain He saith,
+>‘Be quiet, man, while I untie the knot.’
+>
 
 Put difficult questions in the back of your minds and go about your lives. Ponder and pray quietly and persistently about them.
 
-The answer may not come as a lightning bolt. It may come as a little inspiration here and a little there, “line upon line, precept upon precept” (D&C 98:12).
+The answer may not come as a lightning bolt. It may come as a little inspiration here and a little there, “line upon line, precept upon precept” ([[D&C 98.12|D&C 98:12]]).
 
 Some answers will come from reading the scriptures, some from hearing speakers. And, occasionally, when it is important, some will come by very direct and powerful inspiration. The promptings will be clear and unmistakable.
 
@@ -157,7 +153,7 @@ As an Apostle I listen now to the same inspiration, coming from the same source,
 
 And on occasions, when it is required for His work, for instance when we are to call members to high positions in the stakes, we can ask a question in prayer and receive an immediate, direct revelation in return.
 
-No message is repeated more times in scripture than the simple thought: “Ask, and ye shall receive” (D&C 4:7).
+No message is repeated more times in scripture than the simple thought: “Ask, and ye shall receive” ([[D&C 4.7|D&C 4:7]]).
 
 I often ask the Lord for direction from Him. I will not, however, willingly accept promptings from any unworthy source. I refuse them. I do not want them, and I say so.
 
@@ -181,9 +177,9 @@ Learn to be inspired and directed by the Holy Ghost.
 
 It has been many years, but I have not forgotten that as pilots in World War II we did not have the electronic equipment that we have today. Our hope in a storm was to follow a radio beam.
 
-A steady signal, and you were on course. If you moved to one side of the steady signal, it would break up to a “dit-da,” the Morse code for the letter A.
+A steady signal, and you were on course. If you moved to one side of the steady signal, it would break up to a “dit-da,” the Morse code for the letter *A.*
 
-If you strayed to the other side of the signal, the beam would break up into a “da-dit,” the Morse code signal for N.
+If you strayed to the other side of the signal, the beam would break up into a “da-dit,” the Morse code signal for *N.*
 
 In stormy weather there was always static and interference. But the life of many a pilot has depended on his hearing, above the roar of the engines and through all the static and interference, that sometimes weak signal from a distant airfield.
 
@@ -196,4 +192,7 @@ Perhaps we have not taught you enough about the receiving part. This is a very p
 Begin now, and as the years unfold before you, you who are very young, you will be led. That still small voice will come to you, and then you can come to know as many, many of us come to know, and as I bear witness, that the Lord lives. I know His voice when He speaks.
 
 I know that Jesus is the Christ, that He directs this Church, that He is close to it, that He directs His Prophets and His leaders and His people and His children, in the name of Jesus Christ, amen.
+
+
+
 

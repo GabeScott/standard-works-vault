@@ -1,5 +1,6 @@
 # Continuity of Service
-*By N. Eldon Tanner - Second Counselor in the First Presidency*
+
+By President N. Eldon Tanner - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -50,4 +51,7 @@ As for these missionaries, when they return, and the young men who are preparing
 Brethren, you who are returning from these armed services and school and missions, report to your bishops and offer yourselves to be of service. And bishops, I appeal to you to see that when these young people leave your ward, you send on information to the proper officials in schools, universities, and the armed services, so that they might know and be able to give the necessary help and encouragement when they arrive.
 
 May the Lord bless us that we might realize the importance of a soul; that right in our midst we have people needing attention and help, and it is our responsibility to keep them active, to encourage them, and to reach them if they are having problems. May we realize that the priesthood of God is the power of God given us to act in his name. May we do it wisely, humbly, effectively, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

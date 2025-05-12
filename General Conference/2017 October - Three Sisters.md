@@ -1,19 +1,22 @@
 # Three Sisters
-*By Dieter F. Uchtdorf - Second Counselor in the First Presidency*
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*
+
+>*We are responsible for our own discipleship, and it has little—if anything—to do with the way others treat us.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/10/three-sisters?lang=eng)
 
 Dear sisters, dear friends, to begin general conference with a worldwide sisters’ session is significant and wonderful. Just imagine: sisters of all ages, backgrounds, nationalities, and languages united in faith and love for the Lord Jesus Christ.
 
-As we recently met with our beloved prophet, President Thomas S. Monson, he expressed to us how much he loves the Lord. And I know that President Monson is very grateful for your love, your prayers, and your devotion to the Lord.
+As we recently met with our beloved prophet, President Thomas S. Monson, he expressed to us how much he loves the Lord. And I know that President Monson is very grateful for your love, your prayers, and your devotion to the Lord.
 
 A long time ago in a distant land lived a family of three sisters.
 
-The first sister was sad. Everything from her nose to her chin and from her skin to her toes seemed not quite good enough to her. When she spoke, her words sometimes came out awkwardly, and people laughed. When someone criticized her or “forgot” to invite her to something, she would blush, walk away, and find a secret spot where she would let out a sad sigh and wonder why life had turned out to be so bleak and cheerless.
+The first sister was **sad.** Everything from her nose to her chin and from her skin to her toes seemed not quite good enough to her. When she spoke, her words sometimes came out awkwardly, and people laughed. When someone criticized her or “forgot” to invite her to something, she would blush, walk away, and find a secret spot where she would let out a sad sigh and wonder why life had turned out to be so bleak and cheerless.
 
-The second sister was mad. She thought of herself as very smart, but there was always someone else who scored higher on tests at school. She considered herself funny, fair, fashionable, and fascinating. But always, there seemed to be someone who was funnier, fairer, more fashionable, or more fascinating.
+The second sister was **mad.** She thought of herself as very smart, but there was always someone else who scored higher on tests at school. She considered herself funny, fair, fashionable, and fascinating. But always, there seemed to be someone who was funnier, fairer, more fashionable, or more fascinating.
 
 She was never first at anything, and this she could not endure. Life was not supposed to be this way!
 
@@ -21,7 +24,7 @@ Sometimes she lashed out at others, and it seemed that she was always one breath
 
 Of course, this did not make her any more likable or popular. Sometimes she clenched her teeth, tightened her fists, and thought, “Life is so unfair!”
 
-Then there was the third sister. Unlike her sad and mad sisters, she was—well, glad. And it wasn’t because she was smarter or more beautiful or more capable than her sisters. No, people sometimes avoided or ignored her too. They sometimes made fun of what she was wearing or the things she was saying. They sometimes said mean things about her. But she did not allow any of that to bother her too much.
+Then there was the third sister. Unlike her sad and mad sisters, she was—well, **glad.** And it wasn’t because she was smarter or more beautiful or more capable than her sisters. No, people sometimes avoided or ignored her too. They sometimes made fun of what she was wearing or the things she was saying. They sometimes said mean things about her. But she did not allow any of that to bother her too much.
 
 This sister loved to sing. She didn’t have great pitch, and people laughed about it, but that didn’t stop her. She would say, “I am not going to let other people and their opinions stop me from singing!”
 
@@ -29,15 +32,17 @@ The very fact that she kept singing made her first sister sad and her second sis
 
 Many years passed, and eventually each sister reached the end of her time on earth.
 
-The first sister, who discovered again and again that there was no shortage of disappointments in life, eventually died sad.
+The first sister, who discovered again and again that there was no shortage of disappointments in life, eventually died *sad.*
 
-The second, who every day found something new to dislike, died mad.
+The second, who every day found something new to dislike, died *mad.*
 
-And the third sister, who spent her life singing her song with all her might and a confident smile on her face, died glad.
+And the third sister, who spent her life singing her song with all her might and a confident smile on her face, died *glad.*
 
 Of course, life is never so simple, and people are never so one-dimensional as the three sisters in this story. But even extreme examples like these can teach us something about ourselves. If you are like most of us, you may have recognized part of yourself in one, two, or perhaps all three of these sisters. Let us take a closer look at each one.
 
-The first sister saw herself as a victim—as someone who was acted upon. It seemed like one thing after another kept happening to her that made her miserable. With this approach to life, she was giving others control over how she felt and behaved. When we do this, we are driven about by every wind of opinion—and in this day of ever-present social media, those winds blow at hurricane intensity.
+## The Victim
+
+The first sister saw herself as a victim—as someone who was acted upon.[^1] It seemed like one thing after another kept happening to her that made her miserable. With this approach to life, she was giving others control over how she felt and behaved. When we do this, we are driven about by every wind of opinion—and in this day of ever-present social media, those winds blow at hurricane intensity.
 
 Dear sisters, why should you surrender your happiness to someone, or a group of someones, who cares very little about you or your happiness?
 
@@ -59,17 +64,19 @@ You are His precious child.
 
 He loves you.
 
-Even when you stumble, even when you turn away from Him, God loves you. If you are feeling lost, abandoned, or forgotten—fear not. The Good Shepherd will find you. He will lift you upon His shoulders. And He will carry you home.
+Even when you stumble, even when you turn away from Him, God loves you. If you are feeling lost, abandoned, or forgotten—fear not. The Good Shepherd will find you. He will lift you upon His shoulders. And He will carry you home.[^2]
 
 My dear sisters, please let these divine truths sink deeply into your hearts. And you will find that there are many reasons not to be sad, for you have an eternal destiny to fulfill.
 
 The beloved Savior of the world gave His life so that you could choose to make that destiny a reality. You have taken upon you His name; you are His disciples. And because of Him, you can clothe yourselves with robes of eternal glory.
 
+## The Hater
+
 The second sister was angry at the world. Like her sad sister, she felt that the problems in her life were all caused by someone else. She blamed her family, her friends, her boss and coworkers, the police, the neighbors, Church leaders, current fashion trends, even the intensity of solar flares, and plain bad luck. And she lashed out at all of them.
 
 She didn’t think of herself as a mean person. To the contrary, she felt that she was only sticking up for herself. Everyone else, she believed, was motivated by selfishness, pettiness, and hate. She, on the other hand, was motivated by good intentions—justice, integrity, and love.
 
-Unfortunately, the mad sister’s line of thinking is all too common. This was noted in a recent study that explored conflict between rival groups. As part of the study, researchers interviewed Palestinians and Israelis in the Middle East, and Republicans and Democrats in the United States. They discovered that “each side felt their own group [was] motivated by love more than hate, but when asked why their rival group [was] involved in the conflict, [they] pointed to hate as [the other] group’s motivating factor.”
+Unfortunately, the mad sister’s line of thinking is all too common. This was noted in a recent study that explored conflict between rival groups. As part of the study, researchers interviewed Palestinians and Israelis in the Middle East, and Republicans and Democrats in the United States. They discovered that “each side felt their own group \[was\] motivated by love more than hate, but when asked why their rival group \[was\] involved in the conflict, \[they\] pointed to hate as \[the other\] group’s motivating factor.”[^3]
 
 In other words, each group thought of themselves as the “good guys”—fair, kind, and truthful. By contrast, they saw their rivals as the “bad guys”—uninformed, dishonest, even evil.
 
@@ -87,13 +94,13 @@ What did the Savior teach?
 
 “I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you;
 
-“That ye may be the children of your Father which is in heaven.”
+“That ye may be the children of your Father which is in heaven.”[^4]
 
 This is the Savior’s way. It is the first step in breaking down the barriers that create so much anger, hatred, division, and violence in the world.
 
 “Yes,” you might say, “I would be willing to love my enemies—if only they were willing to do the same.”
 
-But that doesn’t really matter, does it? We are responsible for our own discipleship, and it has little—if anything—to do with the way others treat us. We obviously hope that they will be understanding and charitable in return, but our love for them is independent of their feelings toward us.
+But that doesn’t really matter, does it? We are responsible for our own discipleship, and it has little—if anything—to do with the way others treat us. We obviously hope that they will be understanding and charitable in return, but our love for *them* is independent of their feelings toward *us.*
 
 Perhaps our effort to love our enemies will soften their hearts and influence them for good. Perhaps it will not. But that does not change our commitment to follow Jesus Christ.
 
@@ -103,9 +110,11 @@ We will overcome anger or hate.
 
 We will fill our hearts with love for all of God’s children.
 
-We will reach out to bless others and minister to them—even those who might “despitefully use [us] and persecute [us].”
+We will reach out to bless others and minister to them—even those who might “despitefully use \[us\] and persecute \[us\].”[^5]
 
-The third sister represents the authentic disciple of Jesus Christ. She did something that can be extremely hard to do: she trusted God even in the face of ridicule and hardship. Somehow she maintained her faith and hope, despite the scorn and cynicism around her. She lived joyfully not because her circumstances were joyful but because she was joyful.
+## The Authentic Disciple
+
+The third sister represents the authentic disciple of Jesus Christ. She did something that can be extremely hard to do: she trusted God even in the face of ridicule and hardship. Somehow she maintained her faith and hope, despite the scorn and cynicism around her. She lived joyfully not because her circumstances were joyful but because *she* was joyful.
 
 None of us makes it through life’s journey unopposed. With so many forces trying to draw us away, how do we keep our vision fixed on the glorious happiness promised to the faithful?
 
@@ -113,13 +122,15 @@ I believe the answer can be found in a dream that a prophet had thousands of yea
 
 In his dream, Lehi saw a vast field, and in it was a wondrous tree, beautiful beyond description. He also saw large groups of people making their way toward the tree. They wanted to taste its glorious fruit. They felt and trusted that it would give them great happiness and abiding peace.
 
-There was a narrow path that led to the tree, and alongside was an iron rod that helped them stay on the path. But there was also a mist of darkness that obscured their vision of both the path and the tree. And perhaps even more dangerous was the sound of loud laughter and ridicule coming from a large and spacious building nearby. Shockingly, the mocking even convinced some people who had reached the tree and tasted the wondrous fruit to begin to feel ashamed and wander away.
+There was a narrow path that led to the tree, and alongside was an iron rod that helped them stay on the path. But there was also a mist of darkness that obscured their vision of both the path and the tree. And perhaps even more dangerous was the sound of loud laughter and ridicule coming from a large and spacious building nearby. Shockingly, the mocking even convinced some people who had reached the tree and tasted the wondrous fruit to begin to feel ashamed and wander away.[^6]
 
 Perhaps they began to doubt that the tree was really as beautiful as they had once thought. Perhaps they began to question the reality of what they had experienced.
 
 Maybe they thought if they turned away from the tree, life would be easier. Maybe they would not be ridiculed or laughed at anymore.
 
 And actually, the people who were scoffing at them looked like people who were quite happy and having a good time. So perhaps if they abandoned the tree, they would be welcomed into the congregation of the great and spacious building and be applauded for their judgment, intelligence, and sophistication.
+
+## Stay on the Path
 
 Dear sisters, dear friends, if you find it difficult to hold fast to the iron rod and walk steadfastly toward salvation; if the laughter and ridicule of others who seem so confident cause you to waver; if you are troubled by unanswered questions or doctrines you don’t understand yet; if you feel saddened because of disappointments, I urge you to remember Lehi’s dream.
 
@@ -129,13 +140,13 @@ Never let go of the rod of iron—the word of God!
 
 And when anyone tries to make you ashamed for partaking of the love of God, ignore them.
 
-Never forget you are a child of God; rich blessings are in store; if you can learn to do His will, you’ll live with Him once more!
+Never forget you are a child of God; rich blessings are in store; if you can learn to do His will, you’ll live with Him once more![^7]
 
 The promises of praise and acceptance by the world are unreliable, untrue, and unsatisfying. God’s promises are sure, true, and joyful—now and forever.
 
 I invite you to consider religion and faith from a higher perspective. Nothing offered in the great and spacious building can compare with the fruit of living the gospel of Jesus Christ.
 
-Indeed, “eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.”
+Indeed, “eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.”[^8]
 
 I have learned for myself that the path of discipleship in the gospel of Jesus Christ is the way to joy. It is the way to safety and peace. It is the way to truth.
 
@@ -149,7 +160,9 @@ Choosing this path of discipleship will lead to untold happiness and fulfillment
 
 It will not be easy. It will require the very best that you have—all your intelligence, creativity, faith, integrity, strength, determination, and love. But one day you will look back upon your efforts, and oh, how grateful you will be that you remained strong, that you believed, and that you did not depart from the path.
 
-There may be many things about life that are beyond your control. But in the end, you have the power to choose both your destination and many of your experiences along the way. It is not so much your abilities but your choices that make the difference in life.
+## Press On
+
+There may be many things about life that are beyond your control. But in the end, you have the power to choose both your destination and many of your experiences along the way. It is not so much your abilities but your choices that make the difference in life.[^9]
 
 You cannot allow circumstances to make you sad.
 
@@ -163,7 +176,30 @@ I urge you to fill your hearts with gratitude for the abundant and limitless goo
 
 The song of true discipleship may sound off-key or even a little loud to some. Since the beginning of time, this has been so.
 
-But to our Heavenly Father and to those who love and honor Him, it is a most precious and beautiful song—the sublime and sanctifying song of redeeming love and service to God and fellowmen.
+But to our Heavenly Father and to those who love and honor Him, it is a most precious and beautiful song—the sublime and sanctifying song of redeeming love and service to God and fellowmen.[^10]
 
 I leave you my blessing as an Apostle of the Lord that you will find the strength and courage to joyfully thrive as a daughter of God while gladly walking each day on the glorious path of discipleship. In the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: See [[2 Nephi 2.14|2 Nephi 2:14, 26]][[2 Nephi 2.26|]].
+
+[^2]: See [[Luke 15.4|Luke 15:4–6]][[Luke 15.5|]][[Luke 15.6|]].
+
+[^3]: Boston College, “Study Finds Intractable Conflicts Stem from Misunderstanding of Motivation,” *ScienceDaily,* Nov. 4, 2014, sciencedaily.com.
+
+[^4]: [[Matthew 5.44|Matthew 5:44–45]][[Matthew 5.45|]].
+
+[^5]: [[Matthew 5.44|Matthew 5:44]].
+
+[^6]: See [[1 Nephi 8.1|1 Nephi 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]].
+
+[^7]: See “I Am a Child of God,” *Children’s Songbook,* 2–3.
+
+[^8]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
+
+[^9]: See “The Most Inspirational Book Quotes of All Time,” pegasuspublishers.com/blog.
+
+[^10]: See [[Alma 5.26|Alma 5:26]].
 

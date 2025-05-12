@@ -1,5 +1,6 @@
 # Rendering Assistance in the Lord’s Way
-*By By Bishop Victor L. Brown - Presiding Bishop*
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -11,9 +12,9 @@ As we consider the resources available today, we should not forget some of the u
 
 “And they did impart of their substance, every man according to that which he had, to the poor, and the needy, and the sick, and the afflicted; and they did not wear costly apparel, yet they were neat and comely.
 
-“And thus they did establish the affairs of the church; and thus they began to have continual peace again, notwithstanding all their persecutions. ...
+“And thus they did establish the affairs of the church; and thus they began to have continual peace again, notwithstanding all their persecutions. …
 
-“And thus, in their prosperous circumstances, they did not send away any who were naked, or that were hungry, or that were athirst, or that were sick, or that had not been nourished; and they did not set their hearts upon riches; therefore they were liberal to all, both old and young, both bond and free, both male and female, whether out of the church or in the church, having no respect to persons as to those who stood in need.” (Alma 1:27–28, 30.)
+“And thus, in their prosperous circumstances, they did not send away any who were naked, or that were hungry, or that were athirst, or that were sick, or that had not been nourished; and they did not set their hearts upon riches; therefore they were liberal to all, both old and young, both bond and free, both male and female, whether out of the church or in the church, having no respect to persons as to those who stood in need.” ([[Alma 1.27|Alma 1:27–28, 30]][[Alma 1.28|]][[Alma 1.30|]].)
 
 As we have been taught so often from the Doctrine and Covenants, the bishop is commanded to search after the poor to administer to their wants. This refers to more than those who are materially poor. It includes those who have emotional problems or are involved in the multitudinous human problems of living. This information comes to the bishop primarily through personal priesthood interviews and reports received from the Relief Society workers. Again, as we have been taught, the first responsibility to solve the problem rests with the individual, then his family; and after they have done all they can, the Church and its welfare services organization is called upon.
 
@@ -27,7 +28,7 @@ Most of those who work in the storehouse are recipients of commodities. There ar
 
 Where physical storehouses are not available, a cash system is used. In this case, the bishop signs an order filled out by the Relief Society president and has it presented to a local merchant with whom an advance agreement has been made. The cash to purchase these commodities comes from commodity production budget funds.
 
-Welfare production projects provide most of the commodities that stock the bishops storehouses. These projects include grain, dairies, beef cattle, honey bee projects, row crops, orchards, and so forth. They also include the manufacturing of some nonfood commodities. When the Church is fully matured, each stake will participate in some way in producing those things that are processed and stored and distributed from bishops storehouses. For those of you who are concerned about acquiring and managing a production project, may I refer you to Bishop H. Burke Peterson’s October 1976 welfare services session address.
+Welfare production projects provide most of the commodities that stock the bishops storehouses. These projects include grain, dairies, beef cattle, honey bee projects, row crops, orchards, and so forth. They also include the manufacturing of some nonfood commodities. When the Church is fully matured, each stake will participate in some way in producing those things that are processed and stored and distributed from bishops storehouses. For those of you who are concerned about acquiring and managing a production project, may I refer you to Bishop H. Burke Peterson’s October 1976 welfare services session address.
 
 There are some cash needs for such things as utilities and medical expenses. The cash for these needs comes from fast offerings. As has been taught for many years, the commodity assistance should be used before cash. Again, may we reemphasize the importance of teaching the law of the fast so that our people will be even more generous than they are now and not restrict themselves to the cost of two meals.
 
@@ -59,7 +60,10 @@ With these properly functioning and operating resources, the bishops of the Chur
 
 “And thus, in their prosperous circumstances, they did not send away any who were naked, or that were hungry, or that were athirst, or that were sick, or that had not been nourished; and they did not set their hearts upon riches; therefore they were liberal to all, both old and young, both bond and free, both male and female, whether out of the church or in the church, having no respect to persons as to those who stood in need.
 
-“And thus they did prosper. ...” (Alma 1:30–31.)
+“And thus they did prosper. …” ([[Alma 1.30|Alma 1:30–31]][[Alma 1.31|]].)
 
-May we be blessed as the psalmist said: “Blessed is he that considereth the poor.” (Ps. 41:1.) In the name of Jesus Christ, amen.
+May we be blessed as the psalmist said: “Blessed is he that considereth the poor.” ([[Psalms 41.1|Ps. 41:1]].) In the name of Jesus Christ, amen.
+
+
+
 

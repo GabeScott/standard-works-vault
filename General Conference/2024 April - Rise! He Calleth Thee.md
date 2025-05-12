@@ -1,7 +1,10 @@
 # Rise! He Calleth Thee
-*By Massimo De Feo - Of the Seventy*
+
+By Elder Massimo De Feo - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
+
+>*The gospel is not a way to avoid challenges and problems but a solution to increase our faith and learn how to deal with them.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2024/04/22de-feo?lang=eng)
 
@@ -21,21 +24,21 @@ That was an uncomfortable wake-up call.
 
 Then a reflection came in the form of a question. I asked myself, “OK! My physical sight is not good, but what about my spiritual vision? Do I need any treatment there? And what does it mean to have a clear spiritual vision?”
 
-I pondered about the story of a blind man called Bartimaeus, described in the Gospel of Mark. The scripture says, “And when he heard that it was Jesus of Nazareth, he began to cry out, and say, Jesus, thou Son of David, have mercy on me.”
+I pondered about the story of a blind man called Bartimaeus, described in the Gospel of Mark. The scripture says, “And when he heard that it was Jesus of Nazareth, he began to cry out, and say, Jesus, thou Son of David, have mercy on me.”[^1]
 
-Technically, in the eyes of many, Jesus was just the son of Joseph, so why did Bartimaeus call Him “Son of David”? Simply because he recognized that Jesus was indeed the Messiah, who was prophesied to be born as a descendant of David.
+Technically, in the eyes of many, Jesus was just the son of Joseph, so why did Bartimaeus call Him “Son of David”? Simply because he recognized that Jesus was indeed the Messiah, who was prophesied to be born as a descendant of David.[^2]
 
 It is interesting that this blind man, who didn’t have physical sight, recognized Jesus. He saw spiritually what he couldn’t see physically, while many others could see Jesus physically but were totally blind spiritually.
 
 From this story we learn more about clear spiritual vision.
 
-We read, “And many charged him that he should hold his peace: but he cried the more a great deal, Thou Son of David, have mercy on me.”
+We read, “And many charged him that he should hold his peace: but he cried the more a great deal, Thou Son of David, have mercy on me.”[^3]
 
 All around him were telling him to be quiet, but he cried out even more because he knew who Jesus really was. He ignored those voices and screamed even louder.
 
 He acted instead of being acted upon. Despite his limited circumstances, he used his faith to go beyond his limitations.
 
-So, the first principle we learn is we keep a clear spiritual vision when we focus on Jesus Christ and stay true to what we know to be true.
+So, the *first principle* we learn is *we keep a clear spiritual vision when we focus on Jesus Christ and stay true to what we know to be true.*
 
 Brothers and sisters, to keep our spiritual sight intact, we need to decide not to listen to the voices of the world around us. In this confusing and confused world, we must stay faithful to what we know, faithful to our covenants, faithful in keeping the commandments and reaffirm our beliefs even stronger, like this man did. We need to cry even louder our testimony of the Lord to the world. This man knew Jesus, stayed faithful to what he believed, and was not distracted by the voices around him.
 
@@ -45,9 +48,9 @@ We have a spiritual charge that comes from our knowledge of Jesus Christ.
 
 But what did Bartimaeus do after that?
 
-At the Lord’s command to rise, he acted again in faith.
+At the Lord’s command to *rise*, he acted again in faith.
 
-The scripture says, “And he, casting away his garment, rose, and came to Jesus.”
+The scripture says, “And he, casting away his garment, rose, and came to Jesus.”[^4]
 
 This humble and faithful man understood that he could rise to a better life at Jesus’s command. He knew that he was better than his circumstances, and the very first thing he did when he heard Jesus calling him was to throw away his beggar’s coat.
 
@@ -59,11 +62,11 @@ What a remarkable change!
 
 As he threw away his beggar’s coat, he got rid of all excuses.
 
-And this is a second principle: we keep a clear spiritual vision when we leave the natural man behind, repent, and begin a new life in Christ.
+And this is a *second principle: we keep a clear spiritual vision when we leave the natural man behind, repent, and begin a new life in Christ.*
 
 The way to do it is by making and keeping covenants to rise to a better life through Jesus Christ.
 
-As long as we make excuses to feel sorry for ourselves, sorry for our circumstances and problems, and sorry for all the bad things happening in our lives and even all the bad people who we think make us unhappy, we keep the beggar’s coat on our shoulders. It is true that at times people, consciously or not, hurt us. But we need to decide to act with faith in Christ by removing the mental and emotional coat that we might still wear to hide excuses or sin and throw it away, knowing that He can and will heal us.
+As long as we make excuses to feel sorry for ourselves, sorry for our circumstances and problems, and sorry for all the bad things happening in our lives and even all the bad people who *we think* make us unhappy, we keep the beggar’s coat on our shoulders. It is true that at times people, consciously or not, hurt us. But we need to decide to act with faith in Christ by removing the mental and emotional coat that we might still wear to hide excuses or sin and throw it away, knowing that He can and will heal us.
 
 There is never a good excuse to say, “I am the way I am because of some unfortunate and unpleasant circumstances. And I cannot change, and I am justified.”
 
@@ -71,23 +74,23 @@ When we think that way, we decide to be acted upon.
 
 We keep the beggar’s coat.
 
-Acting in faith means to rely on our Savior, believing that through His Atonement, we can rise above everything at His command.
+Acting in faith means to rely on our Savior, believing that through His Atonement, we can *rise* above everything at His command.
 
-The third principle is in the last four words: “[he] came to Jesus.”
+The third principle is in the last four words: “\[he\] came to Jesus.”
 
 How could he go to Jesus since he was blind? The only way was to walk toward Jesus by hearing His voice.
 
-And this is a third principle: we keep a clear spiritual vision when we hear the voice of the Lord and allow Him to guide us.
+And this is a *third principle: we keep a clear spiritual vision when we hear the voice of the Lord and allow Him to guide us.*
 
 Just as this man raised his voice over the voices around him, he was able to listen to the voice of the Lord in the middle of all other voices.
 
 This is the same faith that allowed Peter to walk on water as long as he kept his spiritual focus on the Lord and was not distracted by the winds around him.
 
-Then the story of this blind man ends with the words “he received his sight, and followed Jesus in the way.”
+Then the story of this blind man ends with the words “he received his sight, and followed Jesus in the way.”[^5]
 
-One of the most important lessons in this story is that this man exercised true faith in Jesus Christ and received a miracle because he asked with real intent, the real intent to follow Him.
+One of the most important lessons in this story is that this man exercised true faith in Jesus Christ and received a miracle because he asked with *real intent*, the *real intent* to follow Him.
 
-And this is the ultimate reason for the blessings we receive in our lives, which is to follow Jesus Christ. It is about recognizing Him, making and keeping covenants with God because of Him, changing our very nature through Him, and enduring to the end by following Him.
+And this is the ultimate reason for the blessings we receive in our lives, which is to follow Jesus Christ. It is about recognizing *Him*, making and keeping covenants with God *because of Him*, changing our very nature *through Him*, and enduring to the end by following *Him*.
 
 For me, keeping a clear spiritual vision is all about focusing on Jesus Christ.
 
@@ -106,4 +109,17 @@ I testify that this gospel is the answer for everything, because Jesus Christ is
 I promise that as we hear the voice of the Lord and allow Him to guide us on the Savior’s covenant path, we will be blessed with clear vision, spiritual understanding, and peace of heart and mind throughout our lives.
 
 May we cry our testimony of Him louder than the voices around us in a world that needs to hear more of Jesus Christ and not less. May we remove the beggar’s coat that we might still wear and rise above the world to a better life in and through Christ. May we get rid of all excuses not to follow Jesus Christ and find all good reasons to follow Him as we hear His voice. This is my prayer in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Mark 10.47|Mark 10:47]].
+
+[^2]: See [[Isaiah 11.1|Isaiah 11:1]]; [[Jeremiah 23.5|Jeremiah 23:5]]; [[Matthew 21.9|Matthew 21:9]].
+
+[^3]: [[Mark 10.48|Mark 10:48]].
+
+[^4]: [[Mark 10.50|Mark 10:50]].
+
+[^5]: [[Mark 10.52|Mark 10:52]].
 

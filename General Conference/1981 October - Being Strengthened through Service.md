@@ -1,5 +1,6 @@
 # Being Strengthened through Service
-*By By Nyle Randall - No Calling Found*
+
+By Nyle Randall
 
 *Given in the October session of the 1981 General Conference*
 
@@ -38,4 +39,7 @@ We are eternally grateful to Jean, and not just because we consider her our elde
 As we attempted as a family to be of service to another, we found that we received the most. What a marvelous thing that is! By helping someone with something that she couldn’t do alone, we received blessings we weren’t able to obtain by ourselves. That’s the gospel of Jesus Christ in its truest sense. As the family and the individual are strengthened through service to others, they are blessed, and a Zion people is prepared.
 
 I know that Jesus Christ lives, that this Church contains his complete gospel plan, that welfare principles are the gospel in action. In the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Pornography—the Deadly Carrier
-*By Thomas S. Monson - Of the Council of the Twelve*
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -33,23 +34,19 @@ Another star declared, “Movie makers, like publishers, are in the business to 
 
 Some persons struggle to differentiate between what they term “soft-core” and “hard-core” pornography. Actually, one leads to another. How applicable is Alexander Pope’s classic, “Essay on Man”:
 
-Vice is a monster of so frightful mien
-
-As to be hated needs but to be seen;
-
-Yet seen too oft, familiar with her face,
-
-We first endure, then pity, then embrace.
-
-(John Bartlett, Familiar Quotations, Boston: Little Brown and Co., 1968, p. 409).
+>Vice is a monster of so frightful mien
+>As to be hated needs but to be seen;
+>Yet seen too oft, familiar with her face,
+>We first endure, then pity, then embrace.
+>
 
 The constant, consuming march of the pornography beetle blights neighborhoods just as it contaminates human lives. Some are particularly scarred by its insidious touch.
 
-Come with me for a moment to a place portrayed in song—dear to the heart of America—New York City’s world-famous landmark of Broadway and Forty-fifth Street. There, standing so forlornly alone on a tiny island surrounded by bustling traffic, is a heroic-size statue of Father Francis P. Duffy, well-known chaplain of the Fighting Sixty-ninth of World War I fame. He wears the uniform of the battlefield. He carries a canteen to relieve the physical distress of the wounded and a Bible to bring spiritual comfort to the dying.
+Come with me for a moment to a place portrayed in song—dear to the heart of America—New York City’s world-famous landmark of Broadway and Forty-fifth Street. There, standing so forlornly alone on a tiny island surrounded by bustling traffic, is a heroic-size statue of Father Francis P. Duffy, well-known chaplain of the Fighting Sixty-ninth of World War I fame. He wears the uniform of the battlefield. He carries a canteen to relieve the physical distress of the wounded and a Bible to bring spiritual comfort to the dying.
 
-As we gaze at this splendid statue, there courses through memory’s corridors such melodies of the period as “Over There,” “Keep the Home Fires Burning,” and “Give My Regards to Broadway.” Were those fallen warriors who knew the song and remembered with affection Broadway and Forty-fifth Street to return and stand with us at the side of Father Duffy’s statue, what sight would meet their eyes and ours? On every hand are massage parlors, sex shops, X-rated movies—the neon-lighted signs flashing their facade of allure. The statue of Father Francis P. Duffy stands surrounded by sin, engulfed by evil. The pornography beetle has just about destroyed this area. He moves relentlessly closer to your city, your neighborhood, and your family.
+As we gaze at this splendid statue, there courses through memory’s corridors such melodies of the period as “Over There,” “Keep the Home Fires Burning,” and “Give My Regards to Broadway.” Were those fallen warriors who knew the song and remembered with affection Broadway and Forty-fifth Street to return and stand with us at the side of Father Duffy’s statue, what sight would meet their eyes and ours? On every hand are massage parlors, sex shops, X-rated movies—the neon-lighted signs flashing their facade of allure. The statue of Father Francis P. Duffy stands surrounded by sin, engulfed by evil. The pornography beetle has just about destroyed this area. He moves relentlessly closer to your city, your neighborhood, and your family.
 
-An ominous warning was voiced by Laurence M. Gould, president emeritus of Carleton College:
+An ominous warning was voiced by Laurence M. Gould, president emeritus of Carleton College:
 
 “I do not believe the greatest threat to our future is from bombs or guided missiles. I don’t think our civilization will die that way. I think it will die when we no longer care. Arnold Toynbee has pointed out that 19 of 21 civilizations have died from within and not by conquest from without. There were no bands playing and flags waving when these civilizations decayed. It happened slowly, in the quiet and the dark when no one was aware.”
 
@@ -61,21 +58,24 @@ From the past of long ago we hear the echo so relevant today:
 
 “O Jerusalem, Jerusalem, which killest the prophets, and stonest them that are sent unto thee; how often would I have gathered thy children together, as a hen doth gather her brood under her wings, and ye would not!
 
-“Behold, your house is left unto you desolate” (Luke 13:34–35).
+“Behold, your house is left unto you desolate” ([[Luke 13.34|Luke 13:34–35]][[Luke 13.35|]]).
 
 Today we have a rebirth of ancient Sodom and Gomorrah. From seldom-read pages in dusty Bibles they come forth as real cities in a real world, depicting a real malady—pernicious permissiveness.
 
 We have the capacity and the responsibility to stand as a bulwark between all we hold dear and the fatal contamination of the pornography beetle. May I suggest three specific steps in our battle plan:
 
-First, a return to righteousness. An understanding of who we are and what God expects us to become will prompt us to pray—as individuals and as families. Such a return reveals the constant truth: “Wickedness never was happiness” (Alma 41:10). Let not the evil one dissuade. We can yet be guided by that still small voice—unerring in its direction and all-powerful in its influence.
+First, a return to righteousness. An understanding of who we are and what God expects us to become will prompt us to pray—as individuals and as families. Such a return reveals the constant truth: “Wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]). Let not the evil one dissuade. We can yet be guided by that still small voice—unerring in its direction and all-powerful in its influence.
 
 Second, a quest for the good life. I speak not of the fun life, the sophisticated life, the popular life. Rather, I urge each to seek eternal life—life everlasting with mother, father, brothers, sisters, husband, wife, sons, and daughters, forever and forever together.
 
-Third, a pledge to wage and win the war against pernicious permissiveness. As we encounter that evil carrier, the pornography beetle, let our battle standard and that of our communities be taken from that famous ensign of early America, “Don’t tread on me” (John Bartlett, Familiar Quotations, p. 1090).
+Third, a pledge to wage and win the war against pernicious permissiveness. As we encounter that evil carrier, the pornography beetle, let our battle standard and that of our communities be taken from that famous ensign of early America, “Don’t tread on me” (John Bartlett, *Familiar Quotations,* p. 1090).
 
-Let us join in the fervent declaration of Joshua: “Choose you this day whom ye will serve ... but as for me and my house, we will serve the Lord” (Josh. 24:15). Let our hearts be pure. Let our lives be clean. Let our voices be heard. Let our actions be felt.
+Let us join in the fervent declaration of Joshua: “Choose you this day whom ye will serve … but as for me and my house, we will serve the Lord” ([[Joshua 24.15|Josh. 24:15]]). Let our hearts be pure. Let our lives be clean. Let our voices be heard. Let our actions be felt.
 
 Then the beetle of pornography will be halted in its deadly course. Pernicious permissiveness will have met its match. And we, with Joshua, will safely cross over Jordan into the promised land—even to eternal life in the celestial kingdom of our God.
 
 That we may do so is my sincere prayer, in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # A Question of Free Agency
-*By Robert D. Hales - Assistant to the Council of the Twelve*
+
+By Elder Robert D. Hales - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -7,9 +8,9 @@
 
 My brothers and sisters, this is indeed an occasion for me and my family. I would like to say to Brother Sill that I have listened to him all my life, and this is one time I wish he had never stopped.
 
-I would like to tell you an event in my life which I think typifies what is going through my mind and has gone through my mind the last few weeks. The event started with a phone call from a Mr. Marion T. Romney. My secretary came to me in a meeting, and she said, “A Marion T. Romney wants to talk to you.”
+I would like to tell you an event in my life which I think typifies what is going through my mind and has gone through my mind the last few weeks. The event started with a phone call from a Mr. Marion T. Romney. My secretary came to me in a meeting, and she said, “A Marion T. Romney wants to talk to you.”
 
-I said, “I think that’s Marion G. Romney.”
+I said, “I think that’s Marion *G.* Romney.”
 
 “He said you would leave this meeting if I told you that he was calling you.”
 
@@ -19,7 +20,7 @@ I think my secretary would like to have told his secretary that I would call bac
 
 I will tell you this, something I learned long ago: It is a question of free agency. On any one of those five questions, had I had to give a no I would have lost my free agency. I was financially able, I was morally able, and I knew the law of consecration and what it meant; and I appreciated the opportunity.
 
-I called my wife immediately afterward and then went home. I talked with my wife, as Elder L. Tom Perry talked with his wife. We have married similar spirits. She has followed me all over the world. We have moved 15 times. She has learned two languages, brought up our children, and has always supported me.
+I called my wife immediately afterward and then went home. I talked with my wife, as Elder L. Tom Perry talked with his wife. We have married similar spirits. She has followed me all over the world. We have moved 15 times. She has learned two languages, brought up our children, and has always supported me.
 
 I remember one time after coming back from an international trip. I had been gone for some time. My wife sat down on the arm of the chair, and I put my head on her shoulder. It was near the end of the month, and she asked me if I had completed my home teaching. I will be honest; I had other things in mind. But I went and did my home teaching. That is her training. So it was; I was beginning to learn the law of consecration.
 
@@ -59,9 +60,12 @@ He said it in a little nicer way, but I thought of my life which I dedicate and 
 
 I dedicate my life and service, and as Paul declared in First Corinthians, “And my speech and preaching was not with enticing words of man’s wisdom, but in demonstration of the Spirit and of power:
 
-“That your faith should not stand in the wisdom of men, but in the power of God.” (1 Cor. 2:4–5.)
+“That your faith should not stand in the wisdom of men, but in the power of God.” ([[1 Corinthians 2.4|1 Cor. 2:4–5]][[1 Corinthians 2.5|]].)
 
 I ask the Lord’s blessings upon all those who have made this day possible for me: my Primary and Sunday School teachers; a mother and father who are truly “goodly parents,” who have taught me and who have been an example for my whole life; my brother and sister have always been examples for me to follow with their faith and service in the Church; my wife and my boys—my son on a mission, Stephen, and David, who is here in Salt Lake with me now. They are a great strength to me.
 
 I ask the Lord’s blessings, that I might be one in purpose with the Twelve and with all the General Authorities, and with you, my brothers and sisters; and I say to the priesthood holders that any one of you could be here this day. One cannot ask the question “Why me?” and dwell on it. But I will do as the prophet has said, to put behind me my past life and dedicate and consecrate all my time, talents, and efforts to His work. And I say this in the name of Jesus Christ. Amen.
+
+
+
 

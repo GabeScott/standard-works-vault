@@ -1,7 +1,10 @@
 # Do Your Duty—That Is Best
-*By Thomas S. Monson - First Counselor in the First Presidency*
+
+By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2005 General Conference*
+
+>*The priesthood is not really so much a gift as it is a commission to serve, a privilege to lift, and an opportunity to bless the lives of others.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2005/10/do-your-duty-that-is-best?lang=eng)
 
@@ -15,25 +18,23 @@ How I remember being assigned to pass the sacrament to the row where Brother McD
 
 Just two months ago, on Sunday, July 31, I was at Fort A. P. Hill, Virginia, attending an LDS sacrament meeting held during the National Scout Jamboree. My purpose in being there was to speak to the 5,000 Latter-day Saint young men and their leaders who had spent the previous week participating in the activities of the jamboree. They sat reverently in a natural amphitheater as an impressive 400-voice Aaronic Priesthood chorus sang:
 
-A Mormon boy, a Mormon boy,
-
-I am a Mormon boy.
-
-I might be envied by a king,
-
-For I am a Mormon boy.1
+>A Mormon boy, a Mormon boy,
+>I am a Mormon boy.
+>I might be envied by a king,
+>For I am a Mormon boy.[^1]
+>
 
 The sacrament was blessed, with 65 priests officiating at the many large sacrament tables which had been placed throughout the assembled group. Approximately 180 deacons then passed the sacrament. Within the time it would take to handle the passing of the sacrament in a crowded ward chapel, this large gathering was served. What an awe-inspiring sight I witnessed that morning as these Aaronic Priesthood young men participated in this holy ordinance.
 
-It is important for each deacon to be guided to a spiritual awareness of the sacredness of his ordained calling. In one ward, the lesson was effectively taught pertaining to the collection of fast offerings.
+It is important for each deacon to be guided to a spiritual awareness of the sacredness of his ordained calling. In one ward the lesson was effectively taught pertaining to the collection of fast offerings.
 
-On fast day, the ward members were visited by deacons and teachers so that each family could make a contribution. The deacons were a bit disgruntled, having to arise earlier than usual to fulfill this assignment.
+On fast day the ward members were visited by deacons and teachers so that each family could make a contribution. The deacons were a bit disgruntled, having to arise earlier than usual to fulfill this assignment.
 
 The inspiration came for the bishopric to take a busload of the deacons and teachers to Welfare Square in Salt Lake City. Here they saw needy children receiving new shoes and other items of clothing. Here they witnessed empty baskets being filled with groceries. There was no money exchanged. One brief comment was made: “Young men, this is what the money you collect on fast day provides—even food, clothing, and shelter for those who are in need.” The Aaronic Priesthood young men smiled more, stepped higher, and served more willingly in filling their assignments.
 
-Now, pertaining to the teachers and priests, every one of you should be given the assignment to home teach with a companion who holds the Melchizedek Priesthood. What an opportunity to prepare for a mission. What a privilege to learn the discipline of duty. A young man will automatically turn from concern for self when he is assigned to “watch over” others.2
+Now, pertaining to the teachers and priests, every one of you should be given the assignment to home teach with a companion who holds the Melchizedek Priesthood. What an opportunity to prepare for a mission. What a privilege to learn the discipline of duty. A young man will automatically turn from concern for self when he is assigned to “watch over” others.[^2]
 
-President David O. McKay counseled: “Home teaching is one of our most urgent and most rewarding opportunities to nurture and inspire, to counsel and direct our Father’s children. ... [It] is a divine service, a divine call. It is our duty as Home Teachers to carry the divine spirit into every home and heart.”3
+President David O. McKay counseled: “Home teaching is one of our most urgent and most rewarding opportunities to nurture and inspire, to counsel and direct our Father’s children. … \[It\] is a divine service, a divine call. It is our duty as Home Teachers to carry the divine spirit into every home and heart.”[^3]
 
 Home teaching answers many prayers and permits us to see the occurrence of living miracles.
 
@@ -51,7 +52,7 @@ And away they went to visit Brother Denndorfer and others. Brother Denndorfer ha
 
 Now a word for the priests in the Aaronic Priesthood. You young men have the opportunity to bless the sacrament, to continue your home teaching duties, and to participate in the sacred ordinance of baptism.
 
-Fifty-five years ago, I knew a young man, Robert Williams, who held the office of priest in the Aaronic Priesthood. As the bishop, I was his quorum president. When he spoke, Robert stuttered and stammered, void of control. He was self-conscious, shy, fearful of himself and everybody else; this impediment was devastating to him. Rarely did he accept an assignment; never would he look another person in the eye; always would he gaze downward. Then one day, through a set of unusual circumstances, he accepted an assignment to perform the responsibility to baptize another.
+Fifty-five years ago I knew a young man, Robert Williams, who held the office of priest in the Aaronic Priesthood. As the bishop, I was his quorum president. When he spoke, Robert stuttered and stammered, void of control. He was self-conscious, shy, fearful of himself and everybody else; this impediment was devastating to him. Rarely did he accept an assignment; never would he look another person in the eye; always would he gaze downward. Then one day, through a set of unusual circumstances, he accepted an assignment to perform the responsibility to baptize another.
 
 I sat next to Robert in the baptistry of the Salt Lake Tabernacle. I knew he needed all the help he could get. He was dressed in immaculate white, prepared for the ordinance he was to perform. I asked him how he felt. He gazed at the floor and stuttered almost uncontrollably that he felt terrible.
 
@@ -77,31 +78,48 @@ As though it were just yesterday, I remember the very moment when all that chang
 
 This one experience bolstered my confidence, inspired my desire to practice, and led me from that last-to-be-chosen place to become a real contributor to the team.
 
-We can experience that burst of confidence. We can feel that pride of performance. A three-word formula will help us: Never give up.
+We can experience that burst of confidence. We can feel that pride of performance. A three-word formula will help us: *Never give up.*
 
-From the play Shenandoah comes the spoken line which inspires: “If we don’t try, then we don’t do; and if we don’t do, then why are we here?”
+From the play *Shenandoah* comes the spoken line which inspires: “If we don’t try, then we don’t do; and if we don’t do, then why are we here?”
 
 Miracles are everywhere to be found when priesthood callings are magnified. When faith replaces doubt, when selfless service eliminates selfish striving, the power of God brings to pass His purposes. The priesthood is not really so much a gift as it is a commission to serve, a privilege to lift, and an opportunity to bless the lives of others.
 
-The call of duty can come quietly as we who hold the priesthood respond to the assignments we receive. President George Albert Smith, that modest yet effective leader, declared, “It is your duty first of all to learn what the Lord wants and then by the power and strength of His holy Priesthood to magnify your calling in the presence of your fellows in such a way that the people will be glad to follow you.”4
+The call of duty can come quietly as we who hold the priesthood respond to the assignments we receive. President George Albert Smith, that modest yet effective leader, declared, “It is your duty first of all to learn what the Lord wants and then by the power and strength of His holy Priesthood to magnify your calling in the presence of your fellows in such a way that the people will be glad to follow you.”[^4]
 
 And how does one magnify a calling? Simply by performing the service that pertains to it. An elder magnifies the ordained calling of an elder by learning what his duties as an elder are and then by doing them. As with an elder, so with a deacon, a teacher, a priest, a bishop, and each who holds office in the priesthood.
 
-Brethren, it is in doing—not just dreaming—that lives are blessed, others are guided, and souls are saved. “Be ye doers of the word, and not hearers only, deceiving your own selves,”5 counseled James.
+Brethren, it is in *doing,* not just *dreaming,* that lives are blessed, others are guided, and souls are saved. “Be ye doers of the word, and not hearers only, deceiving your own selves,”[^5] counseled James.
 
 May all within the sound of my voice make a renewed effort to qualify for the Lord’s guidance in our lives. There are many who plead and pray for help. There are those who are discouraged and in need of a helping hand.
 
-Many years ago when I served as a bishop, I presided over a large ward with over 1,000 members, including 87 widows. On one occasion, I was visiting, along with one of my counselors, a widow and her mature handicapped daughter. As we left their apartment, a lady from the apartment across the hall was standing outside her door and stopped us. She spoke with a foreign accent and asked if I were a bishop; I replied that I was. She told me that she noticed I often visited with others. Then she said, “No one visits me or my bedfast husband. Do you have time to come in and visit with us, even though we are not members of your church?”
+Many years ago when I served as a bishop, I presided over a large ward with over 1,000 members, including 87 widows. On one occasion I was visiting, along with one of my counselors, a widow and her mature handicapped daughter. As we left their apartment, a lady from the apartment across the hall was standing outside her door and stopped us. She spoke with a foreign accent and asked if I were a bishop; I replied that I was. She told me that she noticed I often visited with others. Then she said, “No one visits me or my bedfast husband. Do you have time to come in and visit with us, even though we are not members of your church?”
 
 As we entered her apartment, we noticed that she and her husband were listening to the Tabernacle Choir on the radio. We talked with the couple for a while, then provided a blessing to the husband.
 
-Following that initial visit, I stopped by as often as I could. The couple eventually met with the missionaries, and the wife, Angela Anastor, was baptized. Sometime later, her husband passed away, and I had the privilege of conducting and speaking at his funeral services. Sister Anastor, with her knowledge of the Greek language, later was to translate the widely used pamphlet Joseph Smith Tells His Own Story into the Greek language.
+Following that initial visit I stopped by as often as I could. The couple eventually met with the missionaries, and the wife, Angela Anastor, was baptized. Sometime later her husband passed away, and I had the privilege of conducting and speaking at his funeral services. Sister Anastor, with her knowledge of the Greek language, later was to translate the widely used pamphlet *Joseph Smith Tells His Own Story* into the Greek language.
 
-I love the motto: “Do [your] duty; that is best; Leave unto [the] Lord the rest!”6
+I love the motto “Do \[your\] duty; that is best; Leave unto \[the\] Lord the rest!”[^6]
 
 Active service in the Aaronic Priesthood will prepare you young men to receive the Melchizedek Priesthood, to serve missions, and to marry in the holy temple.
 
-You will ever remember your Aaronic Priesthood quorum advisers and your fellow quorum members, thereby experiencing the truth, “God gave us memories, that we might have June roses in the December of our lives.”7
+You will ever remember your Aaronic Priesthood quorum advisers and your fellow quorum members, thereby experiencing the truth “God gave us memories, that we might have June roses in the December of our lives.”[^7]
 
 Young men of the Aaronic Priesthood, your future beckons; prepare for it. May Heavenly Father ever guide you as you do so. May He guide all of us as we strive to honor the priesthood which we hold and to magnify our callings, I pray humbly, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Evan Stephens, “A Mormon Boy,” in Jack M. Lyon and others, eds., *Best-Loved Poems of the LDS People* (1996), 296.
+
+[^2]: See [[D&C 20.53|D&C 20:53]].
+
+[^3]: *Priesthood Home Teaching Handbook,* rev. ed. (1967), ii–iii.
+
+[^4]: In Conference Report, Apr. 1942, 14.
+
+[^5]: [[James 1.22|James 1:22]].
+
+[^6]: Henry Wadsworth Longfellow, “The Legend Beautiful,” in *The Complete Poetical Works of Longfellow* (1893), 258.
+
+[^7]: Paraphrasing James Barrie, in *Peter’s Quotations: Ideas for Our Time,* comp. Laurence J. Peter (1977), 335.
 

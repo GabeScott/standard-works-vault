@@ -1,5 +1,6 @@
 # “Called As If He Heard a Voice from Heaven”
-*By Vaughn J. Featherstone - Of the First Quorum of the Seventy*
+
+By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -7,7 +8,7 @@
 
 Benjamin Franklin said, “I think that talents for the education of the youth are the gift of God; and that he on whom they are bestowed, whenever a way is opened for use of them, is as strongly called as if he heard a voice from heaven.”
 
-And President Harold B. Lee related: “Someone asked [a great opera singer who had a large family] which of her children was her favorite. Her reply revealed the depth of her true motherhood: ‘My favorite child is the one who is sick until he gets well or the one who is absent until he returns.’” (In Church News, 13 June 1964, p. 14.)
+And President Harold B. Lee related: “Someone asked \[a great opera singer who had a large family\] which of her children was her favorite. Her reply revealed the depth of her true motherhood: ‘My favorite child is the one who is sick until he gets well or the one who is absent until he returns.’” (In *Church News,* 13 June 1964, p. 14.)
 
 This same great depth of caring ought to be the motivating force behind every bishop and every adviser.
 
@@ -19,7 +20,7 @@ In this generation, growing up is no picnic for a young man. It requires stabili
 
 Henry Eyring, a leading scientist and a great teacher who recently passed away, would have contests with his students. Even in his mid-sixties he could standing broad jump to the top of his desk. He challenged university students to a thirty- or forty-yard foot race.
 
-One day just a few short years before he died, he was in the Church Administration Building. His brother-in-law, President Spencer W. Kimball, came out of his office and saw Henry Eyring standing there with a cane. He said, “Henry, what is the cane for?”
+One day just a few short years before he died, he was in the Church Administration Building. His brother-in-law, President Spencer W. Kimball, came out of his office and saw Henry Eyring standing there with a cane. He said, “Henry, what is the cane for?”
 
 And Henry Eyring said, “Style, President, style.”
 
@@ -53,7 +54,7 @@ Terry said, “I never made a commitment unless I intended to keep it.” He tho
 
 Terry, who went on to high school, then quarterbacked for the University of Utah where he was all-conference, and went on to play for the Pittsburgh Steelers, said, “I have kept that commitment, and I have prayed every morning and night since that day.” And Terry is here tonight.
 
-One of the most Christlike acts any leader can perform is to go out after the sheep. Elder Harold B. Lee said, “One’s love is measured by how much he gives, not how much he gets.” (Excerpts from an address by Elder Harold B. Lee at the Venturer-Explorer Department, pamphlet, 1968, n.p.)
+One of the most Christlike acts any leader can perform is to go out after the sheep. Elder Harold B. Lee said, “One’s love is measured by how much he gives, not how much he gets.” (Excerpts from an address by Elder Harold B. Lee at the Venturer-Explorer Department, pamphlet, 1968, n.p.)
 
 A French scientist, Rene de Chardin, said, “Someday after we have mastered the winds and the waves, the tides and gravity, we will harness for God the energies of love, and then for the second time in the history of the world men will have discovered fire.” Such is the love of a great man in my life, Bruford Reynolds.
 
@@ -101,41 +102,28 @@ Bruford Reynolds died an hour later. I was one of his boys, saying “farewell�
 
 My testimony to all of you wonderful brethren who preside over and lead the Aaronic Priesthood is that you are more important to the Church than you would ever dare to suppose.
 
-In Isaiah, the prophet asks, “Watchman, what of the night?” (Isa. 21:11.) This generation of youth will be the torchbearers in the future, possibly in the darkest period of the world. So remember, brethren:
+In Isaiah, the prophet asks, “Watchman, what of the night?” ([[Isaiah 21.11|Isa. 21:11]].) This generation of youth will be the torchbearers in the future, possibly in the darkest period of the world. So remember, brethren:
 
-The God of the great endeavor gave me a torch to bear.
+>The God of the great endeavor gave me a torch to bear.
+>I lifted it high above me in the dark and murky air.
+>Straightway with loud hosannas the crowd acclaimed its light,
+>And followed me as I carried my torch through the dark and starless night.
+>Til mad with peoples’ praises and drunken with vanity,
+>I forgot it was the torch that drew them and fancied they followed me.
+>And my arm grew sore and weary upholding the shining load,
+>And my tired feet went stumbling over the hilly road.
+>I fell with the torch beneath me, in a moment the flame was out.
+>But lo, from the throng a stripling sprang forth with a mighty shout,
+>Caught up the torch as it smouldered and lifted it high again,
+>Til fanned by the winds of heaven it fired the souls of men.
+>As I lay alone in the darkness, the feet of the trampling crowd,
+>Passed over and far beyond me, their praises proclaimed aloud.
+>And I learned in the deepening shadow this glorious verity,
+>’Tis the torch the people follow, who ere the bearer be.
+>
 
-I lifted it high above me in the dark and murky air.
+A great truth. They *will* be the torchbearers. May we be the watchmen. In the name of Jesus Christ, amen.
 
-Straightway with loud hosannas the crowd acclaimed its light,
 
-And followed me as I carried my torch through the dark and starless night.
 
-Til mad with peoples’ praises and drunken with vanity,
-
-I forgot it was the torch that drew them and fancied they followed me.
-
-And my arm grew sore and weary upholding the shining load,
-
-And my tired feet went stumbling over the hilly road.
-
-I fell with the torch beneath me, in a moment the flame was out.
-
-But lo, from the throng a stripling sprang forth with a mighty shout,
-
-Caught up the torch as it smouldered and lifted it high again,
-
-Til fanned by the winds of heaven it fired the souls of men.
-
-As I lay alone in the darkness, the feet of the trampling crowd,
-
-Passed over and far beyond me, their praises proclaimed aloud.
-
-And I learned in the deepening shadow this glorious verity,
-
-’Tis the torch the people follow, who ere the bearer be.
-
-(“The Torchbearer,” anonymous.)
-
-A great truth. They will be the torchbearers. May we be the watchmen. In the name of Jesus Christ, amen.
 

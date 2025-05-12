@@ -1,11 +1,12 @@
 # A Self-Inflicted Purging
-*By By Bishop Vaughn J. Featherstone - Second Counselor in the Presiding Bishopric*
+
+By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/04/a-self-inflicted-purging?lang=eng)
 
-My beloved brethren, King Benjamin in, I believe, the second greatest discourse ever delivered, said, “I have not commanded you to come up hither to trifle with ... words.” (Mosiah 2:9.) I believe the Prophet has not called this conference to have us trifle with words. I would like to discuss a subject which possibly could be led into by this little story:
+My beloved brethren, King Benjamin in, I believe, the second greatest discourse ever delivered, said, “I have not commanded you to come up hither to trifle with … words.” ([[Mosiah 2.9|Mosiah 2:9]].) I believe the Prophet has not called this conference to have us trifle with words. I would like to discuss a subject which possibly could be led into by this little story:
 
 Roy Welker, a great writer for Church priesthood courses and a great stake president and priesthood leader, lived in our stake. Another great priesthood leader asked him, “Brother Welker, you have known many of the General Authorities in your lifetime. Who impresses you the most?”
 
@@ -31,7 +32,7 @@ I know of a great man who held his dead son in his arms, and said, “In the nam
 
 This great brother could not have possibly done that had he been looking at a pornographic piece of material a few nights before or if he had been involved in any other transgression of that kind. The priesthood has to have a pure conduit to operate.
 
-President J. Reuben Clark gave me great light many years ago on a great tremendous subject. He said (and these are my words, not his) that the sex urge does not have to be satisfied, that Satan’s old lie is that it does have to be satisfied.
+President J. Reuben Clark gave me great light many years ago on a great tremendous subject. He said (and these are my words, not his) that the sex urge does not have to be satisfied, that Satan’s old lie is that it *does* have to be satisfied.
 
 I am sorry to tell you that there are men in high places who have some fairly major moral problems, even as youth have the same problems.
 
@@ -55,9 +56,9 @@ Now, as you can tell, this is not a sugar-coated presentation, it is Clorox, and
 
 I was over in England a while back and a bishop asked me, “What is the Church’s stand on cola drinks?” I said, “Well, I can’t remember the exact wording of the bulletin, but I remember seeing the bulletin when I was a stake president. The Church, of course, advises against them.”
 
-He said, “Well, I have read the Priesthood Bulletin, but that isn’t what it says to me.”
+He said, “Well, I have read the *Priesthood Bulletin,* but that isn’t what it says to me.”
 
-And I said, “Would you get your Priesthood Bulletin? Let’s read it together.” And so we found under the heading “Cola Drinks”: “... the leaders of the Church have advised, and we do now specifically advise, against use of any drink containing harmful habit-forming drugs. ...” (The Priesthood Bulletin, Feb. 1972, p. 4.)
+And I said, “Would you get your *Priesthood Bulletin?* Let’s read it together.” And so we found under the heading “Cola Drinks”: “… the leaders of the Church have advised, and we do now specifically advise, against use of any drink containing harmful habit-forming drugs. …” (*The Priesthood Bulletin,* Feb. 1972, p. 4.)
 
 He said, “Well, you see, that doesn’t mean cola.”
 
@@ -65,7 +66,7 @@ I said, “Well, I guess you will have to come to your own grips with that, but 
 
 I remember meeting with a man some time back. Seventeen years before, his wife had a problem. She embraced another man in a moment of weakness, and then this was kept a secret for 17 long years. And this good brother, her husband, who had kept the law, who had never violated the code, all of a sudden found out about this, and it almost totally destroyed him. He came to see me and he asked, “What do you think I should do?”
 
-And I said, “You must forget and forgive. And when I say forget, it must be taken from your mind forever and ever.”
+And I said, “You must forget and forgive. And when I say *forget,* it must be taken from your mind forever and ever.”
 
 He said, “But I can’t. I can’t get it off my mind, seeing her in someone else’s arms.”
 
@@ -76,4 +77,7 @@ Well, he took that advice and was kind enough to follow it. Another case is the 
 Now, my beloved brethren, whether it is patriotism or purity or whatever it is, we must be pure. We must no longer have just a light-wired job. We must have the conduit of all the powers of the priesthood upon us, and then when someone calls upon us to administer to the sick, or to give a blessing of any kind, when they call upon us to speak, we will be as conduits and speak as God would have us speak.
 
 Now, the Lord bless you. This is the greatest group of men collected on the face of the earth in its entire history, and I am grateful to be part of it and to be associated with those men who are most pure in heart. They are truly pure. I bear that solemn witness, and I bear witness that our beloved prophet is probably the most pure in heart of any and all I have ever known, in the name of Jesus Christ. Amen.
+
+
+
 

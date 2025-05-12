@@ -1,5 +1,6 @@
 # The True Strength of the Church
-*By Gordon B. Hinckley - Of the Council of the Twelve*
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -23,13 +24,13 @@ To which he replied, “Then what else matters?”
 
 These are the questions I should like to leave with you this morning: “It’s true, isn’t it? Then what else matters?”
 
-Yesterday the growth statistics of the Church were presented. They are impressive and gratifying. They called to mind a recent broadcast of one of the nation’s popular television programs in which Joe Garragiola interviewed the Reverend Dean M. Kelley of the National Council of Churches, who spoke of the declining membership of some of the larger, well-known religious bodies and also of the accelerating growth of others. He gave as the reason for the decline: “Because they have become permissive; they allow just anybody to become members or remain members. They don’t insist on any rigorous requirements of belief or of contributions.” He pointed out, on the other hand, that those groups which require sacrifice of time and effort and means are enjoying vigorous growth.
+Yesterday the growth statistics of the Church were presented. They are impressive and gratifying. They called to mind a recent broadcast of one of the nation’s popular television programs in which Joe Garragiola interviewed the Reverend Dean M. Kelley of the National Council of Churches, who spoke of the declining membership of some of the larger, well-known religious bodies and also of the accelerating growth of others. He gave as the reason for the decline: “Because they have become permissive; they allow just anybody to become members or remain members. They don’t insist on any rigorous requirements of belief or of contributions.” He pointed out, on the other hand, that those groups which require sacrifice of time and effort and means are enjoying vigorous growth.
 
-He then went on to say: “The fastest growing church [of] over a million members in this country is the Mormon Church, the Latter-day Saints, with headquarters in Salt Lake City, which is growing at five percent a year, [and] that’s a very rapid increase.”
+He then went on to say: “The fastest growing church \[of\] over a million members in this country is the Mormon Church, the Latter-day Saints, with headquarters in Salt Lake City, which is growing at five percent a year, \[and\] that’s a very rapid increase.”
 
 This is a most striking commentary, and one that should concern every thoughtful man and woman. One thing that it says is that a religion which requires devotion, which asks for sacrifice, which demands discipline, also enjoys the loyalty of its membership and the interest and respect of others.
 
-It was ever thus. The Savior did not equivocate when he said to Nicodemus: “Except a man be born of the water and of the Spirit, he cannot enter into the kingdom of God.” (John 3:5.) There were no exceptions. There was no permissiveness in complying with the rule. It was so in other matters of which he spoke.
+It was ever thus. The Savior did not equivocate when he said to Nicodemus: “Except a man be born of the water and of the Spirit, he cannot enter into the kingdom of God.” ([[John 3.5|John 3:5]].) There were no exceptions. There was no permissiveness in complying with the rule. It was so in other matters of which he spoke.
 
 Paul never hedged nor quibbled when setting forth the requirements of the gospel of Jesus Christ. It is so today. The Lord himself declared that “strait is the gate and narrow is the way.” Any system dealing with the eternal consequences of human behavior must set guidelines and adhere to them, and no system can long command the loyalties of men that does not expect of them certain measures of discipline, and particularly of self-discipline. The cost in comfort may be great. The sacrifice may be real. But this very demanding reality is the substance of which come character and strength and nobility.
 
@@ -41,7 +42,7 @@ But that which is positive, which comes of personal conviction, builds and lifts
 
 The remarkable progress of this church, to which the Reverend Kelley referred, is not so much the result of the requirements of the Church upon its members as it is the result of the conviction in the hearts of those members that this is in very deed the work of God, and that happiness and peace and satisfaction are found in righteous service.
 
-We are gathered today on Temple Square in this historic Tabernacle, surrounded by other remarkable buildings, but the strength of the Church is not in these buildings, nor in its thousands of houses of worship across the world, nor in its universities and hospitals. These are all facilities, desirable, means to an end, but only auxiliary to that which is the true strength. As President Lee indicated yesterday, the strength of this church lies in the hearts of its people, in the individual testimony and conviction of the truth of this work. When an individual has that witness and testimony, the requirements of the Church become challenges rather than burdens. Declared the Savior: “... my yoke is easy, and my burden is light.” (Matt. 11:30.)
+We are gathered today on Temple Square in this historic Tabernacle, surrounded by other remarkable buildings, but the strength of the Church is not in these buildings, nor in its thousands of houses of worship across the world, nor in its universities and hospitals. These are all facilities, desirable, means to an end, but only auxiliary to that which is the true strength. As President Lee indicated yesterday, the strength of this church lies in the hearts of its people, in the individual testimony and conviction of the truth of this work. When an individual has that witness and testimony, the requirements of the Church become challenges rather than burdens. Declared the Savior: “… my yoke is easy, and my burden is light.” ([[Matthew 11.30|Matt. 11:30]].)
 
 The yoke of Church responsibility, the burden of Church leadership become opportunities rather than problems to him who wears the mantle of dedicated membership in the Church of Jesus Christ.
 
@@ -53,17 +54,17 @@ Then, before the congregation to whom he told this, he spoke of the gladness tha
 
 So it is with hundreds of thousands in many lands—men and women of capacity and training, of business and the professions, hardheaded, practical men who do things in the work of the world, in whose hearts there burns a silent witness that God lives, that Jesus is the Christ, that this work is divine, that it was restored to earth for the blessing of all who will partake of its opportunities.
 
-Said the Lord: “Behold, I stand at the door and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me.” (Rev. 3:20.)
+Said the Lord: “Behold, I stand at the door and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me.” ([[Revelation 3.20|Rev. 3:20]].)
 
 Jesus, speaking to the Jews in the temple, said: “My doctrine is not mine, but his that sent me.
 
-“If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself.” (John 7:16–17.)
+“If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself.” ([[John 7.16|John 7:16–17]][[John 7.17|]].)
 
-This is the wonder of this work, that every man may know for himself. He is not dependent on the teacher or the preacher or the missionary, except as they might instruct and bear witness. As Job declared long ago: “... there is a spirit in man: and the inspiration of the Almighty giveth them understanding.” (Job 32:8.)
+This is the wonder of this work, that every man may know for himself. He is not dependent on the teacher or the preacher or the missionary, except as they might instruct and bear witness. As Job declared long ago: “… there is a spirit in man: and the inspiration of the Almighty giveth them understanding.” ([[Job 32.8|Job 32:8]].)
 
 Each man may know for himself that it is true through the gift of the Holy Spirit, and with as certain an assurance as that the sun will rise in the morning. And knowing that it is true, he will be inclined to discipline himself as becomes one who has a knowledge of the meaning and purpose of life, of his great responsibility to his fellowmen, of his responsibility to his family, of his responsibility to God.
 
-“Learn of me,” said the Lord, “and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me.” (D&C 19:23.)
+“Learn of me,” said the Lord, “and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me.” ([[D&C 19.23|D&C 19:23]].)
 
 This is “the peace that passeth all understanding,” because it comes not of the mind, but of the Spirit, and “the things of God are understood by the Spirit of God.”
 
@@ -75,15 +76,18 @@ A brilliant and highly educated young woman spoke in Berchtesgaden, Germany, to 
 
 This knowledge comes now just as it came anciently. It so came to my friend, the naval officer from Asia. It so came to the engineer in the East whose words I quoted. It so came to this medical doctor whose testimony I have repeated. In this hall there are thousands who could speak similarly. Across the world there are now millions. And if there be any within the sound of my voice who are searching for the witness of the Holy Spirit in these matters, I give you my testimony that it may be had. It will come now just as it came to Peter of old:
 
-“When Jesus came into the coasts of Caesarea Philippi, he asked his disciples, ... whom say ye that I am?
+“When Jesus came into the coasts of Caesarea Philippi, he asked his disciples, … whom say ye that I am?
 
 “And Simon Peter answered and said, Thou art the Christ, the Son of the living God.
 
 “And Jesus answered and said unto him, Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven.
 
-“And I also say unto thee, That thou art Peter, and upon this rock I will build my church; and the gates of hell shall not prevail against it.” (Matt. 16:13–18.)
+“And I also say unto thee, That thou art Peter, and upon this rock I will build my church; and the gates of hell shall not prevail against it.” ([[Matthew 16.13|Matt. 16:13–18]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]][[Matthew 16.17|]][[Matthew 16.18|]].)
 
 This rock of revelation is the source of knowledge concerning the things of God. It is the witness of the Holy Spirit that testifies of eternal truth, and the gates of hell shall not prevail against any man who seeks it, who accepts it, who cultivates it, and who lives by it.
 
 Of these sacred things I offer my solemn testimony and invoke the blessings of this knowledge upon all earnest seekers after truth, in the name of the author of truth, even the Lord Jesus Christ. Amen.
+
+
+
 

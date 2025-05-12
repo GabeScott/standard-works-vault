@@ -1,5 +1,6 @@
 # Balm of Gilead
-*By Boyd K. Packer - Of the Quorum of the Twelve Apostles*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
 
@@ -9,19 +10,14 @@ Some years ago, I spoke at this pulpit and entitled my talk “The Balm of Gilea
 
 I wish to repeat much of what I said then.
 
-In ancient times there came from Gilead, beyond the Jordan, an ointment made from the gum of a tree. It was a major commodity in trade. The Ishmaelite traders who purchased Joseph from his brothers were carrying this balm of Gilead to Egypt (see Gen. 37:25).
+In ancient times there came from Gilead, beyond the Jordan, an ointment made from the gum of a tree. It was a major commodity in trade. The Ishmaelite traders who purchased Joseph from his brothers were carrying this balm of Gilead to Egypt (see [[Genesis 37.25|Gen. 37:25]]).
 
 It became symbolic for the power to soothe and to heal.
 
-There is a Balm in Gilead,
-
-To make the wounded whole,
-
-There is a Balm in Gilead,
-
-To heal the sin sick soul.
-
-(Recreational Songs, The Church of Jesus Christ of Latter-day Saints, 1949, p. 130)
+>There is a Balm in Gilead,
+>To make the wounded whole,
+>To heal the sin sick soul.
+>
 
 My message was then, and is now, an appeal to those who are not at peace, those whose lives are touched with bitterness, with hostility, or with resentment. It is a plea to those who anxiously struggle with worry, or with grief or disappointment, with guilt, or with shame.
 
@@ -37,7 +33,7 @@ They have little difficulty finding some attorney willing to act as high priest 
 
 There is no dishonor in appealing to a court of law for either justice or protection. I refer to those who do so to justify themselves and shift their own responsibility to someone else.
 
-Such efforts are successful often enough to permit self-serving lawyers to convince yet another client that he need not honor his own commitments. The word integrity becomes tarnished by counsel and client alike. And there follows that long trail of acrimony with brother against brother over property or money.
+Such efforts are successful often enough to permit self-serving lawyers to convince yet another client that he need not honor his own commitments. The word *integrity* becomes tarnished by counsel and client alike. And there follows that long trail of acrimony with brother against brother over property or money.
 
 Be careful lest you yourself become the goat and carry unseen spiritual burdens into the wilderness. More serious by far than the loss of property or money are the unseen spiritual penalties which accrue like interest on a debt which one day, in the eternal scheme of things, must surely be paid.
 
@@ -49,23 +45,17 @@ That night a terrible storm arose. Frightened by thunder, the cow escaped into t
 
 He searched; neither had survived. The author concluded the incident with these words:
 
-Boys flying kites haul in their white-winged birds;
-
-You can call back your kites, but you can’t call back your words.
-
-“Careful with fire” is good advice, we know;
-
-“Careful with words” is ten times doubly so.
-
-Thoughts unexpressed will often fall back dead.
-
-But God Himself can’t kill them, once they are said!
-
-(Will Carleton, The First Settler’s Story).
+>Boys flying kites haul in their white-winged birds;
+>You can call back your kites, but you can’t call back your words.
+>“Careful with fire” is good advice, we know;
+>“Careful with words” is ten times doubly so.
+>Thoughts unexpressed will often fall back dead.
+>But God Himself can’t kill them, once they are said!
+>
 
 It is painful to be the victim. But have you not yet learned how much more painful it is to be the offender?
 
-How precious is that spiritual balm of Gilead, for there is a spirit in man.
+How precious is that spiritual balm of Gilead, for there *is* a spirit in man.
 
 There are spiritual disorders and spiritual diseases that can cause intense suffering.
 
@@ -119,33 +109,24 @@ Then he told me, “I was an old man before I understood! It was not until I was
 
 Many times he had thanked the Lord on his knees for a wise spiritual leader who counseled simply, “John, leave it alone.”
 
-And that is the counsel I bring again to you. If you have a festering grudge, if you are involved in an acrimonious dispute, “Behold what the scripture says [and it says it fifty times and more]—man shall not smite, neither shall he judge; for judgment is mine, saith the Lord, and vengeance is mine also, and I will repay” (Morm. 8:20).
+And that is the counsel I bring again to you. If you have a festering grudge, if you are involved in an acrimonious dispute, “Behold what the scripture says \[and it says it fifty times and more\]—man shall not smite, neither shall he judge; for judgment is mine, saith the Lord, and vengeance is mine also, and I will repay” ([[Mormon 8.20|Morm. 8:20]]).
 
-I say therefore, “John, leave it alone. Mary, leave it alone.”
+I say, therefore, “John, leave it alone. Mary, leave it alone.”
 
 If you need a transfusion of spiritual strength, then just ask for it. We call that prayer. Prayer is powerful spiritual medicine. The instructions for its use are found in the scriptures.
 
 One of our sacred hymns carries this message:
 
-Ere you left your room this morning,
-
-Did you think to pray? ...
-
-When your soul was full of sorrow,
-
-Balm of Gilead did you borrow
-
-At the gates of day?
-
-Oh, how praying rests the weary!
-
-Prayer will change the night to day.
-
-So, when life gets dark and dreary,
-
-Don’t forget to pray
-
-(“Did You Think to Pray?” Hymns, 1985, no. 140).
+>Ere you left your room this morning,
+>Did you think to pray? …
+>When your soul was full of sorrow,
+>Balm of Gilead did you borrow
+>At the gates of day?
+>Oh, how praying rests the weary!
+>Prayer will change the night to day.
+>So, when life gets dark and dreary,
+>Don’t forget to pray
+>
 
 Some frustrations we must endure without really solving the problem. Some things that ought to be put in order are not put in order because we cannot control them. Things we cannot solve, we must survive.
 
@@ -163,7 +144,7 @@ Purge and cleanse and soothe your soul and your heart and your mind and that of 
 
 A cloud will then be lifted, a beam cast from your eye. There will come that peace which surpasseth understanding.
 
-The Lord said, “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid” (John 14:27).
+The Lord said, “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid” ([[John 14.27|John 14:27]]).
 
 “If ye love me, keep my commandments.
 
@@ -171,7 +152,10 @@ The Lord said, “Peace I leave with you, my peace I give unto you: not as the w
 
 “Even the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you.
 
-“I will not leave you comfortless: I will come to you” (John 14:15–18).
+“I will not leave you comfortless: I will come to you” ([[John 14.15|John 14:15–18]][[John 14.16|]][[John 14.17|]][[John 14.18|]]).
 
 I bear witness of Him who is that comfort, in the name of Jesus Christ, amen.
+
+
+
 

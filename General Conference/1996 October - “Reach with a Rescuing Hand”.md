@@ -1,5 +1,6 @@
 # “Reach with a Rescuing Hand”
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1996 General Conference*
 
@@ -15,7 +16,7 @@ Though we are far removed from some of you, we feel of your brotherhood and expr
 
 Most importantly, we have enjoyed a remarkable and wonderful outpouring of the Spirit of the Lord. The Brethren and the sisters have spoken to us, and we have been blessed by their messages.
 
-I hope that we will long remember what we have heard. I hope that we will take the time to read the talks which will be reprinted in the Ensign. I hope that each of us may have been touched in a personal way by something that was said, and that as a result of that, there will be a turnabout in any unseemly attitude or action.
+I hope that we will long remember what we have heard. I hope that we will take the time to read the talks which will be reprinted in the *Ensign.* I hope that each of us may have been touched in a personal way by something that was said, and that as a result of that, there will be a turnabout in any unseemly attitude or action.
 
 As Brother Ballard has reminded us, this is an anniversary year, and next year will be another anniversary year when we commemorate the arrival of the Mormon pioneers in this valley in 1847. There will be much of remembering. It will all be to the good. All of us need to be reminded of the past. It is from history that we gain knowledge which can save us from repeating mistakes and on which we can build for the future.
 
@@ -29,15 +30,15 @@ I think President Young did not sleep that night. I think visions of those desti
 
 The next morning he came to the old Tabernacle which stood on this square. He said to the people:
 
-“I will now give this people the subject and the text for the Elders who may speak. ... It is this. ... Many of our brethren and sisters are on the plains with handcarts, and probably many are now seven hundred miles from this place, and they must be brought here, we must send assistance to them. The text will be, ‘to get them here.’
+“I will now give this people the subject and the text for the Elders who may speak. … It is this. … Many of our brethren and sisters are on the plains with handcarts, and probably many are now seven hundred miles from this place, and they must be brought here, we must send assistance to them. The text will be, ‘to get them here.’
 
-“That is my religion; that is the dictation of the Holy Ghost that I possess. It is to save the people.
+“That is my religion; that is the dictation of the Holy Ghost that I possess. It is to save the people. …
 
-“I shall call upon the Bishops this day. I shall not wait until tomorrow, nor until the next day, for 60 good mule teams and 12 or 15 wagons. I do not want to send oxen. I want good horses and mules. They are in this Territory, and we must have them. Also 12 tons of flour and 40 good teamsters, besides those that drive the teams.
+“I shall call upon the Bishops this day. I shall not wait until tomorrow, nor until the next day, for 60 good mule teams and 12 or 15 wagons. I do not want to send oxen. I want good horses and mules. They are in this Territory, and we must have them. Also 12 tons of flour and 40 good teamsters, besides those that drive the teams. …
 
-“I will tell you all that your faith, religion, and profession of religion, will never save one soul of you in the Celestial Kingdom of our God, unless you carry out just such principles as I am now teaching you. Go and bring in those people now on the plains” (in LeRoy R. Hafen and Ann W. Hafen, Handcarts to Zion [1960], 120–21).
+“I will tell you all that your faith, religion, and profession of religion, will never save one soul of you in the Celestial Kingdom of our God, unless you carry out just such principles as I am now teaching you. *Go and bring in those people now on the plains”* (in LeRoy R. Hafen and Ann W. Hafen, *Handcarts to Zion* \[1960\], 120–21).
 
-That afternoon food, bedding, and clothing in great quantities were assembled by the women.
+That afternoon, food, bedding, and clothing in great quantities were assembled by the women.
 
 The next morning, horses were shod and wagons were repaired and loaded.
 
@@ -56,4 +57,7 @@ There are so many young people who wander aimlessly and walk the tragic trail of
 My brethren and sisters, I would hope, I would pray, that each of us, having participated in this great conference, would resolve to seek those who need help, who are in desperate and difficult circumstances, and lift them in the spirit of love into the embrace of the Church, where strong hands and loving hearts will warm them, comfort them, sustain them, and put them on the way of happy and productive lives.
 
 I leave with you my beloved friends, my coworkers in this wonderful cause, my testimony of the truth of this work, the work of the Almighty, the work of the Redeemer of mankind. I leave with you my love and my blessing, in the name of Jesus Christ, amen.
+
+
+
 

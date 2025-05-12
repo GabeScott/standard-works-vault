@@ -1,5 +1,6 @@
 # To Please Our Heavenly Father
-*By Gordon B. Hinckley - Second Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1985 General Conference*
 
@@ -25,21 +26,21 @@ If this were the measure by which we gauged all of our activity, what a differen
 
 Think of what that resolution, made while a boy, did for Spencer Kimball. It made of him a man of integrity in the business life of his community. It made of him a young man of ambition in preparing himself for his future. It made of him a young man of virtue, a husband and father possessed of love and compassion, the servant in whom the Lord found no guile, a prophet to the people.
 
-“I wanted to do those things which would please my Heavenly Father,” he said. There is nothing grand or heroic about that statement. It is simply an expression of attitudes: “As [a man] thinketh in his heart, so is he.” (Prov. 23:7.)
+“I wanted to do those things which would please my Heavenly Father,” he said. There is nothing grand or heroic about that statement. It is simply an expression of attitudes: “As \[a man\] thinketh in his heart, so is he.” ([[Proverbs 23.7|Prov. 23:7]].)
 
 I wish I might have the capacity to burn into the consciousness of every man and boy within the sound of my voice those words of resolution made by President Kimball when he was a boy.
 
-What would your Father in Heaven have you do that would please Him? First, you boys. He would have you live honestly. That means no cheating in your schoolwork. No boy anxious to please his Heavenly Father would fail to take advantage of educational opportunities. Through words of modern revelation the Lord has laid upon us responsibilities to seek learning “by study and also by faith.” (D&C 88:118.) The Lord expects each of us to live productive and useful lives. Youth is the season of preparation, and we will please him if we apply ourselves to train our minds and hands that we may make a more substantial contribution to the society of which we are a part.
+What would your Father in Heaven have you do that would please Him? First, you boys. He would have you live honestly. That means no cheating in your schoolwork. No boy anxious to please his Heavenly Father would fail to take advantage of educational opportunities. Through words of modern revelation the Lord has laid upon us responsibilities to seek learning “by study and also by faith.” ([[D&C 88.118|D&C 88:118]].) The Lord expects each of us to live productive and useful lives. Youth is the season of preparation, and we will please him if we apply ourselves to train our minds and hands that we may make a more substantial contribution to the society of which we are a part.
 
 No boy anxious to please his Heavenly Father could belittle or degrade a daughter of our Father in Heaven through immorality. He would realize that to degrade or dishonor a girl would be to insult her Father in Heaven who loves her and who expects great and good things of her.
 
 Every young man seeking to please his Heavenly Father would be willing and anxious to give approximately a tithe of his life at the age of nineteen or twenty to go into the world to preach the gospel. He would save his money for this; he would plan his life’s program around it; he would keep himself physically, mentally, and morally alert, as well as spiritually strong, to be prepared for this great and sacred responsibility.
 
-While in the mission field he would be “anxiously engaged” in the work of the Lord (see D&C 58:27), willing to give freely of his time, his talents, his strengths, and his substance to bless the lives of others. He would guard against wasting his time or diminishing his effectiveness through engaging in activities that might in any way be out of harmony with his great and sacred call.
+While in the mission field he would be “anxiously engaged” in the work of the Lord (see [[D&C 58.27|D&C 58:27]]), willing to give freely of his time, his talents, his strengths, and his substance to bless the lives of others. He would guard against wasting his time or diminishing his effectiveness through engaging in activities that might in any way be out of harmony with his great and sacred call.
 
 Having served an honorable mission, he would return home, desiring to complete his education and looking forward to finding his companion to love and cherish for eternity. Trying to please his Heavenly Father, he would see that his courtship is kept unsullied. Again trying to please his Heavenly Father, he would be married worthily in the way which God has prepared for those who love him and those who desire his richest blessings—that is, in His holy house under the authority of His everlasting priesthood.
 
-As a husband, he would live with respect for his wife, standing side by side with her, never belittling her nor demeaning her, but rather encouraging her in the continued development of her talents and in the church activities which are available to her. He would regard her as the greatest treasure of his life, one with whom he can share his concerns, his innermost thoughts, his ambitions and hopes. There would never be in that home any “unrighteous dominion” of husband over wife (see D&C 121:37, 39), no assertion of superiority, no assertion of authority, but rather an expression in living which says that these two are equally yoked.
+As a husband, he would live with respect for his wife, standing side by side with her, never belittling her nor demeaning her, but rather encouraging her in the continued development of her talents and in the church activities which are available to her. He would regard her as the greatest treasure of his life, one with whom he can share his concerns, his innermost thoughts, his ambitions and hopes. There would never be in that home any “unrighteous dominion” of husband over wife (see [[D&C 121.37|D&C 121:37, 39]][[D&C 121.39|]]), no assertion of superiority, no assertion of authority, but rather an expression in living which says that these two are equally yoked.
 
 No man can please his Heavenly Father who fails to respect the daughters of God. No man can please his Heavenly Father who fails to magnify his wife and companion, and nurture and build and strengthen and share with her.
 
@@ -59,5 +60,8 @@ Mine has been the privilege these past two or three months of interviewing and e
 
 The remarkable and wonderful thing is that although they give up much to go, as everyone can testify when he returns home, they gain so very much that is unique and wonderful. They all come back saying there is no experience like it, and they would not trade it for any other on earth. It is so with any service we do as an expression of love for our Father in Heaven. I repeat, these are very simple words which we heard President Kimball express tonight. They were spoken by him when he was a boy. But what remarkable power there lies within them to stir us to greater, more Godlike endeavor.
 
-I want to suggest them to every boy and man within the sound of my voice—“I will try to do that which will please my Heavenly Father.” I do not hesitate to promise that if we will do so our lives will be the richer, the more purposeful, the more satisfying. Our homes will be happier, and one day in the life to come we shall hear from Him whom we have served, “Well done, thou good and faithful servant. Enter thou into the joy of thy Lord.” (Matt. 25:21.) For this I humbly pray in behalf of each of us, in the name of Jesus Christ, Amen.
+I want to suggest them to every boy and man within the sound of my voice—“I will try to do that which will please my Heavenly Father.” I do not hesitate to promise that if we will do so our lives will be the richer, the more purposeful, the more satisfying. Our homes will be happier, and one day in the life to come we shall hear from Him whom we have served, “Well done, thou good and faithful servant. Enter thou into the joy of thy Lord.” ([[Matthew 25.21|Matt. 25:21]].) For this I humbly pray in behalf of each of us, in the name of Jesus Christ, Amen.
+
+
+
 

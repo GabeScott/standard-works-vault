@@ -1,11 +1,14 @@
 # We Never Walk Alone
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2013 General Conference*
 
+>*You will one day stand aside and look at your difficult times, and you will realize that He was always there beside you.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/10/we-never-walk-alone?lang=eng)
 
-My dear sisters, the spirit we feel this evening is a reflection of your strength, your devotion, and your goodness. To quote the Master: “Ye are the salt of the earth. ... Ye are the light of the world.”1
+My dear sisters, the spirit we feel this evening is a reflection of your strength, your devotion, and your goodness. To quote the Master: “Ye are the salt of the earth. … Ye are the light of the world.”[^1]
 
 As I have contemplated my opportunity to address you, I have been reminded of the love my dear wife, Frances, had for Relief Society. During her lifetime she served in many positions in Relief Society. When she and I were both just 31 years of age, I was called to be president of the Canadian Mission. During the three years of that assignment, Frances presided over all of the Relief Societies in that vast area, which encompassed the provinces of Ontario and Quebec. Some of her closest friendships came as a result of that assignment, as well as from the many callings she later filled in our own ward Relief Society. She was a faithful daughter of our Heavenly Father, my beloved companion, and my dearest friend. I miss her more than words can express.
 
@@ -21,55 +24,45 @@ There will be times when you will walk a path strewn with thorns and marked by s
 
 When you find yourself in such circumstances, I plead with you to remember prayer. I love the words of President Ezra Taft Benson concerning prayer. Said he:
 
-“All through my life the counsel to depend on prayer has been prized above almost any other advice I have ... received. It has become an integral part of me—an anchor, a constant source of strength, and the basis of my knowledge of things divine. ...
+“All through my life the counsel to depend on prayer has been prized above almost any other advice I have … received. It has become an integral part of me—an anchor, a constant source of strength, and the basis of my knowledge of things divine. …
 
-“... Though reverses come, in prayer we can find reassurance, for God will speak peace to the soul. That peace, that spirit of serenity, is life’s greatest blessing.”2
+“… Though reverses come, in prayer we can find reassurance, for God will speak peace to the soul. That peace, that spirit of serenity, is life’s greatest blessing.”[^2]
 
 The Apostle Paul admonished:
 
 “Let your requests be made known unto God.
 
-“And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.”3
+“And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.”[^3]
 
 What a glorious promise! Peace is that which we seek, that for which we yearn.
 
-We were not placed on this earth to walk alone. What an amazing source of power, of strength, and of comfort is available to each of us. He who knows us better than we know ourselves, He who sees the larger picture and who knows the end from the beginning, has assured us that He will be there for us to provide help if we but ask. We have the promise: “Pray always, and be believing, and all things shall work together for your good.”4
+We were not placed on this earth to walk alone. What an amazing source of power, of strength, and of comfort is available to each of us. He who knows us better than we know ourselves, He who sees the larger picture and who knows the end from the beginning, has assured us that He will be there for us to provide help if we but ask. We have the promise: “Pray always, and be believing, and all things shall work together for your good.”[^4]
 
-As our prayers ascend heavenward, let us not forget the words taught to us by the Savior. When He faced the excruciating agony of Gethsemane and the cross, He prayed to the Father, “Not my will, but thine, be done.”5 Difficult as it may at times be, it is for us, as well, to trust our Heavenly Father to know best how and when and in what manner to provide the help we seek.
+As our prayers ascend heavenward, let us not forget the words taught to us by the Savior. When He faced the excruciating agony of Gethsemane and the cross, He prayed to the Father, “Not my will, but thine, be done.”[^5] Difficult as it may at times be, it is for us, as well, to trust our Heavenly Father to know best how and when and in what manner to provide the help we seek.
 
 I cherish the words of the poet:
 
-I know not by what methods rare,
+>I know not by what methods rare,
+>But this I know, God answers prayer.
+>I know that He has given His Word,
+>Which tells me prayer is always heard,
+>And will be answered, soon or late.
+>And so I pray and calmly wait.
+>I know not if the blessing sought
+>Will come in just the way I thought;
+>But leave my prayers with Him alone,
+>Whose will is wiser than my own,
+>Assured that He will grant my quest,
+>Or send some answer far more blest.[^6]
+>
 
-But this I know, God answers prayer.
-
-I know that He has given His Word,
-
-Which tells me prayer is always heard,
-
-And will be answered, soon or late.
-
-And so I pray and calmly wait.
-
-I know not if the blessing sought
-
-Will come in just the way I thought;
-
-But leave my prayers with Him alone,
-
-Whose will is wiser than my own,
-
-Assured that He will grant my quest,
-
-Or send some answer far more blest.6
-
-Of course, prayer is not just for times of trouble. We are told repeatedly in the scriptures to “pray always”7 and to keep a prayer in our hearts.8 The words of a favorite and familiar hymn pose a question which we would do well to ask ourselves daily: “Did you think to pray?”9
+Of course, prayer is not just for times of trouble. We are told repeatedly in the scriptures to “pray always”[^7] and to keep a prayer in our hearts.[^8] The words of a favorite and familiar hymn pose a question which we would do well to ask ourselves daily: “Did you think to pray?”[^9]
 
 Allied with prayer in helping us cope in our often difficult world is scripture study. The words of truth and inspiration found in our four standard works are prized possessions to me. I never tire of reading them. I am lifted spiritually whenever I search the scriptures. These holy words of truth and love give guidance to my life and point the way to eternal perfection.
 
 As we read and ponder the scriptures, we will experience the sweet whisperings of the Spirit to our souls. We can find answers to our questions. We learn of the blessings which come through keeping God’s commandments. We gain a sure testimony of our Heavenly Father and our Savior, Jesus Christ, and of Their love for us. When scripture study is combined with our prayers, we can of a certainty know that the gospel of Jesus Christ is true.
 
-Said President Gordon B. Hinckley, “May the Lord bless each of us to feast upon his holy [words] and to draw from [them] that strength, that peace, [and] that knowledge ‘which passeth all understanding’ (Philip. 4:7).”10
+Said President Gordon B. Hinckley, “May the Lord bless each of us to feast upon his holy \[words\] and to draw from \[them\] that strength, that peace, \[and\] that knowledge ‘which passeth all understanding’ ([[Philippians 4.7|Philip. 4:7]]).”[^10]
 
 As we remember prayer and take time to turn to the scriptures, our lives will be infinitely more blessed and our burdens will be made lighter.
 
@@ -77,7 +70,7 @@ May I share with you the account of how our Heavenly Father answered the prayers
 
 Tiffany’s difficulties began last year when she had guests at her home for Thanksgiving and then again for Christmas. Her husband had been in medical school and was now in the second year of his medical residency. Because of the long work hours required of him, he was not able to help her as much as they both would have liked, and so most of that which needed to be accomplished during this holiday season, in addition to the care of their four young children, fell to Tiffany. She was becoming overwhelmed, and then she learned that one who was dear to her had been diagnosed with cancer. The stress and worry began to take a heavy toll on her, and she slipped into a period of discouragement and depression. She sought medical help, and yet nothing changed. Her appetite disappeared, and she began to lose weight, which her tiny frame could ill afford. She sought peace through the scriptures and prayed for deliverance from the gloom which was overtaking her. When neither peace nor help seemed to come, she began to feel abandoned by God. Her family and friends prayed for her and tried desperately to help. They delivered her favorite foods in an attempt to keep her physically healthy, but she could take only a few bites and then would be unable to finish.
 
-On one particularly trying day, a friend attempted in vain to entice her with foods she had always loved. When nothing worked, the friend said, “There must be something that sounds good to you.”
+On one particularly trying day, a friend attempted in vain to entice her with foods she had always loved. When nothing worked, the friend said, “There must be *something* that sounds good to you.”
 
 Tiffany thought for a moment and said, “The only thing I can think of that sounds good is homemade bread.”
 
@@ -100,4 +93,27 @@ My dear sisters, your Heavenly Father loves you—each of you. That love never c
 As we seek our Heavenly Father through fervent, sincere prayer and earnest, dedicated scripture study, our testimonies will become strong and deeply rooted. We will know of God’s love for us. We will understand that we do not ever walk alone. I promise you that you will one day stand aside and look at your difficult times, and you will realize that He was always there beside you. I know this to be true in the passing of my eternal companion—Frances Beverly Johnson Monson.
 
 I leave with you my blessing. I leave with you my gratitude for all the good you do and for the lives you lead. That you may be blessed with every good gift is my prayer in the name of our Savior and Redeemer, even Jesus Christ the Lord, amen.
+
+
+
+
+[^1]: [[Matthew 5.13|Matthew 5:13–14]][[Matthew 5.14|]].
+
+[^2]: Ezra Taft Benson, “Pray Always,” *Ensign,* Feb. 1990, 4–5; or *Tambuli,* June 1990, 4–5, 6.
+
+[^3]: [[Philippians 4.6|Philippians 4:6–7]][[Philippians 4.7|]].
+
+[^4]: [[D&C 90.24|Doctrine and Covenants 90:24]].
+
+[^5]: [[Luke 22.42|Luke 22:42]].
+
+[^6]: Eliza M. Hickok, “Prayer,” in James Gilchrist Lawson, ed., *The Best Loved Religious Poems* (1933), 160.
+
+[^7]: [[Luke 21.36|Luke 21:36]]; see also [[2 Nephi 32.9|2 Nephi 32:9]]; [[3 Nephi 18.15|3 Nephi 18:15]]; [[D&C 10.5|Doctrine and Covenants 10:5]]; [[D&C 19.38|19:38]]; [[D&C 20.33|20:33]]; [[D&C 31.12|31:12]]; [[D&C 61.39|61:39]]; [[D&C 88.126|88:126]]; [[D&C 93.49|93:49]].
+
+[^8]: See [[3 Nephi 20.1|3 Nephi 20:1]].
+
+[^9]: “Did You Think to Pray?” *Hymns,* no. 140.
+
+[^10]: Gordon B. Hinckley, “Feasting upon the Scriptures,” *Ensign,* Dec. 1985, 45; or *Tambuli,* June 1986, 4.
 

@@ -1,5 +1,6 @@
 # Our Mighty Errand
-*By By Elaine A. Cannon - Young Women General President*
+
+By Elaine A. Cannon - *Young Women General President*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -25,7 +26,7 @@ Paul wrote to the Thessalonians something that expresses my feelings for all of 
 
 “But we were gentle among you, even as a nurse cherisheth her children:
 
-“So being affectionately desirous of you, we were willing to have imparted unto you, not the gospel of God only, but also our own souls, because ye were dear unto us” (1 Thes. 2:7–8).
+“So being affectionately desirous of you, we were willing to have imparted unto you, not the gospel of God only, but also our own souls, because ye were dear unto us” ([[1 Thessalonians 2.7|1 Thes. 2:7–8]][[1 Thessalonians 2.8|]]).
 
 What we say tonight, then, we say in all gentleness but not without strong feeling. The Women in this Church need to be prepared—personally prepared—first, to stem the tide of error inundating the world, threatening families, short-circuiting the power of individuals. Second, though we have great men to lead us, we need to know for ourselves what is error and what is truth so that we can make valid value judgments. So much depends on this. Third, we need to grow and develop so that we are prepared to contribute. We each have a mighty errand to do. It may or may not include marriage and motherhood at this time, but ours is the errand of influence.
 
@@ -62,4 +63,7 @@ There is so much to do.
 There are many who don’t have what we have, who don’t know what we know. So may we be gentle and affectionately desirous of others as we impart, not only the gospel of Jesus Christ, but our own souls to those who have need of us.
 
 It is, after all, the only cause grand enough for woman’s precious energies. In the name of Jesus Christ, amen.
+
+
+
 

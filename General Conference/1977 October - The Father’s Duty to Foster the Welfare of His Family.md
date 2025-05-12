@@ -1,5 +1,6 @@
 # The Father’s Duty to Foster the Welfare of His Family
-*By By Bishop H. Burke Peterson - First Counselor in the Presiding Bishopric*
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -9,35 +10,33 @@ I have been asked to speak on the father’s duty to foster the welfare of his f
 
 We have great concern about the growing number of homes in the Church where the influence of a father is hardly felt. In more and more families the mother and children are left to carry out the father’s duties as well as their own. Divorce, pursuit of wealth, and indifference to sacred things are only three of many reasons why fathers neglect the welfare of their families. In this life a father is never released from his responsibility. We call bishops, and they serve for a time and are released. Stake presidents likewise are called, serve, and are released. But a father’s calling is an eternal calling if he lives worthily.
 
-In 1 Timothy we read some rather sobering words from the Lord:
+In 1 Timothy we read some rather sobering words from the Lord:
 
-“But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” (1 Tim. 5:8.)
+“But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
 
-The positive definition of the word welfare is “happiness, prosperity, and well-being.” The father’s duty is to foster the happiness, prosperity, and well-being of each family member. He is to “provide ... for his own.” He does this when he provides spiritual and temporal leadership to family members. He provides for the welfare of each family member as he sees their needs and provides a way to help each one satisfy those needs. Of course, when there is no father in the home, the head of the household must assume these duties.
+The positive definition of the word *welfare* is “happiness, prosperity, and well-being.” The father’s duty is to foster the happiness, prosperity, and well-being of each family member. He is to “provide … for his own.” He does this when he provides spiritual and temporal leadership to family members. He provides for the welfare of each family member as he sees their needs and provides a way to help each one satisfy those needs. Of course, when there is no father in the home, the head of the household must assume these duties.
 
 We can learn from Brigham Young’s example. An excerpt from a letter to his son Joseph illustrates the kind of spiritual leadership a father should give.
 
 “Joseph,
 
-“All the gold in California could not buy my good feelings to you and thankfulness to the Lord. ... Your mother wishes me to write a few words for her. Her health is about as usual, not very well but so she works all day and then till midnight frequently. We feel proud before the Lord when we think what you are doing in the great cause and kingdom of our God. Be faithful my son. You went out as a child. We trust you will return a flaming elder of salvation. Keep yourself pure before the Lord. Your father before you has done it, and my constant prayer is that you may. With all my heart I believe you will. May God bless you forever and ever.
+“All the gold in California could not buy my good feelings to you and thankfulness to the Lord. … Your mother wishes me to write a few words for her. Her health is about as usual, not very well but so she works all day and then till midnight frequently. We feel proud before the Lord when we think what you are doing in the great cause and kingdom of our God. Be faithful my son. You went out as a child. We trust you will return a flaming elder of salvation. Keep yourself pure before the Lord. Your father before you has done it, and my constant prayer is that you may. With all my heart I believe you will. May God bless you forever and ever.
 
 “Oh, how glad we will be to see you,
 
 “Brigham Young”
 
-(Dean Jessee, Letters of Brigham Young to his Sons, p. 16.)
+(Dean Jessee, *Letters of Brigham Young to his Sons,* p. 16.)
 
 Another excerpt, from one of President Young’s letters to a son who attended the Naval Academy at Annapolis, Maryland, illustrates the kind of temporal leadership a father should provide:
 
 “My dear son,
 
-“Be prudent in all things, adopt the plan of keeping a strict account of all your expenses: by this you will not only understand what becomes of your money, but it will also induce business habits and methods and correctness in financial dealings in ... life. You will find that much of the happiness of this life consists in having something worthy to do and in doing it well. It has been wisely said that ‘that which is worth doing is worth doing well.’ If a man is to drive the plow, let him do it well; if only to cut bolts, make good ones; if to blow the bellows, keep the iron hot. It is our attention to our daily duties that makes us men. Aspire to acquire knowledge that you may be able to do more good and also to progress in your sphere of life; but remember that you will win only by trust in the Lord, by present contentment and by doing faithfully that which you have in hand. ... We all, father, mother, brothers, sisters, friends, and brethren in the office, all join in love to you, and in prayers for your welfare.
+“Be prudent in all things, adopt the plan of keeping a strict account of all your expenses: by this you will not only understand what becomes of your money, but it will also induce business habits and methods and correctness in financial dealings in … life. You will find that much of the happiness of this life consists in having something worthy to do and in doing it well. It has been wisely said that ‘that which is worth doing is worth doing well.’ If a man is to drive the plow, let him do it well; if only to cut bolts, make good ones; if to blow the bellows, keep the iron hot. It is our attention to our daily duties that makes us men. Aspire to acquire knowledge that you may be able to do more good and also to progress in your sphere of life; but remember that you will win only by trust in the Lord, by present contentment and by doing faithfully that which you have in hand. … We all, father, mother, brothers, sisters, friends, and brethren in the office, all join in love to you, and in prayers for your welfare.
 
 “Your affectionate father,
 
-“Brigham Young”
-
-(Jessee, Letters, pp. 305–6.)
+(Jessee, *Letters,* pp. 305–6.)
 
 In the home, the father has a primary obligation to stay close to family members and administer to their needs. Not only through his observations but also in personal interviews the father evaluates his family’s needs. I know several fathers who have a personal interview with each of their children on a weekly basis.
 
@@ -67,15 +66,18 @@ How can we expect a child to grow to maturity understanding honesty if honesty h
 
 We could apply this to any gospel principle. There is no method as dynamic and powerful in a learning experience as personal involvement and example.
 
-Brethren, our ability to give spiritual and temporal leadership to our families depends on the pattern of our lives. We will be effective as fathers only as our lives reflect what we wish to teach. For those who feel it’s too late to start a course in self-improvement, may I suggest, in the words of Hugh B. Brown:
+Brethren, our ability to give spiritual and temporal leadership to our families depends on the pattern of our lives. We will be effective as fathers only as our lives reflect what we wish to teach. For those who feel it’s too late to start a course in self-improvement, may I suggest, in the words of Hugh B. Brown:
 
-“Each one of us must live with himself through the eternity and each one is now working on the kind of man he will have this eternal association with—I say that now is the time to act; it is neither too early nor too late.” (Millennial Star, Feb. 1964, 126:51.)
+“Each one of us must live with himself through the eternity and each one is now working on the kind of man he will have this eternal association with—I say that now is the time to act; it is neither too early nor too late.” (*Millennial Star,* Feb. 1964, 126:51.)
 
 Brethren, it is not too early or too late to teach your family the principles and the how-to’s of financial and resource management, physical health, emotional resiliency, career planning, literacy and educational involvement, and home production and storage.
 
 It is neither too early nor too late to listen more carefully, to spend time and to be an example, to otherwise stand at the head of your posterity as a righteous patriarch.
 
-May each father this day resolve to fill that high destiny spoken of by Peter, for indeed we must be a “chosen generation, a royal priesthood, an holy nation, a peculiar people.” (1 Pet. 2:9.)
+May each father this day resolve to fill that high destiny spoken of by Peter, for indeed we must be a “chosen generation, a royal priesthood, an holy nation, a peculiar people.” ([[1 Peter 2.9|1 Pet. 2:9]].)
 
 In the name of Jesus Christ, amen.
+
+
+
 

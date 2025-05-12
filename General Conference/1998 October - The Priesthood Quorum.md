@@ -1,43 +1,46 @@
 # The Priesthood Quorum
-*By D. Todd Christofferson - Of the Presidency of the Seventy*
+
+By Elder D. Todd Christofferson - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
+
+>*Resolve now to do all within your power to make of your priesthood quorum one worthy of the name and one faithful to its mission.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/10/the-priesthood-quorum?lang=eng)
 
 In 1918 Brother George Goates was a farmer who raised sugar beets in Lehi, Utah. Winter came early that year and froze much of his beet crop in the ground. For George and his young son Francis, the harvest was slow and difficult. Meanwhile, an influenza epidemic was raging. The dreaded disease claimed the lives of George’s son Charles and three of Charles’s small children—two little girls and a boy. In the course of only six days, a grieving George Goates made three separate trips to Ogden, Utah, to bring the bodies home for burial. At the end of this terrible interlude, George and Francis hitched up their wagon and headed back to the beet field.
 
-“[On the way] they passed wagon after wagon-load of beets being hauled to the factory and driven by neighborhood farmers. As they passed by, each driver would wave a greeting: ‘Hi ya, Uncle George,’ ‘Sure sorry, George,’ ‘Tough break, George,’ ‘You’ve got a lot of friends, George.’
+“\[On the way\] they passed wagon after wagon-load of beets being hauled to the factory and driven by neighborhood farmers. As they passed by, each driver would wave a greeting: ‘Hi ya, Uncle George,’ ‘Sure sorry, George,’ ‘Tough break, George,’ ‘You’ve got a lot of friends, George.’
 
-“On the last wagon was ... freckled-faced Jasper Rolfe. He waved a cheery greeting and called out: ‘That’s all of ‘em, Uncle George.’
+“On the last wagon was … freckled-faced Jasper Rolfe. He waved a cheery greeting and called out: ‘That’s all of ’em, Uncle George.’
 
-“[Brother Goates] turned to Francis and said: ‘I wish it was all of ours.’
+“\[Brother Goates\] turned to Francis and said: ‘I wish it was all of ours.’
 
-“When they arrived at the farm gate, Francis jumped down off the big red beet wagon and opened the gate as [his father] drove onto the field. [George] pulled up, stopped the team, ... and scanned the field. ... There wasn’t a sugar beet on the whole field. Then it dawned upon him what Jasper Rolfe meant when he called out: ‘That’s all of ‘em, Uncle George!’
+“When they arrived at the farm gate, Francis jumped down off the big red beet wagon and opened the gate as \[his father\] drove onto the field. \[George\] pulled up, stopped the team, … and scanned the field. … There wasn’t a sugar beet on the whole field. Then it dawned upon him what Jasper Rolfe meant when he called out: ‘That’s all of ’em, Uncle George!’
 
-“[George] got down off the wagon, picked up a handful of the rich, brown soil he loved so much, and then ... a beet top, and he looked for a moment at these symbols of his labor, as if he couldn’t believe his eyes.
+“\[George\] got down off the wagon, picked up a handful of the rich, brown soil he loved so much, and then … a beet top, and he looked for a moment at these symbols of his labor, as if he couldn’t believe his eyes.
 
-“Then [he] sat down on a pile of beet tops—this man who brought four of his loved ones home for burial in the course of only six days; made caskets, dug graves, and even helped with the burial clothing—this amazing man who never faltered, nor flinched, nor wavered throughout this agonizing ordeal—sat down on a pile of beet tops and sobbed like a little child.
+“Then \[he\] sat down on a pile of beet tops—this man who brought four of his loved ones home for burial in the course of only six days; made caskets, dug graves, and even helped with the burial clothing—this amazing man who never faltered, nor flinched, nor wavered throughout this agonizing ordeal—sat down on a pile of beet tops and sobbed like a little child.
 
-“Then he arose, wiped his eyes, ... looked up at the sky, and said: ‘Thanks, Father, for the elders of our ward.’”1
+“Then he arose, wiped his eyes, … looked up at the sky, and said: ‘Thanks, Father, for the elders of our ward.’”[^1]
 
 It is of such elders that I wish to speak this evening. I wish to speak of brothers in the priesthood. I wish to speak of the priesthood quorum.
 
-President Boyd K. Packer has explained that “in ancient days when a man was appointed to a select body, his commission, always written in Latin, outlined the responsibility of the organization, defined who should be members, and then invariably contained the words: quorum vos unum meaning, ‘of whom we will that you be one.’”2
+President Boyd K. Packer has explained that “in ancient days when a man was appointed to a select body, his commission, always written in Latin, outlined the responsibility of the organization, defined who should be members, and then invariably contained the words: *quorum vos unum* meaning, ‘of whom we will that you be one.’”[^2]
 
 “In the dispensation of the fulness of times, the Lord instructed that the priesthood should be organized into quorums, meaning selected assemblies of brethren given authority that His business might be transacted and His work proceed.
 
-“A quorum is a brotherhood. ... [Membership in a quorum] becomes a right of one ordained to an office in the priesthood.”3
+“A quorum is a brotherhood. … \[Membership in a quorum\] becomes a right of one ordained to an office in the priesthood.”[^3]
 
-The scriptures establish the quorums of priesthood and their respective duties in the Church of Jesus Christ today including the First Presidency,4 the Quorum of the Twelve Apostles,5 and the Quorums of the Seventy.6 The “standing ministers” in the stakes of Zion are identified, the high priests and elders,7 as are the three quorums of the Aaronic Priesthood: the priests, teachers, and deacons.8
+The scriptures establish the quorums of the priesthood and their respective duties in the Church of Jesus Christ today, including the First Presidency,[^4] the Quorum of the Twelve Apostles,[^5] and the Quorums of the Seventy.[^6] The “standing ministers” in the stakes of Zion are identified, the high priests and elders,[^7] as are the three quorums of the Aaronic Priesthood: the priests, teachers, and deacons.[^8]
 
-Sixty years ago Elder Stephen L Richards, then a member of the Quorum of the Twelve, provided a characteristically cogent statement of the function of priesthood quorums. Said he, “A quorum is three things: first, a class; second, a fraternity; and third, a service unit.”9 Let us examine briefly these three aspects of priesthood quorums.
+Sixty years ago Elder Stephen L Richards, then a member of the Quorum of the Twelve, provided a characteristically cogent statement of the function of priesthood quorums. Said he, “A quorum is three things: first, a class; second, a fraternity; and third, a service unit.”[^9] Let us examine briefly these three aspects of priesthood quorums.
 
-First, a quorum is a class. When a priesthood quorum or group meets as a class, its members can learn together, be “nourished by the good word of God,”10 and grow spiritually. We study so that we may better teach.11 Beginning this year, the priesthood has a curriculum program, shared in part by the Relief Society, that can revitalize quorums and make them “school[s] of the prophets.”12 On the second and third Sundays of the month, the course of study is based on the teachings of Presidents of the Church. The resource for instruction in 1998–99 is a compilation of excerpts from the sermons of Brigham Young. It is a text rich in doctrine and application. The curriculum continues on the fourth Sunday with Teachings for Our Time, an opportunity to study current gospel issues approved by the First Presidency. Brethren, you who are the leaders of quorums and groups, please study the instructions that have been provided by the First Presidency regarding this new curriculum until you understand them fully. Then implement them precisely.
+**First, a quorum is a class.** When a priesthood quorum or group meets as a class, its members can learn together, be “nourished by the good word of God,”[^10] and grow spiritually. We study so that we may better teach.[^11] Beginning this year, the priesthood has a curriculum program, shared in part by the Relief Society, that can revitalize quorums and make them “school\[s\] of the prophets.”[^12] On the second and third Sundays of the month, the course of study is based on the teachings of Presidents of the Church. The resource for instruction in 1998–99 is a compilation of excerpts from the sermons of Brigham Young. It is a text rich in doctrine and application. The curriculum continues on the fourth Sunday with *Teachings for Our Time,* an opportunity to study current gospel issues approved by the First Presidency. Brethren, you who are the leaders of quorums and groups, please study the instructions that have been provided by the First Presidency regarding this new curriculum until you understand them fully. Then implement them precisely.
 
-The Aaronic Priesthood quorums are also blessed with superb class material, although it wasn’t always so. At the beginning of this century, while some stakes prepared printed, systematic lesson outlines for Aaronic Priesthood quorums, others left the young men to find their own way. This resulted “in some unusual priesthood meetings by our standards. One lesser priesthood group, for example, divided its class time between religious lessons and such adventure books as Tom Sawyer, The Jungle Book, The Call of the Wild, Pigs Is Pigs, and Frank Among the Rancheros.”13 Today such “cultural enrichment” is for other times and settings; when the quorum meets as a class, the time is reserved for things of a higher order. Today’s Aaronic Priesthood curriculum includes such topics as “covenants guide our actions,” “respect for mothers and their divine role,” “valuing and encouraging people with disabilities,” and “moral courage,” to name just a few. Aaronic Priesthood quorums deserve a real priesthood class as part of a solid quorum experience.
+The Aaronic Priesthood quorums are also blessed with superb class material, although it wasn’t always so. At the beginning of this century, while some stakes prepared printed, systematic lesson outlines for Aaronic Priesthood quorums, others left the young men to find their own way. This resulted “in some unusual priesthood meetings by our standards. One lesser priesthood group, for example, divided its class time between religious lessons and such adventure books as *Tom Sawyer, The Jungle Book, The Call of the Wild, Pigs Is Pigs,* and *Frank Among the Rancheros.*”[^13] Today such “cultural enrichment” is for other times and settings; when the quorum meets as a class, the time is reserved for things of a higher order. Today’s Aaronic Priesthood curriculum includes such topics as “covenants guide our actions,” “respect for mothers and their divine role,” “valuing and encouraging people with disabilities,” and “moral courage,” to name just a few. Aaronic Priesthood quorums deserve a real priesthood class as part of a solid quorum experience.
 
-Second, a quorum is a fraternity. In the October general conference of 1982, Elder Robert L. Backman recounted the experience of a young man named Mark Peterson. Shortly after his ordination as a deacon, the deacons quorum presidency scheduled an appointment with Mark and his parents at their home.
+**Second, a quorum is a fraternity.** In the October general conference of 1982, Elder Robert L. Backman recounted the experience of a young man named Mark Peterson. Shortly after his ordination as a deacon, the deacons quorum presidency scheduled an appointment with Mark and his parents at their home.
 
 “Promptly at the hour set, the doorbell rang. The members of the presidency stood on the porch, dressed in suits, white shirts, and ties, and each one carrying his scriptures.
 
@@ -47,15 +50,15 @@ Second, a quorum is a fraternity. In the October general conference of 1982, Eld
 
 “The president then spoke about Mark’s particular responsibilities and duties: how he should dress, how he should pass the sacrament, act as a messenger, collect fast offerings. And then they asked him if he had any questions.
 
-“At the end of the visit they welcomed him to the quorum and offered help whenever he needed it. As they left, Mark ... said to his Dad: ‘They were awesome!’”14
+“At the end of the visit they welcomed him to the quorum and offered help whenever he needed it. As they left, Mark … said to his Dad: ‘They were awesome!’”[^14]
 
 The fraternity of priesthood quorums can indeed be awesome. When I became a member of a Quorum of the Seventy, I assumed that I might be accepted by my brethren in the course of time if I were able to prove myself worthy of their association. I hoped someday to measure up and be approved. I was surprised to find myself immediately welcomed and from the outset treated as a brother, as an equal by men much more talented and accomplished than I. I have been supported and encouraged, loved and tutored in my quorum from my very first day of membership in it. Consequently, I feel a deep desire to contribute to the work of the quorum and to assist my brethren as much as I can.
 
-President David O. McKay taught: “If priesthood meant only personal distinction or individual elevation, there would be no need of groups or quorums. The very existence of such groups, established by divine authorization, proclaims our dependence upon one another, the indispensable need of mutual help and assistance.”15
+President David O. McKay taught: “If priesthood meant only personal distinction or individual elevation, there would be no need of groups or quorums. The very existence of such groups, established by divine authorization, proclaims our dependence upon one another, the indispensable need of mutual help and assistance.”[^15]
 
 And let it be remembered that nowhere is the fraternity of quorums more crucial than in the case of newly baptized brethren and their families. Quorum and group leaders should provide the leading voice and laboring oar in every ward and branch council regarding retention of converts.
 
-Third, a quorum is a service unit. When I spoke earlier of the new Melchizedek Priesthood curriculum, I did not mention what takes place on the first Sunday of the month. That is a very special meeting. On the first Sunday, priesthood bearers meet in quorums and groups to learn their duties and plan their work. On the agenda are training and discussion, reports and assignments. It is a time to learn how to administer correctly priesthood ordinances and blessings. It is a time for the business of the priesthood. It is a time for putting the priesthood to work. I can imagine just such a meeting 80 years ago in Lehi, Utah, as the elders laid a plan to harvest the sugar beets of their beleaguered brother, George Goates.
+**Third, a quorum is a service unit.** When I spoke earlier of the new Melchizedek Priesthood curriculum, I did not mention what takes place on the first Sunday of the month. That is a very special meeting. On the first Sunday, priesthood bearers meet in quorums and groups to learn their duties and plan their work. On the agenda are training and discussion, reports and assignments. It is a time to learn how to administer correctly priesthood ordinances and blessings. It is a time for the business of the priesthood. It is a time for putting the priesthood to work. I can imagine just such a meeting 80 years ago in Lehi, Utah, as the elders laid a plan to harvest the sugar beets of their beleaguered brother, George Goates.
 
 Both Melchizedek and Aaronic Priesthood quorums will find their soul in service. Our great presiding High Priest and exemplar is Jesus Christ, who declared:
 
@@ -63,9 +66,46 @@ Both Melchizedek and Aaronic Priesthood quorums will find their soul in service.
 
 “And whosoever of you will be the chiefest, shall be servant of all.
 
-“For even the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many.”16
+“For even the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many.”[^16]
 
-Years ago President Gordon B. Hinckley expressed something of a vision regarding quorums in the priesthood. He said: “It will be a marvelous day, my brethren—it will be a day of fulfillment of the purposes of the Lord—when our priesthood quorums become an anchor of strength to every man belonging thereto, when each such man may appropriately be able to say, ‘I am a member of a priesthood quorum of The Church of Jesus Christ of Latter-day Saints. I stand ready to assist my brethren in all of their needs, as I am confident they stand ready to assist me in mine. Working together, we shall grow spiritually as covenant sons of God. Working together, we can stand, without embarrassment and without fear, against every wind of adversity that might blow, be it economic, social, or spiritual.’”17
+Years ago President Gordon B. Hinckley expressed something of a vision regarding quorums in the priesthood. He said: “It will be a marvelous day, my brethren—it will be a day of fulfillment of the purposes of the Lord—when our priesthood quorums become an anchor of strength to every man belonging thereto, when each such man may appropriately be able to say, ‘I am a member of a priesthood quorum of The Church of Jesus Christ of Latter-day Saints. I stand ready to assist my brethren in all of their needs, as I am confident they stand ready to assist me in mine. Working together, we shall grow spiritually as covenant sons of God. Working together, we can stand, without embarrassment and without fear, against every wind of adversity that might blow, be it economic, social, or spiritual.’”[^17]
 
 We must not delay or wait longer for this great day of fulfillment. Each of you who has received an ordination in the priesthood belongs to a quorum. If you live in a place where there are not enough brethren to form a quorum, you are a member of a priesthood group that will become a quorum. Resolve now to do all within your power to make of your priesthood quorum one worthy of the name and one faithful to its mission. Study with your brethren in the quorum class. Stand with them in the quorum fraternity. Work with them in quorum service. The quorum, brethren, the quorum, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Les Goates, quoted by Vaughn J. Featherstone, in Conference Report, Apr. 1973, 46–48; or *Ensign,* July 1973, 36–37.
+
+[^2]: *A Royal Priesthood* (Melchizedek Priesthood personal study guide, 1975–76), 131.
+
+[^3]: “What Every Elder Should Know—and Every Sister as Well: A Primer on Principles of Priesthood Government,” *Ensign,* Feb. 1993, 9.
+
+[^4]: See [[D&C 102.9|D&C 102:9–10]][[D&C 102.10|]]; [[D&C 107.9|107:9, 22, 78–81, 91–92]][[D&C 107.22|]][[D&C 107.78|]][[D&C 107.79|]][[D&C 107.80|]][[D&C 107.81|]][[D&C 107.91|]][[D&C 107.92|]].
+
+[^5]: See [[D&C 18.26|D&C 18:26–27]][[D&C 18.27|]]; [[D&C 107.23|107:23–24, 33, 35, 58]][[D&C 107.24|]][[D&C 107.33|]][[D&C 107.35|]][[D&C 107.58|]].
+
+[^6]: See [[D&C 107.25|D&C 107:25–26, 34, 38, 93–97]][[D&C 107.26|]][[D&C 107.34|]][[D&C 107.38|]][[D&C 107.93|]][[D&C 107.94|]][[D&C 107.95|]][[D&C 107.96|]][[D&C 107.97|]].
+
+[^7]: See [[D&C 20.38|D&C 20:38–45]][[D&C 20.39|]][[D&C 20.40|]][[D&C 20.41|]][[D&C 20.42|]][[D&C 20.43|]][[D&C 20.44|]][[D&C 20.45|]]; [[D&C 43.15|43:15–16]][[D&C 43.16|]]; [[D&C 107.7|107:7, 10–12, 17, 89]][[D&C 107.10|]][[D&C 107.11|]][[D&C 107.12|]][[D&C 107.17|]][[D&C 107.89|]]; [[D&C 124.133|124:133–35, 137]][[D&C 124.134|]][[D&C 124.135|]][[D&C 124.137|]].
+
+[^8]: See [[D&C 20.46|D&C 20:46–60]][[D&C 20.47|]][[D&C 20.48|]][[D&C 20.49|]][[D&C 20.50|]][[D&C 20.51|]][[D&C 20.52|]][[D&C 20.53|]][[D&C 20.54|]][[D&C 20.55|]][[D&C 20.56|]][[D&C 20.57|]][[D&C 20.58|]][[D&C 20.59|]][[D&C 20.60|]]; [[D&C 107.60|107:60–63, 85–88]][[D&C 107.61|]][[D&C 107.62|]][[D&C 107.63|]][[D&C 107.85|]][[D&C 107.86|]][[D&C 107.87|]][[D&C 107.88|]].
+
+[^9]: In Conference Report, Oct. 1938, 118.
+
+[^10]: [[Moroni 6.4|Moro. 6:4]].
+
+[^11]: See [[D&C 50.13|D&C 50:13–14]][[D&C 50.14|]].
+
+[^12]: [[D&C 88.127|D&C 88:127]].
+
+[^13]: William Hartley, “The Priesthood Reform Movement, 1908–1922,” *BYU Studies,* winter 1973, 138.
+
+[^14]: In Conference Report, Oct. 1982, 53–54; or *Ensign,* Nov. 1982, 38.
+
+[^15]: In Conference Report, Oct. 1968, 84; or *Improvement Era,* Dec. 1968, 84.
+
+[^16]: [[Mark 10.43|Mark 10:43–45]][[Mark 10.44|]][[Mark 10.45|]].
+
+[^17]: “Welfare Responsibilities of the Priesthood Quorums,” *Ensign,* Nov. 1977, 86.
 

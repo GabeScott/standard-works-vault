@@ -1,7 +1,10 @@
 # Teachers, the Timeless Key
-*By Harold G. Hillam - Of the Presidency of the Seventy*
+
+By Elder Harold G. Hillam - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
+
+>*Regardless of life’s circumstances or the nature of one’s calling, all members of the Church have the opportunity to teach and to testify.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1997/10/teachers-the-timeless-key?lang=eng)
 
@@ -19,7 +22,7 @@ The letter continues: “Now brethren, we can but dimly see what the next fifty 
 
 “This Sunday School work has been to us a labor of love and our interest does not merely exist for today, but extends into the future.
 
-“... We beseech you that whatever may be the methods employed, whatever may be the changes wrought in the fifty years to come, that you never forget for an instant the object of the great Sunday School work, viz: To teach the children the principles of the Gospel of Jesus Christ; to make Latter-day Saints of them.”
+“… We beseech you that whatever may be the methods employed, whatever may be the changes wrought in the fifty years to come, that you never forget for an instant the object of the great Sunday School work, viz: To teach the children the principles of the Gospel of Jesus Christ; to make Latter Day Saints of them.”
 
 The letter was signed by the general Sunday School presidency, as well as 21 other board members, including Joseph F. Smith and Heber J. Grant, both of whom later served as President of the Church.
 
@@ -33,9 +36,9 @@ Indeed, we have been blessed with magnificent tools and methods which can be use
 
 As we prepare for another 50 or 100 years, we might also see but dimly what lies ahead. We must learn to make wise use of the tools and technology that we have.
 
-Wise use of our technology would include care in that which we invite into our homes by the way of television, videos, computers, including the Internet. There is much that is good and edifying in the media, but there is also much that is gross, immoral, and time-consuming, enticing us to be “ever learning, and never able to come to the knowledge of the truth” (2 Tim. 3:7). During the Second World War when gasoline was in short supply and rationed, I remember signs saying, “Is this trip necessary?” Today, with ever-increasing demands on everyone and time in short supply, might we ask ourselves before we turn on the video game, the television, the computer, or access the many programs available, “Is this trip necessary?”
+Wise use of our technology would include care in that which we invite into our homes by the way of television, videos, computers, including the Internet. There is much that is good and edifying in the media, but there is also much that is gross, immoral, and time-consuming, enticing us to be “ever learning, and never able to come to the knowledge of the truth” ([[2 Timothy 3.7|2 Tim. 3:7]]). During the Second World War when gasoline was in short supply and rationed, I remember signs saying, “Is this trip necessary?” Today, with ever-increasing demands on everyone and time in short supply, might we ask ourselves before we turn on the video game, the television, the computer, or access the many programs available, “Is this trip necessary?”
 
-Perhaps every person who is listening might also ask these questions of himself or herself and expect an honest reply: “Is the information I am receiving from this tool of learning edifying, and adding truth into my life? Are the hours I am investing an effective use of my valuable time? Does this computer game assist me in fulfilling my responsibilities and goals?” If the answer is not a resounding yes, then we should have the courage and determination to click the off button and direct our lives to more important tasks.
+Perhaps every person who is listening might also ask these questions of himself or herself and expect an honest reply: “Is the information I am receiving from this tool of learning edifying and adding truth into my life? Are the hours I am investing an effective use of my valuable time? Does this computer game assist me in fulfilling my responsibilities and goals?” If the answer is not a resounding yes, then we should have the courage and determination to click the off button and direct our lives to more important tasks.
 
 Despite the staggering technological advances of the past century, one of the elements of this 1899 letter still remains constant: that is, the importance of well-trained, humble, dedicated, and loving teachers.
 
@@ -45,11 +48,14 @@ Our daughter-in-law, also a teacher, received a note at the end of a school year
 
 We are in essence a church of teachers. Regardless of life’s circumstances or the nature of one’s calling, all members of the Church have the opportunity to teach and to testify. The very nature of our lives bears witness of what we believe and teaches all who come within our sphere of influence.
 
-Many, perhaps most, adult members of the Church, however, find themselves in a position to teach in a more direct manner. Leaders, parents, and called teachers have the specific responsibility to constantly improve their teaching abilities so they can prepare, train, and edify those who fall within their stewardship. President David O. McKay reminded us that “the proper training of childhood is man’s most important and sacred duty” (Gospel Ideals [1953], 220). The Lord has made it clear that parents shall “teach their children to pray, and to walk uprightly before the Lord” (D&C 68:28).
+Many, perhaps most, adult members of the Church, however, find themselves in a position to teach in a more direct manner. Leaders, parents, and called teachers have the specific responsibility to constantly improve their teaching abilities so they can prepare, train, and edify those who fall within their stewardship. President David O. McKay reminded us that “the proper training of childhood is man’s most important and sacred duty” (*Gospel Ideals* \[1953\], 220). The Lord has made it clear that parents shall “teach their children to pray, and to walk uprightly before the Lord” ([[D&C 68.28|D&C 68:28]]).
 
-There is power in the doctrines of the Church—hence the need for us all to be ever learning and constantly fortifying ourselves spiritually. President Hinckley has said: “The forces against which we labor are tremendous. We need more than our own strength to cope with them. To all who hold positions of leadership, to the vast corps of teachers and missionaries, to heads of families, I should like to make a plea: In all you do, feed the Spirit—nourish the soul. ... I am satisfied that the world is starved for spiritual food” (“Feed the Spirit—Nourish the Soul,” Improvement Era, Dec. 1967, 85–86).
+There is power in the doctrines of the Church—hence the need for us all to be ever learning and constantly fortifying ourselves spiritually. President Hinckley has said: “The forces against which we labor are tremendous. We need more than our own strength to cope with them. To all who hold positions of leadership, to the vast corps of teachers and missionaries, to heads of families, I should like to make a plea: In all you do, feed the Spirit—nourish the soul. … I am satisfied that the world is starved for spiritual food” (in Conference Report, Oct. 1967, 89; or *Improvement Era,* Dec. 1967, 85–86).
 
 President Hinckley made that statement nearly 30 years ago at a general conference. Then, how much more need have we to be spiritually fortified today! Indeed, inspired gospel teaching among all members of the Church is a lifeline to the spiritual stability and growth of members of all ages.
 
-Technology will surely advance and methods will certainly change, but the personal touch by a dedicated, loving teacher who radiates the Spirit is the key to filling the desire of the writers of this 1899 document, which was to teach the children, and others, the “principles of the Gospel of Jesus Christ; to make Latter-day Saints of them.” In the name of the greatest teacher of all, even Jesus Christ, amen.
+Technology will surely advance and methods will certainly change, but the personal touch by a dedicated, loving teacher who radiates the Spirit is the key to filling the desire of the writers of this 1899 document, which was to teach the children and others the “principles of the Gospel of Jesus Christ; to make Latter Day Saints of them.” In the name of the greatest teacher of all, even Jesus Christ, amen.
+
+
+
 

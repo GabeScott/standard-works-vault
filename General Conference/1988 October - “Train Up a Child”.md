@@ -1,25 +1,26 @@
 # “Train Up a Child”
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1988/10/train-up-a-child?lang=eng)
 
-Elder Scott, I would just like to add my welcome to the others that have been given to you as you assume this great position. You are joining a unique quorum. It is made up of very common men with a most uncommon calling. There is a spirit, a unity, and a devotion in this body like none other you will ever experience. We are excited to have you and your great talent and abilities with us in our quorum. Welcome! Welcome! Welcome!
+Elder Scott, I would just like to add my welcome to the others that have been given to you as you assume this great position. You are joining a most unique quorum. It is made up of very common men with a most uncommon calling. There is a spirit, a unity, and a devotion in this body like none other you will ever experience. We are excited to have you and your great talent and abilities with us in our quorum. Welcome! Welcome! Welcome!
 
-I have selected as the theme for my conference message a line from Proverbs: “Train up a child in the way he should go: and when he is old, he will not depart from it.” (Prov. 22:6.)
+I have selected as the theme for my conference message a line from Proverbs: “Train up a child in the way he should go: and when he is old, he will not depart from it.” ([[Proverbs 22.6|22:6]].)
 
 The Lord has been very specific in His instructions to parents in this day. From the Doctrine and Covenants we read:
 
-“And again, inasmuch as parents have children in Zion, or in any of her stakes which are organized, that teach them not to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, the sin be upon the heads of the parents. ...
+“And again, inasmuch as parents have children in Zion, or in any of her stakes which are organized, that teach them not to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, the sin be upon the heads of the parents. …
 
 “And they shall also teach their children to pray, and to walk uprightly before the Lord.
 
-“And the inhabitants of Zion shall also observe the Sabbath day to keep it holy. ...
+“And the inhabitants of Zion shall also observe the Sabbath day to keep it holy. …
 
 “Now, I, the Lord, am not well pleased with the inhabitants of Zion, for there are idlers among them; and their children are also growing up in wickedness; they also seek not earnestly the riches of eternity, but their eyes are full of greediness.
 
-“These things ought not to be, and must be done away from among them.” (D&C 68:25, 28–29, 31–32.)
+“These things ought not to be, and must be done away from among them.” ([[D&C 68.25|D&C 68:25, 28–29, 31–32]][[D&C 68.28|]][[D&C 68.29|]][[D&C 68.31|]][[D&C 68.32|]].)
 
 The language is direct, and it leaves no room for misunderstanding. The responsibility for training children rests primarily with the parents.
 
@@ -35,9 +36,9 @@ Today there are many problems in our society, and so many of these problems are 
 
 “If we continue with present trends, we can expect to have more emotionally disturbed young people, more divorce, more depression, and more suicide.
 
-“The family is the most effective place to instill lasting values in its members. Where family life is strong and based on principles and practices of the gospel of Jesus Christ, these problems do not as readily appear.” (Ensign, Nov. 1982, p. 59.)
+“The family is the most effective place to instill lasting values in its members. Where family life is strong and based on principles and practices of the gospel of Jesus Christ, these problems do not as readily appear.” (In Conference Report, Oct. 1982, p. 85; or *Ensign,* Nov. 1982, p. 59.)
 
-There are three solutions I would like to call to your attention and emphasize here today. The first is to establish a good, strong, gospel foundation in the home. President Kimball once said: “Our success, individually and as a Church, will largely be determined by how faithfully we focus on living the gospel in the home. Only as we see clearly the responsibilities of each individual and the role of families and homes can we properly understand that priesthood quorums and auxiliary organizations, even wards and stakes, exist primarily to help members live the gospel in the home. Then we can understand that people are more important than programs, and that Church programs should always support and never detract from gospel-centered family activities.” (“Living the Gospel in the Home,” Ensign, May 1978, p. 101.)
+There are three solutions I would like to call to your attention and emphasize here today. The first is to establish a good, strong, gospel foundation in the home. President Kimball once said: “Our success, individually and as a Church, will largely be determined by how faithfully we focus on living the gospel in the home. Only as we see clearly the responsibilities of each individual and the role of families and homes can we properly understand that priesthood quorums and auxiliary organizations, even wards and stakes, exist primarily to help members live the gospel in the home. Then we can understand that people are more important than programs, and that Church programs should always support and never detract from gospel-centered family activities.” (“Living the Gospel in the Home,” *Ensign,* May 1978, p. 101.)
 
 I am afraid too many of us have had the experience in life of finding out how difficult it is to establish basic family traditions and practices after our children have grown into their teenage years. It is then that we realize how much easier it would have been to establish these practices early in their lives. How important it is that gospel training begin right at the start when we accept a new little spirit into our home.
 
@@ -49,7 +50,7 @@ The second area of concern in training children is not to allow them to be caugh
 
 Brigham Young taught:
 
-“I believe in indulging children, in a reasonable way. If the little girls want dolls, shall they have them? Yes. But must they be taken to the dressmaker’s to be dressed? No. Let the girls learn to cut and sew the clothing for their dolls, and in a few years they will know how to make a dress for themselves and others. Let the little boys have tools, and let them make their sleds, little wagons, etc., and when they grow up, they are acquainted with the use of tools and can build a carriage, a house, or anything else.” (Discourses of Brigham Young, sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1954, p. 210.)
+“I believe in indulging children, in a reasonable way. If the little girls want dolls, shall they have them? Yes. But must they be taken to the dressmaker’s to be dressed? No. Let the girls learn to cut and sew the clothing for their dolls, and in a few years they will know how to make a dress for themselves and others. Let the little boys have tools, and let them make their sleds, little wagons, etc., and when they grow up, they are acquainted with the use of tools and can build a carriage, a house, or anything else.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1954, p. 210.)
 
 Third, children need to be taught the joy of honest labor and experience the satisfaction which results from seeing a job well done. They do not need everything the neighbor’s children across the street are receiving.
 
@@ -59,7 +60,7 @@ I am shocked as I become aware that in so many homes, many of the children do no
 
 Brigham Young again counseled:
 
-“Mothers, will you be missionaries? We will appoint you a mission to teach your children their duty, and instead of ruffles and fine dresses to adorn the body, teach them that which will adorn their minds. Let what you have to clothe them with be neat and clean and nice. Teach them cleanness and purity of body and the principles of salvation, and they will delight to come to these meetings.” (Discourses of Brigham Young, pp. 210–11.)
+“Mothers, will you be missionaries? We will appoint you a mission to teach your children their duty, and instead of ruffles and fine dresses to adorn the body, teach them that which will adorn their minds. Let what you have to clothe them with be neat and clean and nice. Teach them cleanness and purity of body and the principles of salvation, and they will delight to come to these meetings.” (*Discourses of Brigham Young,* pp. 210–11.)
 
 President Kimball delivered a great talk many years ago at Brigham Young University entitled “A Style of Our Own.” He encouraged us not to be among those who would follow worldly, immodest styles, but to have the courage to dress in a way which will send a message that our standards are different. Our dress will reflect the way we intend to live, founded on principles of the gospel of our Lord and Savior. It is impossible to expect a child who has been taught to love to dress in the immodest style trends of the day, to then change overnight to an entirely different wardrobe when they enter a Church university or a missionary training center, or when they are married in the temple, or even when they dress for the Sabbath day. Modest, proper styles must be taught almost from birth.
 
@@ -69,7 +70,10 @@ Now, before I receive letters from upset women telling me that I said they shoul
 
 Missions, Church universities, seminaries, and institutes do a tremendous job in establishing gospel standards in the lives of all those who will partake of these grand opportunities. However, their contribution is so much more enhanced if the students or the missionaries come prepared to receive and serve, rather than come to be reformed. Again from the counsel of Brigham Young:
 
-“Let us live so that the spirit of our religion will live within us, then we have peace, joy, happiness and contentment, which makes such pleasant fathers, pleasant mothers, pleasant children, pleasant households, neighbors, communities and cities. That is worth living for, and I do think that the Latter-day Saints ought to strive for this.” (Discourses of Brigham Young, p. 204.)
+“Let us live so that the spirit of our religion will live within us, then we have peace, joy, happiness and contentment, which makes such pleasant fathers, pleasant mothers, pleasant children, pleasant households, neighbors, communities and cities. That is worth living for, and I do think that the Latter-day Saints ought to strive for this.” (*Discourses of Brigham Young,* p. 204.)
 
 May the Lord bless us with the desire to instill in the lives of our children a standard that will always be acceptable to the gospel of our Lord and Savior. I give you my witness that this is his work in which we are engaged, and I pray that we will be earnestly involved in bringing about an understanding in the hearts and souls of our children. This is my prayer in the name of Jesus Christ, amen.
+
+
+
 

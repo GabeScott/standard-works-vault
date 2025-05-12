@@ -1,7 +1,10 @@
 # Come What May, and Love It
-*By Joseph B. Wirthlin - Of the Quorum of the Twelve Apostles*
+
+By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
+
+>*The way we react to adversity can be a major factor in how happy and successful we can be in life.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/10/come-what-may-and-love-it?lang=eng)
 
@@ -23,9 +26,11 @@ How little I knew then of what awaited me in later years. But whenever my steps 
 
 How can we love days that are filled with sorrow? We can’t—at least not in the moment. I don’t think my mother was suggesting that we suppress discouragement or deny the reality of pain. I don’t think she was suggesting that we smother unpleasant truths beneath a cloak of pretended happiness. But I do believe that the way we react to adversity can be a major factor in how happy and successful we can be in life.
 
-If we approach adversities wisely, our hardest times can be times of greatest growth, which in turn can lead toward times of greatest happiness.
+If we approach adversities wisely, our hardest times can be the times of greatest growth, which in turn can lead to times of greatest happiness.
 
 Over the years I have learned a few things that have helped me through times of testing and trial. I would like to share them with you.
+
+## Learn to Laugh
 
 The first thing we can do is learn to laugh. Have you ever seen an angry driver who, when someone else makes a mistake, reacts as though that person has insulted his honor, his family, his dog, and his ancestors all the way back to Adam? Or have you had an encounter with an overhanging cupboard door left open at the wrong place and the wrong time which has been cursed, condemned, and avenged by a sore-headed victim?
 
@@ -41,6 +46,8 @@ We all had a good laugh over that. In fact, we couldn’t stop laughing. Later, 
 
 The next time you’re tempted to groan, you might try to laugh instead. It will extend your life and make the lives of all those around you more enjoyable.
 
+## Seek for the Eternal
+
 The second thing we can do is seek for the eternal. You may feel singled out when adversity enters your life. You shake your head and wonder, “Why me?”
 
 But the dial on the wheel of sorrow eventually points to each of us. At one time or another, everyone must experience sorrow. No one is exempt.
@@ -55,9 +62,11 @@ Remember the sublime words of the Savior to the Prophet Joseph Smith when he suf
 
 “My son, peace be unto thy soul; thine adversity and thine afflictions shall be but a small moment;
 
-“And then, if thou endure it well, God shall exalt thee on high; thou shalt triumph over all thy foes.”1
+“And then, if thou endure it well, God shall exalt thee on high; thou shalt triumph over all thy foes.”[^1]
 
 With that eternal perspective, Joseph took comfort from these words, and so can we. Sometimes the very moments that seem to overcome us with suffering are those that will ultimately suffer us to overcome.
+
+## The Principle of Compensation
 
 The third thing we can do is understand the principle of compensation. The Lord compensates the faithful for every loss. That which is taken away from those who love the Lord will be added unto them in His own way. While it may not come at the time we desire, the faithful will know that every tear today will eventually be returned a hundredfold with tears of rejoicing and gratitude.
 
@@ -71,23 +80,36 @@ His parents have encouraged him to participate in sports. When he first started 
 
 Any reservations that his family may have had in raising Joseph, any sacrifices they have made have been compensated tenfold. Because of this choice spirit, his mother and father have learned much about children with disabilities. They have witnessed firsthand the generosity and compassion of family, neighbors, and friends. They have rejoiced together as Joseph has progressed. They have marveled at his goodness.
 
+## Trust in the Father and the Son
+
 The fourth thing we can do is put our trust in our Heavenly Father and His Son, Jesus Christ.
 
-“God so loved the world, that he gave his only begotten Son.”2 The Lord Jesus Christ is our partner, helper, and advocate. He wants us to be happy. He wants us to be successful. If we do our part, He will step in.
+“God so loved the world, that he gave his only begotten Son.”[^2] The Lord Jesus Christ is our partner, helper, and advocate. He wants us to be happy. He wants us to be successful. If we do our part, He will step in.
 
-He who descended below all things will come to our aid. He will comfort and uphold us. He will strengthen us in our weakness and fortify us in our distress. He will make weak things become strong.3
+He who descended below all things will come to our aid. He will comfort and uphold us. He will strengthen us in our weakness and fortify us in our distress. He will make weak things become strong.[^3]
 
 One of our daughters, after giving birth to a baby, became seriously ill. We prayed for her, administered to her, and supported her as best we could. We hoped she would receive a blessing of healing, but days turned into months, and months turned into years. At one point I told her that this affliction might be something she would have to struggle with the rest of her life.
 
 One morning I remember pulling out a small card and threading it through my typewriter. Among the words that I typed for her were these: “The simple secret is this: put your trust in the Lord, do your best, then leave the rest to Him.”
 
-She did put her trust in God. But her affliction did not disappear. For years she suffered, but in due course, the Lord blessed her, and eventually she returned to health.
+She did put her trust in God. But her affliction did not disappear. For years she suffered, but in due course the Lord blessed her, and eventually she returned to health.
 
-Knowing this daughter, I believe that even if she had never found relief, yet she would have trusted in her Heavenly Father and “[left] the rest to Him.”
+Knowing this daughter, I believe that even if she had never found relief, yet she would have trusted in her Heavenly Father and “\[left\] the rest to Him.”
+
+## Conclusion
 
 Although my mother has long since passed to her eternal reward, her words are always with me. I still remember her advice to me given on that day long ago when my team lost a football game: “Come what may, and love it.”
 
 I know why there must be opposition in all things. Adversity, if handled correctly, can be a blessing in our lives. We can learn to love it.
 
 As we look for humor, seek for the eternal perspective, understand the principle of compensation, and draw near to our Heavenly Father, we can endure hardship and trial. We can say, as did my mother, “Come what may, and love it.” Of this I testify in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[D&C 121.7|D&C 121:7–8]][[D&C 121.8|]].
+
+[^2]: [[John 3.16|John 3:16]].
+
+[^3]: See [[Ether 12.27|Ether 12:27]].
 

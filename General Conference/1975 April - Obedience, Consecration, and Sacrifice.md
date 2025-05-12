@@ -1,5 +1,6 @@
 # Obedience, Consecration, and Sacrifice
-*By Bruce R. McConkie - Of the Council of the Twelve*
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -13,17 +14,17 @@ We have covenanted in the waters of baptism to love and serve him, to keep his c
 
 Accordingly, I shall now set forth some of the principles of sacrifice and consecration to which the true saints must conform if they are ever to go where God and Christ are and have an inheritance with the faithful saints of ages past.
 
-It is written: “He who is not able to abide the law of a celestial kingdom cannot abide a celestial glory.” (D&C 88:22.) The law of sacrifice is a celestial law; so also is the law of consecration. Thus to gain that celestial reward which we so devoutly desire, we must be able to live these two laws.
+It is written: “He who is not able to abide the law of a celestial kingdom cannot abide a celestial glory.” ([[D&C 88.22|D&C 88:22]].) The law of sacrifice is a celestial law; so also is the law of consecration. Thus to gain that celestial reward which we so devoutly desire, we must be *able* to live these two laws.
 
 Sacrifice and consecration are inseparably intertwined. The law of consecration is that we consecrate our time, our talents, and our money and property to the cause of the Church: such are to be available to the extent they are needed to further the Lord’s interests on earth.
 
 The law of sacrifice is that we are willing to sacrifice all that we have for the truth’s sake—our character and reputation; our honor and applause; our good name among men; our houses, lands, and families: all things, even our very lives if need be.
 
-Joseph Smith said, “A religion that does not require the sacrifice of all things never has power sufficient to produce the faith necessary [to lead] unto life and salvation.” (Lectures on Faith, p. 58.)
+Joseph Smith said, “A religion that does not require the sacrifice of all things never has power sufficient to produce the faith necessary \[to lead\] unto life and salvation.” (*Lectures on Faith,* p. 58.)
 
 We are not always called upon to live the whole law of consecration and give all of our time, talents, and means to the building up of the Lord’s earthly kingdom. Few of us are called upon to sacrifice much of what we possess, and at the moment there is only an occasional martyr in the cause of revealed religion.
 
-But what the scriptural account means is that to gain celestial salvation we must be able to live these laws to the full if we are called upon to do so. Implicit in this is the reality that we must in fact live them to the extent we are called upon so to do.
+But what the scriptural account means is that to gain celestial salvation we must be *able* to live these laws to the full if we are called upon to do so. Implicit in this is the reality that we must in fact live them to the extent we are called upon so to do.
 
 How, for instance, can we establish our ability to live the full law of consecration if we do not in fact pay an honest tithing? Or how can we prove our willingness to sacrifice all things, if need be, if we do not make the small sacrifices of time and toil, or of money and means, that we are now asked to make?
 
@@ -39,9 +40,9 @@ Wasn’t there someone once who said, “Beware of covetousness: for a man’s l
 
 “But God said unto him, Thou fool, this night thy soul shall be required of thee: then whose shall those things be, which thou hast provided?”
 
-And then did He not conclude the matter by saying, “So is he that layeth up treasure for himself, and is not rich toward God.” (Luke 12:15–21.)
+And then did He not conclude the matter by saying, “So is he that layeth up treasure for himself, and is not rich toward God.” ([[Luke 12.15|Luke 12:15–21]][[Luke 12.16|]][[Luke 12.17|]][[Luke 12.18|]][[Luke 12.19|]][[Luke 12.20|]][[Luke 12.21|]].)
 
-When the prophet Gad commanded David to build an altar and offer sacrifice on property owned by a certain man, that man offered to provide the land, the oxen, and all things for the sacrifice, without cost. But David said, “Nay; but I will surely buy it of thee at a price: neither will I offer burnt offerings unto the Lord my God of that which doth cost me nothing.” (2 Sam. 24:24.)
+When the prophet Gad commanded David to build an altar and offer sacrifice on property owned by a certain man, that man offered to provide the land, the oxen, and all things for the sacrifice, without cost. But David said, “Nay; but I will surely buy it of thee at a price: neither will I offer burnt offerings unto the Lord my God of that which doth cost me nothing.” ([[2 Samuel 24.24|2 Sam. 24:24]].)
 
 When it costs us but little to give, the treasure laid up in heaven is a small one. The widow’s mite, given in sacrifice, weighs more heavily in the eternal scales than the bulging granaries of the rich man.
 
@@ -59,7 +60,7 @@ We might well ask, “Isn’t it enough to keep the commandments? What more is e
 
 In the case of our rich young friend there was more. He was expected to live the law of consecration, to sacrifice his earthly possessions, for the answer of Jesus was: “If thou wilt be perfect, go and sell that thou hast, and give to the poor, and thou shalt have treasure in heaven: and come and follow me.”
 
-As you know, the young man went away sorrowful, “for he had great possessions.” (Matt. 19:16–22.) And we are left to wonder what intimacies he might have shared with the Son of God, what fellowship he might have enjoyed with the apostles, what revelations and visions he might have received, if he had been able to live the law of a celestial kingdom. As it is he remains nameless; as it might have been, his name could have been had in honorable remembrance among the saints forever.
+As you know, the young man went away sorrowful, “for he had great possessions.” ([[Matthew 19.16|Matt. 19:16–22]][[Matthew 19.17|]][[Matthew 19.18|]][[Matthew 19.19|]][[Matthew 19.20|]][[Matthew 19.21|]][[Matthew 19.22|]].) And we are left to wonder what intimacies he might have shared with the Son of God, what fellowship he might have enjoyed with the apostles, what revelations and visions he might have received, if he had been *able* to live the law of a celestial kingdom. As it is he remains nameless; as it might have been, his name could have been had in honorable remembrance among the saints forever.
 
 Now I think it is perfectly clear that the Lord expects far more of us than we sometimes render in response. We are not as other men. We are the saints of God and have the revelations of heaven. Where much is given much is expected. We are to put first in our lives the things of his kingdom.
 
@@ -73,7 +74,7 @@ We are under covenant to live the law of sacrifice.
 
 We are under covenant to live the law of consecration.
 
-With this in mind, hear this word from the Lord: “If you will that I give unto you a place in the celestial world, you must prepare yourselves by doing the things which I have commanded you and required of you.” (D&C 78:7.)
+With this in mind, hear this word from the Lord: “If you will that I give unto you a place in the celestial world, you must prepare yourselves by doing the things which I have commanded you and required of you.” ([[D&C 78.7|D&C 78:7]].)
 
 It is our privilege to consecrate our time, talents, and means to build up his kingdom. We are called upon to sacrifice, in one degree or another, for the furtherance of his work. Obedience is essential to salvation; so, also, is service; and so, also, are consecration and sacrifice.
 
@@ -87,9 +88,9 @@ And the fact that faithful members of the Church do all these things is one of t
 
 In the true church we neither preach for hire nor divine for money. We follow the pattern of Paul and make the gospel of Christ without charge, lest we abuse or misuse the power the Lord has given us. Freely we have received and freely we give, for salvation is free. All who thirst are invited to come and drink of the waters of life, to buy corn and wine without money and without price.
 
-All our service in God’s kingdom is predicated on his eternal law which states: “The laborer in Zion shall labor for Zion, for if they labor for money they shall perish.” (2 Ne. 26:31.)
+All our service in God’s kingdom is predicated on his eternal law which states: “The laborer in Zion shall labor for Zion, for if they labor for money they shall perish.” ([[2 Nephi 26.31|2 Ne. 26:31]].)
 
-We know full well that the laborer is worthy of his hire, and that those who devote all their time to the building up of the kingdom must be provided with food, clothing, shelter, and the necessaries of life. We must employ teachers in our schools, architects to design our temples, contractors to build our synagogues, and managers to run our businesses. But those so employed, along with the whole membership of the Church, participate also on a freewill and voluntary basis in otherwise furthering the Lord’s work. Bank presidents work on welfare projects. Architects leave their drafting boards to go on missions. Contractors lay down their tools to serve as home teachers or bishops. Lawyers put aside Corpus Juris and the Civil Code to act as guides on Temple Square. Teachers leave the classroom to visit the fatherless and widows in their affliction. Musicians who make their livelihood from their artistry willingly direct church choirs and perform at church gatherings. Artists who paint for a living are pleased to volunteer their services freely.
+We know full well that the laborer is worthy of his hire, and that those who devote all their time to the building up of the kingdom must be provided with food, clothing, shelter, and the necessaries of life. We must employ teachers in our schools, architects to design our temples, contractors to build our synagogues, and managers to run our businesses. But those so employed, along with the whole membership of the Church, participate also on a freewill and voluntary basis in otherwise furthering the Lord’s work. Bank presidents work on welfare projects. Architects leave their drafting boards to go on missions. Contractors lay down their tools to serve as home teachers or bishops. Lawyers put aside *Corpus Juris* and the Civil Code to act as guides on Temple Square. Teachers leave the classroom to visit the fatherless and widows in their affliction. Musicians who make their livelihood from their artistry willingly direct church choirs and perform at church gatherings. Artists who paint for a living are pleased to volunteer their services freely.
 
 But the work of the kingdom must go forward, and the members of the Church are and shall be called upon to bear off its burdens. It is the Lord’s work and not man’s. He is the one who commands us to preach the gospel in all the world, whatever the cost. It is his voice that decrees the building of temples, whatever the cost. He is the one who tells us to care for the poor among us, whatever the cost, lest their cries come up to his throne as a testimony against those who should have fed the hungry and clothed the naked but who did not.
 
@@ -98,4 +99,7 @@ And may I say also—both by way of doctrine and of testimony—that it is his v
 And every member of his church has this promise: That if he remains true and faithful—obeying, serving, consecrating, sacrificing, as required by the gospel—he shall be repaid in eternity a thousandfold and shall have eternal life. What more can we ask?
 
 In the name of the Lord Jesus Christ. Amen.
+
+
+
 

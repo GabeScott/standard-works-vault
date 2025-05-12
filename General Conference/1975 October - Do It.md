@@ -1,5 +1,6 @@
 # Do It
-*By Robert L. Simpson - Assistant to the Council of the Twelve*
+
+By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -15,7 +16,7 @@ Such is the schedule of a man who has challenged a people to “lengthen their s
 
 Prominently displayed on President Kimball’s desk is a slogan which reads simply, “DO IT.” With this inspired leader, personal convenience comes second. Everything is done to meet the Lords convenience. His example for work has become legend and establishes an example for us all to follow.
 
-While I was stationed at an air base in Wyoming during World War II, it was announced in our branch sacrament meeting that the following week a branch conference would be held and that there was a good possibility that the mission president would bring a visiting authority from Salt Lake City with him. As we came to branch conference the following Sunday morning, we were introduced to that visiting authority, a man that none of us had ever seen before. It was Elder Spencer W. Kimball, the newest member of the Twelve out on one of his very first assignments. His manner was kindly, his testimony so sure, but he expressed concern that such a high calling should come to one such as he. Then with renewed confidence, he said in effect: “Brothers and Sisters: I don’t know exactly why the Lord has called me, but I do have one talent to offer. My father taught me how to work; and if the Lord can use a worker, I’m available.” Yes, the Lord could use a worker! In fact, he needed a hard worker that might possibly be ready to assume prime responsibility at a most significant time.
+While I was stationed at an air base in Wyoming during World War II, it was announced in our branch sacrament meeting that the following week a branch conference would be held and that there was a good possibility that the mission president would bring a visiting authority from Salt Lake City with him. As we came to branch conference the following Sunday morning, we were introduced to that visiting authority, a man that none of us had ever seen before. It was Elder Spencer W. Kimball, the newest member of the Twelve out on one of his very first assignments. His manner was kindly, his testimony so sure, but he expressed concern that such a high calling should come to one such as he. Then with renewed confidence, he said in effect: “Brothers and Sisters: I don’t know exactly why the Lord has called me, but I do have one talent to offer. My father taught me how to work; and if the Lord can use a worker, I’m available.” Yes, the Lord could use a worker! In fact, he needed a hard worker that might possibly be ready to assume prime responsibility at a most significant time.
 
 Now is that time, and a prophet who knows how to work is leading the way. But one fact is certain—this latter-day work requires thousands of us who are willing to match stride with the prophet.
 
@@ -64,4 +65,7 @@ That old Maori great-grandfather had every right to question the true values of 
 If sophisticated methods and automatic equipment can provide us with more time to teach mankind eternal principles of God, then we are blessed most abundantly. If it only enables us to “lengthen our stride” in some devious direction, the adversary has won another round.
 
 May we be blessed with the ability to touch hearts and lift up as we follow the life of the Master and the example of his living prophet on earth today as we just simply DO IT is my prayer in the name of the Lord Jesus Christ. Amen.
+
+
+
 

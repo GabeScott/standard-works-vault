@@ -1,5 +1,6 @@
 # For They Loved the Praise of Men More Than the Praise of God
-*By N. Eldon Tanner - First Counselor in the First Presidency*
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -31,7 +32,7 @@ Someone said to me the other day, “Why is it that people who know what they sh
 
 “Because their hearts are set so much upon the things of this world, and aspire to the honors of men, that they do not learn this one lesson—
 
-“That the rights of the priesthood are inseparably connected with the powers of heaven.” (D&C 121:34–36.)
+“That the rights of the priesthood are inseparably connected with the powers of heaven.” ([[D&C 121.34|D&C 121:34–36]][[D&C 121.35|]][[D&C 121.36|]].)
 
 The next: “This know also, that in the last days perilous times shall come.
 
@@ -41,13 +42,13 @@ The next: “This know also, that in the last days perilous times shall come.
 
 “Traitors, heady, highminded, lovers of pleasures more than lovers of God;
 
-“Having a form of godliness, but denying the power thereof.” (2 Tim. 3:1–5.)
+“Having a form of godliness, but denying the power thereof.” ([[2 Timothy 3.1|2 Tim. 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].)
 
 And finally:
 
 “Nevertheless among the chief rulers also many believed on him; but because of the Pharisees they did not confess him, lest they should be put out of the synagogue:
 
-“For they loved the praise of men more than the praise of God.” (John 12:42–43.)
+“For they loved the praise of men more than the praise of God.” ([[John 12.42|John 12:42–43]][[John 12.43|]].)
 
 It is this last passage with which I should like to deal this evening.
 
@@ -67,7 +68,7 @@ It is most important that we be on guard all the time and never abandon our stan
 
 “And it came to pass about this time, that Joseph went into the house to do his business; and there was none of the men of the house there within.
 
-“And she [Potiphar’s wife] caught him by his garment, saying, Lie with me: and he left his garment in her hand, and fled, and got him out.” (Gen. 39:11–12.)
+“And she \[Potiphar’s wife\] caught him by his garment, saying, Lie with me: and he left his garment in her hand, and fled, and got him out.” ([[Genesis 39.11|Gen. 39:11–12]][[Genesis 39.12|]].)
 
 We remember how he was made to suffer for this but how the Lord blessed him.
 
@@ -85,17 +86,17 @@ Someone said to me the other day when we were talking about this that those who 
 
 How much more satisfying it is when we receive the praise of God, knowing that it is fully justified and that his love and respect for us will persist, when usually the praise of men is fleeting and most disappointing.
 
-It is shocking and appalling indeed to those who believe in the teachings of Christ to see how people in high places, in order to enjoy the praise of those who are so vocal in encouraging and promoting immorality, do not take a stand against these evils and promote the teachings of Christ which are so clearly stated in these words in the Ten Commandments: “Thou shalt not commit adultery.” (Ex. 20:14.)
+It is shocking and appalling indeed to those who believe in the teachings of Christ to see how people in high places, in order to enjoy the praise of those who are so vocal in encouraging and promoting immorality, do not take a stand against these evils and promote the teachings of Christ which are so clearly stated in these words in the Ten Commandments: “Thou shalt not commit adultery.” ([[Exodus 20.14|Ex. 20:14]].)
 
-And then in 1 Corinthians we read:
+And then in 1 Corinthians we read:
 
-“Know ye not that the unrighteous shall not inherit the kingdom of God? Be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind.” (1 Cor. 6:9.)
+“Know ye not that the unrighteous shall not inherit the kingdom of God? Be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind.” ([[1 Corinthians 6.9|1 Cor. 6:9]].)
 
 We also find legislation having been passed and being passed legalizing these very things contrary to the will of the Lord. It is permissive legislation of the worst kind. Brethren, the Lord expects us as his priesthood holders to take a stand for right and do all in our power to oppose and discourage such action and to encourage our people to live according to the teachings of the Lord Jesus Christ.
 
 I quote from Elder Neal Maxwell:
 
-“The leader who is willing to say things that are hard to bear, but which are true and which need to be said, is the leader who truly loves his people and who is kind to them. Nothing is more cruel than that leader who, in order to have the praise and plaudits of his followers, entices them from safety into the swamp out of which some may never return. The straight and narrow way is just that—straight and narrow. It is an arduous up-hill journey. The way to hell is broad and wide and slopes ever so gently, and those who walk that path scarcely notice the descent; sometimes they don’t notice the descent because praise of men distracts them and they do not see the warning signs! The choice is still between the golden calf and the Ten Commandments.” (Unpublished letter dated Aug. 12, 1975, “Some Thoughts,” from Neal A. Maxwell to President Tanner.)
+“The leader who is willing to say things that are hard to bear, but which are true and which need to be said, is the leader who truly loves his people and who is kind to them. Nothing is more cruel than that leader who, in order to have the praise and plaudits of his followers, entices them from safety into the swamp out of which some may never return. The straight and narrow way is just that—straight and narrow. It is an arduous up-hill journey. The way to hell is broad and wide and slopes ever so gently, and those who walk that path scarcely notice the descent; sometimes they don’t notice the descent because praise of men distracts them and they do not see the warning signs! The choice is still between the golden calf and the Ten Commandments.” (Unpublished letter dated Aug. 12, 1975, “Some Thoughts,” from Neal A. Maxwell to President Tanner.)
 
 It seems so true that the charge given by Paul to Timothy applies to us equally today:
 
@@ -105,13 +106,16 @@ It seems so true that the charge given by Paul to Timothy applies to us equally 
 
 “For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears;
 
-“And they shall turn away their ears from the truth, and shall be turned unto fables.” (2 Tim. 4:1–4.)
+“And they shall turn away their ears from the truth, and shall be turned unto fables.” ([[2 Timothy 4.1|2 Tim. 4:1–4]][[2 Timothy 4.2|]][[2 Timothy 4.3|]][[2 Timothy 4.4|]].)
 
 How fortunate we are to be members of The Church of Jesus Christ of Latter-day Saints where we have the gospel in its fulness as recorded in the four standard works of the Church—the Bible, the Book of Mormon, the Doctrine and Covenants, and the Pearl of Great Price—and to have a prophet of God through whom the Lord speaks to guide and direct us in these latter days.
 
-As we read in Acts, “Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved.” (Acts 4:12.)
+As we read in Acts, “Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved.” ([[Acts 4.12|Acts 4:12]].)
 
-May we have the courage, strength, understanding, desire, and determination to do as Joshua said: “Choose you this day whom ye will serve; ... but as for me and my house, we will serve the Lord.” (Josh. 24:15.)
+May we have the courage, strength, understanding, desire, and determination to do as Joshua said: “Choose you this day whom ye will serve; … but as for me and my house, we will serve the Lord.” ([[Joshua 24.15|Josh. 24:15]].)
 
 This I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

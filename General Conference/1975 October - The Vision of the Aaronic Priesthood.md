@@ -1,5 +1,6 @@
 # The Vision of the Aaronic Priesthood
-*By By Bishop Victor L. Brown - Presiding Bishop*
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -29,13 +30,13 @@ May I share with you a story of a young man who witnessed firsthand a demonstrat
 
 “The power was centered in the priests. For the first time in their lives they were called upon to perform all the duties of the priests and administer to the needs of their fellow ward members. They were seriously called to home teach—not just to be a yawning appendage to an elder making a social call but to bless their brothers and sisters.
 
-“Previous to this time I had been with four of these priests in a different situation. There I regarded them to be common hoodlums. They drove away every seminary teacher after two or three months. They spread havoc over the countryside on Scouting trips. But when they were needed—when they were trusted with a vital mission—they were among those who shone the most brilliantly in priesthood service.
+“Previous to this time I had been with four of these priests in a different situation. There I regarded them to be common hoodlums. They drove away every seminary teacher after two or three months. They spread havoc over the countryside on Scouting trips. *But when they were needed—when they were trusted with a vital mission—they were among those who shone the most brilliantly in priesthood service.*
 
 “The secret was that the bishop called upon his Aaronic Priesthood to rise to the stature of men to whom angels might well appear; and they rose to that stature, administering relief to those who might be in want and strengthening those who needed strengthening. Not only were the other ward members built up but so were the members of the quorum themselves. A great unity spread throughout the ward and every member began to have a taste of what it is for a people to be of one mind and one heart. There was nothing inexplicable in all of this; it was just the proper exercise of the Aaronic Priesthood.”
 
 In the world, many organizations, churches, governments, even families have lost much of their vitality because they are afraid to ask people to sacrifice. It is imperative that we not make the same mistake in the Aaronic Priesthood. We must be fearless in expecting Aaronic Priesthood holders to do the work which the Lord has commanded.
 
-To accomplish a great work in the Aaronic Priesthood, no new program is needed. You have either received or shortly will receive the new Aaronic Priesthood Handbook. It outlines the simple principles of organization and operation of the Aaronic Priesthood given in the scriptures and in the teachings of latter-day prophets. Application of these principles will bring about more activity, more conversion, and far better missionary preparation among our young men.
+To accomplish a great work in the Aaronic Priesthood, no new program is needed. You have either received or shortly will receive the new *Aaronic Priesthood Handbook.* It outlines the simple principles of organization and operation of the Aaronic Priesthood given in the scriptures and in the teachings of latter-day prophets. Application of these principles will bring about more activity, more conversion, and far better missionary preparation among our young men.
 
 For a moment let us contemplate together what young men who hold the Aaronic Priesthood become when leaders at every level zealously apply correct principles as contained in the handbook. Some of you already know what immense good results when a stake president asks for an Aaronic Priesthood accounting from each bishop during the monthly personal priesthood interview. The work accelerates when the stake president, who is the chairman of the stake Aaronic Priesthood committee, asks bishops about service rendered by Aaronic Priesthood quorums and about progress in the preparation of quorum members for missionary work, temple marriage, and fatherhood. This one event, the monthly personal priesthood interview, changes and reinforces a bishop’s concept of his foremost responsibility, the Aaronic Priesthood and the Young Women. Of course, if the stake president fails to hold the personal priesthood interview or does not, in fact, accept the direction that the bishop’s first and foremost responsibility is the Aaronic Priesthood and Young Women, the bishop will have difficulty in fulfilling his stewardship.
 
@@ -47,11 +48,14 @@ There is marked and significant development in Aaronic Priesthood leadership whe
 
 Now, let us think ahead to what stature our young men will attain when every quorum fills its calendar with activities and projects which alleviate sorrow or suffering or bring joy into the lives of people in the ward or community, or which enable the quorum to watch over its members and prepare them for missionary work.
 
-Contemplate how much Aaronic Priesthood holders will grow and the Church will be blessed when the quorums carry out all their scriptural responsibilities—for example, when the priests, working as home teachers, exhort families in the Church “to pray vocally and in secret and attend to all family duties” (D&C 20:51) and when the teachers and deacons also carry out their revealed duties. How much a part of this great latter-day work our Aaronic Priesthood brethren will become! They will realize that a priesthood quorum is a brotherhood of priesthood officers ordained with the right and privilege of using God’s power to bring happiness and peace and prosperity into the earth.
+Contemplate how much Aaronic Priesthood holders will grow and the Church will be blessed when the quorums carry out all their scriptural responsibilities—for example, when the priests, working as home teachers, exhort families in the Church “to pray vocally and in secret and attend to all family duties” ([[D&C 20.51|D&C 20:51]]) and when the teachers and deacons also carry out their revealed duties. How much a part of this great latter-day work our Aaronic Priesthood brethren will become! They will realize that a priesthood quorum is a brotherhood of priesthood officers ordained with the right and privilege of using God’s power to bring happiness and peace and prosperity into the earth.
 
 As all of these things happen, leaders will no longer be tempted to devise programs which imitate the world. We will see that the key to the conversion, the activity, the missionary preparation, and the spiritual growth of our youth is a stake presidency, a bishopric, and an Aaronic Priesthood quorum presidency, which fearlessly and thoroughly organize themselves to carry out the basic, fundamental work of the Aaronic Priesthood as the Lord has outlined it.
 
 This is the great work we are called upon to perform in these last days. May we faithfully and vigorously carry it to a glorious conclusion.
 
 I bear my witness, my brethren, that the bishops of this Church have a stewardship for the youth of this Church, and the Lord expects us to properly carry out that stewardship. I have the faith in the bishops of the Church and the stake presidencies that this will be accomplished. And, further, I have faith in the Aaronic Priesthood quorum presidencies themselves, in the maturity, stability, and in the depth of their spirituality that they will rise as no other generation has ever risen in their positions of leadership. I bear this witness and leave my testimony, in the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Attending to Personal and Family Preparedness
-*By By Bishop H. Burke Peterson - First Counselor in the Presiding Bishopric*
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -18,4 +19,7 @@ Our physical health involvement has changed. In the past, when our children were
 We find, as family conditions change and maturity develops, there is still a constant need for expressions of “I love you.” There is still the need for regular father-mother-daughter interviews. There is still the need for dad and a thirteen-year-old to spend some time every summer at the amusement park. Husband-and-wife communication must still be nurtured. Needs like these will exist forever and must be satisfied.
 
 My message, then, is this: We cannot progress without attending to our own personal and family preparedness on a regular basis. Preparedness is not something that is static; it is ever changing. I know of no situation in life where it is not necessary. May we all become involved in it for the blessing of our families. There is precious little time to waste in preparing for the eternities. Of this I testify, in the name of Jesus Christ. Amen.
+
+
+
 

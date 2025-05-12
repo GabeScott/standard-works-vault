@@ -1,5 +1,6 @@
 # Priesthood Blessings
-*By James E. Faust - Second Counselor in the First Presidency*
+
+By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1995 General Conference*
 
@@ -13,23 +14,23 @@ As a small boy, I remember being intrigued by my grandmother’s magnifying glas
 
 This great magnifying effect can be compared to a profound blessing that came to Jacob, who wrestled most of the night for a blessing:
 
-“And Jacob was left alone; and there wrestled [with a messenger1 from God] until the breaking of the day. ...
+“And Jacob was left alone; and there wrestled \[with a messenger[^1] from God\] until the breaking of the day. …
 
 “And he said, Let me go, for the day breaketh. And he said, I will not let thee go, except thou bless me.
 
 “And he said unto him, What is thy name? And he said, Jacob.
 
-“And he said, Thy name shall be called no more Jacob, but Israel: for as a prince hast thou power with God and with men, and hast prevailed.”2
+“And he said, Thy name shall be called no more Jacob, but Israel: for as a prince hast thou power with God and with men, and hast prevailed.”[^2]
 
 Jacob received his blessing in this marvelous experience, and as heirs of Abraham through the blood of Israel we also receive our blessings of divine favor. As the Lord said in the Doctrine and Covenants:
 
-“For ye are lawful heirs, according to the flesh ...
+“For ye are lawful heirs, according to the flesh, …
 
-“Therefore your life and the priesthood have remained, and must needs remain through you and your lineage until the restoration of all things spoken by the mouths of all the holy prophets since the world began.”3
+“Therefore your life and the priesthood have remained, and must needs remain through you and your lineage until the restoration of all things spoken by the mouths of all the holy prophets since the world began.”[^3]
 
 Unlike Jacob, we do not need to wrestle physically much of the night for blessings to strengthen and magnify us. In the Church, blessings are available to all who are worthy through those authorized and even appointed to give priesthood blessings. Stake presidents, bishops, quorum presidents, and home teachers are authorized to give blessings. Worthy fathers and grandfathers, as well as other Melchizedek Priesthood holders, may give blessings to members in times of sickness and when important events occur. Such individual blessings are part of the continuous revelation that we claim as members of The Church of Jesus Christ of Latter-day Saints.
 
-Elder John A. Widtsoe stated, “Every father, having children born to him under the covenant, is to them as a patriarch, and he has the right to bless his posterity in the authority of the Priesthood which he holds.”4
+Elder John A. Widtsoe stated, “Every father, having children born to him under the covenant, is to them as a patriarch, and he has the right to bless his posterity in the authority of the Priesthood which he holds.”[^4]
 
 We know that the gospel always has and always will operate through families. Since early biblical times, order has been brought into the house of Israel through family units. The family unit had inherently and internally the natural love and concern and the blood ties to bring a governing peace and stability to the peoples of God. The same is true today for essentially the same reasons. No other unit of society is an effective substitute for the ties of love and affection inherent in families. The natural leaders of the family unit are the parents, standing side by side as equals in their loving guidance of their children. Each parent brings a separate enriching influence. The power of the priesthood should be the dominant influence in family affairs. Priesthood blessings do not just involve men. They bless equally and fully the women and children of the family. Whatever diminishes family order is destructive to the family unit and to society.
 
@@ -45,29 +46,54 @@ The patriarch has no blessing of his own to give. We heard Elder LeGrand Richard
 
 Patriarchal blessings should be read humbly, prayerfully, and frequently. A patriarchal blessing is very sacred and personal, but it may be shared with close family members. It is a sacred guideline of counsel, promises, and information from the Lord; however, a person should not expect the blessing to detail all that will happen to him or her or to answer all questions. The fact that one’s patriarchal blessing may not mention an important event in life, such as a mission or marriage, does not mean that it will not happen. In order to receive the fulfillment of our patriarchal blessings, we should treasure in our hearts the precious words they contain, ponder them, and so live that we will obtain the blessings in mortality and a crown of righteousness in the hereafter.
 
-My own blessing is short, and it is limited to perhaps three quarters of a page on one side, yet it has been completely adequate and perfect for me. I received my patriarchal blessing as I entered my early teenage years. The patriarch promised that my blessing would “be a comfort and a guide” to me throughout my life. As a boy I read it over and over again. I pondered each word. I prayed earnestly to understand fully the spiritual meaning. Having that blessing early in my life guided me through all of the significant events and challenges of my life. I did not fully understand the meaning of my blessing until I gained more maturity and experience. This blessing outlined some of the responsibilities I would have in the kingdom of God on earth.
+My own blessing is short, and it is limited to perhaps three-quarters of a page on one side, yet it has been completely adequate and perfect for me. I received my patriarchal blessing as I entered my early teenage years. The patriarch promised that my blessing would “be a comfort and a guide” to me throughout my life. As a boy I read it over and over again. I pondered each word. I prayed earnestly to understand fully the spiritual meaning. Having that blessing early in my life guided me through all of the significant events and challenges of my life. I did not fully understand the meaning of my blessing until I gained more maturity and experience. This blessing outlined some of the responsibilities I would have in the kingdom of God on earth.
 
-President Heber J. Grant told of the patriarchal blessing he received: “That patriarch put his hands upon my head and bestowed upon me a little blessing that would perhaps be about one-third of a typewritten page. That blessing foretold my life to the present moment.”5
+President Heber J. Grant told of the patriarchal blessing he received: “That patriarch put his hands upon my head and bestowed upon me a little blessing that would perhaps be about one-third of a typewritten page. That blessing foretold my life to the present moment.”[^5]
 
-Elder John A. Widtsoe said: “It should always be kept in mind that the realization of the promises made may come in this or the future life. Men have stumbled at times because promised blessings have not occurred in this life. They have failed to remember that, in the gospel, life with all its activities continues forever and that the labors of earth may be continued in heaven. Besides, the Giver of the blessings, the Lord, reserves the right to have them become active in our lives, as suits His divine purpose. We and our blessings are in the hands of the Lord. But, there is the general testimony that when the gospel law has been obeyed, the promised blessings have been realized.”6
+Elder John A. Widtsoe said: “It should always be kept in mind that the realization of the promises made may come in this or the future life. Men have stumbled at times because promised blessings have not occurred in this life. They have failed to remember that, in the gospel, life with all its activities continues forever and that the labors of earth may be continued in heaven. Besides, the Giver of the blessings, the Lord, reserves the right to have them become active in our lives, as suits His divine purpose. We and our blessings are in the hands of the Lord. But, there is the general testimony that when the gospel law has been obeyed, the promised blessings have been realized.”[^6]
 
 This was well illustrated in my father’s patriarchal blessing. He was told in his blessing that he would be blessed with “many beautiful daughters.” He and my mother became the parents of five sons. No daughters were born to them, but they treated the wives of their sons as daughters. Some years ago when we had a family gathering, I saw my father’s daughters-in-law, granddaughters, and great-granddaughters moving about, tending to the food and ministering to the young children and the elderly, and the realization came to me that Father’s blessing literally had been fulfilled. He has indeed many beautiful daughters. The patriarch who gave my father his blessing had spiritual vision to see beyond this life. The dividing line between time and eternity disappeared.
 
-The Church is expanding at a tremendous rate. We now have stakes of Zion in a great many countries of the world, and most stakes have at least one patriarch. This growth permits many people across the earth the privilege of receiving patriarchal blessings. As President Joseph Fielding Smith stated, “The great majority of those who become members of the Church are literal descendants of Abraham through Ephraim, son of Joseph.”7 However, Manasseh, the other son of Joseph, as well as the other sons of Jacob, have many descendants in the Church. There may be some come into the Church in our day who are not of Jacob’s blood lineage. No one need assume that he or she will be denied any blessing by reason of not being of the blood lineage of Israel. The Lord told Abraham, “And I will bless them through thy name; for as many as receive this Gospel shall be called after thy name, and shall be accounted thy seed, and shall rise up and bless thee, as their father.”8
+The Church is expanding at a tremendous rate. We now have stakes of Zion in a great many countries of the world, and most stakes have at least one patriarch. This growth permits many people across the earth the privilege of receiving patriarchal blessings. As President Joseph Fielding Smith stated, “The great *majority* of those who become members of the Church are *literal descendants* of Abraham through Ephraim, son of Joseph.”[^7] However, Manasseh, the other son of Joseph, as well as the other sons of Jacob, have many descendants in the Church. There may be some come into the Church in our day who are not of Jacob’s blood lineage. No one need assume that he or she will be denied any blessing by reason of not being of the blood lineage of Israel. The Lord told Abraham, “And I will bless them through thy name; for as many as receive this Gospel shall be called after thy name, and shall be accounted thy seed, and shall rise up and bless thee, as their father.”[^8]
 
-Nephi tells us that “as many of the Gentiles as will repent are the covenant people of the Lord.”9 Therefore it makes no difference if the blessings of the house of Israel come by lineage or by adoption.
+Nephi tells us that “as many of the Gentiles as will repent are the covenant people of the Lord.”[^9] Therefore it makes no difference if the blessings of the house of Israel come by lineage or by adoption.
 
-Some might be disturbed because members of the same family have blessings declaring them to be of a different lineage. A few families are of a mixed lineage. We believe that the house of Israel today constitutes a large measure of the human family. Because the tribes have intermixed one with another, one child may be declared to be from the tribe of Ephraim and another of the same family from Manasseh or one of the other tribes. The blessing of one tribe, therefore, may be dominant in one child, and the blessing of another tribe dominant in yet another child. So, children from the same parents could receive the blessings of different tribes.
+Some might be disturbed because members of the same family have blessings declaring them to be of a different lineage. A few families are of a mixed lineage. We believe that the house of Israel today constitutes a large measure of the human family. Because the tribes have intermixed one with another, one child may be declared to be from the tribe of Ephraim and another of the same family from Manasseh or one of the other tribes. The blessing of one tribe, therefore, may be dominant in one child, and the blessing of another tribe dominant in yet another child. So children from the same parents could receive the blessings of different tribes.
 
-One of the principal reasons for my speaking about this subject is that patriarchal blessings and other blessings testify of the divinity of Christ and the truthfulness of the Church. These sacred blessings also strengthen the lives of those worthy persons who receive such blessings. Thus, father’s blessings, patriarchal blessings, and other blessings are a remarkable privilege which can come to faithful members with sufficient maturity to understand the nature and importance of the blessings. These individualized priesthood blessings are a powerful witness of the love of the Lord Jesus Christ in seeking to bring exaltation to each of us. They are our personal revelation from God.
+One of the principal reasons for my speaking about this subject is that patriarchal blessings and other blessings testify of the divinity of Christ and the truthfulness of the Church. These sacred blessings also strengthen the lives of those worthy persons who receive such blessings. Thus father’s blessings, patriarchal blessings, and other blessings are a remarkable privilege which can come to faithful members with sufficient maturity to understand the nature and importance of the blessings. These individualized priesthood blessings are a powerful witness of the love of the Lord Jesus Christ in seeking to bring exaltation to each of us. They are our personal revelation from God.
 
 Our blessings can encourage us when we are discouraged, strengthen us when we are fearful, comfort us when we sorrow, give us courage when we are filled with anxiety, and lift us up when we are weak in spirit. Our testimonies can be strengthened every time we read our patriarchal blessings.
 
-Like the images in my grandmother’s magnifying glass, we can become stronger, our talents and ability can be magnified and multiplied, our understanding can be greatly enlarged, and our spirituality can flower. Moroni taught that “every good gift cometh of Christ.”10 But the Lord said, “What doth it profit a man if a gift is bestowed upon him, and he receive not the gift?”11
+Like the images in my grandmother’s magnifying glass, we can become stronger, our talents and ability can be magnified and multiplied, our understanding can be greatly enlarged, and our spirituality can flower. Moroni taught that “every good gift cometh of Christ.”[^10] But the Lord said, “What doth it profit a man if a gift is bestowed upon him, and he receive not the gift?”[^11]
 
 I humbly and prayerfully urge any who for any reason may not have lived so as to realize a fulfillment of the priesthood blessings pronounced upon them to so order their lives as to reclaim those blessings.
 
 I charge the faithful members of this church to seek to understand the full significance of your blessings. Gifts may have been bestowed upon you of which you are unaware. These gifts can be of both a profoundly spiritual and temporal nature. I pray that we may all receive our gifts.
 
 In so doing, our understanding, our faith, and our testimony in the Lord Jesus Christ will be increased. I humbly so testify in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (Salt Lake City: Bookcraft, 1954–56), 1:17.
+
+[^2]: [[Genesis 32.24|Gen. 32:24, 26–28]][[Genesis 32.26|]][[Genesis 32.27|]][[Genesis 32.28|]].
+
+[^3]: [[D&C 86.9|D&C 86:9–10]][[D&C 86.10|]].
+
+[^4]: John A. Widtsoe, *Evidences and Reconciliations,* arr. G. Homer Durham, 3 vols. in 1 (Salt Lake City: Bookcraft, 1960), p. 321.
+
+[^5]: Quoted in James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (Salt Lake City: Bookcraft, 1965–75), 5:152.
+
+[^6]: *Evidences and Reconciliations,* p. 323.
+
+[^7]: *Doctrines of Salvation,* 3:246.
+
+[^8]: [[Abraham 2.10|Abr. 2:10]].
+
+[^9]: [[2 Nephi 30.2|2 Ne. 30:2]].
+
+[^10]: [[Moroni 10.18|Moro. 10:18]].
+
+[^11]: [[D&C 88.33|D&C 88:33]].
 

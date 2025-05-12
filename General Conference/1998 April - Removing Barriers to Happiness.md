@@ -1,7 +1,10 @@
 # Removing Barriers to Happiness
-*By Richard G. Scott - Of the Quorum of the Twelve Apostles*
+
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
+
+>*Appreciation for ethnic, cultural, or national heritage can be very wholesome and beneficial, but it can also perpetuate patterns of life that should be set aside by a devoted Latter-day Saint.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/04/removing-barriers-to-happiness?lang=eng)
 
@@ -15,9 +18,9 @@ When you embraced the teachings of Jesus Christ and His plan of happiness, you w
 
 President Hunter explained it this way: “I would like to say something to you that I consider to be very important. Throughout your life, you will be faced with many choices. How well you select among the alternatives will determine your success and happiness in life. Some of the decisions you will make will be absolutely critical and can affect the entire course of your life. Please measure those alternatives against the teachings of Jesus Christ.
 
-“To be able to do that you must know and understand his teachings. As you exercise faith and live worthy of inspiration, you will be directed in the important choices you make.”
+“To be able to do that you must know and understand His teachings. As you exercise faith and live worthy of inspiration, you will be directed in the important choices you make.”
 
-President Hunter continues: “I suggest that you place the highest priority on your membership in the Church of Jesus Christ. Measure whatever anyone else asks you to do, whether it be from your family, loved ones, your cultural heritage, or traditions you have inherited—measure everything against the teachings of the Savior. Where you find a variance from those teachings, set that matter aside and do not pursue it. It will not bring you happiness” (“Counsel to Students and Faculty,” Church College of New Zealand, 12 Nov. 1990).
+President Hunter continues: “I suggest that you place the highest priority on your membership in the Church of Jesus Christ. Measure whatever anyone else asks you to do, whether it be from your family, loved ones, your cultural heritage, or traditions you have inherited—measure everything against the teachings of the Savior. Where you find a variance from those teachings, set that matter aside and do not pursue it. It will not bring you happiness” (*Prepare Yourself* \[pamphlet, 1996\], 1–2).
 
 Why give the Lord’s teachings first priority? They are your perfect handbook to happiness. The Savior is your Redeemer. His sacrifice entitles Him to judge you and to ultimately give you the greatest blessings for obedience to His commandments. He is the perfect example. Although He has limitless power as a God, yet is He humble, submissive to the Father. There is no pride or desire for personal recognition.
 
@@ -27,19 +30,19 @@ You may ask how can one determine when a tradition is in conflict with the teach
 
 Changing a profoundly embedded pattern of life can be very difficult. Former friends can ridicule, criticize, and even persecute. Persistent faith in the Savior and obedience will see you through such hardships to greater blessings. The scriptures illustrate how conviction and faith can overcome traditions in conflict with God’s plan, bringing blessings to individuals, and even generations of people. Abraham’s unwavering determination to be loyal to truth and to reject false tradition blessed him greatly. His loyalty will crown with rich rewards all of the obedient of the house of Israel. Another dramatic example of discarding long-established traditions is the change of warlike Lamanites into humble followers of Christ willing to die before violating covenants made as members of His kingdom.
 
-I encourage you who have already made correct cultural choices to help others to do likewise. Teach them to recognize the long-term blessings of peace and happiness that come from a decision to place Father in Heaven, His plan, and His Son at the center of their priorities. Follow Ammon’s example. He patiently taught King Lamoni to recognize and to abandon incorrect traditions. Many were blessed by his decision to discard them. Ammon taught truth so clearly that Lamoni was touched by the Spirit and desired to give up all of his false traditions (see Alma 18:24–41; Alma 19:35–36).
+I encourage you who have already made correct cultural choices to help others to do likewise. Teach them to recognize the long-term blessings of peace and happiness that come from a decision to place Father in Heaven, His plan, and His Son at the center of their priorities. Follow Ammon’s example. He patiently taught King Lamoni to recognize and to abandon incorrect traditions. Many were blessed by his decision to discard them. Ammon taught truth so clearly that Lamoni was touched by the Spirit and desired to give up all of his false traditions (see [[Alma 18.24|Alma 18:24–41]][[Alma 18.25|]][[Alma 18.26|]][[Alma 18.27|]][[Alma 18.28|]][[Alma 18.29|]][[Alma 18.30|]][[Alma 18.31|]][[Alma 18.32|]][[Alma 18.33|]][[Alma 18.34|]][[Alma 18.35|]][[Alma 18.36|]][[Alma 18.37|]][[Alma 18.38|]][[Alma 18.39|]][[Alma 18.40|]][[Alma 18.41|]]; [[Alma 19.35|19:35–36]][[Alma 19.36|]]).
 
 Is yours a culture where the husband exerts a domineering, authoritarian role, making all of the important decisions for the family? That pattern needs to be tempered so that both husband and wife act as equal partners, making decisions in unity for themselves and their family. No family can long endure under fear or force; that leads to contention and rebellion. Love is the foundation of a happy family.
 
-These are other traditions that should be set aside, any aspect of heritage:
+These are other traditions that should be set aside—any aspect of heritage:
 
-That would violate the Word of Wisdom.
+- That would violate the Word of Wisdom.
 
-That is based on forcing others to comply by the power of station often determined by heredity.
+- That is based on forcing others to comply by the power of station often determined by heredity.
 
-That encourages the establishment of caste systems.
+- That encourages the establishment of caste systems.
 
-That breeds conflict with other cultures.
+- That breeds conflict with other cultures.
 
 There is serious danger in placing cultural heritage in priority above membership in the Church of Jesus Christ. That zeal to defend one’s own culture may lead to excesses that are known to be wrong but justified because it’s “them” against “us.” Gangs, with all of their potential for destruction, are fostered in a culture of group identity over principles of right and wrong. It is a violation of God’s commandments for one culture to persecute another, whatever the reason.
 
@@ -47,11 +50,14 @@ Should you choose, even unknowingly, to follow tradition which is in conflict wi
 
 You do what is right. Don’t worry so much about what everyone else is doing. Certainly don’t justify departure from what you know is right because of others’ wrong choices.
 
-Satan would destroy families. Our Father in Heaven’s plan is centered in loving family relationships here and into eternity. The devil would undermine authority and order, whereas authority righteously exercised is the backbone of Father in Heaven’s work in the family, the Church, and every aspect of His kingdom. Satan would segregate Father’s children into groups with strongly held individual interests. He would encourage a tenacious preservation of those interests regardless of the consequences to others. Father’s plan is expressed in His Son’s words, “Behold, ... I say unto you, be one; and if ye are not one ye are not mine” (D&C 38:27). Satan promotes the concept that life is to be filled with constant personal entertainment even if that pursuit interferes with another’s well-being. Father in Heaven gives us the plan of happiness, which engenders the abandonment of selfish interests and provides happiness through service to others. The example and teachings of Jesus can unite Father’s children, regardless of culture or origin, under the single banner of membership in His kingdom. Brigham Young taught:
+Satan would destroy families. Our Father in Heaven’s plan is centered in loving family relationships here and into eternity. The devil would undermine authority and order, whereas authority righteously exercised is the backbone of Father in Heaven’s work in the family, the Church, and every aspect of His kingdom. Satan would segregate Father’s children into groups with strongly held individual interests. He would encourage a tenacious preservation of those interests regardless of the consequences to others. Father’s plan is expressed in His Son’s words: “Behold, … I say unto you, be one; and if ye are not one ye are not mine” ([[D&C 38.27|D&C 38:27]]). Satan promotes the concept that life is to be filled with constant personal entertainment even if that pursuit interferes with another’s well-being. Father in Heaven gives us the plan of happiness, which engenders the abandonment of selfish interests and provides happiness through service to others. The example and teachings of Jesus can unite Father’s children, regardless of culture or origin, under the single banner of membership in His kingdom. Brigham Young taught:
 
-“A perfect oneness will save a people, because intelligent beings [can only] become perfectly one, ... by acting upon principles that pertain to eternal life. Wicked men may be partially united in evil; but, ... the very principle upon which they are partially united will itself breed contention ... to destroy the temporary compact. Only ... truth and righteousness can secure ... an eternal continuation of perfect union; for only truth and those who are sanctified by it can dwell in celestial glory” (Discourses of Brigham Young, sel. John A. Widtsoe [1961], 282).
+“A perfect oneness will save a people, because intelligent beings \[can only\] become perfectly one … by acting upon principles that pertain to eternal life. Wicked men may be partially united in evil; but, … the very principle upon which they are partially united will itself breed contention … to destroy the temporary compact. Only … truth and righteousness can secure … an eternal continuation of perfect union; for only truth and those who are sanctified by it can dwell in celestial glory” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[1941\], 282).
 
 If in an awkward attempt to express a truth I have stirred feelings of offense, I apologize. Please overlook my inadequacy and try to understand the truth of what is being said. In quiet moments of reflection, weigh what our Father in Heaven and His Beloved Son have identified as the key priorities of life. Review your own life to make sure that in all respects it is in harmony with them. That is all I am trying to say. As I travel through my own country and to other parts of the world, I see the marvelous benefits derived from the distinct cultures that exist. Yet those benefits are sometimes overshadowed by the negative influences that result from those traditions that conflict with the teachings of the Master.
 
 I testify that you will remove barriers to happiness and find greater peace as you make your first allegiance your membership in the Church of Jesus Christ, and His teachings the foundation of your life. Where family or national traditions or customs conflict with the teachings of God, set them aside. Where traditions and customs are in harmony with His teachings, they should be cherished and followed to preserve your culture and heritage. There is one heritage that you need never change. It is that heritage that comes from your being a daughter or son of Father in Heaven. For happiness, control your life by that heritage. In the name of Jesus Christ, amen.
+
+
+
 

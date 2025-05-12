@@ -1,7 +1,10 @@
 # “Because I Live, Ye Shall Live Also”
-*By Shayne M. Bowen - Of the Seventy*
+
+By Elder Shayne M. Bowen - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
+
+>*Because of Him, even our Savior, Jesus Christ, those feelings of sorrow, loneliness, and despair will one day be swallowed up in a fulness of joy.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/10/because-i-live-ye-shall-live-also?lang=eng)
 
@@ -15,13 +18,13 @@ Sister Ramirez advanced rapidly through the lessons. She was anxious to learn al
 
 “And their little children need no repentance, neither baptism. Behold, baptism is unto repentance to the fulfilling the commandments unto the remission of sins.
 
-“But little children are alive in Christ, even from the foundation of the world; if not so, God is a partial God, and also a changeable God, and a respecter to persons; for how many little children have died without baptism!”1
+“But little children are alive in Christ, even from the foundation of the world; if not so, God is a partial God, and also a changeable God, and a respecter to persons; for how many little children have died without baptism!”[^1]
 
 After reading this scripture, Sister Ramirez began sobbing. My companion and I were confused. I asked, “Sister Ramirez, have we said or done something that has offended you?”
 
 She said, “Oh, no, Elder, you haven’t done anything wrong. Six years ago I had a baby boy. He died before we could have him baptized. Our priest told us that because he had not been baptized, he would be in limbo for all eternity. For six years I have carried that pain and guilt. After reading this scripture, I know by the power of the Holy Ghost that it is true. I have felt a great weight taken off of me, and these are tears of joy.”
 
-I was reminded of the teachings of the Prophet Joseph Smith, who taught this comforting doctrine: “The Lord takes many away, even in infancy, that they may escape the envy of man, and the sorrows and evils of this present world; they were too pure, too lovely, to live on earth; therefore, if rightly considered, instead of mourning we have reason to rejoice as they are delivered from evil, and we shall soon have them again.”2
+I was reminded of the teachings of the Prophet Joseph Smith, who taught this comforting doctrine: “The Lord takes many away, even in infancy, that they may escape the envy of man, and the sorrows and evils of this present world; they were too pure, too lovely, to live on earth; therefore, if rightly considered, instead of mourning we have reason to rejoice as they are delivered from evil, and we shall soon have them again.”[^2]
 
 After she suffered almost unbearable grief and pain for six years, the true doctrine, revealed by a loving Father in Heaven through a living prophet, brought sweet peace to this tormented woman. Needless to say, Sister Ramirez and her children who were eight years and older were baptized.
 
@@ -45,7 +48,7 @@ It is impossible to describe the mixture of feelings that I had at that point in
 
 Feelings of guilt racked my soul. I felt so guilty. I felt dirty. I was his father; I should have done more to protect him. If only I would have done this or that. Sometimes even today, 22 years later, those feelings begin to creep into my heart, and I need to get rid of them quickly because they can be destructive.
 
-About a month after Tyson died, I had an interview with Elder Dean L. Larsen. He took the time to listen to me, and I will always be grateful for his counsel and love. He said, “I don’t think the Lord would want you to punish yourself for the death of your little boy.” I felt the love of my Heavenly Father through one of his chosen vessels.
+About a month after Tyson died, I had an interview with Elder Dean L. Larsen. He took the time to listen to me, and I will always be grateful for his counsel and love. He said, “I don’t think the Lord would want you to punish yourself for the death of your little boy.” I felt the love of my Heavenly Father through one of his chosen vessels.
 
 However, tormenting thoughts continued to plague me, and I soon began to feel anger. “This isn’t fair! How could God do this to me? Why me? What did I do to deserve this?” I even felt myself get angry with people who were just trying to comfort us. I remember friends saying, “I know how you feel.” I would think to myself, “You have no idea how I feel. Just leave me alone.” I soon found that self-pity can also be very debilitating. I was ashamed of myself for having unkind thoughts about dear friends who were only trying to help.
 
@@ -59,9 +62,9 @@ Sometimes people will ask, “How long did it take you to get over it?” The tr
 
 “For man is spirit. The elements are eternal, and spirit and element, inseparably connected, receive a fulness of joy;
 
-“And when separated, man cannot receive a fulness of joy.”3
+“And when separated, man cannot receive a fulness of joy.”[^3]
 
-But in the meantime, as the Savior taught, we can continue with good cheer.4
+But in the meantime, as the Savior taught, we can continue with good cheer.[^4]
 
 I have learned that the bitter, almost unbearable pain can become sweet as you turn to your Father in Heaven and plead for His comfort that comes through His plan; His Son, Jesus Christ; and His Comforter, who is the Holy Ghost.
 
@@ -73,9 +76,24 @@ I testify that because of Him, even our Savior, Jesus Christ, those feelings of 
 
 “I will not leave you comfortless: I will come to you.
 
-“Yet a little while, and the world seeth me no more; but ye see me: because I live, ye shall live also.”5
+“Yet a little while, and the world seeth me no more; but ye see me: because I live, ye shall live also.”[^5]
 
-I testify that, as stated in Preach My Gospel, “as we rely on the Atonement of Jesus Christ, He can help us endure our trials, sicknesses, and pain. We can be filled with joy, peace, and consolation. All that is unfair about life can be made right through the Atonement of Jesus Christ.”6
+I testify that, as stated in *Preach My Gospel,* “as we rely on the Atonement of Jesus Christ, He can help us endure our trials, sicknesses, and pain. We can be filled with joy, peace, and consolation. All that is unfair about life can be made right through the Atonement of Jesus Christ.”[^6]
 
 I testify that on that bright, glorious morning of the First Resurrection, your loved ones and mine will come forth from the grave as promised by the Lord Himself and we will have a fulness of joy. Because He lives, they and we shall live also. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Moroni 8.10|Moroni 8:10–12]][[Moroni 8.11|]][[Moroni 8.12|]].
+
+[^2]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 176.
+
+[^3]: [[D&C 93.33|Doctrine and Covenants 93:33–34]][[D&C 93.34|]].
+
+[^4]: See [[John 16.33|John 16:33]].
+
+[^5]: [[John 14.18|John 14:18–19]][[John 14.19|]].
+
+[^6]: *Preach My Gospel: A Guide to Missionary Service* (2004), 52.
 

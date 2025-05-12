@@ -1,15 +1,18 @@
 # Hearts Bound Together
-*By Henry B. Eyring - Of the Quorum of the Twelve Apostles*
+
+By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
 
+>*When you were baptized, your ancestors looked down on you with hope. … They rejoiced to see one of their descendants make a covenant to find them.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2005/04/hearts-bound-together?lang=eng)
 
-My message is to those who are converts to the Church. More than half the members of the Church today chose to be baptized after the age of eight. So you are not the exception in the Church. To you I wish to say how much the Lord loves you and trusts you. And, even more, I wish to tell you how much He depends on you.
+My message is to those who are converts to the Church. More than half the members of the Church today chose to be baptized after the age of eight. So you are not the exception in the Church. To you I wish to say how much the Lord loves you and trusts you. And even more, I wish to tell you how much He depends on you.
 
 You felt His love at least to some degree when you were baptized. Years ago I took a young man, 20 years of age, into the waters of baptism. My companion and I had taught him the gospel. He was the first in his family to hear the message of the restored gospel. He asked to be baptized. The testimony of the Spirit made him want to follow the example of the Savior, who was baptized by John the Baptist even though He was without sin.
 
-As I brought that young man up out of the waters of baptism, he surprised me by throwing his arms around my neck and whispering in my ear, tears streaming down his face, “I’m clean, I’m clean.” That same young man, after we laid our hands on his head with the authority of the Melchizedek Priesthood and conferred on him the Holy Ghost, said to me, “When you spoke those words, I felt something like fire go down from the top of my head through my body, all the way to my feet.”
+As I brought that young man up out of the waters of baptism, he surprised me by throwing his arms around my neck and whispering in my ear, tears streaming down his face, “I’m clean; I’m clean.” That same young man, after we laid our hands on his head with the authority of the Melchizedek Priesthood and conferred on him the Holy Ghost, said to me, “When you spoke those words, I felt something like fire go down from the top of my head through my body, all the way to my feet.”
 
 Your experience will have been unique to you, but to some degree you felt the magnitude of the blessing which came to you. Since then, you have felt the reality of the promises made to you and the promises you made. You have felt the cleansing that came from your baptism, because of the Atonement of Jesus Christ. And you have felt the change in your heart as the Holy Ghost has become your companion. Your desires have begun to change.
 
@@ -17,13 +20,13 @@ When someone tells me that he or she is a convert to the Church, I ask, “Has a
 
 The Lord knew you would have those feelings when He allowed you to receive the covenants which are blessing your life. He knew you would feel a desire for your family to share the blessings you felt coming into the Church. Even more, He knew how that desire would increase when you came to know the joy of the promises He makes to us in sacred temples. There, for those who qualify, He lets us make covenants with Him. We promise to obey His commandments. And He promises us, if we are faithful, that we may live with Him in glory in families forever in the world to come.
 
-In His loving-kindness, He knew you would have a desire to be bound forever to your parents and their parents. You may have had a grandfather like mine, who always seemed to treasure my visits. I thought I was his favorite grandchild until my cousins told me they felt the same way. He is gone now. All my grandparents and their ancestors have died. Many of your ancestors died never having the chance to accept the gospel and to receive the blessings and promises you have received. The Lord is fair and He is loving. And so He prepared for you and me a way for us to have the desire of our hearts to offer to our ancestors all the blessings He has offered us.
+In His loving-kindness, He knew you would have a desire to be bound forever to your parents and their parents. You may have had a grandfather like mine, who always seemed to treasure my visits. I thought I was his favorite grandchild until my cousins told me they felt the same way. He is gone now. All my grandparents and their ancestors have died. Many of your ancestors died never having the chance to accept the gospel and to receive the blessings and promises you have received. The Lord is fair, and He is loving. And so He prepared for you and me a way for us to have the desire of our hearts to offer to our ancestors all the blessings He has offered us.
 
 The plan to make that possible has been in place from the beginning. The Lord gave promises to His children long ago. The very last book of the Old Testament is the book of the prophet Malachi. And the last words are a sweet promise and a stern warning:
 
 “Behold, I will send you Elijah the prophet before the coming of the great and dreadful day of the Lord:
 
-“And he shall turn the heart of the fathers to the children, and the heart of the children to their fathers, lest I come and smite the earth with a curse.”1
+“And he shall turn the heart of the fathers to the children, and the heart of the children to their fathers, lest I come and smite the earth with a curse.”[^1]
 
 Some of those words are crucial to understand. The great and dreadful day of the Lord is the end of the world. Jehovah, the Messiah, will come in glory. The wicked will all be destroyed. We live in the last days. Time could be running out for us to do what we have promised to do.
 
@@ -31,19 +34,19 @@ It is important to know why the Lord promised to send Elijah. Elijah was a great
 
 “Another great and glorious vision burst upon us; for Elijah the prophet, who was taken to heaven without tasting death, stood before us, and said:
 
-“Behold, the time has fully come, which was spoken of by the mouth of Malachi—testifying that he [Elijah] should be sent, before the great and dreadful day of the Lord come—
+“Behold, the time has fully come, which was spoken of by the mouth of Malachi—testifying that he \[Elijah\] should be sent, before the great and dreadful day of the Lord come—
 
 “To turn the hearts of the fathers to the children, and the children to the fathers, lest the whole earth be smitten with a curse—
 
-“Therefore, the keys of this dispensation are committed into your hands; and by this ye may know that the great and dreadful day of the Lord is near, even at the doors.”2
+“Therefore, the keys of this dispensation are committed into your hands; and by this ye may know that the great and dreadful day of the Lord is near, even at the doors.”[^2]
 
 As you came into the Church, you have felt your heart being turned toward family, both those who are living and those who are in the spirit world. The Lord provided another vision to help you know what to do with those feelings.
 
-After Joseph Smith, the Lord called other prophets to lead His Church. One was Joseph F. Smith. He saw in vision what happened in the spirit world when the Savior appeared there between the time of His death and His Resurrection.3 President Smith saw the joy of the spirits when they learned that the Savior had broken the bands of death and because of His Atonement they could be resurrected. And he saw the Savior organize His servants among the spirits to preach His gospel to every spirit and offer the chance to choose the covenants and the blessings which are offered to you and which you want for your ancestors. All are to have that chance.
+After Joseph Smith, the Lord called other prophets to lead His Church. One was Joseph F. Smith. He saw in vision what happened in the spirit world when the Savior appeared there between the time of His death and His Resurrection.[^3] President Smith saw the joy of the spirits when they learned that the Savior had broken the bands of death and because of His Atonement they could be resurrected. And he saw the Savior organize His servants among the spirits to preach His gospel to every spirit and offer the chance to choose the covenants and the blessings which are offered to you and which you want for your ancestors. All are to have that chance.
 
-President Smith also saw the leaders the Savior called to take the gospel to Heavenly Father’s children in the spirit world. He named some of them: Father Adam, Mother Eve, Noah, Abraham, Ezekiel, Elijah, prophets we know from the Book of Mormon, and some from the last days, including Joseph Smith, Brigham Young, John Taylor, and Wilford Woodruff. Think of the power of those missionaries to teach the gospel and to touch the hearts of your ancestors. It is not surprising that Wilford Woodruff said while he lived that he believed few, if any, of the ancestors of the Latter-day Saints in the spirit world would choose to reject the message of salvation when they heard it.4
+President Smith also saw the leaders the Savior called to take the gospel to Heavenly Father’s children in the spirit world. He named some of them: Father Adam, Mother Eve, Noah, Abraham, Ezekiel, Elijah, prophets we know from the Book of Mormon, and some from the last days, including Joseph Smith, Brigham Young, John Taylor, and Wilford Woodruff. Think of the power of those missionaries to teach the gospel and to touch the hearts of your ancestors. It is not surprising that Wilford Woodruff said while he lived that he believed few, if any, of the ancestors of the Latter-day Saints in the spirit world would choose to reject the message of salvation when they heard it.[^4]
 
-Many of your deceased ancestors will have received a testimony that the message of the missionaries is true. When you received that testimony you could ask the missionaries for baptism. But those who are in the spirit world cannot. The ordinances you so cherish are offered only in this world. Someone in this world must go to a holy temple and accept the covenants on behalf of the person in the spirit world. That is why we are under obligation to find the names of our ancestors and ensure that they are offered by us what they cannot receive there without our help.
+Many of your deceased ancestors will have received a testimony that the message of the missionaries is true. When you received that testimony, you could ask the missionaries for baptism. But those who are in the spirit world cannot. The ordinances you so cherish are offered only in this world. Someone in this world must go to a holy temple and accept the covenants on behalf of the person in the spirit world. That is why we are under obligation to find the names of our ancestors and ensure that they are offered by us what they cannot receive there without our help.
 
 For me, knowing that turns my heart not only to my ancestors who wait but to the missionaries who teach them. I will see those missionaries in the spirit world, and so will you. Think of a faithful missionary standing there with those he has loved and taught who are your ancestors. Picture as I do the smile on the face of that missionary as you walk up to him and your ancestors whom he converted but could not baptize or have sealed to family until you came to the rescue. I do not know what the protocol will be in such a place, but I imagine arms thrown around your neck and tears of gratitude.
 
@@ -53,11 +56,24 @@ Because your heart has already been turned, the price may not seem high. You beg
 
 You can start searching in the first few generations going back in time. From that you will identify many of your ancestors who need your help. Someone in your own ward or branch of the Church has been called to help you prepare those names for the temple. There they can be offered the covenants which will free them from their spirit prisons and bind them in families—your family—forever.
 
-Your opportunities and the obligations they create are remarkable in the whole history of the world. There are more temples across the earth than there have ever been. More people in all the world have felt the Spirit of Elijah move them to record the identities and facts of their ancestors’ lives. There are more resources to search out your ancestors than there have ever been in the history of the world. The Lord has poured out knowledge about how to make that information available worldwide through technology that a few years ago would have seemed a miracle.
+Your opportunities and the obligations they create are remarkable in the whole history of the world. There are more temples across the earth than there have ever been. More people in all the world have felt the Spirit of Elijah move them to record the identities of their ancestors and facts of their ancestors’ lives. There are more resources to search out your ancestors than there have ever been in the history of the world. The Lord has poured out knowledge about how to make that information available worldwide through technology that a few years ago would have seemed a miracle.
 
-With those opportunities there comes greater obligation to keep our trust with the Lord. Where much is given, much is required.5 After you find the first few generations, the road will become more difficult. The price will become greater. As you go back in time, the records become less complete. As others of your family search out ancestors, you will discover that the ancestor you find has already been offered the full blessings of the temple. Then you will have a difficult and important choice to make. You will be tempted to stop and leave the hard work of finding to others who are more expert or to another time in your life. But you will also feel a tug on your heart to go on in the work, hard as it will be.
+With those opportunities there comes greater obligation to keep our trust with the Lord. Where much is given, much is required.[^5] After you find the first few generations, the road will become more difficult. The price will become greater. As you go back in time, the records become less complete. As others of your family search out ancestors, you will discover that the ancestor you find has already been offered the full blessings of the temple. Then you will have a difficult and important choice to make. You will be tempted to stop and leave the hard work of finding to others who are more expert or to another time in your life. But you will also feel a tug on your heart to go on in the work, hard as it will be.
 
 As you decide, remember that the names which will be so difficult to find are of real people to whom you owe your existence in this world and whom you will meet again in the spirit world. When you were baptized, your ancestors looked down on you with hope. Perhaps after centuries, they rejoiced to see one of their descendants make a covenant to find them and to offer them freedom. In your reunion, you will see in their eyes either gratitude or terrible disappointment. Their hearts are bound to you. Their hope is in your hands. You will have more than your own strength as you choose to labor on to find them.
 
 A few nights ago I had a dream. I saw a piece of white paper with a name on it I did not know and a date I could only partially read. I got up and went to the records of my family. The last name on the slip of paper is from a line which came into my mother’s ancestry 300 years ago in a place called Eaton Bray. Someone is anxious for a long wait to end. I have not yet found that person. But I have found again the assurance that a loving God sends help in answer to prayer in this sacred work of redeeming our families, which is His work and His glory and to which we have pledged our hearts. I so testify, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]].
+
+[^2]: [[D&C 110.13|D&C 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
+
+[^3]: See [[D&C 138.1|D&C 138]][[D&C 138.2|]][[D&C 138.3|]][[D&C 138.4|]][[D&C 138.5|]][[D&C 138.6|]][[D&C 138.7|]][[D&C 138.8|]][[D&C 138.9|]][[D&C 138.10|]][[D&C 138.11|]][[D&C 138.12|]][[D&C 138.13|]][[D&C 138.14|]][[D&C 138.15|]][[D&C 138.16|]][[D&C 138.17|]][[D&C 138.18|]][[D&C 138.19|]][[D&C 138.20|]][[D&C 138.21|]][[D&C 138.22|]][[D&C 138.23|]][[D&C 138.24|]][[D&C 138.25|]][[D&C 138.26|]][[D&C 138.27|]][[D&C 138.28|]][[D&C 138.29|]][[D&C 138.30|]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.36|]][[D&C 138.37|]][[D&C 138.38|]][[D&C 138.39|]][[D&C 138.40|]][[D&C 138.41|]][[D&C 138.42|]][[D&C 138.43|]][[D&C 138.44|]][[D&C 138.45|]][[D&C 138.46|]][[D&C 138.47|]][[D&C 138.48|]][[D&C 138.49|]][[D&C 138.50|]][[D&C 138.51|]][[D&C 138.52|]][[D&C 138.53|]][[D&C 138.54|]][[D&C 138.55|]][[D&C 138.56|]][[D&C 138.57|]][[D&C 138.58|]][[D&C 138.59|]][[D&C 138.60|]].
+
+[^4]: See “Discourse by President Wilford Woodruff,” *Millennial Star,* May 28, 1894, 339–40.
+
+[^5]: See [[Luke 12.48|Luke 12:48]].
 

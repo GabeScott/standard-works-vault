@@ -1,5 +1,6 @@
 # Search for the Wanderers
-*By N. Eldon Tanner - Second Counselor in the First Presidency*
+
+By President N. Eldon Tanner - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -15,7 +16,7 @@ Let us as leaders, and all of us, always remember and never forget that everyone
 
 We have an old song, “Where Is My Wandering Boy Tonight?” and I was wondering if that could not be changed to mean more to us in these words: “Why is my boy wandering tonight?”
 
-If those two sons of Brother [Wendell J.] Ashton will follow their father’s directions, and if all who listened to Bishop Brown this evening, and those who listened this afternoon and this morning to the general conference, will follow the instructions that were given them, they will not be wandering boys.
+If those two sons of Brother \[Wendell J.\] Ashton will follow their father’s directions, and if all who listened to Bishop Brown this evening, and those who listened this afternoon and this morning to the general conference, will follow the instructions that were given them, they will not be wandering boys.
 
 But sometimes boys do wander because, as I said before, of the way they are treated, the way they are neglected; because they feel they are not wanted.
 
@@ -33,7 +34,7 @@ The Lord gave us the parable of the Lost Sheep, and I should like to read it bec
 
 “And when he cometh home, he calleth together his friends and neighbours, saying unto them, Rejoice with me; for I have found my sheep which was lost.
 
-“I say unto you, that likewise joy shall be in heaven over one sinner that repenteth, more than over ninety and nine just persons, which need no repentance.” (Luke 15:1–7.)
+“I say unto you, that likewise joy shall be in heaven over one sinner that repenteth, more than over ninety and nine just persons, which need no repentance.” ([[Luke 15.1|Luke 15:1–7]][[Luke 15.2|]][[Luke 15.3|]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]].)
 
 Every bishop, every stake president, every leader of any organization knows someone who needs attention, and you and we have the responsibility of going to find that lost sheep. If we had knowledge tonight that some young man was lost, if anyone knew of someone who was drowning, we wouldn’t hesitate one minute to do all in our power to save that individual, to save the one who was lost, the one who was drowning, the one who was in need of our help. These young men and these older men who are inactive in the Church, who have strayed away from the Church because of inactivity or for any reason, need our help and need our attention just as much. They need our prayers and our consideration, and nothing will bring us greater joy and happiness than to see one come back into activity.
 
@@ -82,4 +83,7 @@ I don’t care at all for percentages or statistics, but I do care for that boy 
 And to you young men, there is no fun in being lost, and you can keep from being lost if you will honor your priesthood all the time and help the boys who are having difficulty to honor their priesthood, that they might be happy.
 
 I bear you my testimony, my brethren, that we hold the priesthood of God. This is his church and kingdom. He has given us the responsibility of teaching and helping to save our fellowmen. May we do it in a way that will be acceptable to him, which will bring joy to us and help to prepare us for eternal life, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

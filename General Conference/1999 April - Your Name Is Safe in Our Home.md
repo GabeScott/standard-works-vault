@@ -1,7 +1,10 @@
 # Your Name Is Safe in Our Home
-*By Cree-L Kofford - Of the Seventy*
+
+By Elder Cree-L Kofford - *Of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
+
+>*There are those among us who would recoil in horror at the thought of stealing another person’s money or property but who don’t give a second thought to stealing another person’s good name or reputation.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1999/04/your-name-is-safe-in-our-home?lang=eng)
 
@@ -19,43 +22,39 @@ While each of us may have dozens of lines on the ground in our life today, I wou
 
 During the early years of my service as a General Authority, I was privileged to be in company with Elder Marion D. Hanks on one occasion when he related the following story. I use it here with his permission:
 
-Oscar Kirkham was one of the great men of the Church and among the Church’s most respected Scouters. He served in the First Council of the Seventy and was a significant presence wherever he went. Often in meetings he would rise to a “point of personal privilege” and then, when recognized, would proceed to say something good about someone. Near the end of his life, he spoke briefly at Brigham Young University on the theme “say the good word.” On the morning that Elder Kirkham died, Elder Hanks was invited to the Kirkham family home. There he was handed a small, inexpensive notebook in which Elder Kirkham had kept his notes. The last two entries were: “Say the good word” and “Your name is safe in our home” (see Marion D. Hanks, foreword to Say the Good Word, by Oscar A. Kirkham [1958], 4).
+Oscar Kirkham was one of the great men of the Church and among the Church’s most respected Scouters. He served in the First Council of the Seventy and was a significant presence wherever he went. Often in meetings he would rise to a “point of personal privilege” and then, when recognized, would proceed to say something good about someone. Near the end of his life, he spoke briefly at Brigham Young University on the theme “say the good word.” On the morning that Elder Kirkham died, Elder Hanks was invited to the Kirkham family home. There he was handed a small, inexpensive notebook in which Elder Kirkham had kept his notes. The last two entries were: “Say the good word” and “Your name is safe in our home” (see Marion D. Hanks, foreword to *Say the Good Word,* by Oscar A. Kirkham \[1958\], 4).
 
 What a blessing it would be if all of us could follow that counsel, if each of our names truly could be safe in the home of others. Have you noticed how easy it is to cross over the line and find fault with other people? All too often we seek to be excused from the very behavior we condemn in others. Mercy for me, justice for everyone else is a much too common addiction. When we deal with the name and reputation of another, we deal with something sacred in the sight of the Lord.
 
 There are those among us who would recoil in horror at the thought of stealing another person’s money or property but who don’t give a second thought to stealing another person’s good name or reputation.
 
-The old adage “Never judge another man until you have walked a mile in his footsteps” is as good advice today as it was the day it was first uttered. Someone once said,
+The old adage “Never judge another man until you have walked a mile in his footsteps” is as good advice today as it was the day it was first uttered. Someone once said:
 
-There is so much good in the worst of us,
+>There is so much good in the worst of us,
+>And so much bad in the best of us,
+>That it ill behooves any of us
+>To find fault with the rest of us.
+>
 
-And so much bad in the best of us,
+The principle is not new, nor is it unique to our day and time. The book of Psalms from the Old Testament contains this urgent warning from the Lord: “Whoso privily slandereth his neighbour, him will I cut off” ([[Psalms 101.5|Ps. 101:5]]).
 
-That it ill behooves any of us
+James, a servant of the Lord in the meridian of time, repeated this eternal truth when he said: “Speak not evil one of another, brethren. He that speaketh evil of his brother, and judgeth his brother, speaketh evil of the law, and judgeth the law. …
 
-To find fault with the rest of us.
+“… Who art thou that judgest another?” ([[James 4.11|James 4:11–12]][[James 4.12|]]).
 
-(Hazel Felleman, sel., The Best Loved Poems of the American People [1936], 615)
+And in this latter day, the Lord renewed His long-taught command in a revelation given through the prophet Brigham Young: “Cease to speak evil one of another” ([[D&C 136.23|D&C 136:23]]).
 
-The principle is not new, nor is it unique to our day and time. The book of Psalms from the Old Testament contains this urgent warning from the Lord: “Whoso privily slandereth his neighbour, him will I cut off” (Ps. 101:5).
+It is most significant to me that this simple commandment is set forth just a few verses from the Lord’s words on the penalty for disobedience: “Be diligent in keeping all my commandments, lest judgments come upon you, and your faith fail you, and your enemies triumph over you” ([[D&C 136.42|D&C 136:42]]).
 
-James, a servant of the Lord in the meridian of time, repeated this eternal truth when he said: “Speak not evil one of another, brethren. He that speaketh evil of his brother, and judgeth his brother, speaketh evil of the law, and judgeth the law. ...
-
-“... Who art thou that judgest another?” (James 4:11–12).
-
-And in this latter day, the Lord renewed His long-taught command in a revelation given through the prophet Brigham Young: “Cease to speak evil one of another” (D&C 136:23).
-
-It is most significant to me that this simple commandment is set forth just a few verses from the Lord’s words on the penalty for disobedience: “Be diligent in keeping all my commandments, lest judgments come upon you, and your faith fail you, and your enemies triumph over you” (D&C 136:42).
-
-To those who doubt the importance of the commandment, may I pose two simple questions: (1) How can you say you love your fellowman when behind his back you seek to diminish his good name and reputation? (2) How can you say you love your God when you cannot even love your neighbor?
+To those who doubt the importance of the commandment, may I pose two simple questions: (1) How can you say you love your fellowman when behind his back you seek to diminish his good name and reputation? (2) How can you say you love your God when you cannot even love your neighbor?
 
 Any feeble attempt to justify such conduct only brings more forcibly to mind those explosive words of the Savior found in the book of Matthew:
 
-“O generation of vipers, how can ye, being evil, speak good things? ...
+“O generation of vipers, how can ye, being evil, speak good things? …
 
 “But I say unto you, That every idle word that men shall speak, they shall give account thereof in the day of judgment.
 
-“For by thy words thou shalt be justified, and by thy words thou shalt be condemned” (Matt. 12:34, 36–37).
+“For by thy words thou shalt be justified, and by thy words thou shalt be condemned” ([[Matthew 12.34|Matt. 12:34, 36–37]][[Matthew 12.36|]][[Matthew 12.37|]]).
 
 I would like to say a few words to the Primary children who may be listening. Children, I’ve been trying to teach your moms and dads something very important, but I need your help. I’ll make you a deal. If you will promise to listen very carefully, I promise not to talk very long.
 
@@ -64,4 +63,7 @@ Do you remember the story of Bambi, the little deer, and all of his friends in t
 I pray that the Lord will bless each of us that we may never cross over the line on the ground and that we may live so that it can be said, “Your name is safe in our home.”
 
 On this special Easter Day, I close with my solemn declaration, born of the Spirit, that Jesus Christ is indeed our Savior and our Redeemer and that salvation comes by and through His atoning sacrifice and in no other way. In the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Let Us Go Forward!
-*By Gordon B. Hinckley - Second Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -19,7 +20,7 @@ They have counseled us concerning our families, our lives, our affairs. All of u
 
 Do not fear concerning the Church. We have had mentioned in this conference some of our critics. They mock that which is most holy to us. They jest over and hold up to ridicule that which has come by revelation from the Almighty. Any man who tries to find humor at the expense of that which is sacred to another is deeply flawed in character. Shame on those who stoop to such actions in the name of fun and on those who witness and laugh. Simple courtesy would dictate a decent respect for that which is sacred to neighbors and associates in one’s society.
 
-The Lord himself has said, “Remember that that which cometh from above is sacred, and must be spoken with care, and by constraint of the Spirit.” (D&C 63:64.)
+The Lord himself has said, “Remember that that which cometh from above is sacred, and must be spoken with care, and by constraint of the Spirit.” ([[D&C 63.64|D&C 63:64]].)
 
 As has been indicated, there are a few who have taken it upon themselves as their mission to belittle and demean and destroy the faith of the weak, with a badly flawed argument that we are not Christians.
 
@@ -31,13 +32,13 @@ The second: We ask only that we be judged by our fruits. Said the Master:
 
 “Even so every good tree bringeth forth good fruit; but a corrupt tree bringeth forth evil fruit.
 
-“A good tree cannot bring forth evil fruit, neither can a corrupt tree bring forth good fruit. ...
+“A good tree cannot bring forth evil fruit, neither can a corrupt tree bring forth good fruit. …
 
-“Wherefore by their fruits ye shall know them.” (Matt. 7:16–18, 20.)
+“Wherefore by their fruits ye shall know them.” ([[Matthew 7.16|Matt. 7:16–18, 20]][[Matthew 7.17|]][[Matthew 7.18|]][[Matthew 7.20|]].)
 
 By that standard we are willing to be judged.
 
-At a time when we were under far more intensive siege than we are today, President Joseph F. Smith stood at this pulpit in this Tabernacle and said:
+At a time when we were under far more intensive siege than we are today, President Joseph F. Smith stood at this pulpit in this Tabernacle and said:
 
 “We thank God for His mercies and blessings; and I do not know but what we owe in some small degree gratitude to those who have bitterly opposed the work of the Lord; for in all their opposings and bitter strife against our people the Lord has developed His power and wisdom, and has brought His people more fully into the knowledge and favor of the intelligent people of the earth. Through the very means used by those who have opposed the work of God, He has brought out good for Zion. Yet, it is written, and I believe it is true, that although it must needs be that offenses come, woe unto them by whom they come; but they are in the hands of the Lord as we are. We bring no railing accusation against them. We are willing to leave them in the hands of the Almighty to deal with them as seemeth Him good. Our business is to work righteousness in the earth, to seek for the development of a knowledge of God’s will and of God’s ways, and of His great and glorious truths which He has revealed through the instrumentality of Joseph the Prophet, not only for the salvation of the living but for the redemption and salvation of the dead.” (In Conference Report, Apr. 1908, pp. 2–3.)
 
@@ -45,9 +46,9 @@ And so we let the matter rest there.
 
 Now let those of us who have traveled to the conference return to our homes with resolution in our hearts, and those of us who have participated in the conference by means of satellite transmission, television, and radio resolve also that we shall try a little harder to live the standards of the gospel, of which we have heard these days; that we shall lower our voices of criticism and negativism; that we will look for good in the world; that as employees we will be honest with our employers in giving of our time and of our talents; that we shall cultivate within our hearts a love one for another, both within and without the Church; that as husbands and wives we shall be true to one another in every respect; that every husband and holder of the priesthood will treat his companion and children with love and deference; that we will cultivate in our homes family prayer, making it the habit of our daily lives; that we will deal honestly with all men and walk humbly and obediently with God our Eternal Father. For this I humbly pray.
 
-I remember as a boy sitting in this Tabernacle and hearing President Heber J. Grant, his voice trembling with conviction, read these words:
+I remember as a boy sitting in this Tabernacle and hearing President Heber J. Grant, his voice trembling with conviction, read these words:
 
-“How long can rolling waters remain impure? What power shall stay the heavens? As well might man stretch forth his puny arm to stop the Missouri river in its decreed course, or to turn it up stream, as to hinder the Almighty from pouring down knowledge from heaven upon the heads of the Latter-day Saints.” (D&C 121:33.)
+“How long can rolling waters remain impure? What power shall stay the heavens? As well might man stretch forth his puny arm to stop the Missouri river in its decreed course, or to turn it up stream, as to hinder the Almighty from pouring down knowledge from heaven upon the heads of the Latter-day Saints.” ([[D&C 121.33|D&C 121:33]].)
 
 I believed those words when I heard President Grant read them then. I believe them now. I believe without any question, my brethren and sisters, that this is the work of God and that he is pouring out, in a marvelous and miraculous way, his blessings upon this people.
 
@@ -59,7 +60,7 @@ There comes into my mind these great words from one of the letters of Paul to Ti
 
 “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.
 
-“Be not thou therefore ashamed of the testimony of our Lord.” (2 Tim. 1:7–8.)
+“Be not thou therefore ashamed of the testimony of our Lord.” ([[2 Timothy 1.7|2 Tim. 1:7–8]][[2 Timothy 1.8|]].)
 
 I commend those marvelous words to you: “God has not given us the spirit of fear; but of power, and of love, and of a sound mind.
 
@@ -69,15 +70,16 @@ I wish to read as we conclude this great conference this challenge of Moroni amo
 
 “And awake, and arise from the dust, O Jerusalem; yea, and put on thy beautiful garments, O daughter of Zion; and strengthen thy stakes and enlarge thy borders forever, that thou mayest no more be confounded, that the covenants of the Eternal Father which he hath made unto thee, O house of Israel, may be fulfilled.
 
-“Yea, come unto Christ, and be perfected in him, and deny yourselves of all ungodliness.” (Moro. 10:31–32.)
+“Yea, come unto Christ, and be perfected in him, and deny yourselves of all ungodliness.” ([[Moroni 10.31|Moro. 10:31–32]][[Moroni 10.32|]].)
 
 As we all sang together in this meeting that stirring hymn, the chorus of which contains these words, my heart was lifted in a great surge of emotion concerning the faith of this people:
 
-I’ll strengthen thee, help thee, and cause thee to stand,
+>I’ll strengthen thee, help thee, and cause thee to stand,
+>Upheld by my righteous, omnipotent hand.
+>
 
-Upheld by my righteous, omnipotent hand.
+I leave you my testimony and invoke the blessings of heaven upon you. I know that God our Eternal Father lives. I know that Jesus is the Christ, the Savior and the Redeemer of mankind. I know that this is the work of the Lord, that this Church is established upon a foundation of Apostles and prophets, Jesus Christ being the chief cornerstone. (See [[Ephesians 2.20|Eph. 2:20]].) I know these things, and I know that you know them; and with that knowledge may we go forward with our lives, walking with integrity and gladness and faith, I humbly pray, in the name of Jesus Christ, amen.
 
-(“How Firm a Foundation,” Hymns, no. 66.)
 
-I leave you my testimony and invoke the blessings of heaven upon you. I know that God our Eternal Father lives. I know that Jesus is the Christ, the Savior and the Redeemer of mankind. I know that this is the work of the Lord, that this Church is established upon a foundation of Apostles and prophets, Jesus Christ being the chief cornerstone. (See Eph. 2:20.) I know these things, and I know that you know them; and with that knowledge may we go forward with our lives, walking with integrity and gladness and faith, I humbly pray, in the name of Jesus Christ, amen.
+
 

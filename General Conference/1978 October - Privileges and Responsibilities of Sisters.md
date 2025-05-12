@@ -1,5 +1,6 @@
 # Privileges and Responsibilities of Sisters
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -37,7 +38,7 @@ Among your most important choices in life should be a temple marriage. Honorable
 
 Marriage is perhaps the most vital of all the decisions and has the most far-reaching effects, for it has to do not only with immediate happiness, but eternal joys as well.
 
-In selecting one’s companion for life and for eternity, certainly the most careful planning and thinking and praying and fasting should be done to be sure that of all the decisions, this one is not wrong. In a true marriage there must be a union of minds as well as of hearts. Emotions must not wholly determine decisions, but the mind and the heart, strengthened by fasting and prayer and serious consideration, will give one a maximum chance of marital happiness.
+In selecting one’s companion for life and for eternity, certainly the most careful planning and thinking and praying and fasting should be done to *be sure that of all* the *decisions,* this *one* is not wrong. In a true marriage there must be a union of minds as well as of hearts. Emotions must not wholly determine decisions, but the mind and the heart, strengthened by fasting and prayer and serious consideration, will give one a maximum chance of marital happiness.
 
 Some young people think of happiness as a glamorous life of ease, luxury, and constant thrills, but true marriage is based on happiness that is more than that, one that comes from giving, serving, sharing, sacrificing, and selflessness.
 
@@ -91,7 +92,7 @@ We know that women who have deep appreciation for the past will be concerned abo
 
 The women of God in all ages have been able to reflect with awe upon the handiwork of God in the heavens without neglecting the practical skills needed not only to survive on this planet but to live an abundant life. There is more of a connection than many realize between the order and purpose of the universe and the order and harmony which exists in a happy and good family.
 
-I am grateful for the cultural refinement that comes into Latter-day Saint homes as the mothers are able to draw upon their experiences in the Church to add to the serenity of our homes. Especially is this true if we approach these things in the spirit of the thirteenth Article of Faith: “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.”
+I am grateful for the cultural refinement that comes into Latter-day Saint homes as the mothers are able to draw upon their experiences in the Church to add to the serenity of our homes. Especially is this true if we approach these things in the spirit of the [[Articles of Faith 1.13|thirteenth Article of Faith]]: “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.”
 
 The cultivation of Christlike qualities is a demanding and relentless task—it is not for the seasonal worker or for those who will not stretch themselves, again and again.
 
@@ -101,15 +102,15 @@ We speak often of agency—free agency. Surely it is what brought you here tonig
 
 Agency suggests something very important—trust. Trust on the part of all. Now, just as God trusted us with all he had created here on earth, we must trust his knowledge and love and each other.
 
-God is the same, yesterday, today, and forever, as are his purposes. It is written: “And I, God, created man in mine own image, in the image of mine Only Begotten created I him; male and female created I them” (Moses 2:27).
+God is the same, yesterday, today, and forever, as are his purposes. It is written: “And I, God, created man in mine own image, in the image of mine Only Begotten created I him; male and female created I them” ([[Moses 2.27|Moses 2:27]]).
 
 And Genesis goes on to say something very beautiful about that creation:
 
-“And God blessed them. ...
+“And God blessed them. …
 
-“And God said, Behold, I have given you ... every thing ... upon the earth, wherein there is life, ... and it was so.
+“And God said, Behold, I have given you … every thing … upon the earth, wherein there is life, … and it was so.
 
-“And God saw every thing that he had made, and, behold, it was very good.” (Gen. 1:28–31.)
+“And God saw every thing that he had made, and, behold, it was very good.” ([[Genesis 1.28|Gen. 1:28–31]][[Genesis 1.29|]][[Genesis 1.30|]][[Genesis 1.31|]].)
 
 This is a partnership. God and his creation. The Primary song says, “I am a child of God.” Born with a noble birthright. God is your father. He loves you. He and your mother in heaven value you beyond any measure. They gave your eternal intelligence spirit form, just as your earthly mother and father have given you a mortal body. You are unique. One of a kind, made of the eternal intelligence which gives you claim upon eternal life.
 
@@ -123,9 +124,9 @@ Being “anxiously engaged” in The Church of Jesus Christ of Latter-day Saints
 
 Home is a place for all that is good and enlightening and true. It should provide a climate for constant growth and learning for all who live there—father, mother, and children. Whether or not it provides such a climate depends upon each individual concerned making the right choices in life.
 
-It is against the home and family life that Satan has aimed his greatest efforts to destroy. He strikes the moral sanctity of the home. It is labeled “a new morality” in which freedom of sexual relations is proclaimed. It seeks destruction of the faithfulness and fidelity of husband and wife in the face of the Lord’s commandment, “Thou shalt not commit adultery” (Ex. 20:14).
+It is against the home and family life that Satan has aimed his greatest efforts to destroy. He strikes the moral sanctity of the home. It is labeled “a new morality” in which freedom of sexual relations is proclaimed. It seeks destruction of the faithfulness and fidelity of husband and wife in the face of the Lord’s commandment, “Thou shalt not commit adultery” ([[Exodus 20.14|Ex. 20:14]]).
 
-I would have you lovely sisters understand that there is no new morality. That the Church’s stand on morality may be understood, we declare firmly and unalterably that morality is not an outworn garment, faded, old-fashioned, or threadbare.
+I would have you lovely sisters understand that there is no new morality. That the Church’s stand on morality may be understood, we declare firmly and unalterably that morality is *not* an outworn garment, faded, old-fashioned, or threadbare.
 
 As you make your life’s choices, understand well, my dear sisters, that God is unchanging, and his covenants and doctrines are not susceptible to change. When the sun grows cold and the stars no longer shine, the law of chastity will still be basic in God’s world and in the Lord’s church. Old values are not upheld by the Church because they are old, but rather because through the ages they have proved to be right and because God has thus spoken.
 
@@ -143,7 +144,7 @@ Much is said about the drudgery and the confinement of the woman’s role in the
 
 Marriage is a partnership. Each is given a part of the work of life to do. The fact that some women and men disregard their work and their opportunities does not change the program.
 
-When we speak of marriage as a partnership, let us speak of marriage as a full partnership. We do not want our LDS women to be silent partners or limited partners in that eternal assignment! Please be a contributing and full partner.
+When we speak of marriage as a partnership, let us speak of marriage as *a full* partnership. We do not want our LDS women to be *silent* partners or *limited* partners in that eternal assignment! Please be a *contributing* and *full* partner.
 
 Mothers have a sacred role. They are partners with God, as well as with their own husbands, first in giving birth to the Lord’s spirit children and then in rearing those children so they will serve the Lord and keep his commandments. Could there be a more sacred trust than to be a trustee for honorable, well-born, well-developed children? We reaffirm the Church’s strong, unalterable stand against innovations or any unchastity or breaking of the laws that could possibly reflect in the lives of the children.
 
@@ -155,9 +156,12 @@ We thank the sisters of the Church, young and older, for being such great defend
 
 As Moroni quoted to Joseph Smith from the Prophet Joel, so I quote to you:
 
-“And it shall come to pass afterward, that I will pour out my spirit upon all flesh; and your sons and your daughters shall prophesy, your old men shall dream dreams, your young men shall see visions:
+“And it shall come to pass afterward, that I will pour out my spirit upon all flesh; and your sons and your *daughters* shall prophesy, your old men shall dream dreams, your young men shall see visions:
 
-“And also upon the servants and upon the handmaids in those days will I pour out my spirit.” (Joel 2:28–29; italics added.)
+“And also upon the servants and upon the *handmaids* in those days will I pour out my spirit.” ([[Joel 2.28|Joel 2:28–29]][[Joel 2.29|]]; italics added.)
 
 May the Lord bless you and your loved ones this day and always, I humbly pray, in the name of Jesus Christ. Amen.
+
+
+
 

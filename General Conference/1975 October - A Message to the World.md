@@ -1,5 +1,6 @@
 # A Message to the World
-*By Ezra Taft Benson - President of the Council of the Twelve*
+
+By President Ezra Taft Benson - *President of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -13,23 +14,23 @@ Our Lord and Savior Jesus Christ, after restoring his gospel in our day and esta
 
 “For verily the voice of the Lord is unto all men, and there is none to escape.
 
-“And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days.” (D&C 1:1–2, 4.)
+“And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days.” ([[D&C 1.1|D&C 1:1–2, 4]][[D&C 1.2|]][[D&C 1.4|]].)
 
 Today I shall speak doctrine, by way of warning and of testimony, and shall do so as one holding the holy apostleship, whose responsibility it is to proclaim the Lord’s message in all the world and to all people. Each of my brethren of the Council of the Twelve has the same responsibility I have to declare these things to the world and to bear record of them before all men.
 
 Toward the end of his mortal ministry, the Lord commanded the Prophet Joseph Smith as follows:
 
-“Make a solemn proclamation of my gospel ... to all the kings of the world, to the four corners thereof ... and to all nations of the earth.” (D&C 124:2–3.) He was to invite them to come to the light of truth, and use their means to build up the kingdom of God on earth.
+“Make a solemn proclamation of my gospel … to all the kings of the world, to the four corners thereof … and to all nations of the earth.” ([[D&C 124.2|D&C 124:2–3]][[D&C 124.3|]].) He was to invite them to come to the light of truth, and use their means to build up the kingdom of God on earth.
 
 In the spirit of this divine direction, on the sixth day of April 1845, and shortly after the Prophet Joseph Smith and his brother Hyrum had mingled their blood with that of the other martyrs of true religion, the Council of the Twelve made such a proclamation. They address it:
 
-“To all the Kings of the World;
+*“To all the Kings of the World;*
 
-To the President of the United States of America;
+*To the President of the United States of America;*
 
-To the Governors of the several States;
+*To the Governors of the several States;*
 
-And to the Rulers and People of all Nations:”
+*And to the Rulers and People of all Nations:”*
 
 In it they said:
 
@@ -37,7 +38,7 @@ In it they said:
 
 “That the kingdom of God has come: as has been predicted by ancient prophets, and prayed for in all ages; even that kingdom which shall fill the whole earth, and shall stand for ever.
 
-“The great Eloheem ... has been pleased once more to speak from the heavens: and also to commune with man upon the earth, by means of open visions, and by the ministration of Holy Messengers.
+“The great Eloheem … has been pleased once more to speak from the heavens: and also to commune with man upon the earth, by means of open visions, and by the ministration of Holy Messengers.
 
 “By this means the great and eternal High Priesthood, after the Order of His Son, even the Apostleship, has been restored; or, returned to the earth.
 
@@ -49,13 +50,13 @@ In it they said:
 
 “In order to meet this great event there must needs be a preparation.
 
-“Therefore we send unto you with authority from on high, and command you all to repent and humble yourselves as little children, before the majesty of the Holy One; and come unto Jesus [Christ] with a broken heart and a contrite spirit; and be baptized in his name, for the remission of sins (that is, be buried in the water in the likeness of his burial and rise again to newness of life, in the likeness of his resurrection), and you shall receive the gift of the Holy Spirit, through the laying on of the hands of the Apostles and elders, of this great and last dispensation of mercy to man.
+“Therefore we send unto you with authority from on high, and command you all to repent and humble yourselves as little children, before the majesty of the Holy One; and come unto Jesus \[Christ\] with a broken heart and a contrite spirit; and be baptized in his name, for the remission of sins (that is, be buried in the water in the likeness of his burial and rise again to newness of life, in the likeness of his resurrection), and you shall receive the gift of the Holy Spirit, through the laying on of the hands of the Apostles and elders, of this great and last dispensation of mercy to man.
 
 “This Spirit shall bear witness to you, of the truth of our testimony; and shall enlighten your minds, and be in you as the spirit of prophecy and revelation. It shall bring things past to your understanding and remembrance; and shall show you things to come.
 
 “By the light of this Spirit, received through the ministration of the ordinances—by the power and authority of the Holy Apostleship and Priesthood, you will be enabled to understand, and to be the children of light; and thus be prepared to escape all the things that are coming on the earth, and so stand before the Son of Man.
 
-“We testify that the foregoing doctrine is the doctrine or gospel of Jesus Christ, in its fulness; and that it is the only true, everlasting, and unchangeable gospel; and the only plan revealed on earth whereby man can be saved.” (Messages of the First Presidency, 1:252–54.)
+“We testify that the foregoing doctrine is the doctrine or gospel of Jesus Christ, in its fulness; and that it is the only true, everlasting, and unchangeable gospel; and the only plan revealed on earth whereby man can be saved.” (*Messages of the First Presidency,* 1:252–54.)
 
 It seems fitting and proper to me that we should reaffirm the great truths pronounced in this declaration and that we should proclaim them anew to the world.
 
@@ -69,25 +70,25 @@ The Lord in his mercy has provided a way of escape. The voice of warning is to a
 
 When the voice of warning goes forth it is always attended by testimony. In the great declaration issued by the apostles of the Lord Jesus Christ in 1845, this is the testimony which was borne, and we who are the apostles today renew it as our witness:
 
-“We say, then, in life or in death, in bonds or free, that the great God has spoken in this age.—And we know it.
+“We say, then, in life or in death, in bonds or free, that the great God has spoken in this age.—*And we know it.*
 
-“He has given us the Holy Priesthood and Apostleship, and the keys of the kingdom of God, to bring about the restoration of all things as promised by the holy prophets of old.—And we know it.
+“He has given us the Holy Priesthood and Apostleship, and the keys of the kingdom of God, to bring about the restoration of all things as promised by the holy prophets of old.—*And we know it.*
 
-“He has revealed the origin and the Records of the aboriginal tribes of America, and their future destiny.—And we know it.
+“He has revealed the origin and the Records of the aboriginal tribes of America, and their future destiny.—*And we know it.*
 
-“He has revealed the fulness of the gospel, with its gifts, blessings, and ordinances.—And we know it.
+“He has revealed the fulness of the gospel, with its gifts, blessings, and ordinances.—*And we know it.*
 
-“He has commanded us to bear witness of it, first to the Gentiles, and then to the remnants of Israel and the Jews.—And we know it.
+“He has commanded *us* to bear witness of it, first to the Gentiles, and then to the remnants of Israel and the Jews.—*And we know it.*
 
-“He has also said that, if they do not repent, and come to the knowledge of the truth, ... and also put away all murder, lying, pride, priestcraft, whoredom, and secret abomination, they shall soon perish from the earth, and be cast down to hell.—And we know it.
+“He has also said that, if they do not repent, and come to the knowledge of the truth, … and also put away all murder, lying, pride, priestcraft, whoredom, and secret abomination, they shall soon perish from the earth, and be cast down to hell.—*And we know it.*
 
-“He has said, that when ... the gospel in all its fulness [is] preached to all nations for a witness and testimony, He will come, and all Saints with him, to reign on the earth one thousand years.—And we know it.
+“He has said, that when … the gospel in all its fulness \[is\] preached to all nations for a witness and testimony, He will come, and all Saints with him, to reign on the earth one thousand years.—*And we know it.*
 
-“He has said that he will not come in his glory and destroy the wicked, till these warnings were given and these preparations were made for his reception.—And we know it.
+“He has said that he will not come in his glory and destroy the wicked, till these warnings were given and these preparations were made for his reception.—*And we know it.*
 
 “Heaven and earth shall pass away, but not one jot or tittle of his revealed word shall fail to be fulfilled.
 
-“Therefore, again we say to all people, Repent, and be baptized in the name of Jesus Christ, for remission of sins; and you shall receive the Holy Spirit, and shall know the truth, and be numbered with the house of Israel.” (Messages of the First Presidency, 1:263–64.)
+“Therefore, again we say to all people, Repent, and be baptized in the name of Jesus Christ, for remission of sins; and you shall receive the Holy Spirit, and shall know the truth, and be numbered with the house of Israel.” (*Messages of the First Presidency,* 1:263–64.)
 
 Now there remains but one thing more for me to do today, and that is to bear my personal testimony.
 
@@ -98,4 +99,7 @@ I know that God in his goodness has again revealed himself from the heavens and 
 I know that Joseph Smith, although slain as a martyr to the truth, still lives and that as head of this dispensation—the greatest of all gospel dispensations—he will continue so to stand throughout the eternities to come. He is a prophet of God, a seer, and a revelator, as are his successors. I know that the inspiration of the Lord is directing the Church today because I have felt of its power. I know that the First Presidency and other General Authorities of the Church have as their object and purpose the glory of God and the exaltation of his children. And finally, I know that no person who does not receive this work can be saved in the celestial kingdom of God and escape the condemnation of the Judge of us all.
 
 Humbly and prayerfully I leave this testimony, knowing full well I must eventually meet my Maker and stand with all men before the judgment bar of God. More than anything else in all the world, I am grateful for this testimony of the divinity of this great latter-day work and exhort all men everywhere to give heed thereto, in the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Love of God
-*By Bernard P. Brockbank - Assistant to the Council of the Twelve*
+
+By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -7,7 +8,7 @@
 
 My dear brothers and sisters: Jesus Christ is the head of The Church of Jesus Christ of Latter-day Saints, and he has asked that we teach his commandments and promised that he would be with us even unto the end of the world. That is the commandment.
 
-When the Savior lived on this earth, he taught that we are to love God and keep his commandments. Jesus said, “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.” (Matt. 22:37.) This is the first and great commandment. It is much easier to know the commandment than it is to live it.
+When the Savior lived on this earth, he taught that we are to love God and keep his commandments. Jesus said, “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.” ([[Matthew 22.37|Matt. 22:37]].) This is the first and great commandment. It is much easier to know the commandment than it is to live it.
 
 Why should the Lord command his children to love him with all their heart, and with all their soul, and with all their mind? There is great wisdom and divine security for mortal man in full and complete love for God.
 
@@ -17,7 +18,7 @@ The alternatives are to love Satan or some other part of God’s creations. Sata
 
 Satan is an enemy to man and seeks to destroy his freedom and his obedience to the Lord and to keep man from developing his divine nature and godliness. Satan is the author of evil, sin, and wickedness, and we should not by our thoughts or acts love or serve him.
 
-Jesus Christ said, “No man can serve two masters: for either he will hate the one, and love the other; or else he will hold to the one, and despise the other. Ye cannot serve God and mammon.” (Matt. 6:24.) And may I say that we cannot serve both God and Satan. Some try but no one has succeeded.
+Jesus Christ said, “No man can serve two masters: for either he will hate the one, and love the other; or else he will hold to the one, and despise the other. Ye cannot serve God and mammon.” ([[Matthew 6.24|Matt. 6:24]].) And may I say that we cannot serve both God and Satan. Some try but no one has succeeded.
 
 Love for God brings love and respect for his children, and love for man’s relationship to the Lord, and a desire to commune with him. Prayers are uttered by many sincere people to various concepts of a supreme being or power. The pagans, the Buddhists, the Hindus, the Mohammedans, the sun and nature worshipers, and many others have their way of praying. Because of many man-made ways of praying, Jesus Christ gave a commandment on the proper way to pray. Here is the commandment—and many do not know that it is a commandment:
 
@@ -29,13 +30,13 @@ Love for God brings love and respect for his children, and love for man’s rela
 
 “And forgive us our debts, as we forgive our debtors.
 
-“And lead us not into temptation, but deliver us from evil: For thine is the kingdom, and the power, and the glory, for ever. Amen.” (Matt. 6:9–13.)
+“And lead us not into temptation, but deliver us from evil: For thine is the kingdom, and the power, and the glory, for ever. Amen.” ([[Matthew 6.9|Matt. 6:9–13]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]].)
 
 This prayer contains the essentials of a sincere, dedicated, Christlike prayer. If we love our Father in heaven, we should pray and talk to him. We should desire to do his will and to have a program for his kingdom on earth as it is in heaven. The prayer teaches us to pray to be kingdom builders and to help build the kingdom of God on this earth. When we love God and sincerely pray for the kingdom of God to come to this earth, as it is in heaven, we commit ourselves to the giving of our time and talents and money.
 
 When we say, “Father, thy will be done in earth, as it is in heaven,” we should be subject to the will and desires of our Heavenly Father, even as a little child is subject to the will of its earthly parents. To sincerely submit and agree with the Lord that his will be done shows respect, love, and oneness.
 
-Jesus Christ is the example of one who was dedicated and submitted himself to the building of the kingdom of God upon this earth and in doing the will of the Father. He said, “I came down from heaven, not to do mine own will, but the will of him that sent me.” (John 6:38.) He also said, “The Son can do nothing of himself, but what he seeth the Father do: for what things soever he doeth, these also doeth the Son likewise.” (John 5:19.)
+Jesus Christ is the example of one who was dedicated and submitted himself to the building of the kingdom of God upon this earth and in doing the will of the Father. He said, “I came down from heaven, not to do mine own will, but the will of him that sent me.” ([[John 6.38|John 6:38]].) He also said, “The Son can do nothing of himself, but what he seeth the Father do: for what things soever he doeth, these also doeth the Son likewise.” ([[John 5.19|John 5:19]].)
 
 The prayer directs that we should ask our Heavenly Father to meet the temptations and adversities of this life. If we love and trust God, we should ask him to deliver us from evil. There is peaceful assurance and comfort in sincerely asking to be delivered from evil. In our family prayers, we should teach our children to ask the Lord to deliver them from evil. When did you ask, and follow the commandment of the Lord to be delivered from evil, and teach your children and those that you have the privilege of teaching?
 
@@ -57,7 +58,7 @@ And the Lord said, “Will a man rob God?” Within the sound of my voice there 
 
 And the Lord commanded, “Bring ye all the tithes into the storehouse, that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing that there shall not be room enough to receive it.
 
-“And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the field, saith the Lord of hosts.” (Mal. 3:6–11.)
+“And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the field, saith the Lord of hosts.” ([[Malachi 3.6|Mal. 3:6–11]][[Malachi 3.7|]][[Malachi 3.8|]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]].)
 
 Will a man rob God by not paying his tithes and offerings?
 
@@ -75,13 +76,16 @@ We repented and paid our tithes and offerings, and the Lord opened the windows o
 
 I would like to mention that when we were not honest with the Lord, we were disturbed and had difficulties and problems.
 
-We can perfect our lives by living the Lord’s commandments. And as has been quoted many times in this conference, the Lord has said, “If ye love me, keep my commandments.” (John 14:15.)
+We can perfect our lives by living the Lord’s commandments. And as has been quoted many times in this conference, the Lord has said, “If ye love me, keep my commandments.” ([[John 14.15|John 14:15]].)
 
-The Lord said to the Prophet Joseph Smith in 1831, “... the hour is not yet, but is nigh at hand, when peace shall be taken from the earth, and the devil shall have power over his own dominion.” (D&C 1:35.)
+The Lord said to the Prophet Joseph Smith in 1831, “… the hour is not yet, but is nigh at hand, when peace shall be taken from the earth, and the devil shall have power over his own dominion.” ([[D&C 1.35|D&C 1:35]].)
 
 We are in perilous times, and many love pleasure more than they love God. The devil has power over his own dominion. However, in these perilous times there is hope. The Lord is still at the head of his church. It is a great blessing to live in the latter days and to be a Latter-day Saint. The children of our Heavenly Father can receive peace, security, and happiness from loving him with all their hearts, and with all their souls, and with all their minds, and in keeping his commandments.
 
 I know that God lives and that my Redeemer lives. I know that I am a child of God and that I was created by God in his image and likeness. This is my greatest knowledge. God revealed this knowledge to me, and I have great peace and happiness from this witness.
 
 I express love for my Heavenly Father and for my Savior, Jesus Christ, and for the Holy Ghost, and for all mankind, and do so in the name of Jesus Christ. Amen.
+
+
+
 

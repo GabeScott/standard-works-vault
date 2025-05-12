@@ -1,7 +1,10 @@
 # Sunday Will Come
-*By Joseph B. Wirthlin - Of the Quorum of the Twelve Apostles*
+
+By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
+
+>*Because of the life and eternal sacrifice of the Savior of the world, we will be reunited with those we have cherished.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/10/sunday-will-come?lang=eng)
 
@@ -19,7 +22,7 @@ President Grant told him they were reorganizing the Presiding Bishopric that day
 
 President Grant said, “Brother Wirthlin, there are only 30 minutes before the next session of conference, and I want to have some rest. What do you say?”
 
-Of course, my father said yes. He served 23 years, 9 of them as Presiding Bishop of the Church.
+Of course my father said yes. He served 23 years, 9 of them as Presiding Bishop of the Church.
 
 My father was 69 years old when he passed away. I happened to be with him when he suddenly collapsed. Soon after, he was gone.
 
@@ -27,7 +30,7 @@ I often think about my father. I miss him.
 
 My mother, Madeline Bitner, was another great influence in my life. In her youth she was a fine athlete and a champion sprinter. She was always kind and loving, but her pace was exhausting. Often she would say, “Hurry up.” And when she did, we picked up the pace. Perhaps that was one of the reasons I had quick acceleration when I played football.
 
-My mother had great expectations for her children and expected the best from them. I can still remember her saying, “Don’t be a scrub. You must do better.” Scrub was her word for someone who was lazy and not living up to his potential.
+My mother had great expectations for her children and expected the best from them. I can still remember her saying, “Don’t be a scrub. You must do better.” *Scrub* was her word for someone who was lazy and not living up to his potential.
 
 My mother passed away when she was 87 years old, and I think about her often and miss her more than I can say.
 
@@ -57,19 +60,19 @@ In the lonely hours I have spent a great deal of time thinking about eternal thi
 
 During my life I have heard many sermons on the Resurrection. Like you, I can recite the events of that first Easter Sunday. I have marked in my scriptures passages regarding the Resurrection and have close at hand many of the key statements uttered by latter-day prophets on this subject.
 
-We know what the Resurrection is—the reuniting of the spirit and body in its perfect form.1
+We know what the Resurrection is—the reuniting of the spirit and body in its perfect form.[^1]
 
-President Joseph F. Smith said “that those from whom we have to part here, we will meet again and see as they are. We will meet the same identical being that we associated with here in the flesh.”2
+President Joseph F. Smith said “that those from whom we have to part here, we will meet again and see as they are. We will meet the same identical being that we associated with here in the flesh.”[^2]
 
-President Spencer W. Kimball amplified this when he said, “I am sure that if we can imagine ourselves at our very best, physically, mentally, spiritually, that is the way we will come back.”3
+President Spencer W. Kimball amplified this when he said, “I am sure that if we can imagine ourselves at our very best, physically, mentally, spiritually, that is the way we will come back.”[^3]
 
-When we are resurrected, “this mortal body is raised to an immortal body. ... [We] can die no more.”4
+When we are resurrected, “this mortal body is raised to an immortal body. … \[We\] can die no more.”[^4]
 
 Can you imagine that? Life at our prime? Never sick, never in pain, never burdened by the ills that so often beset us in mortality?
 
-The Resurrection is at the core of our beliefs as Christians. Without it, our faith is meaningless. The Apostle Paul said, “If Christ be not risen, then is our preaching vain, and [our] faith is also vain.”5
+The Resurrection is at the core of our beliefs as Christians. Without it, our faith is meaningless. The Apostle Paul said, “If Christ be not risen, then is our preaching vain, and \[our\] faith is also vain.”[^5]
 
-In all the history of the world there have been many great and wise souls, many of whom claimed special knowledge of God. But when the Savior rose from the tomb, He did something no one had ever done. He did something no one else could do. He broke the bonds of death, not only for Himself but for all who have ever lived—the just and the unjust.6
+In all the history of the world there have been many great and wise souls, many of whom claimed special knowledge of God. But when the Savior rose from the tomb, He did something no one had ever done. He did something no one else could do. He broke the bonds of death, not only for Himself but for all who have ever lived—the just and the unjust.[^6]
 
 When Christ rose from the grave, becoming the firstfruits of the Resurrection, He made that gift available to all. And with that sublime act, He softened the devastating, consuming sorrow that gnaws at the souls of those who have lost precious loved ones.
 
@@ -93,7 +96,7 @@ I think that of all the days since the beginning of this world’s history, that
 
 But the doom of that day did not endure.
 
-The despair did not linger because on Sunday, the resurrected Lord burst the bonds of death. He ascended from the grave and appeared gloriously triumphant as the Savior of all mankind.
+The despair did not linger, because on Sunday, the resurrected Lord burst the bonds of death. He ascended from the grave and appeared gloriously triumphant as the Savior of all mankind.
 
 And in an instant the eyes that had been filled with ever-flowing tears dried. The lips that had whispered prayers of distress and grief now filled the air with wondrous praise, for Jesus the Christ, the Son of the living God, stood before them as the firstfruits of the Resurrection, the proof that death is merely the beginning of a new and wondrous existence.
 
@@ -119,21 +122,42 @@ We will all rise from the grave. And on that day my father will embrace my mothe
 
 Because of the life and eternal sacrifice of the Savior of the world, we will be reunited with those we have cherished.
 
-On that day we will know the love of our Heavenly Father. On that day we will rejoice that the Messiah overcame all that we could live forever.
+On that day we will know the love of our Heavenly Father. On that day we will rejoice that the Messiah overcame all, that we could live forever.
 
 Because of the sacred ordinances we receive in holy temples, our departure from this brief mortality cannot long separate relationships that have been fastened together with cords made of eternal ties.
 
-It is my solemn testimony that death is not the end of existence. “If in this life only we have hope in Christ, we are of all men most miserable.”7 Because of the risen Christ, “death is swallowed up in victory.”8
+It is my solemn testimony that death is not the end of existence. “If in this life only we have hope in Christ, we are of all men most miserable.”[^7] Because of the risen Christ, “death is swallowed up in victory.”[^8]
 
-Because of our beloved Redeemer, we can lift up our voices, even in the midst of our darkest Fridays, and proclaim, “O death, where is thy sting? O grave, where is thy victory?”9
+Because of our beloved Redeemer, we can lift up our voices, even in the midst of our darkest Fridays, and proclaim, “O death, where is thy sting? O grave, where is thy victory?”[^9]
 
 When President Hinckley spoke of the terrible loneliness that comes to those who lose the ones they love, he also promised that in the quiet of the night a still, unheard voice whispers peace to our soul: “All is well.”
 
-I am grateful beyond measure for the sublime true doctrines of the gospel and for the gift of the Holy Ghost, which has whispered to my soul the comforting and peaceful words promised by our beloved prophet.
+I am grateful beyond measure for the sublime, true doctrines of the gospel and for the gift of the Holy Ghost, which has whispered to my soul the comforting and peaceful words promised by our beloved prophet.
 
 From the depths of my sorrow, I have rejoiced in the glory of the gospel. I rejoice that the Prophet Joseph Smith was chosen to restore the gospel to the earth in this last dispensation. I rejoice that we have a prophet, President Gordon B. Hinckley, who directs the Lord’s Church in our day.
 
 May we understand and live in thanksgiving for the priceless gifts that come to us as sons and daughters of a loving Heavenly Father and for the promise of that bright day when we shall all rise triumphant from the grave.
 
 That we may always know that no matter how dark our Friday, Sunday will come is my prayer, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See [[Alma 11.43|Alma 11:43]].
+
+[^2]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 91.
+
+[^3]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 45.
+
+[^4]: [[Alma 11.45|Alma 11:45]].
+
+[^5]: [[1 Corinthians 15.14|1 Corinthians 15:14]].
+
+[^6]: See [[John 5.28|John 5:28–29]][[John 5.29|]].
+
+[^7]: [[1 Corinthians 15.19|1 Corinthians 15:19]].
+
+[^8]: [[1 Corinthians 15.54|1 Corinthians 15:54]].
+
+[^9]: [[1 Corinthians 15.55|1 Corinthians 15:55]].
 

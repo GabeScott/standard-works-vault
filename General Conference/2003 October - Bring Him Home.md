@@ -1,15 +1,18 @@
 # Bring Him Home
-*By Thomas S. Monson - First Counselor in the First Presidency*
+
+By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2003 General Conference*
+
+>*We can, with the Lord’s help, reach out and rescue those for whom we have responsibility.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2003/10/bring-him-home?lang=eng)
 
 My dear brethren, it is a humbling experience to stand before you this evening and to realize that beyond the imposing audience in this, the Conference Center, many hundreds of thousands of priesthood bearers are similarly assembled throughout the world.
 
-While contemplating the responsibility to speak to you, I recalled a definition of priesthood authority declared by President Stephen L Richards. Said he: “The Priesthood is usually simply defined as ‘the power of God delegated to man.’ This definition, I think, is accurate. But for practical purposes I like to define the Priesthood in terms of service and I frequently call it ‘the perfect plan of service.’”1
+While contemplating the responsibility to speak to you, I recalled a definition of priesthood authority declared by President Stephen L Richards. Said he: “The Priesthood is usually simply defined as ‘the power of God delegated to man.’ This definition, I think, is accurate. But for practical purposes I like to define the Priesthood in terms of service and I frequently call it ‘the perfect plan of service.’”[^1]
 
-Whether we hold the office of a deacon in the Aaronic Priesthood or that of an elder in the Melchizedek Priesthood, we are duty bound by the Lord’s revelation found in the 107th section of the Doctrine and Covenants, verse 99: “Wherefore, now let every man learn his duty, and to act in the office in which he is appointed, in all diligence.”
+Whether we hold the office of a deacon in the Aaronic Priesthood or that of an elder in the Melchizedek Priesthood, we are duty bound by the Lord’s revelation found in the [[D&C 107.99|107th section of the Doctrine and Covenants, verse 99]]: “Wherefore, now let every man learn his duty, and to act in the office in which he is appointed, in all diligence.”
 
 As our youngest son, Clark, was approaching his 12th birthday, he and I were leaving the Church Administration Building when President Harold B. Lee approached and greeted us. I mentioned that Clark would soon be 12, whereupon President Lee turned to him and asked, “What happens to you when you turn 12?”
 
@@ -19,7 +22,7 @@ The answer was the one President Lee had sought. He then counseled our son, “R
 
 When I was a boy, I looked forward to passing the sacrament to the ward members. We deacons were trained as to our duties. One of the men in our ward, Louis, suffered from palsy. His head and hands shook so violently that he could not, by himself, partake of the sacrament. Each deacon knew that his duty in serving Louis was to hold the bread to his lips so that he might partake and to similarly place the cup of water to his mouth with one hand, while steadying his head with the other, the tray being held by another deacon while doing so. Always Louis would say, “Thank you.”
 
-It was 40 years ago this conference time when President David O. McKay called me to serve as a member of the Quorum of the Twelve Apostles. At the first meeting of the Presidency and Twelve which I attended where the sacrament was served, President McKay announced, “Before we partake of the sacrament, I would like to ask our newest member of this body, Brother Monson, if he would instruct the First Presidency and Twelve on the atoning sacrifice of our Lord and Savior Jesus Christ.” It was then that I gained a true understanding of the old adage: “When the time for decision arrives, the time for preparation is past.” It was also the time to remember the counsel found in 1 Peter: “Be ready always to give an answer to every man that asketh you a reason of the hope that is in you.”2
+It was 40 years ago this conference time when President David O. McKay called me to serve as a member of the Quorum of the Twelve Apostles. At the first meeting of the Presidency and Twelve which I attended where the sacrament was served, President McKay announced, “Before we partake of the sacrament, I would like to ask our newest member of this body, Brother Monson, if he would instruct the First Presidency and Twelve on the atoning sacrifice of our Lord and Savior Jesus Christ.” It was then that I gained a true understanding of the old adage: “When the time for decision arrives, the time for preparation is past.” It was also the time to remember the counsel found in 1 Peter: “Be ready always to give an answer to every man that asketh you a reason of the hope that is in you.”[^2]
 
 I began my remarks by referring to a letter which I had received from one of the servicemen from our ward who was serving on the front lines in Korea during that sometimes forgotten war. The writer told how, amidst the shelling on Sunday morning, several in his platoon partook of the bread and then the water, both served from a helmet. Each remembered the significance of the blessing pronounced on the sacred emblems and his individual responsibility to keep the commandments of the Lord and to follow the Lord’s example of service to others.
 
@@ -29,23 +32,17 @@ To those who have been absent from home and family, whether in the military, on 
 
 One December evening, while waiting to board a plane en route to the United States, Sister Monson and I were standing in the stifling heat and humidity of Singapore, when over the airport loudspeaker system came a familiar, lilting melody, with Bing Crosby singing the words:
 
-I’ll be home for Christmas;
+>I’ll be home for Christmas;
+>You can plan on me.
+>Please have snow and mistletoe
+>And presents on the tree.
+>Christmas Eve will find me
+>Where the love-light gleams.
+>I’ll be home for Christmas
+>If only in my dreams.[^3]
+>
 
-You can plan on me.
-
-Please have snow and mistletoe
-
-And presents on the tree.
-
-Christmas Eve will find me
-
-Where the love-light gleams.
-
-I’ll be home for Christmas
-
-If only in my dreams.3
-
-The First Presidency has long emphasized the statement, “The home is the basis of a righteous life and no other instrumentality can take its place nor fulfill its essential functions.”4
+The First Presidency has long emphasized the statement, “The home is the basis of a righteous life, and no other instrumentality can take its place or fulfill its essential functions.”[^4]
 
 There are those families comprised of mothers and fathers, sons and daughters who have, through thoughtless comment, isolated themselves from one another. An account of how such a tragedy was narrowly averted occurred many years ago in the life of a young man who, for purposes of privacy, I shall call Jack.
 
@@ -59,19 +56,19 @@ It was then that Jack realized that the next move was up to him. He knew the onl
 
 He arrived shortly after midnight, entered the house, turned on the light. There in the rocking chair sat his father, his head in his hands. As he looked up and saw Jack, he arose from the chair and they rushed into each other’s arms. Jack often said, “Those last years that I was home were among the happiest of my life.”
 
-We could say that here was a boy who overnight became a man. Here was a father who, suppressing passion and bridling pride, rescued his son before he became one of that vast, “lost battalion” resulting from fractured families and shattered homes. Love was the binding band, the healing balm. Love so often felt, so seldom expressed.
+We could say that here was a boy who overnight became a man. Here was a father who, suppressing passion and bridling pride, rescued his son before he became one of that vast “lost battalion” resulting from fractured families and shattered homes. Love was the binding band, the healing balm. Love so often felt, so seldom expressed.
 
-From Mount Sinai there thunders in our ears, “Honour thy father and thy mother.”5 And later from the Lord the injunction, “Live together in love.”6
+From Mount Sinai there thunders in our ears, “Honour thy father and thy mother.”[^5] And later from the Lord the injunction, “Live together in love.”[^6]
 
 Brethren, ours is the responsibility, yes, even the solemn duty, to reach out to those who have slipped into inactivity or strayed from the family circle.
 
-Recall with me the beautiful words of the Lord’s revelation from section 18 of the Doctrine and Covenants: “Remember the worth of souls is great in the sight of God. ...
+Recall with me the beautiful words of the Lord’s revelation from section 18 of the Doctrine and Covenants: “Remember the worth of souls is great in the sight of God. …
 
 “And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!
 
-“And now, if your joy will be great with one soul that you have brought unto me into the kingdom of my Father, how great will be your joy if you should bring many souls unto me!”7
+“And now, if your joy will be great with one soul that you have brought unto me into the kingdom of my Father, how great will be your joy if you should bring many souls unto me!”[^7]
 
-As presidencies of Aaronic Priesthood quorums, as advisers to these quorums, we can, with the Lord’s help, reach out and rescue those for whom we have responsibility. Young men, with a smile on your face and determination in your heart, you can take, arm in arm, a less-active boy and together come to priesthood meeting and learn of the Lord and what He has prepared for you to do. You are entitled to His divine help, for He has promised you: “I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.”8
+As presidencies of Aaronic Priesthood quorums, as advisers to these quorums, we can, with the Lord’s help, reach out and rescue those for whom we have responsibility. Young men, with a smile on your face and determination in your heart, you can take, arm in arm, a less-active boy and together come to priesthood meeting and learn of the Lord and what He has prepared for you to do. You are entitled to His divine help, for He has promised you: “I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.”[^8]
 
 Brethren of the Melchizedek Priesthood, you have the same sacred charge and obligation as pertains to your duties to other men and to their families. And you have the same promise of the Lord to attend your efforts.
 
@@ -99,49 +96,56 @@ I then said to Sister Fullmer, “Emily, I know you have a beautiful voice. My m
 
 She sang. He spoke to the Aaronic Priesthood. Hearts were gladdened by the return to activity of Ben and Emily. They rarely missed a sacrament meeting from that day forward. The language of the Spirit had been spoken. It had been heard. It had been understood. Hearts were touched and souls saved. Ben and Emily Fullmer had come home.
 
-One of the longest-running musicals in history is Les Miserables. The story is set in the period of the French Revolution. The principal character in the musical is Jean Valjean. In his heartfelt concern for the young man, Marius, who is going off to battle, he expresses in song a sincere prayer:
+One of the longest-running musicals in history is *Les Misérables.* The story is set in the period of the French Revolution. The principal character in the musical is Jean Valjean. In his heartfelt concern for the young man Marius, who is going off to battle, he expresses in song a sincere prayer:
 
-God on high,
+>God on high,
+>Hear my prayer;
+>In my need
+>You have always been there.
+>
+>He is young,
+>He’s afraid;
+>Let him rest,
+>Heaven blessed.
+>Bring him home. …
+>
+>Bring him peace,
+>Bring him joy.
+>He is young;
+>He is only a boy.
+>
+>You can take,
+>You can give;
+>Let him be,
+>Let him live.
+>If I die, let me die,
+>Bring him home.[^9]
+>
 
-Hear my prayer;
+Brethren, as we go forward as bearers of the priesthood of God, learning our duty and then reaching out to our brethren who stand in need of our help, let us look upward to our Heavenly Father, who is the Father of us all. We may not hear His voice, but we will remember His salutation, “Well done, thou good and faithful servant.”[^10]
 
-In my need
+And within our hearts we will recognize His unspoken plea: *Bring him home.* In the name of Jesus Christ, amen.
 
-You have always been there.
 
-He is young,
 
-He’s afraid;
 
-Let him rest,
+[^1]: In Conference Report, Apr. 1937, 46.
 
-Heaven blessed.
+[^2]: [[1 Peter 3.15|1 Peter 3:15]].
 
-Bring him home. ...
+[^3]: Kim Gannon and Walter Kent, “I’ll Be Home for Christmas,” 1943.
 
-Bring him peace,
+[^4]: First Presidency letter, Feb. 11, 1999; quoted in *Liahona,* Dec. 1999, 1; *Ensign,* June 1999, 80; see also J. Reuben Clark Jr., meeting of general Church auxiliary executives, Mar. 29, 1940
 
-Bring him joy.
+[^5]: [[Exodus 20.12|Exodus 20:12]].
 
-He is young;
+[^6]: [[D&C 42.45|D&C 42:45]].
 
-He is only a boy.
+[^7]: [[D&C 18.10|D&C 18:10, 15–16]][[D&C 18.15|]][[D&C 18.16|]].
 
-You can take,
+[^8]: [[D&C 84.88|D&C 84:88]].
 
-You can give;
+[^9]: Herbert Kretzmer, “Bring Him Home.”
 
-Let him be,
-
-Let him live.
-
-If I die, let me die,
-
-Let him live.
-
-Bring him home.9
-
-Brethren, as we go forward as bearers of the priesthood of God, learning our duty and then reaching out to our brethren who stand in need of our help, let us look upward to our Heavenly Father, who is the Father of us all. We may not hear His voice, but we will remember His salutation, “Well done, thou good and faithful servant.”10
-
-And within our hearts we will recognize His unspoken plea: Bring him home. In the name of Jesus Christ, amen.
+[^10]: [[Matthew 25.21|Matthew 25:21]].
 

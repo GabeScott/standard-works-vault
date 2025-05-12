@@ -1,5 +1,6 @@
 # The Role of Fathers
-*By A. Theodore Tuttle - Of the Seventy*
+
+By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -9,13 +10,13 @@ There is genuine concern over the diminishing role of the father in the home. Hi
 
 The father is the patriarch in the home. This means that the father is the presiding authority. This does not mean that he should be dictatorial. Modern scriptures set forth qualifications for all who preside:
 
-“No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned. ...” (D&C 121:41.)
+“No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned. …” ([[D&C 121.41|D&C 121:41]].)
 
 In reality, each family is a dominion within itself. Father heads that government. In the beginning it was the only government on the earth and was passed down from Adam to his descendants. Properly organized in the Church, the father is the patriarch of an eternal family unit. Heaven, to us, will be simply an extension of an ideal home. As the presiding priesthood officer, the father fills an irreplaceable role.
 
 A worthy father who holds the Melchizedek Priesthood should be encouraged to name and bless his children. He should administer to the sick in his home. The father may baptize, confirm, and ordain his children, at the invitation of his file leader in the Church. He may give a father’s blessing. President Joseph Fielding Smith has said:
 
-“A faithful father who holds the Melchizedek Priesthood may bless his own children, and that would be a patriarchal (father’s) blessing. Such blessing could be recorded in the family records, but it would not be preserved in the archives of the Church. ... In addition, children may receive a blessing by an ordained patriarch. A father blessing his own child could, if he received the inspiration to do so, declare the lineage of the child. As the Patriarch of his home, a father is also a revelator to his family ... and, ... in this sense stands in line to receive the revelations from the Lord for the good and blessing of that family.” (Doctrines of Salvation, 3:172.)
+“*A faithful father who holds the Melchizedek Priesthood may bless his own children, and that would be a patriarchal (father’s) blessing.* Such blessing could be recorded in the family records, but it would not be preserved in the archives of the Church. … In addition, children may receive a blessing by an *ordained patriarch.* A father blessing his own child could, if he received the inspiration to do so, declare the lineage of the child. As the Patriarch of his home, a father is also a revelator to his family … and, … in this sense stands in line to receive the revelations from the Lord for the good and blessing of that family.” (*Doctrines of Salvation,* 3:172.)
 
 The father exercises his spiritual leadership in the home by calling his family to prayer each morning and evening. Weekly family home evening, likewise, is called and presided over by the father, though all others participate.
 
@@ -29,9 +30,9 @@ I have a friend, a businessman in this city, who does special ordinance work in 
 
 Fathers, draw close to your children. Learn to communicate. Learn to listen. This means giving a father’s most valuable commodity—time! Only good results occur when a father interviews his sons and daughters regularly. He can know their problems and their hopes. He can align himself with them as their unconditional friend. To the extent we become friends with our children in unconditional love, to that extent we become like our Heavenly Father.
 
-The story is told of an elementary teacher who had students write essays in hopes that it would motivate the fathers to attend a PTA meeting. The fathers came in $4,000 cars and $400 cars—bank president, laborer, clerk, salesman, meter reader, baker, etc.—“every man with a definite estimate of himself in terms of money, skill, and righteousness or looks. ... The children’s essays were read at random.
+The story is told of an elementary teacher who had students write essays in hopes that it would motivate the fathers to attend a PTA meeting. The fathers came in $4,000 cars and $400 cars—bank president, laborer, clerk, salesman, meter reader, baker, etc.—“every man with a definite estimate of himself in terms of money, skill, and righteousness or looks. … The children’s essays were read at random.
 
-“‘I like my daddy, ... he built my doll house, took me coasting, taught me to shoot, helps with my schoolwork, takes me to the park, gave me a pig to fatten and sell.’ Scores of the essays could be reduced in essence to: ‘I like my daddy. He plays with me.’
+“‘I like my daddy, … he built my doll house, took me coasting, taught me to shoot, helps with my schoolwork, takes me to the park, gave me a pig to fatten and sell.’ Scores of the essays could be reduced in essence to: ‘I like my daddy. He plays with me.’
 
 “Not one child mentioned his family house, car, neighborhood, food, or clothing.
 
@@ -39,9 +40,9 @@ The story is told of an elementary teacher who had students write essays in hope
 
 God help us to be real companions.
 
-A father is a teacher. The Lord has commanded sons and daughters to honor their parents and to give heed to their counsel. The words that open that great volume of scripture, the Book of Mormon, ought to be our guide as fathers: “... having been born of goodly parents, therefore I was taught somewhat in all the learning of my father.” (1 Ne. 1:1.)
+A father is a teacher. The Lord has commanded sons and daughters to honor their parents and to give heed to their counsel. The words that open that great volume of scripture, the Book of Mormon, ought to be our guide as fathers: “… having been born of goodly parents, therefore I was taught somewhat in all the learning of my father.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
 
-Enos, likewise, credited his father for his teachings: “... knowing my father that he was a just man—for he taught me in his language, and also the nurture and admonition of the Lord—and blessed be the name of my God for it. ...” (Enos 1:1.)
+Enos, likewise, credited his father for his teachings: “… knowing my father that he was a just man—for he taught me in his language, and also the nurture and admonition of the Lord—and blessed be the name of my God for it. …” ([[Enos 1.1|Enos 1:1]].)
 
 Have you fathers noticed that the present Melchizedek Priesthood lessons are like father-training lessons? I cite an example:
 
@@ -51,7 +52,7 @@ Someone has said: “There is no need of searching out your genealogy if you do 
 
 Discipline is part of the process of governing children. The Lord has told us how:
 
-“Reproving betimes with sharpness, when moved upon by the Holy Ghost; and then showing forth afterwards an increase of love toward him whom thou hast reproved, lest he esteem thee to be his enemy.” (D&C 121:43.)
+“Reproving betimes with sharpness, when moved upon by the Holy Ghost; and then showing forth afterwards an increase of love toward him whom thou hast reproved, lest he esteem thee to be his enemy.” ([[D&C 121.43|D&C 121:43]].)
 
 There has been no better statement of a father-child relationship. When a father wisely corrects his son, it proves his love. Only the unwise foolishly indulge their sons and withhold proper discipline.
 
@@ -64,4 +65,7 @@ It should have great meaning that of all the titles of respect and honor and adm
 I am grateful indeed to see the emphasis given by the Church leaders today on the place and position of fathers. There has never been a time in the history of the Church when the importance and place of the Melchizedek Priesthood quorums have been emphasized more and where the activity of fathers has been stressed so much. I know that this is inspired direction by our leaders today.
 
 I know that God lives. I know that Jesus is the Christ. I know that he guides this Church through a living prophet on the earth today, in the name of Jesus Christ. Amen.
+
+
+
 

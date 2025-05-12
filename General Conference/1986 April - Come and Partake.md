@@ -1,11 +1,12 @@
 # Come and Partake
-*By Gordon B. Hinckley - First Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1986 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1986/04/come-and-partake?lang=eng)
 
-My brethren and sisters, I greet you with love and sincere appreciation. I seek the direction of the Holy Spirit. Today is the birthday of the Church. It was organized 156 years ago, which was “eighteen hundred and thirty years since the coming of our Lord and Savior Jesus Christ in the flesh.” (D&C 20:1.) Six men participated as the official incorporating body.
+My brethren and sisters, I greet you with love and sincere appreciation. I seek the direction of the Holy Spirit. Today is the birthday of the Church. It was organized 156 years ago, which was “eighteen hundred and thirty years since the coming of our Lord and Savior Jesus Christ in the flesh.” ([[D&C 20.1|D&C 20:1]].) Six men participated as the official incorporating body.
 
 Those original six have now become approximately six million. The growth of this work has been a constantly unfolding miracle, and what an exciting and wonderful experience it is to be a part of it. Although storms of adversity have raged against it, it continues to move steadily forward along the course which the Almighty has outlined for it. It does so quietly, without great noise and fanfare, touching for good the lives of men and women across the earth. Its mission is not empire building. Its mission is to teach faith and repentance, and to bring truth and gladness to all who will listen and hearken to its message.
 
@@ -13,7 +14,7 @@ Five months ago a solemn gathering was held in this great Tabernacle to mourn th
 
 Now there is another, and during this conference we shall be constituted as a Solemn Assembly to sustain as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, the man who, under the plan of the Lord, has been chosen, ordained, and set apart to this most high and sacred office.
 
-This transition of authority, in which I have participated a number of times, is beautiful in its simplicity. It is indicative of the way the Lord does things. Under His procedure a man is selected by the prophet to become a member of the Council of the Twelve Apostles. He does not choose this as a career. He is called, as were the Apostles in Jesus’ time, to whom the Lord said, “Ye have not chosen me, but I have chosen you, and ordained you.” (John 15:16.) The years pass. He is schooled and disciplined in the duties of his office. He travels over the earth in fulfilling his apostolic calling. It is a long course of preparation, in which he comes to know the Latter-day Saints wherever they may be, and they come to know him. The Lord tests his heart and his substance. In the natural course of events, vacancies occur in that council and new appointments are made. Under this process a particular man becomes the senior Apostle. Residing latent in him, and in his associate Brethren, given to each at the time of ordination, are all of the keys of the priesthood. But authority to exercise those keys is restricted to the President of the Church. At his passing, that authority becomes operative in the senior Apostle, who is then named, set apart, and ordained a prophet and President by his associates of the Council of the Twelve.
+This transition of authority, in which I have participated a number of times, is beautiful in its simplicity. It is indicative of the way the Lord does things. Under His procedure a man is selected by the prophet to become a member of the Council of the Twelve Apostles. He does not choose this as a career. He is called, as were the Apostles in Jesus’ time, to whom the Lord said, “Ye have not chosen me, but I have chosen you, and ordained you.” ([[John 15.16|John 15:16]].) The years pass. He is schooled and disciplined in the duties of his office. He travels over the earth in fulfilling his apostolic calling. It is a long course of preparation, in which he comes to know the Latter-day Saints wherever they may be, and they come to know him. The Lord tests his heart and his substance. In the natural course of events, vacancies occur in that council and new appointments are made. Under this process a particular man becomes the senior Apostle. Residing latent in him, and in his associate Brethren, given to each at the time of ordination, are all of the keys of the priesthood. But authority to exercise those keys is restricted to the President of the Church. At his passing, that authority becomes operative in the senior Apostle, who is then named, set apart, and ordained a prophet and President by his associates of the Council of the Twelve.
 
 There is no electioneering. There is no campaigning. There is only the quiet and simple operation of a divine plan which provides inspired and tested leadership.
 
@@ -27,37 +28,37 @@ Under President Benson’s leadership, the work of the Lord will continue to mov
 
 As Daniel declared in prophecy:
 
-“The God of heaven set up [this] kingdom, which shall never be destroyed: and the kingdom shall not be left to other people, ... and it shall stand for ever.” (Dan. 2:44.)
+“The God of heaven set up \[this\] kingdom, which shall never be destroyed: and the kingdom shall not be left to other people, … and it shall stand for ever.” ([[Daniel 2.44|Dan. 2:44]].)
 
 It grows because it satisfies the needs and desires of the human heart, regardless of age, sex, race, or language.
 
-Speaking at this pulpit one hundred years ago, in 1886, Lorenzo Snow, then an Apostle and later the President of the Church, said: “A religious system is of but little account when it possesses no virtue nor power to better the condition of people spiritually, intellectually, morally and physically.” (In Journal of Discourses, 26:371.)
+Speaking at this pulpit one hundred years ago, in 1886, Lorenzo Snow, then an Apostle and later the President of the Church, said: “A religious system is of but little account when it possesses no virtue nor power to better the condition of people spiritually, intellectually, morally and physically.” (In *Journal of Discourses,* 26:371.)
 
 This gospel, when accepted and obeyed, meets the needs of men and women everywhere. It has the power to improve the individual in each of these categories—the spiritual, the intellectual, the moral, the physical.
 
-In His great intercessory prayer, Jesus declared: “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” (John 17:3.)
+In His great intercessory prayer, Jesus declared: “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” ([[John 17.3|John 17:3]].)
 
-Such knowledge is the very foundation of spiritual strength. This is the great basic purpose of the restoration of the gospel in this, the dispensation of the fulness of times—to declare the living reality of God the Eternal Father and of His Beloved Son, the resurrected Lord Jesus Christ. To know them, to love them, to obey them is to have life eternal. It is our mission to declare with words of soberness and truth that God is our Eternal Father, the God of the universe, the Almighty One; and that Jesus Christ is his firstborn, the Only Begotten in the flesh, who condescended to come to earth; who was born in a stable in Bethlehem of Judea, lived the perfect life, and taught the way of salvation; who offered Himself a sacrifice for all, enduring pain and death on the cross; and who then came forth in a glorious resurrection, the firstfruits of them that slept. (See 1 Cor. 15:20.) Through Him, and by Him, and of Him, all are assured salvation from death and are offered the opportunity of eternal life.
+Such knowledge is the very foundation of spiritual strength. This is the great basic purpose of the restoration of the gospel in this, the dispensation of the fulness of times—to declare the living reality of God the Eternal Father and of His Beloved Son, the resurrected Lord Jesus Christ. To know them, to love them, to obey them is to have life eternal. It is our mission to declare with words of soberness and truth that God is our Eternal Father, the God of the universe, the Almighty One; and that Jesus Christ is his firstborn, the Only Begotten in the flesh, who condescended to come to earth; who was born in a stable in Bethlehem of Judea, lived the perfect life, and taught the way of salvation; who offered Himself a sacrifice for all, enduring pain and death on the cross; and who then came forth in a glorious resurrection, the firstfruits of them that slept. (See [[1 Corinthians 15.20|1 Cor. 15:20]].) Through Him, and by Him, and of Him, all are assured salvation from death and are offered the opportunity of eternal life.
 
 This is the great undergirding truth of our faith. It is the overarching canopy under which we find our spiritual strength. With this knowledge we grow spiritually, our spirits in kinship with the Spirit of God. It is the way out of darkness. It affords the strength needed to rise above sin.
 
 I recently received a letter from a man, a business executive. He told of the waste of his life in corrupt living, of the pain he had caused his loved ones. Then the influence of the gospel came into his life. I quote from his letter:
 
-“I have come to know that I have offended greatly my Father in Heaven and His Son. As I begin to better understand His great, yet wonderful expression of love to me in Gethsemane I have learned to be grateful for His atoning sacrifice and for the process of repentance. ... I have walked that bitter road of darkness and despair for so many years that I desire now only to come into the light. As I continue to read and ponder the scriptures and plead with the Lord for an understanding and forgiveness of my past, I have come to love Him and never will I offend Him again. I will always try to the best of my ability to pattern my life after His.”
+“I have come to know that I have offended greatly my Father in Heaven and His Son. As I begin to better understand His great, yet wonderful expression of love to me in Gethsemane I have learned to be grateful for His atoning sacrifice and for the process of repentance. … I have walked that bitter road of darkness and despair for so many years that I desire now only to come into the light. As I continue to read and ponder the scriptures and plead with the Lord for an understanding and forgiveness of my past, I have come to love Him and never will I offend Him again. I will always try to the best of my ability to pattern my life after His.”
 
 This restored gospel brings not only spiritual strength, but also intellectual curiosity and growth. Truth is truth. There is no clearly defined line of demarcation between the spiritual and the intellectual when the intellectual is cultivated and pursued in balance with the pursuit of spiritual knowledge and strength.
 
-The Lord Almighty, through revelation, has laid a mandate upon this people in these words: “Seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.” (D&C 88:118.)
+The Lord Almighty, through revelation, has laid a mandate upon this people in these words: “Seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.” ([[D&C 88.118|D&C 88:118]].)
 
 The other evening I picked up a new publication of the writings of Dr. Hugh Nibley, a man my age whom I have known and admired for many years. On the dust jacket of the book I read these words:
 
-“As a young man he memorized vast portions of Shakespeare and studied Old English, Latin, Greek, and other languages. As a student at Berkeley, he began reading at the southwest corner of the ninth level of the library and worked his way down to the northeast corner of the first level, studying every significant book that caught his eye.” (Old Testament and Related Studies, Salt Lake City: Deseret Book Co., 1986.)
+“As a young man he memorized vast portions of Shakespeare and studied Old English, Latin, Greek, and other languages. As a student at Berkeley, he began reading at the southwest corner of the ninth level of the library and worked his way down to the northeast corner of the first level, studying every significant book that caught his eye.” (*Old Testament and Related Studies,* Salt Lake City: Deseret Book Co., 1986.)
 
 His encyclopedic knowledge has given him tremendous and well-deserved status among his academic peers. It also has made him a powerful advocate of the work of the Lord. His appetite for learning has been whetted by the gospel he loves.
 
 This Church spends a very substantial part of its resources to train the minds and hands of its young people, whatever their choice of discipline, be it science, commerce, various of the professions, or the arts.
 
-A declaration of our faith reads: “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.” (A of F 1:13.) This embraces the truth of science, the truth of philosophy, the truth of history, the truth of art. I emphasize the word truth. It is a principle set forth in our scripture that “the glory of God is intelligence, or, in other words, light and truth.” (D&C 93:36.)
+A declaration of our faith reads: “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.” ([[Articles of Faith 1.13|A of F 1:13]].) This embraces the truth of science, the truth of philosophy, the truth of history, the truth of art. I emphasize the word *truth.* It is a principle set forth in our scripture that “the glory of God is intelligence, or, in other words, light and truth.” ([[D&C 93.36|D&C 93:36]].)
 
 The mind of man is the crowning creation of God, in whose express image man was made. The development of the mind is a companion responsibility to the cultivation of the spirit, as set forth in the revealed principles of the restored gospel of Jesus Christ.
 
@@ -73,7 +74,7 @@ The Church is the guardian and teacher of moral values. Regrettably, there are s
 
 In too many cases wives and children become their victims. I have previously spoken from this pulpit concerning child and spouse abuse. I repeat for emphasis an earlier statement:
 
-“Abuse of children on the part of fathers or anyone else has long been a cause for excommunication from the Church. No man who has been ordained to the priesthood of God can with impunity indulge in either spouse or child abuse. Such activity becomes an immediate repudiation of his right to hold and exercise the priesthood and to retain membership in the Church.” (Ensign, Nov. 1985, p. 51.)
+“Abuse of children on the part of fathers or anyone else has long been a cause for excommunication from the Church. No man who has been ordained to the priesthood of God can with impunity indulge in either spouse or child abuse. Such activity becomes an immediate repudiation of his right to hold and exercise the priesthood and to retain membership in the Church.” (*Ensign,* Nov. 1985, p. 51.)
 
 If there be any within the sound of my voice who may be guilty of such practices, let him or her repent, and as a part of that process go to his bishop or her bishop and confess, seeking help to do the right thing to remedy the evil.
 
@@ -89,7 +90,7 @@ As I read and hear of the findings of modern medical science, I give thanks to o
 
 “And shall run and not be weary, and shall walk and not faint.
 
-“And I, the Lord, give unto them a promise, that the destroying angel shall pass by them, as the children of Israel, and not slay them.” (D&C 89:18–21.)
+“And I, the Lord, give unto them a promise, that the destroying angel shall pass by them, as the children of Israel, and not slay them.” ([[D&C 89.18|D&C 89:18–21]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]].)
 
 What a marvelous, remarkable, and unique statement of religious principle that is. It is a part of our doctrine given by an all-wise Father, our Creator, for our physical and temporal good.
 
@@ -98,4 +99,7 @@ I am not saying that disease will not come, that death will not strike. Death is
 All of this of which I have spoken comes of the revealed word of the Almighty to bless His children. We invite you, wherever you may be or whatever your circumstances, to come and partake.
 
 God be thanked for this glorious work, for this day of restored truth and light, for the gospel of Jesus Christ. I bear witness of its divinity as I express unto you, my brethren and sisters, my love for each of you, in the name of Jesus Christ, amen.
+
+
+
 

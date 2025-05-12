@@ -1,5 +1,6 @@
 # By Faith and Hope, All Things Are Fulfilled
-*By Paul H. Dunn - Of the First Quorum of the Seventy*
+
+By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
 
@@ -31,7 +32,7 @@ In the Book of Mormon, in which we find many answers and so much direction in so
 
 “By faith all things are fulfilled—
 
-“Wherefore, whoso believeth in God might with surety hope for a better world, yea, even a place at the right hand of God, which hope cometh of faith, maketh an anchor to the souls of men, which would make them sure and steadfast, always abounding in good works, being led to glorify God” (Ether 12:3–4).
+“Wherefore, whoso believeth in God might with surety hope for a better world, yea, even a place at the right hand of God, which hope cometh of faith, maketh an anchor to the souls of men, which would make them sure and steadfast, always abounding in good works, being led to glorify God” ([[Ether 12.3|Ether 12:3–4]][[Ether 12.4|]]).
 
 Throughout the whole of this marvelous chapter we are taught the wonders accomplished by faith, love, and hope. It seems to me that dwelling on negative thoughts and approaches is, in fact, working directly opposite of hope, faith, and trust—in the Lord, ourselves, and others—and causes continual feelings of gloom, while the positive lifts and buoys us up, encourages us to forge ahead, and is an attitude that can be developed, a habit that we can cultivate.
 
@@ -67,7 +68,7 @@ We need more such attitudes in the world. There is the story of the husband and 
 
 As stated in the beginning that with children we so often see the negative before the positive, a little boy was almost squelched in his attempt to express his feelings because an adult didn’t understand. A special friend of mine, Dr. Thomas Myers, shared this tender experience:
 
-A small boy accompanied his father and grandparents into his medical office. The old man was leaning on the boy’s two upstretched hands as he moved. The child encouraged him with, “Come on, Grandpa, you can make it! ... Only a little farther, Grandpa. ... The doctor will make your leg better.” A sweet grandmother walked behind.
+A small boy accompanied his father and grandparents into his medical office. The old man was leaning on the boy’s two upstretched hands as he moved. The child encouraged him with: “Come on, Grandpa, you can make it! … Only a little farther, Grandpa. … The doctor will make your leg better.” A sweet grandmother walked behind.
 
 After the visit, the three exited the same way. The little boy was given a helium balloon on his way out. He helped his grandfather to the car, then ran back in and, pulling himself up to the counter, asked the receptionist, “Please, may I have another balloon?”
 
@@ -75,13 +76,16 @@ His grandmother, still standing there, scolded him, “Of course you can’t. I 
 
 The little boy was trying to tell her something. She bent down to listen. Then, with tears showing on her thin, wrinkled face, the grandmother asked, “Could he please have another balloon? You see, his little sister died a few months ago, and he wanted her to have a balloon to play with, too!”
 
-As critical and judgmental as we often must be, as much as we will have to correct, as truly as we must face unpleasant realities all of our days, let us recognize and praise the thousands of beauties of life around us; the many wonderful examples of virtuous living; the strengths and the courage of so many souls; the exceptional talents and achievements of our family members, neighbors, and associates; the countless blessings that we have been given. As has been quoted by so many, but seems to fit well here, “Two men look out through the same bars: One sees the mud, and one the stars” (Frederick Langbridge, A Cluster of Quiet Thoughts, cited in The Oxford Dictionary of Quotations, 2d ed., London: Oxford Univ. Press, 1966, p. 310).
+As critical and judgmental as we often must be, as much as we will have to correct, as truly as we must face unpleasant realities all of our days, let us recognize and praise the thousands of beauties of life around us; the many wonderful examples of virtuous living; the strengths and the courage of so many souls; the exceptional talents and achievements of our family members, neighbors, and associates; the countless blessings that we have been given. As has been quoted by so many, but seems to fit well here, “Two men look out through the same bars: One sees the mud, and one the stars” (Frederick Langbridge, *A Cluster of Quiet Thoughts,* cited in *The Oxford Dictionary of Quotations,* 2nd ed., London: Oxford University Press, 1966, p. 310).
 
 And as the prophet Mormon taught us:
 
-“But charity [in this case, the charity in our thinking of and appreciation of others] is the pure love of Christ, and it endureth forever; and whoso is found possessed of it at the last day, it shall be well with him” (Moro. 7:47).
+“But charity \[in this case, the charity in our thinking of and appreciation of others\] is the pure love of Christ, and it endureth forever; and whoso is found possessed of it at the last day, it shall be well with him” ([[Moroni 7.47|Moro. 7:47]]).
 
 Remember, my brothers and sisters, particularly you young people, Christ came to lift us up, not put us down. I, with these great brethren on this stand, as a witness, invite you to come unto him.
 
 In the name of Jesus Christ, amen.
+
+
+
 

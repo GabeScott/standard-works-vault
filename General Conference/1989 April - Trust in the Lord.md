@@ -1,5 +1,6 @@
 # Trust in the Lord
-*By Richard G. Scott - Of the Quorum of the Twelve Apostles*
+
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
 
@@ -15,7 +16,7 @@ There is a more intense fire than that of burning wood. It is produced from a mi
 
 Once it ignites it cannot be put out by ordinary means. It will burn under water or in other environments that extinguish an ordinary flame. When it burns, it does not depend on its surroundings for support. It is self-sustaining.
 
-The spiritual flame in some is easily quenched by the world around them. Yet others live so as to be strengthened and nurtured by the Lord. They not only overcome the temptations of the world their unquenchable spirit enriches the lives of others around them.
+The spiritual flame in some is easily quenched by the world around them. Yet others live so as to be strengthened and nurtured by the Lord. They not only overcome the temptations of the world, their unquenchable spirit enriches the lives of others around them.
 
 Two missionaries who were aflame spiritually had spent an active day establishing a branch of the Church in a remote village. At 5:30 that morning, they had taught a family before the husband left for the fields. Later they had struggled to plaster their adobe walls to keep out blood-sucking insects. During the week they had laid a small cement floor and had hung a five-gallon can with a shower head to keep clean. They had begun a sanitation facility and put new gravel and sand in their water filter. For part of the day they had worked beside men in the fields to later teach them. They were exhausted and ready for welcome rest.
 
@@ -33,7 +34,7 @@ As they arose, friends arrived with the injured man. Even in the subdued candlel
 
 The missionaries were able to save a life because they trusted the Lord. They knew how to pray with faith for help with a problem they could not resolve themselves. Because they were obedient to the Lord, the Lord trusted them and answered their prayer. They had learned how to recognize the answer when it came as a quiet prompting of the Spirit. You have that same help available to you if you live for it.
 
-The Savior said: “And whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you.” (3 Ne. 18:20.)
+The Savior said, “And whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you.” ([[3 Nephi 18.20|3 Ne. 18:20]].)
 
 Two young missionaries were walking down a dusty road. In their hands they carried the scriptures, and in each heart burned a desire to share truth. They saw on the ridge of a hill a group of horsemen laughing and pointing toward them. They sensed they were in severe danger. Each prayed for help as a huge man on a powerful horse galloped down the hill toward them. His menacing whip slashed the air and cracked threateningly. He thundered closer. The sneer on his face communicated his cruel intent to harm them. Suddenly, he reined in his horse, paused, whirled, and disappeared down the valley.
 
@@ -41,7 +42,7 @@ These elders trusted in the Lord and were living worthily. He therefore could pr
 
 I know that each one of you faces overwhelming challenges. Sometimes they are so concentrated, so unrelenting, that you may feel they are beyond your capacity to control.
 
-Don’t face the world alone. “Trust in the Lord with all thine heart; and lean not unto thine own understanding.” (Prov. 3:5.)
+Don’t face the world alone. “Trust in the Lord with all thine heart; and lean not unto thine own understanding.” ([[Proverbs 3.5|Prov. 3:5]].)
 
 In many ways, the world is like a jungle, with dangers that can harm or mutilate your body, enslave or destroy your mind, or decimate your morality. It was intended that life be a challenge, not so that you would fail, but that you might succeed through overcoming. You face on every hand difficult but vitally important decisions. There is an array of temptations, destructive influences, and camouflaged dangers, the like of which no previous generation has faced. I am persuaded that today no one, no matter how gifted, strong, or intelligent, will avoid serious problems without seeking the help of the Lord.
 
@@ -51,7 +52,7 @@ If one of you has seriously sinned, repent—now. It is not good to violate the 
 
 Trust in the Lord. He knows what He is doing. He already knows of your problems. And He is waiting for you to ask for help.
 
-Has one of you ever had the feeling you are walking alone down a dark tunnel that gets ever more depressing? No one seems to care? Life gets more and more complicated, and discouraging? You may have been following a path many others have trod. It often begins with self-pity, then self-indulgence, and, if not checked, leads to gross selfishness.
+Has one of you ever had the feeling you are walking alone down a dark tunnel that gets ever more depressing? No one seems to care? Life gets more and more complicated and discouraging? You may have been following a path many others have trod. It often begins with self-pity, then self-indulgence, and, if not checked, leads to gross selfishness.
 
 Unless overcome by serving others, selfishness leads to serious sin, with its depressing feelings and binding chains. It is the crowbar Satan uses to open a heart to temptation in order to destroy agency. He would bind mind and body through crippling habits and separate us from our Father in Heaven and His Son by cultivating selfishness.
 
@@ -63,7 +64,7 @@ Getting through the hazards of life requires understanding, skill, experience, a
 
 Righteous character provides the foundation of spiritual strength that enables you to make difficult, extremely important decisions correctly when they seem overpowering.
 
-Righteous character is what you are. It is more important than what you own, what you have learned, or what you have accomplished. It allows you to be trusted. It opens the door to help from the Lord in moments of great challenge or temptation.
+Righteous character is what you *are.* It is more important than what you own, what you have learned, or what you have accomplished. It allows you to be trusted. It opens the door to help from the Lord in moments of great challenge or temptation.
 
 Be honest. Righteous character is based on integrity.
 
@@ -90,4 +91,7 @@ We love you and trust you. The Lord needs you for His purposes. Live His command
 Live to have trust in the Lord. Live to be trusted and helped by Him.
 
 I testify that the Lord lives. He loves you and will help you. In the name of Jesus Christ, amen.
+
+
+
 

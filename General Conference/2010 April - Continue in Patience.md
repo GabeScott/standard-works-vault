@@ -1,7 +1,10 @@
 # Continue in Patience
-*By Dieter F. Uchtdorf - Second Counselor in the First Presidency*
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2010 General Conference*
+
+>*The lessons we learn from patience will cultivate our character, lift our lives, and heighten our happiness.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/04/continue-in-patience?lang=eng)
 
@@ -11,7 +14,9 @@ He then left the children alone and watched what happened behind a two-way mirro
 
 It was a mildly interesting experiment, and the professor moved on to other areas of research, for, in his own words, “there are only so many things you can do with kids trying not to eat marshmallows.” But as time went on, he kept track of the children and began to notice an interesting correlation: the children who could not wait struggled later in life and had more behavioral problems, while those who waited tended to be more positive and better motivated, have higher grades and incomes, and have healthier relationships.
 
-What started as a simple experiment with children and marshmallows became a landmark study suggesting that the ability to wait—to be patient—was a key character trait that might predict later success in life.
+What started as a simple experiment with children and marshmallows became a landmark study suggesting that the ability to wait—to be patient—was a key character trait that might predict later success in life.[^1]
+
+## Waiting Can Be Hard
 
 Waiting can be hard. Children know it, and so do adults. We live in a world offering fast food, instant messaging, on-demand movies, and immediate answers to the most trivial or profound questions. We don’t like to wait. Some even feel their blood pressure rise when their line at the grocery store moves slower than those around them.
 
@@ -21,7 +26,9 @@ Nevertheless, without patience, we cannot please God; we cannot become perfect. 
 
 As parents, we know how unwise it would be to indulge our children’s every desire. But children are not the only ones who spoil when showered with immediate gratification. Our Heavenly Father knows what good parents come to understand over time: if children are ever going to mature and reach their potential, they must learn to wait.
 
-When I was 10 years old, my family became refugees in a new land. I had always been a good student in school—that is, until we arrived in West Germany. There, my educational experience was a significantly different one. The geography we studied in my school was new to me. The history we studied was also very different. Before, I had been learning Russian as a second language; now, it was English. This was hard for me. Indeed, there were moments when I truly believed my tongue simply was not made to speak English.
+## Patience Isn’t Merely Waiting
+
+When I was 10 years old, my family became refugees in a new land. I had always been a good student in school—that is, until we arrived in West Germany. There my educational experience was a significantly different one. The geography we studied in my school was new to me. The history we studied was also very different. Before, I had been learning Russian as a second language; now, it was English. This was hard for me. Indeed, there were moments when I truly believed my tongue simply was not made to speak English.
 
 Because so much of the curriculum was new and strange to me, I fell behind. For the first time in my life, I began to wonder if I was simply not smart enough for school.
 
@@ -37,7 +44,9 @@ Impatience, on the other hand, is a symptom of selfishness. It is a trait of the
 
 How different this is, my dear brethren, from the standard the Lord has set for us as priesthood holders.
 
-As priesthood bearers and representatives of the Lord Jesus Christ, we must serve others in a manner consistent with His example. There is a reason that almost every lesson on priesthood leadership at some point arrives at the 121st section of the Doctrine and Covenants. In a few verses, the Lord provides a master course in priesthood leadership. “No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned.”
+## Patience, a Principle of the Priesthood
+
+As priesthood bearers and representatives of the Lord Jesus Christ, we must serve others in a manner consistent with His example. There is a reason that almost every lesson on priesthood leadership at some point arrives at the 121st section of the Doctrine and Covenants. In a few verses, the Lord provides a master course in priesthood leadership. “No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned.”[^2]
 
 The character traits and practices described in these verses are the foundation of godly patience and are inseparably connected to effective priesthood and patriarchal service. These attributes will give you strength and wisdom in magnifying your callings, in preaching the gospel, in fellowshipping quorum members, and in giving the most important priesthood service—which is indeed the loving service within the walls of your own homes.
 
@@ -47,9 +56,11 @@ As the Lord is patient with us, let us be patient with those we serve. Understan
 
 Never give up on anyone. And that includes not giving up on yourself.
 
-I believe that every one of us, at one time or another, can identify with the servant in Christ’s parable who owed money to the king and who pled with the king, saying, “Lord, have patience with me.”
+I believe that every one of us, at one time or another, can identify with the servant in Christ’s parable who owed money to the king and who pled with the king, saying, “Lord, have patience with me.”[^3]
 
-The children of Israel waited 40 years in the wilderness before they could enter the promised land. Jacob waited 7 long years for Rachel. The Jews waited 70 years in Babylon before they could return to rebuild the temple. The Nephites waited for a sign of Christ’s birth, even knowing that if the sign did not come, they would perish. Joseph Smith’s trials in Liberty Jail caused even the prophet of God to wonder, “How long?”
+## The Lord’s Way and Time
+
+The children of Israel waited 40 years in the wilderness before they could enter the promised land. Jacob waited 7 long years for Rachel. The Jews waited 70 years in Babylon before they could return to rebuild the temple. The Nephites waited for a sign of Christ’s birth, even knowing that if the sign did not come, they would perish. Joseph Smith’s trials in Liberty Jail caused even the prophet of God to wonder, “How long?”[^4]
 
 In each case, Heavenly Father had a purpose in requiring that His children wait.
 
@@ -59,27 +70,64 @@ I remember when I was preparing to be trained as a fighter pilot. We spent a gre
 
 As I was running I began to notice something that, frankly, troubled me. Time and again I was being passed by men who smoked, drank, and did all manner of things that were contrary to the gospel and, in particular, to the Word of Wisdom.
 
-I remember thinking, “Wait a minute! Aren’t I supposed to be able to run and not be weary?” But I was weary, and I was overtaken by people who were definitely not following the Word of Wisdom. I confess, it troubled me at the time. I asked myself, was the promise true or was it not?
+I remember thinking, “Wait a minute! Aren’t I supposed to be able to run and not be weary?” But I *was* weary, and I was overtaken by people who were definitely not following the Word of Wisdom. I confess, it troubled me at the time. I asked myself, was the promise true or was it not?
 
 The answer didn’t come immediately. But eventually I learned that God’s promises are not always fulfilled as quickly as or in the way we might hope; they come according to His timing and in His ways. Years later I could see clear evidence of the temporal blessings that come to those who obey the Word of Wisdom—in addition to the spiritual blessings that come immediately from obedience to any of God’s laws. Looking back, I know for sure that the promises of the Lord, if perhaps not always swift, are always certain.
 
-Brigham Young taught that when something came up which he could not comprehend fully, he would pray to the Lord, “Give me patience to wait until I can understand it for myself.” And then Brigham would continue to pray until he could comprehend it.
+## Patience Requires Faith
 
-We must learn that in the Lord’s plan, our understanding comes “line upon line, precept upon precept.” In short, knowledge and understanding come at the price of patience.
+Brigham Young taught that when something came up which he could not comprehend fully, he would pray to the Lord, “Give me patience to wait until I can understand it for myself.”[^5] And then Brigham would continue to pray until he could comprehend it.
+
+We must learn that in the Lord’s plan, our understanding comes “line upon line, precept upon precept.”[^6] In short, knowledge and understanding come at the price of patience.
 
 Often the deep valleys of our present will be understood only by looking back on them from the mountains of our future experience. Often we can’t see the Lord’s hand in our lives until long after trials have passed. Often the most difficult times of our lives are essential building blocks that form the foundation of our character and pave the way to future opportunity, understanding, and happiness.
 
-Patience is a godly attribute that can heal souls, unlock treasures of knowledge and understanding, and transform ordinary men and women into saints and angels. Patience is truly a fruit of the Spirit.
+## Patience, a Fruit of the Spirit
+
+Patience is a godly attribute that can heal souls, unlock treasures of knowledge and understanding, and transform ordinary men and women into saints and angels. Patience is truly a fruit of the Spirit.[^7]
 
 Patience means staying with something until the end. It means delaying immediate gratification for future blessings. It means reining in anger and holding back the unkind word. It means resisting evil, even when it appears to be making others rich.
 
-Patience means accepting that which cannot be changed and facing it with courage, grace, and faith. It means being “willing to submit to all things which the Lord seeth fit to inflict upon [us], even as a child doth submit to his father.” Ultimately, patience means being “firm and steadfast, and immovable in keeping the commandments of the Lord” every hour of every day, even when it is hard to do so. In the words of John the Revelator, “Here is the patience of the saints: here are they that keep the commandments of God, and ... faith [in] Jesus.”
+Patience means accepting that which cannot be changed and facing it with courage, grace, and faith. It means being “willing to submit to all things which the Lord seeth fit to inflict upon \[us\], even as a child doth submit to his father.”[^8] Ultimately, patience means being “firm and steadfast, and immovable in keeping the commandments of the Lord”[^9] every hour of every day, even when it is hard to do so. In the words of John the Revelator, “Here is the patience of the saints: here are they that keep the commandments of God, and … faith \[in\] Jesus.”[^10]
 
-Patience is a process of perfection. The Savior Himself said that in your patience you possess your souls. Or, to use another translation of the Greek text, in your patience you win mastery of your souls. Patience means to abide in faith, knowing that sometimes it is in the waiting rather than in the receiving that we grow the most. This was true in the time of the Savior. It is true in our time as well, for we are commanded in these latter days to “continue in patience until ye are perfected.”
+Patience is a process of perfection. The Savior Himself said that in your patience you possess your souls.[^11] Or, to use another translation of the Greek text, in your patience you *win mastery* of your souls.[^12] Patience means to abide in faith, knowing that sometimes it is in the waiting rather than in the receiving that we grow the most. This was true in the time of the Savior. It is true in our time as well, for we are commanded in these latter days to “continue in patience until ye are perfected.”[^13]
 
-To paraphrase the Psalmist of old, if we wait patiently for the Lord, He will incline unto us. He will hear our cries. He will bring us out of a horrible pit and set our feet upon a solid rock. He will put a new song in our mouths, and we will praise our God. Many around us will see it, and they will trust in the Lord.
+## The Lord Blesses Us for Our Patience
+
+To paraphrase the Psalmist of old, if we wait patiently for the Lord, He will incline unto us. He will hear our cries. He will bring us out of a horrible pit and set our feet upon a solid rock. He will put a new song in our mouths, and we will praise our God. Many around us will see it, and they will trust in the Lord.[^14]
 
 My dear brethren, the work of patience boils down to this: keep the commandments; trust in God, our Heavenly Father; serve Him with meekness and Christlike love; exercise faith and hope in the Savior; and never give up. The lessons we learn from patience will cultivate our character, lift our lives, and heighten our happiness. They will help us to become worthy priesthood bearers and faithful disciples of our Master, Jesus Christ.
 
 It is my prayer that patience will be a defining characteristic of we who hold the priesthood of Almighty God; that we will courageously trust the Lord’s promises and His timing; that we will act toward others with the patience and compassion we seek for ourselves; and that we will continue in patience until we are perfected. In the holy name of Jesus Christ, amen.
+
+
+
+
+[^1]: See Jonah Lehrer, “Don’t! The Secret of Self-Control,” *New Yorker,* May 18, 2009, 26–27.
+
+[^2]: [[D&C 121.41|Doctrine and Covenants 121:41]]; see also [[D&C 121.39|verses 39–45]][[D&C 121.40|]][[D&C 121.41|]][[D&C 121.42|]][[D&C 121.43|]][[D&C 121.44|]][[D&C 121.45|]].
+
+[^3]: [[Matthew 18.26|Matthew 18:26]].
+
+[^4]: [[D&C 121.2|Doctrine and Covenants 121:2]].
+
+[^5]: *Teachings of Presidents of the Church: Brigham Young* (1997), 75.
+
+[^6]: [[D&C 98.12|Doctrine and Covenants 98:12]].
+
+[^7]: See [[Galatians 5.22|Galatians 5:22–23]][[Galatians 5.23|]].
+
+[^8]: [[Mosiah 3.19|Mosiah 3:19]].
+
+[^9]: [[1 Nephi 2.10|1 Nephi 2:10]].
+
+[^10]: [[Revelation 14.12|Revelation 14:12]].
+
+[^11]: See [[Luke 21.19|Luke 21:19]].
+
+[^12]: See [[Luke 21.19|Luke 21:19]], footnote *b.*
+
+[^13]: [[D&C 67.13|Doctrine and Covenants 67:13]].
+
+[^14]: See [[Psalms 40.1|Psalm 40:1–3]][[Psalms 40.2|]][[Psalms 40.3|]].
 

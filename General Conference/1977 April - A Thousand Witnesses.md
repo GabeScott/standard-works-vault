@@ -1,11 +1,12 @@
 # A Thousand Witnesses
-*By James M. Paramore - Of the First Quorum of the Seventy*
+
+By Elder James M. Paramore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1977/04/a-thousand-witnesses?lang=eng)
 
-My brothers and sisters—yes I am nervous, but there are two sisters listening tonight: my sweetheart and my mother out in Sandy. I am grateful beyond almost all power of expression to tell you what a thrill and an honor it is to be here tonight with you.
+My brothers and sisters—yes I am nervous, but there *are* two sisters listening tonight: my sweetheart and my mother out in Sandy. I am grateful beyond almost all power of expression to tell you what a thrill and an honor it is to be here tonight with you.
 
 I love the prophet. Unlike most of you, I have spent four years of my life by his side, and another three years with President Benson; and I have spent every Thursday in the temple with the Council of the Twelve Apostles. I want to leave you my testimony tonight that our Heavenly Father directs this work.
 
@@ -25,5 +26,8 @@ Brethren, my wife is such a wonderful woman. In all of those years, she has sust
 
 I am so grateful for the gospel of Jesus Christ. I have received a thousand witnesses in the course of my life with my missionaries and my family. I saw a daughter one night beside herself with the pain of an earache. My wife came and said, “Jim, I think you should give your daughter a blessing.” I went and gave my lovely girl a blessing; and, brethren, before I could finish the words, she was asleep.
 
-I want you to know that my life has been and will be dedicated to the things of God, for I know He lives, and I love His work, and I love and know the principles of the gospel are true. I pledge my support to the prophet and to the Council of the Twelve Apostles, and to Brother Richards and the other presidents. I pray that it might be said of me as the apostle Paul said at the end of his days: “This one thing I do.” (Philip. 3:13.) In the name of Jesus Christ, amen.
+I want you to know that my life has been and will be dedicated to the things of God, for I know He lives, and I love His work, and I love and know the principles of the gospel are true. I pledge my support to the prophet and to the Council of the Twelve Apostles, and to Brother Richards and the other presidents. I pray that it might be said of me as the apostle Paul said at the end of his days: “This one thing I do.” ([[Philippians 3.13|Philip. 3:13]].) In the name of Jesus Christ, amen.
+
+
+
 

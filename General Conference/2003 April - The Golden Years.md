@@ -1,7 +1,10 @@
 # The Golden Years
-*By Boyd K. Packer - Acting President of the Quorum of the Twelve Apostles*
+
+By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
+
+>*Value the old folks for what they are, not just what they can do.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2003/04/the-golden-years?lang=eng)
 
@@ -29,7 +32,7 @@ The grandfather said: “We know what our duty is. We won’t need any help from
 
 It is my purpose to speak to you about and to speak to grandparents—the grandpas and the grandmas—and to other elderly members who have no children of their own but who stand in as grandparents.
 
-The scriptures tell us, “With the ancient is wisdom; and in length of days understanding” (Job 12:12).
+The scriptures tell us, “With the ancient is wisdom; and in length of days understanding” ([[Job 12.12|Job 12:12]]).
 
 Once in a stake meeting, I noticed a larger than usual number of older members, most of them widows. I mentioned to the stake president how impressive they were.
 
@@ -37,33 +40,33 @@ The president replied, “Yes, but they are not active in the Church,” meaning
 
 I repeated his words, “Not active in the Church?” and asked, “Are they active in the gospel?” He did not quite understand the difference at first.
 
-Like many of us, he concentrated so much on what people do that he overlooked what they are, a priceless resource of experience, wisdom, and inspiration.
+Like many of us, he concentrated so much on what people *do* that he overlooked what they *are—*a priceless resource of experience, wisdom, and inspiration.
 
 We face an ominous challenge. Populations worldwide are declining. The birthrate in most countries is falling and life expectancy increasing. Families are smaller—deliberately limited. In some countries, in just a few years there will be more grandparents than there are children. The aging of the population has far-reaching consequences economically, socially, and spiritually. It will affect the growth of the Church.
 
 We must teach our youth to draw close to the elderly grandpas and grandmas.
 
-The First Presidency recently instructed young women approaching womanhood to join the mothers and grandmothers in Relief Society (see First Presidency letter, 19 Mar. 2003).
+The First Presidency recently instructed young women who are approaching womanhood to join the mothers and grandmothers in Relief Society (see First Presidency letter, 19 Mar. 2003).
 
 Some young women draw away. They would rather be with those their own age.
 
-Young women: Do not be so very foolish as to miss this association with the older sisters. They will bring more worth into your life than much of the activity you enjoy so much.
+Young women, do not be so very foolish as to miss this association with the older sisters. They will bring more worth into your life than much of the activity you enjoy so much.
 
-Leaders: Teach the girls to draw close to their mothers and grandmothers and to the older women in the Relief Society. They will then have an association similar to what the young men have in the priesthood quorums.
+Leaders, teach the girls to draw close to their mothers and grandmothers and to the older women in the Relief Society. They will then have an association similar to what the young men have in the priesthood quorums.
 
-All of the attention given to our youth, all of the programs, all we do for them, will be incomplete unless we teach them the purpose of the Restoration. The keys of the priesthood were restored and the sealing authority revealed and temples built to tie the generations together. From ancient times through all the revelations runs that eternal, golden thread, “Turn the heart of the fathers to the children, and the heart of the children to their fathers” (Mal. 4:6).
+All of the attention given to our youth—all of the programs, all we do for them—will be incomplete unless we teach them the purpose of the Restoration. The keys of the priesthood were restored and the sealing authority revealed and temples built to tie the generations together. From ancient times through all the revelations runs that eternal, golden thread, “Turn the heart of the fathers to the children, and the heart of the children to their fathers” ([[Malachi 4.6|Malachi 4:6]]).
 
-Bishop: Do you realize that some problems you worry about so much with the youth, and with others, could be solved if they would stay close to their fathers and mothers and to their grandparents, to the older folks?
+Bishop, do you realize that some problems you worry about so much with the youth, and with others, could be solved if they would stay close to their fathers and mothers and to their grandparents, to the older folks?
 
 If you are burdened with overmuch counseling, there are older sisters, grandmas in the ward, who can influence young married women and act as a grandmother to them. And there are older grandfathers for the young men. Older people have a steadiness, a serenity that comes from experience. Learn to use that resource.
 
-The Prophet Joseph Smith said, “The way to get along in any important matter is to gather unto yourselves wise men [and women], experienced and aged men [and women], to assist in council in all times of trouble” (Teachings of the Prophet Joseph Smith, sel. Joseph Fielding Smith [1976], 299).
+The Prophet Joseph Smith said, “The way to get along in any important matter is to gather unto yourselves wise men \[and women\], experienced and aged men \[and women\], to assist in council in all times of trouble” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[1976\], 299).
 
-We try to gather young people and miss getting the generations together. There is so much older members can do. If you see older members as inactive in the Church, ask yourself, “Are they active in the gospel?”
+We try to gather young people, and we miss getting the generations together. There is so much that older members can do. If you see older members as inactive in the Church, ask yourself, “Are they active in the gospel?”
 
-Do not overlook a great sustaining power in the prayers of the parents and the grandparents. Remember, the “fervent prayer of a righteous man [or woman] availeth much” (James 5:16).
+Do not overlook the great sustaining power in the prayers of the parents and the grandparents. Remember, the “fervent prayer of a righteous man \[or woman\] availeth much” ([[James 5.16|James 5:16]]).
 
-Alma the Younger was a rebel. He was struck down by an angel who told him, “Behold, the Lord hath heard the prayers of his people, and also the prayers of his servant, Alma, who is thy father; for he has prayed with much faith concerning thee that thou mightest be brought to the knowledge of the truth; therefore, for this purpose have I come to convince thee of the power and authority of God, that the prayers of his servants might be answered according to their faith” (Mosiah 27:14).
+Alma the Younger was a rebel. He was struck down by an angel who told him, “Behold, the Lord hath heard the prayers of his people, and also the prayers of his servant, Alma, who is thy father; for he has prayed with much faith concerning thee that thou mightest be brought to the knowledge of the truth; therefore, for this purpose have I come to convince thee of the power and authority of God, that the prayers of his servants might be answered according to their faith” ([[Mosiah 27.14|Mosiah 27:14]]).
 
 My wife and I have seen our grandparents and then our parents leave us. Some experiences that we first thought to be burdens or trouble have long since been reclassified as blessings.
 
@@ -71,7 +74,7 @@ My wife’s father died in our home. He needed constant care. Nurses taught our 
 
 We were repaid a thousand times over by the influence he had on our children. That was a great experience for our children, one I learned as a boy when Grandpa Packer died in our home.
 
-Value the old folks for what they are, not just what they can do.
+Value the old folks for what they *are,* not just what they can *do.*
 
 Have you ever wondered why the Lord organized the First Presidency and the Quorum of the Twelve Apostles so that the senior leadership of the Church will always be older men? This pattern of seniority values wisdom and experience over youth and physical vigor.
 
@@ -87,9 +90,9 @@ Our children have married and left home to seek their fortune.
 
 One family drove away with an old car and their little children. My wife was in tears. I consoled her, saying, “The Church is where they are going. There will be a grandma there to answer her questions about cooking or nursing and a grandpa to teach him practical things.”
 
-An adopted grandma can be found in Relief Society. And a grandpa will be found in the quorums of the priesthood. But all of the grandpas and grandmas are not in the Church.
+An adopted grandma can be found in Relief Society. And a grandpa will be found in the quorums of the priesthood. But not all of the grandpas and grandmas are in the Church.
 
-One son bought a small home in a distant state. He showed me bricks on a corner of the foundation that were eroding away. He asked what should he do.
+One son bought a small home in a distant state. He showed me bricks on a corner of the foundation that were eroding away. He asked what he should do.
 
 I did not know, but I asked, “Is there an older couple that lives close to you?”
 
@@ -97,33 +100,32 @@ I did not know, but I asked, “Is there an older couple that lives close to you
 
 “Why don’t you ask him to come over and look at that. He knows your climate.”
 
-That was done, and he got the advice of an older man who had seen problems like that and many others. That is what adopted grandpas can do.
+That was done, and he got the advice of an older man who had seen problems like that and many others. That is what *adopted* grandpas can do.
 
-“Honour thy father and thy mother: that thy days may be long upon the land which the Lord thy God giveth thee” (Ex. 20:12).
+“Honour thy father and thy mother: that thy days may be long upon the land which the Lord thy God giveth thee” ([[Exodus 20.12|Exodus 20:12]]).
 
-The Apostle Paul taught that “aged women” must teach young women and “aged men” must exhort young men, “shewing thyself a pattern of good works” (see Titus 2:1–7).
+The Apostle Paul taught that “aged women” must teach young women and “aged men” must exhort young men, “shewing thyself a pattern of good works” (see [[Titus 2.1|Titus 2:1–7]][[Titus 2.2|]][[Titus 2.3|]][[Titus 2.4|]][[Titus 2.5|]][[Titus 2.6|]][[Titus 2.7|]]).
 
-We are old now, and in due time, we will be summoned beyond the veil. We do not resist that. We try to teach the practical things we have learned over the years to those who are younger—to our family and to others.
+We are old now, and in due time we will be summoned beyond the veil. We do not resist that. We try to teach the practical things we have learned over the years to those who are younger—to our family and to others.
 
-We cannot do what we once did, but we have become more than ever we were before. Life’s lessons, some of them very painful, qualify us to counsel, to correct, and even to warn our youth.
+We cannot *do* what we once did, but we have become more than ever we were before. Life’s lessons, some of them very painful, qualify us to counsel, to correct, and even to warn our youth.
 
-In your golden years there is so much to do and so much to be. Do not withdraw into a retirement from life, into amusement. That, for some, would be useless, even selfish. You may have served a mission and been released and consider yourself as having completed your service in the Church, but you are never released from being active in the gospel. “If,” the Lord said, “ye have desires to serve God ye are called to the work” (D&C 4:3).
+In your golden years there is so much to *do* and so much to *be.* Do not withdraw into a retirement from life, into amusement. That, for some, would be useless, even selfish. You may have served a mission and been released and consider yourself as having completed your service in the Church, but you are never released from being active in the *gospel.* “If,” the Lord said, “ye have desires to serve God ye are called to the work” ([[D&C 4.3|D&C 4:3]]).
 
 You may at last, when old and feeble, learn that the greatest mission of all is to strengthen your own family and the families of others, to seal the generations.
 
-Now, I am teaching a true principle. I am teaching doctrine. It is written that “the principle [agrees] precisely with the doctrine which is commanded you in the revelation” (D&C 128:7).
+Now, I am teaching a true principle. I am teaching doctrine. It is written that “the principle \[agrees\] precisely with the doctrine which is commanded you in the revelation” ([[D&C 128.7|D&C 128:7]]).
 
 In the hymn “How Firm a Foundation,” which was published in 1835 in the first Latter-day Saint hymnbook, we find these words:
 
-E’en down to old age, all my people shall prove
-
-My sov’reign, eternal, unchangeable love;
-
-And then, when gray hair shall their temples adorn, ...
-
-Like lambs shall they still in my bosom be borne.
-
-(Hymns, no. 85, v. 6)
+>E’en down to old age, all my people shall prove
+>My sov’reign, eternal, unchangeable love;
+>And then, when gray hair shall their temples adorn, …
+>Like lambs shall they still in my bosom be borne.
+>
 
 Keep the fire of your testimony of the restored gospel and your witness of our Redeemer burning so brightly that our children can warm their hands by the fire of your faith. That is what grandfathers and grandmothers are to do! In the name of Jesus Christ, amen.
+
+
+
 

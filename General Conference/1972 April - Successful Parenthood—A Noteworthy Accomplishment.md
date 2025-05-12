@@ -1,11 +1,12 @@
 # Successful Parenthood—A Noteworthy Accomplishment
-*By ElRay L. Christiansen - Assistant to the Council of the Twelve*
+
+By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/04/successful-parenthood-a-noteworthy-accomplishment?lang=eng)
 
-First of all, my brothers and sisters, let me assure you that as far as ElRay L. Christiansen is concerned, God lives, and he is a compassionate, understanding Father; and his Son, Jesus Christ, came to earth, as the Bible tells us, and offered himself and actually gave his life that we might be redeemed from the grave and might have eternal life, salvation, which to us means exaltation in the celestial world.
+First of all, my brothers and sisters, let me assure you that as far as ElRay L. Christiansen is concerned, God lives, and he is a compassionate, understanding Father; and his Son, Jesus Christ, came to earth, as the Bible tells us, and offered himself and actually gave his life that we might be redeemed from the grave and might have eternal life, salvation, which to us means exaltation in the celestial world.
 
 I testify that Joseph Smith was selected by God and Jesus Christ to restore the gospel in this day and that Joseph Fielding Smith, whom we appreciate, is one of a succession of modern-day prophets, seers, and revelators.
 
@@ -27,29 +28,25 @@ To help us develop desirable qualities in our children, we are provided with div
 
 Parenthood is a sacred trust. It is an approach to the divine—a God-given privilege that, with its never-ending responsibilities, brings rich and lasting rewards.
 
-President Joseph F. Smith made this significant statement: “The man, and the woman who are the agents, in the providence of God, to bring living souls into the world, are made before God and the heavens, as responsible for these acts as is God himself responsible for the works of his own hands. ...” (Gospel Doctrine, p. 342.)
+President Joseph F. Smith made this significant statement: “The man, and the woman who are the agents, in the providence of God, to bring living souls into the world, are made before God and the heavens, as responsible for these acts as is God himself responsible for the works of his own hands. …” (*Gospel Doctrine,* p. 342.)
 
 A home approved of God is not merely a place where children are born, but where their coming is received with joy and gladness by parents who strive with all their abilities to help their children develop such attributes as—
 
-Faith in God, along with a desire to be obedient to his commandments,
+1. Faith in God, along with a desire to be obedient to his commandments,
 
-Respect for and obedience to the laws of the land,
+2. Respect for and obedience to the laws of the land,
 
-A determination to be truthful and honest, regardless of the circumstances,
+3. A determination to be truthful and honest, regardless of the circumstances,
 
-Unselfishness by teaching (mostly by example), along with courtesy, respect, refinement, and good manners, for surely they are part of our religion.
+4. Unselfishness by teaching (mostly by example), along with courtesy, respect, refinement, and good manners, for surely they are part of our religion.
 
 After all,
 
-“The sermon for a teenage child
-
-That proves to be most ample
-
-Is still the one that parents teach
-
-By setting an example.”
-
-—Hal Chadwick
+>“The sermon for a teenage child
+>That proves to be most ample
+>Is still the one that parents teach
+>By setting an example.”
+>
 
 Success in family life calls for parents who take time to enjoy their children; who read with them; who play with them; who let them participate in planning special occasions, seeking to make wholesome family traditions a proud part of family life.
 
@@ -65,19 +62,19 @@ It is important also to keep the avenues of communication open. It is wonderful 
 
 In such heart-to-heart talks, parents will help to set objectives for their children, such as:
 
-A desire and determination to live clean, virtuous lives
+1. A desire and determination to live clean, virtuous lives
 
-A desire to associate with those who have their same high standards and ideals
+2. A desire to associate with those who have their same high standards and ideals
 
-A determination (for boys) to live so they may receive the priesthood in worthiness
+3. A determination (for boys) to live so they may receive the priesthood in worthiness
 
-To prepare for and be worthy of being called on missions, perhaps establishing a savings account early in life for this purpose
+4. To prepare for and be worthy of being called on missions, perhaps establishing a savings account early in life for this purpose
 
-A determination to gain an education, to learn a trade or a profession, or to master a skill (and teach them the joy of working)
+5. A determination to gain an education, to learn a trade or a profession, or to master a skill (and teach them the joy of working)
 
-To prepare to be worthy and desirous of marriage in the temple, thus doing things the Lord’s way
+6. To prepare to be worthy and desirous of marriage in the temple, thus doing things the Lord’s way
 
-To prepare to become, in their own right, successful homemakers
+7. To prepare to become, in their own right, successful homemakers
 
 We talk a good deal these days about security. My brothers and sisters, there is no security that we can give our children that is more essential than the security they gain in homes where families operate as families should, according to the gospel of Jesus Christ; where families kneel and offer prayers of thanksgiving and gratitude at the beginning and at the close of each day; where keeping the commandments of God is a part of daily life. In this way, they become fortified and enabled to meet the future without frustration and without fear.
 
@@ -87,23 +84,21 @@ A complete rebirth of satisfactory family life is needed. It is needed even in t
 
 No nation can long endure unless the great majority of its families and its homes are made secure through faith in God—an active, living faith.
 
-In The Scouter’s Minute [YMMIA, 1969] I found these lines:
+In *The Scouter’s Minute* \[YMMIA, 1969\] I found these lines:
 
-“So long as there are homes to which men turn at close of day;
-
-So long as there are homes where children are, where women stay—
-
-If love and loyalty and faith be found across those sills—
-
-A stricken nation can recover from its gravest ills.
-
-“So long as there are homes where fires burn and there is bread [I think that means homemade bread];
-
-So long as there are homes where lamps are lit and prayers are said;
-
-Although a people falter through the dark—and nations grope,
-
-With God Himself back of these little homes, we have sure hope.”
+>“So long as there are homes to which men turn at close of day;
+>So long as there are homes where children are, where women stay—
+>If love and loyalty and faith be found across those sills—
+>A stricken nation can recover from its gravest ills.
+>
+>“So long as there are homes where fires burn and there is bread \[I think that means homemade bread\];
+>So long as there are homes where lamps are lit and prayers are said;
+>Although a people falter through the dark—and nations grope,
+>With God Himself back of these little homes, we have sure hope.”
+>
 
 To this I testify in the name of Jesus Christ, the Lord. Amen.
+
+
+
 

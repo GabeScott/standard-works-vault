@@ -1,5 +1,6 @@
 # The Motorcycle Ride
-*By Kenneth Johnson - Of the Seventy*
+
+By Elder Kenneth Johnson - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
 
@@ -29,7 +30,10 @@ Young men, you have a great power within you to do that. Let me say to you that 
 
 The British Isles are full of young men and young women who will play a significant part in the forwarding of this great work in a way that no one else could. I know that they will do this if they respond to an invitation to come unto Christ.
 
-Like Jacob of old, having received my errand from the Lord, I will magnify my office unto him, taking upon me the responsibility, answering the sins of the people on my own head if I do not teach them the word of God in all diligence. (See Jacob 1:17–19.)
+Like Jacob of old, having received my errand from the Lord, I will magnify my office unto him, taking upon me the responsibility, answering the sins of the people on my own head if I do not teach them the word of God in all diligence (see [[Jacob 1.17|Jacob 1:17–19]][[Jacob 1.18|]][[Jacob 1.19|]]).
 
 I know that Jesus lives, that he is the Christ, and that he leads this church. I have come to know these things because so many good people have extended to me the invitation through my life to come unto him, and this I have tried to do. I express these feelings in the sacred and holy name of the Lord Jesus Christ, amen.
+
+
+
 

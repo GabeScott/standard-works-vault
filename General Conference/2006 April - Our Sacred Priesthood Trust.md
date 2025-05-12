@@ -1,7 +1,10 @@
 # Our Sacred Priesthood Trust
-*By Thomas S. Monson - First Counselor in the First Presidency*
+
+By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2006 General Conference*
+
+>*The priesthood is not really so much a gift as it is a commission to serve, a privilege to lift, and an opportunity to bless the lives of others.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/04/our-sacred-priesthood-trust?lang=eng)
 
@@ -11,7 +14,7 @@ This was one of those times when a father prays that a son will be inspired to g
 
 The answer was the one for which I had prayed and which President Lee had sought. He then counseled our son, “Remember, it is a great blessing to hold the priesthood.”
 
-I hope with all my heart and soul that every young man who receives the priesthood will honor that priesthood and be true to the trust which is conveyed when it is conferred. May each of us who holds the priesthood of God know what he believes. As the Apostle Peter admonished, may we ever be ready “to give an answer to every man that asketh you a reason of the hope that is in you.”1 There will be occasions in each of our lives when we will be called upon to explain or to defend our beliefs. When the time for performance arrives, the time for preparation is past.
+I hope with all my heart and soul that every young man who receives the priesthood will honor that priesthood and be true to the trust which is conveyed when it is conferred. May each of us who holds the priesthood of God know what he believes. As the Apostle Peter admonished, may we ever be ready “to give an answer to every man that asketh you a reason of the hope that is in you.”[^1] There will be occasions in each of our lives when we will be called upon to explain or to defend our beliefs. When the time for performance arrives, the time for preparation is past.
 
 Most of you young men will have the opportunity to share your testimonies when you serve as missionaries throughout the world. Prepare now for that wonderful privilege.
 
@@ -23,17 +26,17 @@ Minister Gysi was most impressed with the information I presented, and I was ver
 
 The opportunity to declare a truth may come when we least expect it. Let us be prepared.
 
-On one occasion, President David O. McKay was asked by a woman not a member of the Church what specific belief set apart the teachings of the Church from those of any other faith. In speaking of this later, President McKay indicated that he had felt impressed to answer, “That which differentiates the beliefs of my church from those of others is divine authority by direct revelation.”2
+On one occasion, President David O. McKay was asked by a woman not a member of the Church what specific belief set apart the teachings of the Church from those of any other faith. In speaking of this later, President McKay indicated that he had felt impressed to answer, “That which differentiates the beliefs of my church from those of others is divine authority by direct revelation.”[^2]
 
-Where could we find a more significant example of divine authority by direct revelation than in the events which occurred that “beautiful, clear day, early in the spring of eighteen hundred and twenty,” when the lad Joseph Smith retired to the woods to pray. His words describing that moment in history are overpowering: “I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—This is My Beloved Son. Hear Him!”3
+Where could we find a more significant example of divine authority by direct revelation than in the events which occurred that “beautiful, clear day, early in the spring of eighteen hundred and twenty,” when the lad Joseph Smith retired to the woods to pray. His words describing that moment in history are overpowering: “I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*”[^3]
 
-Our thoughts turn to the visit of that heavenly messenger, John the Baptist, on May 15, 1829. There on the bank of the Susquehanna River, near Harmony, Pennsylvania, John laid his hands upon Joseph Smith and Oliver Cowdery and ordained them, saying, “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins.”4 The messenger announced that he acted under the direction of Peter, James, and John, who held the keys of the Melchizedek Priesthood. Ordination and baptism followed. This is yet another example of divine authority by direct revelation.
+Our thoughts turn to the visit of that heavenly messenger John the Baptist on May 15, 1829. There on the bank of the Susquehanna River, near Harmony, Pennsylvania, John laid his hands upon Joseph Smith and Oliver Cowdery and ordained them, saying, “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins.”[^4] The messenger announced that he acted under the direction of Peter, James, and John, who held the keys of the Melchizedek Priesthood. Ordination and baptism followed. This is yet another example of divine authority by direct revelation.
 
 In due time, Peter, James, and John were sent to bestow the blessings of the Melchizedek Priesthood. These Apostles sent by the Lord ordained and confirmed Joseph and Oliver to be Apostles and special witnesses of His name. Divine authority by direct revelation characterized this sacred visitation.
 
 As a result of these experiences, all of us carry the requirement—even the blessed opportunity and solemn duty—to be true to the trust we have received.
 
-President Brigham Young declared, “The Priesthood of the Son of God is ... the law by which the worlds are, were, and will continue for ever and ever.”5 President Joseph F. Smith, expanding on this theme, advised, “It is nothing more nor less than the power of God delegated to man by which man can act in the earth for the salvation of the human family, in the name of the Father and the Son and the Holy Ghost, and act legitimately; not assuming that authority, nor borrowing it from generations that are dead and gone, but authority that has been given in this day in which we live by ministering angels and spirits from above, direct from the presence of Almighty God.”6
+President Brigham Young declared, “The Priesthood of the Son of God is … the law by which the worlds are, were, and will continue for ever and ever.”[^5] President Joseph F. Smith, expanding on this theme, advised, “It is nothing more nor less than the power of God delegated to man by which man can act in the earth for the salvation of the human family, in the name of the Father and the Son and the Holy Ghost, and act legitimately; not assuming that authority, nor borrowing it from generations that are dead and gone, but authority that has been given in this day in which we live by ministering angels and spirits from above, direct from the presence of Almighty God.”[^6]
 
 As I approached my 18th birthday and prepared to enter military service in World War II, I was recommended to receive the Melchizedek Priesthood. Mine was the task to telephone President Paul C. Child, my stake president, for an interview. He was one who loved and understood the holy scriptures, and it was his intent that all others should similarly love and understand them. As I knew from others of his rather detailed and searching interviews, our telephone conversation went something like this:
 
@@ -55,7 +58,7 @@ Came my response: “No.”
 
 Then he instructed, “Brother Monson, repeat from memory the 13th section of the Doctrine and Covenants.”
 
-I began, “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels ...”
+I began, “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels …”
 
 “Stop,” President Child directed. Then in a calm, kindly tone, he counseled, “Brother Monson, never forget that as a holder of the Aaronic Priesthood you are entitled to the ministering of angels. Now continue the passage.”
 
@@ -81,11 +84,11 @@ This oath and covenant is set forth by the Lord in these words:
 
 “And he that receiveth me receiveth my Father;
 
-“And he that receiveth my Father receiveth my Father’s kingdom; therefore all that my Father hath shall be given unto him.”7
+“And he that receiveth my Father receiveth my Father’s kingdom; therefore all that my Father hath shall be given unto him.”[^7]
 
-The late Elder Delbert L. Stapley of the Quorum of the Twelve once observed: “There are two main requirements of this oath and covenant. First is faithfulness, which denotes obedience to the laws of God and connotes true observance of all gospel standards. ...
+The late Elder Delbert L. Stapley of the Quorum of the Twelve once observed: “There are two main requirements of this oath and covenant. First is faithfulness, which denotes obedience to the laws of God and connotes true observance of all gospel standards. …
 
-“The second requirement ... is to magnify one’s calling. To magnify is to honor, to exalt and glorify, and cause to be held in greater esteem or respect. It also means to increase the importance of, to enlarge and make greater.”8
+“The second requirement … is to magnify one’s calling. To magnify is to honor, to exalt and glorify, and cause to be held in greater esteem or respect. It also means to increase the importance of, to enlarge and make greater.”[^8]
 
 The Prophet Joseph Smith was once asked, “Brother Joseph, you frequently urge that we magnify our callings. What does this mean?” He is said to have replied, “To magnify a calling is to hold it up in dignity and importance, that the light of heaven may shine through one’s performance to the gaze of other men. An elder magnifies his calling when he learns what his duties as an elder are and then performs them.”
 
@@ -93,7 +96,7 @@ Those who bear the Aaronic Priesthood should be given opportunity to magnify the
 
 One Sunday two years ago I was attending sacrament meeting in my ward. That’s a rarity. There were three priests at the sacrament table, with the young man in the center being somewhat handicapped in movement but particularly so in speech. He tried twice to bless the bread but stumbled badly each time, no doubt embarrassed by his inability to give the prayer perfectly. One of the other priests then took over and gave the blessing on the bread.
 
-During the passing of the bread, I thought to myself, “I just can’t let that young man experience failure at the sacrament table.” I had a strong feeling that if I didn’t doubt, he would be able to bless the water effectively. Inasmuch as I was on the stand near the sacrament table, I leaned over and said to the priest closest to me, pointing to the young man who had experienced the difficulty, “Let him bless the water; it’s a shorter prayer.” And then I prayed. I didn’t want a double failure. I love that passage of scripture which tells us that we should not doubt but believe.9
+During the passing of the bread, I thought to myself, “I just can’t let that young man experience failure at the sacrament table.” I had a strong feeling that if I didn’t doubt, he would be able to bless the water effectively. Inasmuch as I was on the stand near the sacrament table, I leaned over and said to the priest closest to me, pointing to the young man who had experienced the difficulty, “Let him bless the water; it’s a shorter prayer.” And then I prayed. I didn’t want a double failure. I love that passage of scripture which tells us that we should not doubt but believe.[^9]
 
 When it was time to bless the water, that young man knelt again and gave the prayer, perhaps somewhat haltingly but without missing a word. I rejoiced silently. While the deacons were passing the trays, I looked over at the boy and gave him a thumbs-up. He gave me a broad smile. When the young men were excused to sit with their families, he sat on the row between his mother and father. What a joy it was to see his mother give him a big smile and a warm hug, while his father congratulated him and put his arm around his shoulder. All three of them looked in my direction, and I gave them all a thumbs-up. I could see the mother and father wiping tears from their eyes. I felt impressed that this young man would do just fine in the future.
 
@@ -109,9 +112,32 @@ Isaac Reiter became a living sermon concerning honoring the priesthood. At his f
 
 For those of us who hold the Melchizedek Priesthood, our privilege to magnify our callings is ever present. We are shepherds watching over Israel. The hungry sheep do look up, ready to be fed the bread of life. Are we prepared, brethren, to feed the flock of God? It is imperative that we recognize the worth of a human soul, that we never give up on one of His precious sons.
 
-Should there be anyone who feels he is too weak to do better because of that greatest of fears, the fear of failure, there is no more comforting assurance to be had than the words of the Lord: “My grace is sufficient for all men that humble themselves before me; for if they humble themselves before me, and have faith in me, then will I make weak things become strong unto them.”10
+Should there be anyone who feels he is too weak to do better because of that greatest of fears, the fear of failure, there is no more comforting assurance to be had than the words of the Lord: “My grace is sufficient for all men that humble themselves before me; for if they humble themselves before me, and have faith in me, then will I make weak things become strong unto them.”[^10]
 
 Miracles are everywhere to be found when priesthood callings are magnified. When faith replaces doubt, when selfless service eliminates selfish striving, the power of God brings to pass His purposes. Whom God calls, God qualifies.
 
 May our Heavenly Father ever bless, ever inspire, and ever lead all who hold His precious priesthood is my sincere prayer, and I offer it in the name of the Lord Jesus Christ, amen.
+
+
+
+
+[^1]: [[1 Peter 3.15|1 Peter 3:15]].
+
+[^2]: See David O. McKay, *Stepping Stones to an Abundant Life* (1971), 375.
+
+[^3]: [[Joseph Smith History 1.14|Joseph Smith—History 1:14, 17]][[Joseph Smith History 1.17|]].
+
+[^4]: [[D&C 13.1|D&C 13:1]].
+
+[^5]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 130.
+
+[^6]: *Gospel Doctrine,* 5th ed. (1939), 139–40.
+
+[^7]: [[D&C 84.33|D&C 84:33–38]][[D&C 84.34|]][[D&C 84.35|]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]].
+
+[^8]: In Conference Report, Apr. 1957, 76.
+
+[^9]: See [[Mormon 9.27|Mormon 9:27]].
+
+[^10]: [[Ether 12.27|Ether 12:27]].
 

@@ -1,5 +1,6 @@
 # Priesthood Responsibilities
-*By N. Eldon Tanner - First Counselor in the First Presidency*
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -19,7 +20,7 @@ If the father will love God, love his wife, love his family, and honor his pries
 
 Keep the Sabbath day holy. Keep the Word of Wisdom strictly. Pray always, and be honest with one another and with your fellowmen. Study the gospel. Know what is expected of us, why we are here, that we are actually spirit children of God, and as such we must keep ourselves morally clean. And that is one thing, fathers, that we should teach our boys to do.
 
-I should like to give you, as I speak about the family and fathers, an example by reading what Sister McKay said about President David O. McKay: “I am very, very proud of my husband. He is just as lovely, just as courteous, just as polite, just as kind and just as sweet in our home as he is anywhere else, and I am very proud of him. And I am grateful for him. I cannot see anything wrong with him. I pray that our brethren will try to follow his example in every way, shape, and form.”
+I should like to give you, as I speak about the family and fathers, an example by reading what Sister McKay said about President David O. McKay: “I am very, very proud of my husband. He is just as lovely, just as courteous, just as polite, just as kind and just as sweet in our home as he is anywhere else, and I am very proud of him. And I am grateful for him. I cannot see anything wrong with him. I pray that our brethren will try to follow his example in every way, shape, and form.”
 
 And I can’t think of much better advice, brethren, for us to have.
 
@@ -41,7 +42,7 @@ His father went upstairs and changed his clothes. As he was coming down, his wif
 
 Brethren, that is the spirit to have. And, of course, as he told his wife, you can naturally imagine what happened. She shed tears as she realized she had a husband, the father of her son, who would be an example and be so interested in him that he would be prepared to represent the Lord in the priesthood that he holds.
 
-I would like to say just a few words to the bishops, to the other officers in the wards and stakes, including the stake presidents, and to mission presidents. We have a heavy responsibility; and especially the bishop, with his counselors, has the responsibility for the Aaronic Priesthood. Much has been said about that tonight, but I would like to say just a few words. You should know every boy by his first name. Show an interest in him; stay close to him. When you know his first name, use it. You remember when God the Father and his Son Jesus Christ appeared to Joseph, and he asked the question, God turned to him and said, “Joseph,” calling him by name, “this is my beloved Son.” (See JS—H 1:17.) A boy likes to hear his name called.
+I would like to say just a few words to the bishops, to the other officers in the wards and stakes, including the stake presidents, and to mission presidents. We have a heavy responsibility; and especially the bishop, with his counselors, has the responsibility for the Aaronic Priesthood. Much has been said about that tonight, but I would like to say just a few words. You should know every boy by his first name. Show an interest in him; stay close to him. When you know his first name, use it. You remember when God the Father and his Son Jesus Christ appeared to Joseph, and he asked the question, God turned to him and said, “Joseph,” calling him by name, “this is my beloved Son.” (See [[Joseph Smith History 1.17|JS—H 1:17]].) A boy likes to hear his name called.
 
 Let us remember and remind our boys always, when they are officiating as holders of the priesthood, that they are representing the Lord. They can have their good times every other place and play the way they want to do, but when they are officiating in the priesthood, they should realize that they are representing the Lord, and be so dressed and so prepared and humble and reverent as to properly represent him.
 
@@ -61,9 +62,9 @@ Bishops, you have an additional responsibility. You are judges in Israel, and yo
 
 Study the scriptures and the handbook and do as they direct. Bishops and stake presidents must not shirk this responsibility. Anyone who says that he has never disciplined, disfellowshipped, or excommunicated anyone, and that he never intends to, has an entirely wrong attitude and may himself be held accountable.
 
-The Lord has said, “Any member of the church of Christ transgressing, or being overtaken in a fault, shall be dealt with as the scriptures direct.” (D&C 20:80.)
+The Lord has said, “Any member of the church of Christ transgressing, or being overtaken in a fault, shall be dealt with as the scriptures direct.” ([[D&C 20.80|D&C 20:80]].)
 
-And President John Taylor said this: “Furthermore, I have heard of some Bishops who have been seeking to cover up the iniquities of men; I tell them, in the name of God, they will have to bear them themselves, and meet that judgment; and I tell you that any man who tampers with iniquity, he will have to bear that iniquity, and if any of you want to partake of the sins of men, or uphold them, you will have to bear them. Do you hear it, you Bishops and you Presidents? God will require it at your hands. You are not placed in a position to tamper with the principles of righteousness, nor to cover up the infamies and corruptions of men.” (Conference Report, April 1880, p. 78.)
+And President John Taylor said this: “Furthermore, I have heard of some Bishops who have been seeking to cover up the iniquities of men; I tell them, in the name of God, they will have to bear them themselves, and meet that judgment; and I tell you that any man who tampers with iniquity, he will have to bear that iniquity, and if any of you want to partake of the sins of men, or uphold them, you will have to bear them. Do you hear it, you Bishops and you Presidents? God will require it at your hands. You are not placed in a position to tamper with the principles of righteousness, nor to cover up the infamies and corruptions of men.” (*Conference Report,* April 1880, p. 78.)
 
 The cases that are to be handled by the Church include but are not limited to fornication, adultery, homosexual acts, abortion, or other infractions of the moral code; intemperance; criminal acts involving moral turpitude, such as burglary, dishonesty, theft, or murder; apostasy; open opposition to and deliberate disobedience of the rules and regulations of the Church; cruelty to spouse or children; advocating or practicing so-called plural marriage; or any un-Christianlike conduct in violation of the law and order of the Church.
 
@@ -78,4 +79,7 @@ If we would live each day so that we could look the bishop, branch president, th
 No young man guilty of serious transgression should apply for a temple recommend or expect to be called on a mission or wish to be advanced in the priesthood until he has repented and is worthy of such a call. I can think of no greater disappointment, sadness, or sorrow that can come to anyone than to have a missionary who is not worthy, not dedicated, and guilty of transgression, be sent home dishonorably released, disfellowshipped, or excommunicated. This is a great disappointment to his companion, and it makes the mission president’s heart bleed to have to deal with one of his missionaries who is guilty of transgression either before coming or while in the mission field, and then to have the difficult responsibility of sending him home. It distresses the parents and grieves the bishop and stake president and those with whom he has worked so closely. It is an affront to the Lord and seriously affects the life of the missionary.
 
 May the Lord help us to appreciate who we are and to live accordingly, realizing that we do hold the priesthood of God in the church of Jesus Christ, the only men in the world who hold the authority to speak in God’s name. Assembled here tonight in these different buildings, every priesthood office of the Church is represented, and the success and progress of this church depend on you as individuals who hold the priesthood. May we prove worthy, I humbly pray, in the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Meeting Life’s Challenges
-*By Thomas S. Monson - Second Counselor in the First Presidency*
+
+By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1993 General Conference*
 
@@ -29,9 +30,9 @@ My thoughts turned to a place far distant and to a time long ago—even to anoth
 
 “Jesus saith unto him, Rise, take up thy bed, and walk.
 
-“And immediately the man was made whole, and took up his bed, and walked.”1
+“And immediately the man was made whole, and took up his bed, and walked.”[^1]
 
-Another scene of suffering and sorrow is found in the famous Tate Gallery in London, England. There adorns the wall of a much-traveled corridor a masterpiece entitled Sickness and Health. The painting portrays an organ-grinder with his monkey and a group of happy, healthy children frolicking and showing their amusement at the monkey’s antics. In the background is a small, pale-faced boy confined to a wheelchair, unable to play, unable to join in the fun of the other children. Feelings of empathy and silent tears of sadness overcome those who gaze upon the scene and sense the unspoken feelings of the sick boy’s heart.
+Another scene of suffering and sorrow is found in the famous Tate Gallery in London, England. There adorns the wall of a much-traveled corridor a masterpiece entitled *Sickness and Health.* The painting portrays an organ-grinder with his monkey and a group of happy, healthy children frolicking and showing their amusement at the monkey’s antics. In the background is a small, pale-faced boy confined to a wheelchair, unable to play, unable to join in the fun of the other children. Feelings of empathy and silent tears of sadness overcome those who gaze upon the scene and sense the unspoken feelings of the sick boy’s heart.
 
 Who can count the boys and girls, the men and women, where sickness has left its mark, rendering strong limbs lifeless and causing loved ones to shed tears of sorrow and offer prayers of faith for them?
 
@@ -53,47 +54,41 @@ Let us look in on one such scene which took place just last month in the Sunset 
 
 Just a few days earlier, Roger had left for his work, where he was a talented and recognized authority in his field of specialized photography. An accident resulted in the helicopter crash which took his life—all in the twinkling of an eye and without advance warning. Filled with grief but comforted by faith, those who had loved and lived together had bid but a temporary farewell to husband and father. They are sustained by the knowledge the skeptic rejects. They treasure the account recorded in Luke which describes that most significant event following the crucifixion and burial of our Lord and Savior Jesus Christ:
 
-“Now upon the first day of the week, very early in the morning, [Mary Magdalene and the other Mary] came unto the sepulchre.” To their astonishment, the body of their Lord was gone. Luke records that two men in shining garments stood by them and said, “Why seek ye the living among the dead? He is not here, but is risen.”2
+“Now upon the first day of the week, very early in the morning, \[Mary Magdalene and the other Mary\] came unto the sepulchre.” To their astonishment, the body of their Lord was gone. Luke records that two men in shining garments stood by them and said: “Why seek ye the living among the dead? He is not here, but is risen.”[^2]
 
-Against the philosophy rampant in today’s world—a doubting of the authenticity of the Sermon on the Mount, an abandonment of Christ’s teaching, a denial of God, and a rejection of His laws—the Olsons and true believers everywhere treasure the testimonies of eyewitnesses to His resurrection. Stephen, doomed to the cruel death of a martyr, looked up to heaven and cried, “Behold, I see the heavens opened, and the Son of man standing on the right hand of God.”3
+Against the philosophy rampant in today’s world—a doubting of the authenticity of the Sermon on the Mount, an abandonment of Christ’s teaching, a denial of God, and a rejection of His laws—the Olsons and true believers everywhere treasure the testimonies of eyewitnesses to His resurrection. Stephen, doomed to the cruel death of a martyr, looked up to heaven and cried, “Behold, I see the heavens opened, and the Son of man standing on the right hand of God.”[^3]
 
-Saul, on the road to Damascus, had a vision of the risen, exalted Christ. Peter and John also testified of the risen Christ. And in our dispensation, the Prophet Joseph Smith bore eloquent testimony of the Son of God, for he saw Him and heard the Father introduce him: “This is My Beloved Son. Hear Him!”4
+Saul, on the road to Damascus, had a vision of the risen, exalted Christ. Peter and John also testified of the risen Christ. And in our dispensation, the Prophet Joseph Smith bore eloquent testimony of the Son of God, for he saw Him and heard the Father introduce him: *“This is My Beloved Son. Hear Him!”*[^4]
 
-As we ponder the events that can befall all of us—even sickness, accident, death, and a host of lesser challenges, we can say, with Job of old, “Man is born unto trouble.”5 Needless to add, that reference to man in the King James Version of the book of Job encompasses women as well. It may be safely assumed that no person has ever lived entirely free of suffering and tribulation. Nor has there ever been a period in human history that did not have its full share of turmoil, ruin, and misery.
+As we ponder the events that can befall all of us—even sickness, accident, death, and a host of lesser challenges—we can say, with Job of old, “Man is born unto trouble.”[^5] Needless to add, that reference to man in the King James Version of the book of Job encompasses women as well. It may be safely assumed that no person has ever lived entirely free of suffering and tribulation. Nor has there ever been a period in human history that did not have its full share of turmoil, ruin, and misery.
 
-When the pathway of life takes a cruel turn, there is the temptation to think or speak the phrase, “Why me?” Self-incrimination is a common practice, even when we may have had no control over our difficulty. Socrates is quoted as saying: “If we were all to bring our misfortunes into a common store, so that each person should receive an equal share in the distribution, the majority would be glad to take up their own and depart.”
+When the pathway of life takes a cruel turn, there is the temptation to think or speak the phrase, “Why me?” Self-incrimination is a common practice, even when we may have had no control over our difficulty. Socrates is quoted as saying, “If we were all to bring our misfortunes into a common store, so that each person should receive an equal share in the distribution, the majority would be glad to take up their own and depart.”
 
-However, at times there appears to be no light at the tunnel’s end—no dawn to break the night’s darkness. We feel surrounded by the pain of broken hearts, the disappointment of shattered dreams, and the despair of vanished hopes. We join in uttering the biblical plea, “Is there no balm in Gilead?”6 We are inclined to view our own personal misfortunes through the distorted prism of pessimism. We feel abandoned, heartbroken, alone.
+However, at times there appears to be no light at the tunnel’s end—no dawn to break the night’s darkness. We feel surrounded by the pain of broken hearts, the disappointment of shattered dreams, and the despair of vanished hopes. We join in uttering the biblical plea, “Is there no balm in Gilead?”[^6] We are inclined to view our own personal misfortunes through the distorted prism of pessimism. We feel abandoned, heartbroken, alone.
 
-To all who so despair, may I offer the assurance of the Psalmist’s words: “Weeping may endure for a night, but joy cometh in the morning.”7
+To all who so despair, may I offer the assurance of the Psalmist’s words: “Weeping may endure for a night, but joy cometh in the morning.”[^7]
 
 Whenever we are inclined to feel burdened down with the blows of life’s fight, let us remember that others have passed the same way, have endured, and then have overcome.
 
-Job was a perfect and an upright man who “feared God, and eschewed evil.”8 Pious in his conduct, prosperous in his fortune, Job was to face a test which would tempt any man. Shorn of his possessions, scorned by his friends, afflicted by his suffering, even tempted by his wife, Job was to declare from the depths of his noble soul, “Behold, my witness is in heaven, and my record is on high.”9 “I know that my redeemer liveth.”10
+Job was a perfect and an upright man who “feared God, and eschewed evil.”[^8] Pious in his conduct, prosperous in his fortune, Job was to face a test which would tempt any man. Shorn of his possessions, scorned by his friends, afflicted by his suffering, even tempted by his wife, Job was to declare from the depths of his noble soul, “Behold, my witness is in heaven, and my record is on high.”[^9] “I know that my redeemer liveth.”[^10]
 
-Turning to our own time, let me share with you an example of faith, of courage, of compassion, of victory. It illustrates how it is possible to meet life’s challenges—headon. It exemplifies the ability to suffer physical impairment, endure pain and suffering, and yet never complain. Such are Wendy Bennion of Sandy, Utah, and Jami Palmer of Park Valley, Utah. Both are teenagers; both have borne similar afflictions. Their situations run almost parallel. Since Wendy’s battle has been of a longer duration, I shall speak today of her.
+Turning to our own time, let me share with you an example of faith, of courage, of compassion, of victory. It illustrates how it is possible to meet life’s challenges—head-on. It exemplifies the ability to suffer physical impairment, endure pain and suffering, and yet never complain. Such are Wendy Bennion of Sandy, Utah, and Jami Palmer of Park Valley, Utah. Both are teenagers; both have borne similar afflictions. Their situations run almost parallel. Since Wendy’s battle has been of a longer duration, I shall speak today of her.
 
 Stricken with cancer at a tender age, subjected to long periods of chemotherapy, Wendy persevered valiantly. Teachers cooperated, parents and family helped—but the mainstay in her affliction has been her indomitable spirit. Wendy has brought cheer to others similarly afflicted. She has prayed for them; she has sustained them with her own example and faith.
 
-After completion of eighteen months of chemotherapy, a balloon-launching party was held in Wendy’s honor. The public media covered the event. One of the many balloons launched that day was found miles away by Jayne Johnson. It had landed in her backyard, and she discovered it just as she was starting her own chemotherapy treatments. She wrote to Wendy, indicating she had been feeling sad and frightened but that finding the balloon and the note inside—which told about Wendy, her cancer, and the completion of her treatments—had given her the strength and that Wendy was a real inspiration to her. Wendy said, “I think she was supposed to find that balloon so that she would know that it’s not the end of the world and that people do get better.”
+After Wendy completed eighteen months of chemotherapy, a balloon-launching party was held in her honor. The public media covered the event. One of the many balloons launched that day was found miles away by Jayne Johnson. It had landed in her backyard, and she discovered it just as she was starting her own chemotherapy treatments. She wrote to Wendy, indicating she had been feeling sad and frightened but that finding the balloon and the note inside—which told about Wendy, her cancer, and the completion of her treatments—had given her the strength and that Wendy was a real inspiration to her. Wendy said, “I think she was supposed to find that balloon so that she would know that it’s not the end of the world and that people do get better.”
 
-Though Wendy’s cancer recurred, and a second round of therapy was needed, this choice young lady has not wavered, nor has she shrunk from her course. Rarely have I witnessed one with such courage, such determination, such faith. The same can be said of Jami Palmer. They personify the words of the poetess, Ella Wheeler Wilcox, who wrote:
+Though Wendy’s cancer recurred and a second round of therapy was needed, this choice young lady has not wavered, nor has she shrunk from her course. Rarely have I witnessed one with such courage, such determination, such faith. The same can be said of Jami Palmer. They personify the words of the poetess Ella Wheeler Wilcox, who wrote:
 
-It is easy enough to be pleasant,
-
-When life flows by like a song,
-
-But the man worth while is one who will smile,
-
-When everything goes dead wrong.
-
-For the test of the heart is trouble,
-
-And it always comes with the years,
-
-And the smile that is worth the praises of earth
-
-Is the smile that shines through tears.11
+>It is easy enough to be pleasant,
+>When life flows by like a song,
+>But the man worth while is one who will smile,
+>When everything goes dead wrong.
+>For the test of the heart is trouble,
+>And it always comes with the years,
+>And the smile that is worth the praises of earth
+>Is the smile that shines through tears.[^11]
+>
 
 There is one life that sustains those who are troubled or beset with sorrow and grief—even the Lord Jesus Christ. Foretelling His coming, the prophet Isaiah records: “He hath no form nor comeliness; and when we shall see him, there is no beauty that we should desire him.
 
@@ -101,11 +96,11 @@ There is one life that sustains those who are troubled or beset with sorrow and 
 
 “Surely he hath borne our griefs, and carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted.
 
-“But he was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.”12
+“But he was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.”[^12]
 
 Yes, our Lord and Savior, Jesus Christ, is our Exemplar and our strength. He is the light that shineth in darkness. He is the Good Shepherd. Though engaged in His majestic ministry, He embraced the opportunity to lift burdens, provide hope, mend bodies, and restore life.
 
-Few accounts of the Master’s ministry touch me more than His example of compassion shown to the grieving widow at Nain: “And it came to pass ... that he went into a city called Nain; and many of his disciples went with him, and much people.
+Few accounts of the Master’s ministry touch me more than His example of compassion shown to the grieving widow at Nain: “And it came to pass … that he went into a city called Nain; and many of his disciples went with him, and much people.
 
 “Now when he came nigh to the gate of the city, behold, there was a dead man carried out, the only son of his mother, and she was a widow: and much people of the city was with her.
 
@@ -113,11 +108,42 @@ Few accounts of the Master’s ministry touch me more than His example of compas
 
 “And he came and touched the bier: and they that bare him stood still. And he said, Young man, I say unto thee, Arise.
 
-“And he that was dead sat up, and began to speak. And he delivered him to his mother.”13
+“And he that was dead sat up, and began to speak. And he delivered him to his mother.”[^13]
 
-What power, what tenderness, what compassion did our Master thus demonstrate! We, too, can bless if we will but follow His noble example. Opportunities are everywhere. Needed are eyes to see the pitiable plight and ears to hear the silent pleadings of a broken heart. Yes, and a soul filled with compassion, that we might communicate not only eye to eye or voice to ear but, in the majestic style of the Savior, even heart to heart.
+What power, what tenderness, what compassion did our Master thus demonstrate! We, too, can bless if we will but follow His noble example. Opportunities are everywhere. Needed are eyes to see the pitiable plight and ears to hear the silent pleadings of a broken heart—yes, and a soul filled with compassion, that we might communicate not only eye to eye or voice to ear but, in the majestic style of the Savior, even heart to heart.
 
-His words become our guide: “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.”14
+His words become our guide: “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.”[^14]
 
 He lives. He will sustain each of us. May we keep His commandments. May we ever follow Him and merit His companionship, that we may successfully meet and overcome life’s challenges, I pray humbly, in His holy name, the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[John 5.2|John 5:2–9]][[John 5.3|]][[John 5.4|]][[John 5.5|]][[John 5.6|]][[John 5.7|]][[John 5.8|]][[John 5.9|]].
+
+[^2]: [[Luke 24.1|Luke 24:1–6]][[Luke 24.2|]][[Luke 24.3|]][[Luke 24.4|]][[Luke 24.5|]][[Luke 24.6|]].
+
+[^3]: [[Acts 7.56|Acts 7:56]].
+
+[^4]: [[Joseph Smith History 1.17|JS—H 1:17]].
+
+[^5]: [[Job 5.7|Job 5:7]].
+
+[^6]: [[Jeremiah 8.22|Jer. 8:22]].
+
+[^7]: [[Psalms 30.5|Ps. 30:5]].
+
+[^8]: [[Job 1.1|Job 1:1]].
+
+[^9]: [[Job 16.19|Job 16:19]].
+
+[^10]: [[Job 19.25|Job 19:25]].
+
+[^11]: “Worth While,” in Hazel Felleman, sel., *The Best Loved Poems of the American People* (Garden City, N.Y.: Doubleday, 1936), p. 144.
+
+[^12]: [[Isaiah 53.2|Isa. 53:2–5]][[Isaiah 53.3|]][[Isaiah 53.4|]][[Isaiah 53.5|]].
+
+[^13]: [[Luke 7.11|Luke 7:11–15]][[Luke 7.12|]][[Luke 7.13|]][[Luke 7.14|]][[Luke 7.15|]].
+
+[^14]: [[John 16.33|John 16:33]].
 

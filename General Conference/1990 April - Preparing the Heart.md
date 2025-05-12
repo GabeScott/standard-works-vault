@@ -1,5 +1,6 @@
 # Preparing the Heart
-*By H. Burke Peterson - Of the Seventy*
+
+By Elder H. Burke Peterson - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
 
@@ -9,7 +10,7 @@ My brothers and sisters, I am mindful that there are many who are struggling wit
 
 Some thirty or forty years before the birth of the Savior, a wise father called his sons together and gave them counsel. His name was Helaman. His sons were Nephi and Lehi. He said to them:
 
-“And now, my sons, remember, remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation; that when the devil shall send forth his mighty winds, ... when all his hail and his mighty storm shall beat upon you, it shall have no power over you to drag you down.” (Hel. 5:12; italics added.)
+“And now, my sons, remember, remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, *that ye must build your foundation;* that when the devil shall send forth his mighty winds, … when all his hail and his mighty storm shall beat upon you, it shall have no power over you to drag you down” ([[Helaman 5.12|Hel. 5:12]]; italics added).
 
 Simply stated, he told his sons if they would pursue the course and gain a testimony of the divinity of the Lord, Jesus Christ, there would be no test or trial come to them in life that they could not conquer.
 
@@ -21,7 +22,7 @@ We cannot force love and respect and admiration.
 
 We cannot force faith and testimony of truth.
 
-Even though we cannot force those things that matter most, there are ways we can help one another. That is, we can prepare hearts to obtain a deep and abiding testimony that Jesus Christ is the Savior of the world.
+Even though we cannot force those things that matter most, there are ways we can help one another. That is, *we can prepare hearts* to obtain a deep and abiding testimony that Jesus Christ is the Savior of the world.
 
 This principle of first preparing hearts applies in a wide variety of personal relationships, such as between friends and neighbors and co-workers as well as husbands and wives and children. Let’s look at some of the ways we can nurture a heart so that a testimony can take root and grow.
 
@@ -29,15 +30,15 @@ If your home is a home where family members are loved unconditionally, regardles
 
 Now, you may think, “I would like to love my family and friends and neighbors unconditionally, but sometimes it is extremely difficult. How can I learn to feel that pure love?” Here are some guidelines:
 
-First, look for the good in each person, and mention it in a sincere and consistent way. It is amazing how hearts can be softened, testimonies implanted, and relationships improved when we begin to give a daily portion of heartfelt appreciation. It has a marvelous effect on preparing the spirit. Even mentioning a little thing will have a positive effect. It usually isn’t earth-shaking—just a simple act or attribute that will blossom and be multiplied if it is noticed. (By the way, it may take you all day to find something, but it is there.)
+First, look for the good in each person, and mention it in a sincere and consistent way. It is amazing how hearts can be softened, testimonies implanted, and relationships improved when we begin to give a daily portion of heartfelt appreciation. It has a marvelous effect on preparing the spirit. Even mentioning a little thing will have a positive effect. It usually isn’t earth-shaking—just a simple act or attribute that will blossom and be multiplied if it is noticed. (By the way, it may take you all day to find something, but it is there).
 
 One day after school, one of our daughters came into a teenage son’s room. It looked as if a big wind had blown through. He was sitting in the midst of it all. She felt the anger rising within, but remembered her resolution to look for the good. Searching desperately, her eye finally looked upward. “Your ceiling’s really clean, Adam!” she was able to say quite honestly. He laughed; he got the message, and he cleaned up the room.
 
 When marriage partners practice looking beyond the faults and failings of each other and peer into the deeper recesses of the heart, then we find a marvelous strengthening of marriage relationships.
 
-Another way of preparing the heart of someone is to create an atmosphere where judging is held in reserve until anger has subsided, until the hurt has dissipated, until all sides of an issue have been explored. Criticism is a destroyer of self-worth and esteem. It is demeaning and cutting.
+Another way of preparing the heart of someone is to create an atmosphere where judging is held in reserve until anger has subsided, until the hurt has dissipated, until all sides of an issue have been explored. Criticism is a *destroyer* of self-worth and esteem. It is demeaning and cutting.
 
-Some husbands expect perfection, and when this is not attained, their expressions turn to criticism. One wife wrote, “Life can be such a lonely struggle for a woman in this situation—[when there is] one who reminds her continually of her failings, letting her know she is not living up to his expectations. How can a woman feel she’ll ever become what our Heavenly Father expects of her when, no matter how hard she tries, she never pleases her husband?”
+Some husbands expect perfection, and when this is not attained, their expressions turn to criticism. One wife wrote, “Life can be such a lonely struggle for a woman in this situation—\[when there is\] one who reminds her continually of her failings, letting her know she is not living up to his expectations. How can a woman feel she’ll ever become what our Heavenly Father expects of her when, no matter how hard she tries, she never pleases her husband?”
 
 It is heartbreaking how criticism can wound children and diminish their self-esteem. In one family, home evenings were discontinued because members of the family became discouraged by the contention. The father, who may have been conscientious about his responsibility to help his family improve, unwisely used most of the time to find fault with family members. Even though he made some effort to praise the children, it was not enough to offset his criticism.
 
@@ -49,17 +50,20 @@ As you develop your capacity to love unconditionally, remember that listening is
 
 Finally, love is spoken in prayer. In your home, do children hear their parents pray for them in specific ways? For instance, when Kami is sick, she can hear the family pray she will have the Lord’s healing influence. When Cameron needs a job, it will help him to hear the prayers of his family express confidence in him. If in your home children hear their parents pray for each other daily, then your home is a faith-building home. In it, hearts can be changed, and those who live there may become the children of Christ.
 
-Following the marvelous words of instruction by King Benjamin, as they are recorded in the first few chapters of Mosiah, we learn that “he sent among them, desiring to know of his people, if they believed the words which he had spoken unto them.” (Mosiah 5:1.) At the conclusion of this marvelous two days of general conference, I would hope, if we were asked, our response to such a question would be as was theirs in that day, for they said:
+Following the marvelous words of instruction by King Benjamin, as they are recorded in the first few chapters of Mosiah, we learn that “he sent among them, desiring to know of his people, if they believed the words which he had spoken unto them” ([[Mosiah 5.1|Mosiah 5:1]]). At the conclusion of this marvelous two days of general conference, I would hope, if we were asked, our response to such a question would be as was theirs in that day, for they said:
 
-“Yea, we believe all the words which thou hast spoken unto us; and also, we know of their surety and truth, because of the Spirit of the Lord Omnipotent, which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually. ...
+“Yea, we believe all the words which thou hast spoken unto us; and also, we know of their surety and truth, because of the Spirit of the Lord Omnipotent, which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually. …
 
-“And we are willing to enter into a covenant with our God to do his will, and to be obedient to his commandments.” (Mosiah 5:2, 5.)
+“And we are willing to enter into a covenant with our God to do his will, and to be obedient to his commandments” ([[Mosiah 5.2|Mosiah 5:2, 5]][[Mosiah 5.5|]]).
 
 And King Benjamin said unto them:
 
-“And now, because of the covenant which ye have made ye shall be called the children of Christ, his sons, and his daughters; for behold, this day he hath spiritually begotten you; for ye say that your hearts are changed through faith on his name; therefore, ye are born of him and have become his sons and his daughters.
+“And now, because of the covenant which ye have made ye shall be called the children of Christ, his sons, and his daughters; for behold, this day he hath spiritually begotten you; for ye say that your hearts are changed *through faith on his name;* therefore, ye are born of him and have become his sons and his daughters.
 
-“And under this head ye are made free. ... I would that ye should take upon you the name of Christ ... that ye should be obedient unto the end of your lives.” (Mosiah 5:7–8; italics added.)
+“And under this head ye are made free. … I would that ye should take upon you the name of Christ … that ye should be obedient unto the end of your lives” ([[Mosiah 5.7|Mosiah 5:7–8]][[Mosiah 5.8|]]; italics added).
 
 To this, brothers and sisters, I add my testimony of the divinity of the Lord Jesus Christ. He is our Savior, and he is our Redeemer, and he lives. In the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Sacrifice and Self-Sufficiency
-*By M. Russell Ballard - Of the Quorum of the Twelve Apostles*
+
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
 
@@ -15,7 +16,7 @@ They agreed that greatly simplified buildings would fully meet the needs of the 
 
 The Prophet Joseph Smith said:
 
-“A religion that does not require the sacrifice of all things never has power sufficient to produce the faith necessary unto life and salvation; for, from the first existence of man, the faith necessary unto the enjoyment of life and salvation never could be obtained without the sacrifice of all earthly things” (Lectures on Faith, 6:7).
+“A religion that does not require the sacrifice of all things never has power sufficient to produce the faith necessary unto life and salvation; for, from the first existence of man, the faith necessary unto the enjoyment of life and salvation never could be obtained without the sacrifice of all earthly things” (*Lectures on Faith,* 6:7).
 
 As the Saints work to become completely self-sufficient, something very special happens that goes far beyond decreasing costs. For example, when the Church leaders in South America turned their attention to decreasing the cost of missionary service, the Lord blessed them with a simple but marvelous idea: the members could provide the noon meal each day for the full-time missionaries. This was a task the Saints in South America could do, and one that would strengthen both the members and missionaries. It proved to be the means for the members in this part of the world to perfect the Saints and to proclaim the gospel—two parts of the mission of the Church.
 
@@ -53,11 +54,11 @@ The president continues, “I have wondered if Alma’s experience is any differ
 
 From Alma, we read:
 
-“And as [Alma] entered the city he was an hungered, and he said to a man: Will ye give to an humble servant of God something to eat?
+“And as \[Alma\] entered the city he was an hungered, and he said to a man: Will ye give to an humble servant of God something to eat?
 
 “And the man said unto him: I am a Nephite, and I know that thou art a holy prophet of God, for thou art the man whom an angel said in a vision: Thou shalt receive. Therefore, go with me into my house and I will impart unto thee of my food; and I know that thou wilt be a blessing unto me and my house.
 
-“And it came to pass that the man received him into his house; and the man was called Amulek; and he brought forth bread and meat and set before Alma” (Alma 8:19–21).
+“And it came to pass that the man received him into his house; and the man was called Amulek; and he brought forth bread and meat and set before Alma” ([[Alma 8.19|Alma 8:19–21]][[Alma 8.20|]][[Alma 8.21|]]).
 
 Something special happens to an individual or to a Church unit when the people become more independent and self-reliant. They feel more confident, positive, and assured, and they reflect these feelings in their actions.
 
@@ -83,35 +84,33 @@ Sister Leonora de Contreras, a Relief Society president, said she knew the gospe
 
 Brothers and sisters, I realize that similar reports could come from other parts of the world. The principles of sacrifice, self-reliance, and pure love in action apply the same everywhere. I refer to South America only because my present assignment takes me there and gives me firsthand experience in that land. We have a long way to go in South America to become fully self-sufficient, but we are on the way, and the Lord is blessing our efforts.
 
-I am so grateful to the Lord for the leaders and other members in the Church, both men and women, who are filled with a faith that makes them willing to sacrifice for the building up of the kingdom of God. Such Saints truly feel and live the principle that King Benjamin taught to the Nephites: “When ye are in the service of your fellow beings ye are only in the service of your God” (Mosiah 2:17).
+I am so grateful to the Lord for the leaders and other members in the Church, both men and women, who are filled with a faith that makes them willing to sacrifice for the building up of the kingdom of God. Such Saints truly feel and live the principle that King Benjamin taught to the Nephites: “When ye are in the service of your fellow beings ye are only in the service of your God” ([[Mosiah 2.17|Mosiah 2:17]]).
 
-Brothers and sisters, how can every member enjoy the thrill and the blessing that comes from making a sacrifice to help the work? The answer is very simple, as are most answers in the Church. Every member of the Church can pay a full, honest tithing and can attend tithing settlement. The Lord said, “Verily [now] is a day of sacrifice, and a day for the tithing of my people” (D&C 64:23).
+Brothers and sisters, how can every member enjoy the thrill and the blessing that comes from making a sacrifice to help the work? The answer is very simple, as are most answers in the Church. Every member of the Church can pay a full, honest tithing and can attend tithing settlement. The Lord said, “Verily \[now\] is a day of sacrifice, and a day for the tithing of my people” ([[D&C 64.23|D&C 64:23]]).
 
 Let me remind you of President Spencer W. Kimball’s statement on fast offerings:
 
-“Sometimes,” he said, “we have been a bit penurious and figured that we had for breakfast one egg and that cost so many cents and then we give that to the Lord. I think that when we are affluent, as many of us are, that we ought to be very, very generous. ...
+“Sometimes,” he said, “we have been a bit penurious and figured that we had for breakfast one egg and that cost so many cents and then we give that to the Lord. I think that when we are affluent, as many of us are, that we ought to be very, very generous. …
 
-“I think we should ... give, instead of the amount we saved by our two meals of fasting, perhaps much, much more—ten times more where we are in a position to do it” (in Conference Report, Apr. 1974, p. 184).
+“I think we should … give, instead of the amount we saved by our two meals of fasting, perhaps much, much more—ten times more where we are in a position to do it” (in Conference Report, Apr. 1974, p. 184).
 
 Every member can give a generous fast offering.
 
 Brothers and sisters, the Church needs your contributions to the general missionary fund. This fund makes possible the service of thousands of missionaries. Those who can should feel free to contribute generously. The Lord provides an equal opportunity for every member everywhere in the world to receive the blessings that come from paying tithes and offerings.
 
-Every member can give his time and talents freely to the building up of the kingdom of God upon the earth. No member of the Church should miss this opportunity to exercise his faith and feel the spirit that comes from humble sacrifice. Seeing the great good that the Saints in South America do with their meager means helps me realize how much more many of us in other parts of the world could do. We should never forget the Savior’s teaching: “Unto whomsoever much is given, of him shall be much required” (Luke 12:48). He has blessed us abundantly. I think of the teaching words of one of our hymns:
+Every member can give his time and talents freely to the building up of the kingdom of God upon the earth. No member of the Church should miss this opportunity to exercise his faith and feel the spirit that comes from humble sacrifice. Seeing the great good that the Saints in South America do with their meager means helps me realize how much more many of us in other parts of the world could do. We should never forget the Savior’s teaching: “Unto whomsoever much is given, of him shall be much required” ([[Luke 12.48|Luke 12:48]]). He has blessed us abundantly. I think of the teaching words of one of our hymns:
 
-Because I have been given much, I too must give;
-
-Because of thy great bounty, Lord, each day I live
-
-I shall divide my gifts from thee
-
-With ev’ry brother that I see
-
-Who has the need of help from me
-
-(“Because I Have Been Given Much,” Hymns, 1985, no. 219).
+>Because I have been given much, I too must give;
+>Because of thy great bounty, Lord, each day I live
+>I shall divide my gifts from thee
+>With ev’ry brother that I see
+>Who has the need of help from me
+>
 
 I pray that as we leave this conference, each one of us will take from the messages of the Brethren those principles that will help us to become more self-sufficient as Saints.
 
 I testify that we have been taught the truth during this conference, that God lives, that Jesus Christ is his Son, and that the gospel has been restored in these latter days. All of which I do in his sacred name, even the name of Jesus Christ, amen.
+
+
+
 

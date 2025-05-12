@@ -1,5 +1,6 @@
 # A Blessing for the Saints
-*By Harold B. Lee - President of the Church*
+
+By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -15,11 +16,11 @@ In the midst of similar circumstances the Prophet Joseph Smith was in the Libert
 
 “Therefore, that we should waste and wear out our lives in bringing to light all the hidden things of darkness, wherein we know them; and they are truly manifest from heaven—
 
-“These should then be attended to with great earnestness. ...
+“These should then be attended to with great earnestness. …
 
 “You know, brethren,” he wrote, “that a very large ship is benefited very much by a very small helm in the time of a storm, by being kept workways with the wind and the waves.
 
-“Therefore, dearly beloved brethren, let us cheerfully do all things that lie in our power; and then may we stand still, with the utmost assurance, to see the salvation of God, and for his arm to be revealed.” (D&C 123:13–14, 16–17.)
+“Therefore, dearly beloved brethren, let us cheerfully do all things that lie in our power; and then may we stand still, with the utmost assurance, to see the salvation of God, and for his arm to be revealed.” ([[D&C 123.13|D&C 123:13–14, 16–17]][[D&C 123.14|]][[D&C 123.16|]][[D&C 123.17|]].)
 
 I was at Manti, Utah, some years ago. As we came out of the Saturday night leadership meeting, there was a heavy snowstorm. As we drove to the home of the stake president, he stopped his car and turned back to the temple hill. There the lighted temple was standing majestically. We sat there in silence for a few moments, inspired by the sight of that beautiful, sacred place. He said, “You know, Brother Lee, that temple is never more beautiful than in times of a dense fog or in times of a heavy, severe storm.”
 
@@ -29,7 +30,7 @@ I come now to the closing moments of this session when I have time for some sobe
 
 I cannot go back to where I was because of the love and faith and confidence that you, the people of the Lord, have reposed in me. So you have been talking of somebody else. You have been talking of somebody that you want me to become, which I hopefully pray God I may, with his help, become.
 
-We have announced time and again the great coverage of this conference. Millions have been listening. You know we are being judged by what emanates from this tabernacle. I held a meeting with some new missionaries recently. Their attention was called to something that I may have the temerity to mention to you today. The Lord said here in a great revelation, “Therefore, cease from all your light speeches, from all laughter, from all your lustful desires, from all your pride and light-mindedness, and from all your wicked doings.” (D&C 88:121.)
+We have announced time and again the great coverage of this conference. Millions have been listening. You know we are being judged by what emanates from this tabernacle. I held a meeting with some new missionaries recently. Their attention was called to something that I may have the temerity to mention to you today. The Lord said here in a great revelation, “Therefore, cease from all your light speeches, from all laughter, from all your lustful desires, from all your pride and light-mindedness, and from all your wicked doings.” ([[D&C 88.121|D&C 88:121]].)
 
 I wonder sometimes if we forget that all we say in this sensitive building is going out over the air from a sacred assembly. It doesn’t mean that we should be long-faced, should not show our joy, but we ought to couch our expressions of joy not with the audible expression that swells up to a great crescendo that might be mistaken by those who are listening on the outside. I think it would be well for us to remember that, with a sense of our responsibility to the most high God. We should be an example of what the Lord in this revelation has counseled us to be when we are in his service.
 
@@ -48,4 +49,7 @@ My love goes out to my own family, to my associates, to all within the sound of 
 God be with you. I have the same feeling as perhaps the Master had when he bid goodbye to the Nephites. He said he perceived that they were weak, but if they would go to their homes and ponder what he said, he would come again and instruct them on other occasions. So likewise, you cannot absorb all that you have heard and that we have talked about, but go to your homes now and remember what you can, and get the spirit of what has been done and said, and when you come again, or we come to you, we will try to help you further with your problems.
 
 I bear you my witness to these things and leave you my blessing in the name of the Lord, Jesus Christ. Amen.
+
+
+
 

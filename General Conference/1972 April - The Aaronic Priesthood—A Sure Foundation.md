@@ -1,5 +1,6 @@
 # The Aaronic Priesthood—A Sure Foundation
-*By By Bishop Victor L. Brown - Presiding Bishop*
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -13,7 +14,7 @@ I do this because I know that God lives. I know that his Son, Jesus Christ, the 
 
 I also know I have been called by the Lord through his prophets, as President Smith announced, and that if I will repent of my sins, He will bless me and strengthen me for the tasks ahead. If I did not know these things to be true, I would not have the courage nor the temerity to accept such a call. Even knowing this, it is frightening to contemplate assuming such a sacred trust.
 
-The last ten and one-half years under the direction of a great leader, Bishop John H. Vandenberg, have been wonderful indeed. I have been associated with him as a member of my stake presidency when I served as bishop of the Denver Fourth Ward, as a fellow counselor in the Denver Stake presidency, and now for more than ten years as one of his counselors in the Presiding Bishopric. I want him and you to know that I love and appreciate him. He is a man of great ability. I am deeply grateful for having had the privilege of being his counselor.
+The last ten and one-half years under the direction of a great leader, Bishop John H. Vandenberg, have been wonderful indeed. I have been associated with him as a member of my stake presidency when I served as bishop of the Denver Fourth Ward, as a fellow counselor in the Denver Stake presidency, and now for more than ten years as one of his counselors in the Presiding Bishopric. I want him and you to know that I love and appreciate him. He is a man of great ability. I am deeply grateful for having had the privilege of being his counselor.
 
 Bishop Simpson, as first counselor in the Presiding Bishopric, has made a great contribution to the Church, as evidenced by the love the people everywhere have for him. He is a man without guile.
 
@@ -21,7 +22,7 @@ And now I am deeply grateful to two wonderful high priests for their dedication 
 
 In approaching the task of selecting counselors, I sought the inspiration of the Lord in prayer. I reviewed hundreds of names of worthy brethren, any of whom could have been called. The two who were called were the ones the Lord wanted. You witnessed confirmation of this truth as you listened to their testimonies in the first session of this conference.
 
-We recognize our dependence on our Heavenly Father in assuming the responsibility as your Presiding Bishopric. We have but one desire and that is, to accomplish the work of the Lord in his own way and in his own time, for we recognize that this is his Church. We are his servants called to assist him in accomplishing his purpose, which is “to bring to pass the immortality and eternal life of man.” (Moses 1:39.)
+We recognize our dependence on our Heavenly Father in assuming the responsibility as your Presiding Bishopric. We have but one desire and that is, to accomplish the work of the Lord in his own way and in his own time, for we recognize that this is his Church. We are his servants called to assist him in accomplishing his purpose, which is “to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
 The Presiding Bishopric functions under the supervision and direction of the First Presidency, who constitute the presidency of all the priesthood throughout the world. Under their direction and through their delegation, the Presiding Bishopric presides as the presidency of the Aaronic Priesthood throughout the world.
 
@@ -71,7 +72,7 @@ Regarding the home, the Lord has said in the Doctrine and Covenants:
 
 “And again, inasmuch as parents have children in Zion, or in any of her stakes which are organized, that teach them not to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, the sin be upon the heads of the parents.
 
-“And they shall also teach their children to pray, and to walk uprightly before the Lord.” (D&C 68:25, 28.)
+“And they shall also teach their children to pray, and to walk uprightly before the Lord.” ([[D&C 68.25|D&C 68:25, 28]][[D&C 68.28|]].)
 
 The first responsibility rests with the parents. The position of the Church is to aid the parents and the family, not to replace them.
 
@@ -80,4 +81,7 @@ Bishops, you are the presidents of the priests quorums, and with your counselors
 If you will take the time to become involved with these young people and see that they become involved with you, you can become saviors on Mount Zion to many. You are the ones, along with the other leaders in the wards and branches, who make the difference.
 
 We want you to know of our love and support for you. We are grateful to the Lord for each of you and pray our Heavenly Father’s blessings upon us all that, through our united and devoted leadership, we may help every young man in this church honor his priesthood so that not one of these precious children of God will be lost. I pray this humbly in the name of Jesus Christ. Amen.
+
+
+
 

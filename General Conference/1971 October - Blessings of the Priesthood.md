@@ -1,5 +1,6 @@
 # Blessings of the Priesthood
-*By Joseph Fielding Smith - President of the Church*
+
+By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -9,7 +10,7 @@ My dear brethren of the priesthood: I am grateful to be with you in this priesth
 
 This priesthood administers the gospel. It is a delegation of authority from the Lord himself and has been given to us so we can do whatsoever is necessary to save and exalt ourselves and our fellowmen in the celestial kingdom of heaven.
 
-In one of the early revelations to the Prophet Joseph Smith the Lord said: “If thou wilt do good, yea, and hold out faithful to the end, thou shalt be saved in the kingdom of God, which is the greatest of all the gifts of God; for there is no gift greater than the gift of salvation.” (D&C 6:13.)
+In one of the early revelations to the Prophet Joseph Smith the Lord said: “If thou wilt do good, yea, and hold out faithful to the end, thou shalt be saved in the kingdom of God, which is the greatest of all the gifts of God; for there is no gift greater than the gift of salvation.” ([[D&C 6.13|D&C 6:13]].)
 
 Now salvation, which is the greatest blessing any man can receive, comes by obedience to the laws of the gospel; and the gospel is administered by the power of the priesthood; and so the priesthood is given to us to bless ourselves and our Father’s other children.
 
@@ -17,7 +18,7 @@ It is by the power and authority of the priesthood that the gospel is preached, 
 
 It is by the power of the priesthood that men are baptized for the remission of sins, and that they receive the sanctifying power of the Holy Ghost in their lives.
 
-We receive the Melchizedek Priesthood by covenant. We promise to magnify our callings and to live “by every word that proceedeth out of the mouth of God.” (Matt. 4:4.) The Lord promises us that if we will do these things, we shall gain exaltation in the highest heaven of the celestial world.
+We receive the Melchizedek Priesthood by covenant. We promise to magnify our callings and to live “by every word that proceedeth out of the mouth of God.” ([[Matthew 4.4|Matt. 4:4]].) The Lord promises us that if we will do these things, we shall gain exaltation in the highest heaven of the celestial world.
 
 Marriage for time and for all eternity is an “order of the priesthood,” in which the participating parties are promised kingdoms and thrones if they are true and faithful to their obligations.
 
@@ -38,4 +39,7 @@ I wish to give my blessing at this time to all those who have received the pries
 We are under the responsibility not only of receiving this priesthood for our own benefit, but to bless and benefit those who are scattered upon all the face of the earth who are willing to repent and to receive the gospel; and we will take this message of salvation to all parts of the world. That is our responsibility.
 
 I wish to express my appreciation and my willingness to join with you, my good brethren, and do all that is possible to bring salvation to every soul throughout the world who is willing to repent, and I say this in the name of the Lord Jesus Christ. Amen.
+
+
+
 

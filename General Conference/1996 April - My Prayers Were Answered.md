@@ -1,5 +1,6 @@
 # My Prayers Were Answered
-*By By Kirstin Boyer - Springville Seventh Ward, Springville Utah Stake*
+
+By Kirstin Boyer - *Springville Seventh Ward, Springville Utah Stake*
 
 *Given in the April session of the 1996 General Conference*
 
@@ -15,5 +16,8 @@ My testimony was strengthened. I felt worthier—all from reading the scriptures
 
 I want to keep those same feelings for the rest of my life. I want to keep on getting those many blessings. And all these blessings had come to me from listening to President Hinckley. I want to have such a wonderful change come over me and become as close to Jesus and Heavenly Father as I do when I read my scriptures.
 
-Young women all over the world, I challenge each of you to listen to the prophet and find something you can improve on, so you can receive the blessings when you follow his advice. I know it works. It is definitely worth it, because you receive so much more than you give. We will always be in debt to Heavenly Father. I know you will draw closer to our Father in Heaven and his Son, Jesus Christ, as you listen to the words of the prophet. In the name of Jesus Christ, amen.
+Young women all over the world, I *challenge* each of you to listen to the prophet and find something you can improve on, so you can receive the blessings when you follow his advice. I know it works. It is definitely worth it, because you receive so much more than you give. We will always be in debt to Heavenly Father. I know you will draw closer to our Father in Heaven and his Son, Jesus Christ, as you listen to the words of the prophet. In the name of Jesus Christ, amen.
+
+
+
 

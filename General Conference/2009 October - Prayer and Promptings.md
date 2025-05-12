@@ -1,41 +1,44 @@
 # Prayer and Promptings
-*By Boyd K. Packer - President of the Quorum of the Twelve Apostles*
+
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2009 General Conference*
 
+>*Experiences of prompting and prayer are not uncommon in the Church. They are part of the revelation our Heavenly Father has provided for us.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2009/10/prayer-and-promptings?lang=eng)
 
-No Father would send His children off to a distant, dangerous land for a lifetime of testing where Lucifer was known to roam free without first providing them with a personal power of protection. He would also supply them with means to communicate with Him from Father to child and from child to Father. Every child of our Father sent to earth is provided with the Spirit of Christ, or the Light of Christ. We are, none of us, left here alone without hope of guidance and redemption.
+No Father would send His children off to a distant, dangerous land for a lifetime of testing where Lucifer was known to roam free without first providing them with a personal power of protection. He would also supply them with means to communicate with Him from Father to child and from child to Father. Every child of our Father sent to earth is provided with the Spirit of Christ, or the Light of Christ.[^1] We are, none of us, left here alone without hope of guidance and redemption.
 
 The Restoration began with the prayer of a 14-year-old boy and a vision of the Father and the Son. The dispensation of the fulness of times was ushered in.
 
-The Restoration of the gospel brought knowledge of the premortal existence. From the scriptures, we know of the Council in Heaven and the decision to send the sons and daughters of God into mortality to receive a body and to be tested. We are children of God. We have a spirit body housed, for now, in an earthly tabernacle of flesh. The scriptures say, “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?” (1 Corinthians 3:16).
+The Restoration of the gospel brought knowledge of the premortal existence. From the scriptures, we know of the Council in Heaven and the decision to send the sons and daughters of God into mortality to receive a body and to be tested.[^2] We are children of God. We have a spirit body housed, for now, in an earthly tabernacle of flesh. The scriptures say, “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?” ([[1 Corinthians 3.16|1 Corinthians 3:16]]).
 
-As children of God, we learn we are part of His “great plan of happiness” (Alma 42:8).
+As children of God, we learn we are part of His “great plan of happiness” ([[Alma 42.8|Alma 42:8]]).
 
 We know that there was a War in Heaven and Lucifer and those who followed him were cast out without bodies:
 
-“Satan, that old serpent, even the devil, ... rebelled against God, and sought to take the kingdom of our God and his Christ—
+“Satan, that old serpent, even the devil, … rebelled against God, and sought to take the kingdom of our God and his Christ—
 
-“Wherefore, he maketh war with the saints of God, and encompasseth them round about” (D&C 76:28–29).
+“Wherefore, he maketh war with the saints of God, and encompasseth them round about” ([[D&C 76.28|D&C 76:28–29]][[D&C 76.29|]]).
 
-We were given our agency. We must use it wisely and remain close to the Spirit; otherwise, we foolishly find ourselves yielding to the enticements of the adversary. We know that through the Atonement of Jesus Christ our mistakes can be washed clean, and our mortal body will be restored to its perfect frame.
+We were given our agency.[^3] We must use it wisely and remain close to the Spirit; otherwise, we foolishly find ourselves yielding to the enticements of the adversary. We know that through the Atonement of Jesus Christ our mistakes can be washed clean, and our mortal body will be restored to its perfect frame.
 
-“For behold, the Spirit of Christ is given to every man, that he may know good from evil; wherefore, I show unto you the way to judge; for every thing which inviteth to do good, and to persuade to believe in Christ, is sent forth by the power and gift of Christ; wherefore ye may know with a perfect knowledge it is of God” (Moroni 7:16).
+“For behold, the Spirit of Christ is given to every man, that he may know good from evil; wherefore, I show unto you the way to judge; for every thing which inviteth to do good, and to persuade to believe in Christ, is sent forth by the power and gift of Christ; wherefore ye may know with a perfect knowledge it is of God” ([[Moroni 7.16|Moroni 7:16]]).
 
-There is a perfect manner of communication through the Spirit, “for the Spirit searcheth all things, yea, the deep things of God” (1 Corinthians 2:10).
+There is a perfect manner of communication through the Spirit, “for the Spirit searcheth all things, yea, the deep things of God” ([[1 Corinthians 2.10|1 Corinthians 2:10]]).
 
-Following baptism into The Church of Jesus Christ of Latter-day Saints, there comes a second ordinance: “Laying on of hands for the gift of the Holy Ghost” (Articles of Faith 1:4).
+Following baptism into The Church of Jesus Christ of Latter-day Saints, there comes a second ordinance: “Laying on of hands for the gift of the Holy Ghost” ([[Articles of Faith 1.4|Articles of Faith 1:4]]).
 
-That sweet, quiet voice of inspiration comes more as a feeling than it does as a sound. Pure intelligence can be spoken into the mind. The Holy Ghost communicates with our spirits through the mind more than through the physical senses. This guidance comes as thoughts, as feelings through promptings and impressions. We may feel the words of spiritual communication more than hear them and see with spiritual rather than with mortal eyes.
+That sweet, quiet voice of inspiration comes more as a feeling than it does as a sound. Pure intelligence can be spoken into the mind. The Holy Ghost communicates with our spirits through the mind more than through the physical senses.[^4] This guidance comes as thoughts, as feelings through promptings and impressions.[^5] We may *feel* the words of spiritual communication more than *hear* them and *see* with spiritual rather than with mortal eyes.[^6]
 
 I served for many years in the Quorum of the Twelve Apostles with Elder LeGrand Richards. He died at the age of 96. He told us that as a boy of 12 he attended a great general conference in the Tabernacle. There he heard President Wilford Woodruff.
 
-President Woodruff told of an experience of being prompted by the Spirit. He was sent by the First Presidency to “gather all the Saints of God in New England and Canada and bring them to Zion.”
+President Woodruff told of an experience of being prompted by the Spirit. He was sent by the First Presidency to “gather all the Saints of God in New England and Canada and bring them to Zion.”[^7]
 
 He stopped at the home of one of the brethren in Indiana and put his carriage in the yard, where he and his wife and one child went to bed while the rest of the family slept in the house. Shortly after he had retired for the night, the Spirit whispered, warning him, “Get up, and move your carriage.” He got up and moved the carriage a distance from where it had stood. As he was returning to bed, the Spirit spoke to him again: “Go and move your mules away from that oak tree.” He did this and then retired once again to bed.
 
-Not more than 30 minutes later, a whirlwind caught the tree to which his mules had been tied and broke it off at the ground. It was carried 100 yards (90 m) through two fences. The enormous tree, which had a trunk five feet (1.5 m) in circumference, fell exactly upon the spot where his carriage had been parked. By listening to the promptings of the Spirit, Elder Woodruff had saved his life and the lives of his wife and child.
+Not more than 30 minutes later, a whirlwind caught the tree to which his mules had been tied and broke it off at the ground. It was carried 100 yards (90 m) through two fences. The enormous tree, which had a trunk five feet (1.5 m) in circumference, fell exactly upon the spot where his carriage had been parked. By listening to the promptings of the Spirit, Elder Woodruff had saved his life and the lives of his wife and child.[^8]
 
 That same Spirit can prompt you and protect you.
 
@@ -53,15 +56,15 @@ There was a lesson to be learned, but it was I who learned it, not my son. When 
 
 This process is not reserved for the prophets alone. The gift of the Holy Ghost operates equally with men, women, and even little children. It is within this wondrous gift and power that the spiritual remedy to any problem can be found.
 
-“And now, he imparteth his word by angels unto men, yea, not only men but women also. Now this is not all; little children do have words given unto them many times, which confound the wise and the learned” (Alma 32:23).
+“And now, he imparteth his word by angels unto men, yea, not only men but women also. Now this is not all; little children do have words given unto them many times, which confound the wise and the learned” ([[Alma 32.23|Alma 32:23]]).
 
-The Lord has many ways of pouring knowledge into our minds to prompt us, to guide us, to teach us, to correct us, to warn us. The Lord said, “I will tell you in your mind and in your heart, by the Holy Ghost, which shall come upon you and which shall dwell in your heart” (D&C 8:2).
+The Lord has many ways of pouring knowledge into our minds to prompt us, to guide us, to teach us, to correct us, to warn us. The Lord said, “I will tell you in your mind and in your heart, by the Holy Ghost, which shall come upon you and which shall dwell in your heart” ([[D&C 8.2|D&C 8:2]]).
 
-And Enos recorded, “While I was thus struggling in the spirit, behold, the voice of the Lord came into my mind again” (Enos 1:10).
+And Enos recorded, “While I was thus struggling in the spirit, behold, the voice of the Lord came into my mind again” ([[Enos 1.10|Enos 1:10]]).
 
 You can know the things you need to know. Pray that you will learn to receive that inspiration and remain worthy to receive it. Keep that channel—your mind—clean and free from the clutter of the world.
 
-Elder Graham W. Doxey, who once served in the Second Quorum of the Seventy, told me of an experience. His mother, who was later a counselor in the Primary general presidency, also told me of this experience.
+Elder Graham W. Doxey, who once served in the Second Quorum of the Seventy, told me of an experience. His mother, who was later a counselor in the Primary general presidency, also told me of this experience.
 
 During World War II, he was in the navy posted to China. He and several others went by train to the city of Tientsin to look around.
 
@@ -83,9 +86,9 @@ These experiences of prompting and prayer are not uncommon in the Church. They a
 
 One of the adversary’s sharpest tools is to convince us that we are no longer worthy to pray. No matter who you are or what you may have done, you can always pray.
 
-The Prophet Joseph Smith promised that “all beings who have bodies have power over those who have not.”
+The Prophet Joseph Smith promised that “all beings who have bodies have power over those who have not.”[^9]
 
-When temptation comes, you can invent a delete key in your mind—perhaps the words from a favorite hymn. Your mind is in charge; your body is the instrument of your mind. When some unworthy thought pushes into your mind, replace it with your delete key. Worthy music is powerful and can help you control your thoughts.
+When temptation comes, you can invent a delete key in your mind—perhaps the words from a favorite hymn. Your mind is in charge; your body is the instrument of your mind. When some unworthy thought pushes into your mind, replace it with your delete key. Worthy music is powerful and can help you control your thoughts.[^10]
 
 When Oliver Cowdery failed in an attempt to translate, the Lord told him:
 
@@ -93,43 +96,65 @@ When Oliver Cowdery failed in an attempt to translate, the Lord told him:
 
 “But, behold, I say unto you, that you must study it out in your mind; then you must ask me if it be right, and if it is right I will cause that your bosom shall burn within you; therefore, you shall feel that it is right.
 
-“But if it be not right you shall have no such feelings” (D&C 9:7–9).
+“But if it be not right you shall have no such feelings” ([[D&C 9.7|D&C 9:7–9]][[D&C 9.8|]][[D&C 9.9|]]).
 
 That principle is illustrated by the story of a little girl. She was upset with her brother, who built a trap to catch sparrows.
 
 Unable to get help, she said to herself, “Well, I’ll pray about it.”
 
-After her prayer, the little girl told her mother, “I know he is not going to catch any sparrows in his trap because I prayed about it. I’m positive he won’t catch any sparrows!”
+After her prayer, the little girl told her mother, “I know he is not going to catch any sparrows in his trap because I prayed about it. I’m *positive* he won’t catch any sparrows!”
 
 Her mother said, “How can you be so sure?”
 
 She said, “After I prayed about it, I went out and kicked that old trap all to pieces!”
 
-Pray even if you are young and wayward like the prophet Alma or have a closed mind like Amulek, who “knew concerning these things, yet ... would not know” (Alma 10:6).
+Pray even if you are young and wayward like the prophet Alma or have a closed mind like Amulek, who “knew concerning these things, yet … would not know” ([[Alma 10.6|Alma 10:6]]).
 
-Learn to pray. Pray often. Pray in your mind, in your heart. Pray on your knees. Prayer is your personal key to heaven. The lock is on your side of the veil. And I have learned to conclude all my prayers with “Thy will be done” (Matthew 6:10; see also Luke 11:2; 3 Nephi 13:10).
+Learn to pray. Pray often. Pray in your mind, in your heart. Pray on your knees. Prayer is your personal key to heaven. The lock is on your side of the veil. And I have learned to conclude all my prayers with “Thy will be done” ([[Matthew 6.10|Matthew 6:10]]; see also [[Luke 11.2|Luke 11:2]]; [[3 Nephi 13.10|3 Nephi 13:10]]).
 
 Do not expect to be free entirely from trouble and disappointment and pain and discouragement, for these are the things that we were sent to earth to endure.
 
 Someone wrote:
 
-With thoughtless and impatient hands
+>With thoughtless and impatient hands
+>We tangle up the plans
+>The Lord hath wrought.
+>And when we cry in pain He saith,
+>“Be quiet, man, while I untie the knot.”[^11]
+>
 
-We tangle up the plans
+The scriptures promise, “There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it” ([[1 Corinthians 10.13|1 Corinthians 10:13]]).
 
-The Lord hath wrought.
+The Savior said, “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you” ([[D&C 88.63|D&C 88:63]]).
 
-And when we cry in pain He saith,
+We began this session of conference with the sustaining of the authorities. The first one sustained was Thomas S. Monson as President of The Church of Jesus Christ of Latter-day Saints. I know President Monson, I think, as well as any man on earth knows him, and I want to bear a special witness that he was “called of God, by prophecy” ([[Articles of Faith 1.5|Articles of Faith 1:5]]). He needs our prayers—and his wife, Frances, and their family—in the tremendous load that is upon him.
 
-“Be quiet, man, while I untie the knot.”
-
-The scriptures promise, “There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it” (1 Corinthians 10:13).
-
-The Savior said, “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you” (D&C 88:63).
-
-We began this session of conference with the sustaining of the authorities. The first one sustained was Thomas S. Monson as President of The Church of Jesus Christ of Latter-day Saints. I know President Monson, I think, as well as any man on earth knows him, and I want to bear a special witness that he was “called of God, by prophecy” (Articles of Faith 1:5). He needs our prayers—and his wife, Frances, and their family—in the tremendous load that is upon him.
-
-I pray that he will be sustained in body and in mind and in spirit and that it will be obvious to the Church, as it is obvious to those who are very close to him, that he was “called of God, by prophecy.” Then, “by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof” (Articles of Faith 1:5), he was installed in his office.
+I pray that he will be sustained in body and in mind and in spirit and that it will be obvious to the Church, as it is obvious to those who are very close to him, that he was “called of God, by prophecy.” Then, “by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof” ([[Articles of Faith 1.5|Articles of Faith 1:5]]), he was installed in his office.
 
 May the Lord bless us and sustain President Monson and his family in every way that will be needful to carry on the great work that is upon his shoulders. I bear that witness and invoke that blessing as a servant of the Lord and in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See [[D&C 84.46|D&C 84:46]].
+
+[^2]: See [[D&C 138.56|D&C 138:56]]; see also [[Romans 8.16|Romans 8:16]].
+
+[^3]: See [[D&C 101.78|D&C 101:78]].
+
+[^4]: See [[1 Corinthians 2.14|1 Corinthians 2:14]]; [[D&C 8.2|D&C 8:2]]; [[D&C 9.8|9:8–9]][[D&C 9.9|]].
+
+[^5]: See [[D&C 11.13|D&C 11:13]]; [[D&C 100.5|100:5]].
+
+[^6]: See [[1 Nephi 17.45|1 Nephi 17:45]].
+
+[^7]: See Wilford Woodruff, in Conference Report, Apr. 1898, 30; see also *Deseret Weekly,* Sept. 5, 1891, 323.
+
+[^8]: See Wilford Woodruff, *Leaves from My Journal* (1881), 88.
+
+[^9]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 211.
+
+[^10]: See [[D&C 25.12|D&C 25:12]].
+
+[^11]: Author unknown, in Jack M. Lyon and others, eds., *Best-Loved Poems of the LDS People* (1996), 304.
 

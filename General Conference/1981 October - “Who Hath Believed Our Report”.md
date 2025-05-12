@@ -1,5 +1,6 @@
 # “Who Hath Believed Our Report?”
-*By Bruce R. McConkie - Of the Quorum of the Twelve Apostles*
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -25,7 +26,7 @@ We are weak and simple and unlearned. Of ourselves we can do nothing, but in the
 
 We know what the future holds and of the wars and plagues and desolations that will soon sweep the earth as a devouring fire.
 
-This is a gloomy day of sorrow and sadness. The heavens gather blackness; men’s hearts are failing them for fear (see Luke 21:26); nations are perplexed and know not where to turn to find peace and security.
+This is a gloomy day of sorrow and sadness. The heavens gather blackness; men’s hearts are failing them for fear (see [[Luke 21.26|Luke 21:26]]); nations are perplexed and know not where to turn to find peace and security.
 
 This is a day in which mad men in high places can, in an instant, suddenly, unleash such fearful weapons that millions can be slain between the rising and the setting of the sun.
 
@@ -33,7 +34,7 @@ There has never been such a dire day as this. Iniquity abounds; all the perversi
 
 It is because of the evils and ills which cover the earth, because men have strayed from the Lord’s ordinances and broken his everlasting covenant, because many walk in the ways of the world and are carnal, sensual, and devilish that the Lord has given us a message to deliver to our fellowmen.
 
-“Wherefore, I the Lord, knowing the calamity which should come upon the inhabitants of the earth,” he said, “called upon my servant Joseph Smith, Jun., and spake unto him from heaven, and gave him commandments.” (D&C 1:17.)
+“Wherefore, I the Lord, knowing the calamity which should come upon the inhabitants of the earth,” he said, “called upon my servant Joseph Smith, Jun., and spake unto him from heaven, and gave him commandments.” ([[D&C 1.17|D&C 1:17]].)
 
 What then is our message for all men? It is the message of the Restoration. It is the glad tidings that a gracious God had restored the fulness of his everlasting gospel. It is the hallowed word that all men may be saved by obedience to the laws and ordinances of the gospel.
 
@@ -45,11 +46,11 @@ Our position and status and divine commission is no different than that of the p
 
 It is fashionable in some quarters to assert that Mormons are not Christians and to question our belief in and our allegiance to the Lord Jesus Christ.
 
-If being a Christian means believing in Christ and accepting him as the Son of God in the full and complete sense; if it means having the true gospel in its everlasting fulness; if it means believing what Peter and Paul believed and finding fellowship in the same Church to which they belonged; if it means feeding the hungry, and clothing the naked, and loving our fellowmen, and keeping ourselves unspotted from the world (see D&C 59:9)—where else shall we find true Christians except among the Latter-day Saints?
+If being a Christian means believing in Christ and accepting him as the Son of God in the full and complete sense; if it means having the true gospel in its everlasting fulness; if it means believing what Peter and Paul believed and finding fellowship in the same Church to which they belonged; if it means feeding the hungry, and clothing the naked, and loving our fellowmen, and keeping ourselves unspotted from the world (see [[D&C 59.9|D&C 59:9]])—where else shall we find true Christians except among the Latter-day Saints?
 
 Let me say as soberly, as plainly, and as clearly as the English tongue permits that we believe in Christ and strive with all our power to keep his commandments. He is our Lord, our God, and our King. It is his gospel we have received.
 
-We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy in his name, and we know that his is the only name given under heaven whereby man can be saved. (See Acts 4:12.)
+We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy in his name, and we know that his is the only name given under heaven whereby man can be saved. (See [[Acts 4.12|Acts 4:12]].)
 
 We teach and testify that he is the Firstborn of the Father, that he is the one like unto God, that he himself is the Lord Omnipotent, the great Jehovah, the Creator of this earth and of all forms of life.
 
@@ -67,13 +68,13 @@ All of the prophets are servants of the Lord. Their ministry is to teach his wor
 
 And so it is with Joseph Smith. He saw God; angels ministered unto him; the visions of eternity were open to his view. He is the one through whom the gospel was restored, and to him the Lord gave the keys of the kingdom.
 
-For this day, this age, this dispensation, Joseph Smith is the revealer of Christ and the knowledge of salvation. At the direction of the Lord, he organized the only true and living church on earth. (See D&C 1:30.)
+For this day, this age, this dispensation, Joseph Smith is the revealer of Christ and the knowledge of salvation. At the direction of the Lord, he organized the only true and living church on earth. (See [[D&C 1.30|D&C 1:30]].)
 
 The Church is an organized body of true believers; it is the congregation of those who have accepted the holy gospel; and the gospel is the plan of salvation. The higher priesthood administers the gospel; the Church is the vehicle through which the Lord’s affairs on earth are regulated and through which salvation is made available to all who believe and obey.
 
 And so it is that we, as the servants of the Lord, obedient to his command, carry his message to the world. We bear witness of Christ as he has been revealed anew by Joseph Smith, and we invite all men everywhere to believe his gospel and join his Church and become heirs of that kingdom where he and his Father dwell.
 
-As it was with the prophets of old in their ministries, so it is with us in ours. We say as they did: Repent and believe the gospel, for the kingdom of heaven is at hand. (See Matt. 3:2.) Forsake Babylon; flee to Zion; find refuge in one of her stakes. Stand in holy places, and prepare for the Second Coming of the Son of Man. (See D&C 45:32.)
+As it was with the prophets of old in their ministries, so it is with us in ours. We say as they did: Repent and believe the gospel, for the kingdom of heaven is at hand. (See [[Matthew 3.2|Matt. 3:2]].) Forsake Babylon; flee to Zion; find refuge in one of her stakes. Stand in holy places, and prepare for the Second Coming of the Son of Man. (See [[D&C 45.32|D&C 45:32]].)
 
 Salvation comes to those who accept the true gospel and live its laws. It is for those who call upon the Lord in mighty prayer until he pours out his Spirit upon them.
 
@@ -81,9 +82,9 @@ It was Paul who said:
 
 “How then shall they call on him in whom they have not believed? and how shall they believe in him of whom they have not heard? and how shall they hear without a preacher?
 
-“And how shall they preach, except they be sent?” (Rom. 10:13–14.)
+“And how shall they preach, except they be sent?” ([[Romans 10.13|Rom. 10:13–14]][[Romans 10.14|]].)
 
-Truly “faith cometh by hearing” the word of God taught by a legal administrator who has been called of God. (Rom. 10:17.) And as it was anciently, so it is today—it pleases “God by the foolishness of preaching to save them that believe.” (1 Cor. 1:21.)
+Truly “faith cometh by hearing” the word of God taught by a legal administrator who has been called of God. ([[Romans 10.17|Rom. 10:17]].) And as it was anciently, so it is today—it pleases “God by the foolishness of preaching to save them that believe.” ([[1 Corinthians 1.21|1 Cor. 1:21]].)
 
 Our message is one of joy and rejoicing and glory and honor and triumph. True believers always rejoice in Christ and in his gospel.
 
@@ -97,7 +98,7 @@ We are not hanging on to life with greedy hands, fearful of the future. Once we 
 
 Having a hope in Christ, we know we shall rise in glorious immortality and find place with Abraham, Isaac, and Jacob in the kingdom of God, to go no more out.
 
-Now, as Isaiah expressed it, “Who hath believed our report? and to whom is the arm of the Lord revealed?” (Isa. 53:1.)
+Now, as Isaiah expressed it, “Who hath believed our report? and to whom is the arm of the Lord revealed?” ([[Isaiah 53.1|Isa. 53:1]].)
 
 Who will believe our words, and who will hear our message? Who will honor the name of Joseph Smith and accept the gospel restored through his instrumentality?
 
@@ -117,9 +118,9 @@ But what of those to whom the message is sent? What of our Father’s other chil
 
 We invite all men of all sects, parties, and denominations to ponder such questions as these:
 
-Do I hunger and thirst after righteousness as did the Saints of old? (See Matt. 5:6.)
+Do I hunger and thirst after righteousness as did the Saints of old? (See [[Matthew 5.6|Matt. 5:6]].)
 
-Do I have an open mind and a willingness to prove all things and hold fast to that which is good? (See 1 Thes. 5:21.)
+Do I have an open mind and a willingness to prove all things and hold fast to that which is good? (See [[1 Thessalonians 5.21|1 Thes. 5:21]].)
 
 Am I willing to receive new light and truth from heaven, light and truth that comes from a gracious God in whose sight a soul is just as precious now as it ever was?
 
@@ -130,4 +131,7 @@ Am I willing to pay the price of investigation and gain a personal revelation th
 We testify that God has given to us his everlasting gospel, and we invite all men to come and partake of its blessings with us.
 
 In the name of the Lord Jesus Christ, amen.
+
+
+
 

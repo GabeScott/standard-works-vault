@@ -1,11 +1,14 @@
 # Lay Up in Store
-*By By Bishop Keith B. McMullin - Second Counselor in the Presiding Bishopric*
+
+By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2007 General Conference*
 
+>*We call upon priesthood bearers to store sufficient so that you and your family can weather the vicissitudes of life.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2007/04/lay-up-in-store?lang=eng)
 
-My dear brethren, how blessed we are to be assembled together with the First Presidency and the Twelve Apostles. Each priesthood bearer present, be he 12 or 112, can, because of our Savior Jesus Christ, inherit the celestial order of life “by obedience to the laws and ordinances of the Gospel.” This is wonderful to contemplate, and I know it is true. You are in charge of your world!
+My dear brethren, how blessed we are to be assembled together with the First Presidency and the Twelve Apostles. Each priesthood bearer present, be he 12 or 112, can, because of our Savior Jesus Christ, inherit the celestial order of life “by obedience to the laws and ordinances of the Gospel.”[^1] This is wonderful to contemplate, and I know it is true. You are in charge of your world!
 
 With this prospect before us, consider the following story. A young man, full of ambition and energy, enrolled in a fine university. At the time, he was a priest in the Aaronic Priesthood. His goal was lofty—he wanted to become a doctor. His aim was ambitious—he wanted to be rich. He wanted to play football, so he sought out the coaches and eventually made the team. Now he could have the recognition and bragging rights unique in the world of university sports. Such were the notions in his head.
 
@@ -21,63 +24,108 @@ Hard work, a mission that awakened in him a correct vision of life’s purposes,
 
 Fortunately, the Lord has shown us how to avoid similar foolishness. He said:
 
-“Hearken, O ye people of my church. ... Hearken ye people from afar; and ye that are upon the islands of the sea, listen together. ...
+“Hearken, O ye people of my church. … Hearken ye people from afar; and ye that are upon the islands of the sea, listen together. …
 
-“Prepare ye, prepare ye for that which is to come, for the Lord is nigh.”
+“Prepare ye, prepare ye for that which is to come, for the Lord is nigh.”[^2]
 
-The doctrine of the Second Coming of the Messiah provides one of the great incentives to prepare and live right. Heavenly Father knows that promised rewards encourage His children to do works of righteousness and promised penalties create a dread of doing evil. Such are the revelations pertaining to the Second Coming of our Lord.
+The doctrine of the Second Coming of the Messiah provides one of the great incentives to prepare and live right. Heavenly Father knows that promised rewards encourage His children to do works of righteousness and promised penalties create a dread of doing evil. Such are the revelations pertaining to the Second Coming of our Lord.[^3]
 
 These revelations speak of signs and wonders on earth and in the heavens. They point to troublesome times and pending events vast in scope and duration. And most important, we receive these supernal promises:
 
-“The Lord shall have power over his saints, and shall reign in their midst.”
+“The Lord shall have power over his saints, and shall reign in their midst.”[^4]
 
-“Through my providence, notwithstanding the tribulation which shall descend upon you, ... the church may stand independent above all other creatures beneath the celestial world.”
+“Through my providence, notwithstanding the tribulation which shall descend upon you, … the church may stand independent above all other creatures beneath the celestial world.”[^5]
 
-And “if ye are prepared ye shall not fear.”
+And “if ye are prepared ye shall not fear.”[^6]
 
-Priesthood bearers are led by these promises to prepare themselves and their families for the Lord’s appearing. There is no need to be anxious about events leading up to the Second Coming. Let us instead be filled with gratitude for our understanding of what lies ahead. Let us appreciate that we are in charge of our own world, being the Lord’s agents over that which He has entrusted to us. The formula is simple: Be faithful. Unencumber your life. Lay up in store.
+Priesthood bearers are led by these promises to prepare themselves and their families for the Lord’s appearing.[^7] There is no need to be anxious about events leading up to the Second Coming. Let us instead be filled with gratitude for our understanding of what lies ahead. Let us appreciate that we are in charge of our own world, being the Lord’s agents over that which He has entrusted to us.[^8] The formula is simple: Be faithful. Unencumber your life. Lay up in store.
 
-Be faithful. As priesthood bearers, we cultivate a gentle touch and kindly word. We are men who pray, who keep the Sabbath day holy, and who know the word of God. We tithe, fast, and give a generous fast offering. We keep our covenants and consecrate our lives to the building up of God’s kingdom.
+**Be faithful.** As priesthood bearers, we cultivate a gentle touch and kindly word. We are men who pray, who keep the Sabbath day holy, and who know the word of God. We tithe, fast, and give a generous fast offering. We keep our covenants and consecrate our lives to the building up of God’s kingdom.
 
-And, brethren, we lay up in store! By doing these things, “the Lord shall have power over his saints, and shall reign in [our] midst.”
+And, brethren, we *lay up in store!* As we do these things, “the Lord shall have power over his saints, and shall reign in \[our\] midst.”[^9]
 
-Unencumber your life. As men of God, we turn from excess to that which edifies, for “that which doth not edify is not of God.” If dealings or involvements or pursuits or schedules detract from putting God first, we must pare back and unencumber our lives. If we have debts, we pay them and live debt free to the extent possible.
+**Unencumber your life.** As men of God, we turn from excess to that which edifies, for “that which doth not edify is not of God.”[^10] If dealings or involvements or pursuits or schedules detract from putting God first, we must pare back and unencumber our lives.[^11] If we have debts, we pay them and live debt free to the extent possible.
 
-And, brethren, we lay up in store! Then, “through [the Lord’s] providence, notwithstanding the tribulation ... the church [and its people will] stand independent.”
+And, brethren, we *lay up in store!* Then, “through \[the Lord’s\] providence, notwithstanding the tribulation … the church \[and its people will\] stand independent.”[^12]
 
-Lay up in store. Wives are instrumental in this work, but they need husbands who lead out in family preparedness. Children need parents who instill in them this righteous tradition. They will then do likewise with their children, and their stores will not fail.
+**Lay up in store.** Wives are instrumental in this work, but they need husbands who lead out in family preparedness. Children need parents who instill in them this righteous tradition. They will then do likewise with their children, and their stores will not fail.
 
-A cardinal principle of the gospel is to prepare for the day of scarcity. Work, industry, frugality are part of the royal order of life. Remember these words from Paul: “If any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.”
+A cardinal principle of the gospel is to prepare for the day of scarcity. Work, industry, frugality are part of the royal order of life. Remember these words from Paul: “If any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.”[^13]
 
 Seated before us are the three presiding high priests who constitute the First Presidency of the Church.
 
-From President James E. Faust, Second Counselor, we hear: “Every father and mother are the family’s storekeepers. They should store whatever their own family would like to have in the case of an emergency ... [and] God will sustain us through our trials.”
+From President James E. Faust, Second Counselor, we hear: “Every father and mother are the family’s storekeepers. They should store whatever their own family would like to have in the case of an emergency … \[and\] God will sustain us through our trials.”[^14]
 
-From President Thomas S. Monson, First Counselor, we hear: “Many more people could ride out the storm-tossed waves in their economic lives if they had their year’s supply of food ... and were debt-free. Today we find that many have followed this counsel in reverse: they have at least a year’s supply of debt and are food-free.”
+From President Thomas S. Monson, First Counselor, we hear: “Many more people could ride out the storm-tossed waves in their economic lives if they had their year’s supply of food … and were debt-free. Today we find that many have followed this counsel in reverse: they have at least a year’s supply of debt and are food-free.”[^15]
 
 From President Gordon B. Hinckley, the Lord’s prophet, we hear:
 
-“The best place to have some food set aside is within our homes. ...
+“The best place to have some food set aside is within our homes. …
 
-“We can begin ever so modestly. We can begin with a one week’s food supply and gradually build it to a month, and then to three months. ... I fear that so many feel that a long-term food supply is so far beyond their reach that they make no effort at all.
+“We can begin ever so modestly. We can begin with a one week’s food supply and gradually build it to a month and then to three months. … I fear that so many feel that a long-term food supply is so far beyond their reach that they make no effort at all.
 
-“Begin in a small way, ... and gradually build toward a reasonable objective.”
+“Begin in a small way … and gradually build toward a reasonable objective.”[^16]
 
 Inspired preparation rests on the foundation of faith in Jesus Christ, obedience, and a provident lifestyle. Members should not go to extremes, but they should begin.
 
-We call upon priesthood bearers to store sufficient so that you and your family can weather the vicissitudes of life. Please see to it that those entrusted to your watchcare receive these two pamphlets entitled All Is Safely Gathered In. Exhort them to prepare now for rainy days ahead.
+We call upon priesthood bearers to store sufficient so that you and your family can weather the vicissitudes of life. Please see to it that those entrusted to your watchcare receive these two pamphlets entitled *All Is Safely Gathered In.* Exhort them to prepare now for rainy days ahead.
 
 Priesthood leaders, enlist the Relief Society in promoting family preparedness and homemaking. The women of the Church need your backing and will respond to your leadership.
 
-Encourage our members to regularly put into their home storage a few wholesome, basic food items and some water that is safe to drink. They should save some money, if only a few coins each week. This modest approach will soon enable them to have several months’ reserve. Over time they can expand these modest efforts into a longer-term supply by adding such essentials as grains, legumes, and other staples that will keep them alive in case they do not have anything else to eat.
+Encourage our members to regularly put into their home storage a few wholesome, basic food items and some water that is safe to drink. They should save some money, if only a few coins each week. This modest approach will soon enable them to have several months’ reserve. Over time they can expand these modest efforts into a longer-term supply by adding such essentials as grains, legumes, and other staples that will keep them alive in case they do not have anything else to eat.[^17]
 
-As we do our very best, we can be confident that “the barrel of meal shall not waste, neither shall the cruse of oil fail.” We shall enjoy greater wisdom, security, peace of mind, and personal well-being. We shall be prepared, and because we are prepared, we “shall not fear.”
+As we do our very best, we can be confident that “the barrel of meal shall not waste, neither shall the cruse of oil fail.”[^18] We shall enjoy greater wisdom, security, peace of mind, and personal well-being. We shall be prepared, and because we are prepared, we “shall not fear.”[^19]
 
 In closing, I introduce to you the Luca and Patrizia Vaccarono family. They live in a small town near Rome, Italy. In a recent letter, they wrote:
 
-“We decided after some experience that it is important to store the items we use. Sometimes we have to modify our habits in eating certain kinds of foods. ...
+“We decided after some experience that it is important to store the items we use. Sometimes we have to modify our habits in eating certain kinds of foods. …
 
-“The feeling of peace and the desire to be faithful to the commandment given by the Lord through the modern prophet helps us feel the Holy Spirit, ... to not be afraid, and to see that the signs of the time for the Second Coming of the Lord is a blessing and not something to fear. We rejoice in it. ... It gives us the motivation to be faithful and endure to the end and to be saved and obtain eternal life.”
+“The feeling of peace and the desire to be faithful to the commandment given by the Lord through the modern prophet helps us feel the Holy Spirit, … to not be afraid, and to see that the signs of the time for the Second Coming of the Lord is a blessing and not something to fear. We rejoice in it. … It gives us the motivation to be faithful and endure to the end and to be saved and obtain eternal life.”
 
-As a final thought, Brother Vaccarono writes: “I’m sorry for my English. I hope you understand what I tried to explain to you.” Brother and Sister Vaccarono, we understand, for it is written in scripture: “Trust in the Lord with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths.” In the name of Jesus Christ, amen.
+As a final thought, Brother Vaccarono writes: “I’m sorry for my English. I hope you understand what I tried to explain to you.”[^20] Brother and Sister Vaccarono, we understand, for it is written in scripture: “Trust in the Lord with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths.”[^21] In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
+
+[^2]: [[D&C 1.1|D&C 1:1, 12]][[D&C 1.12|]].
+
+[^3]: See Bruce R. McConkie, *Doctrinal New Testament Commentary,* 3 vols. (1966–73), 1:677–78.
+
+[^4]: [[D&C 1.36|D&C 1:36]].
+
+[^5]: [[D&C 78.14|D&C 78:14]].
+
+[^6]: [[D&C 38.30|D&C 38:30]].
+
+[^7]: See [[2 Timothy 4.8|2 Timothy 4:8]]; [[D&C 133.50|D&C 133:50, 52]][[D&C 133.52|]].
+
+[^8]: See [[D&C 104.13|D&C 104:13–17]][[D&C 104.14|]][[D&C 104.15|]][[D&C 104.16|]][[D&C 104.17|]].
+
+[^9]: [[D&C 1.36|D&C 1:36]].
+
+[^10]: [[D&C 50.23|D&C 50:23]].
+
+[^11]: See *Doctrinal New Testament Commentary,* 1:675–76; [[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]].
+
+[^12]: [[D&C 78.14|D&C 78:14]].
+
+[^13]: [[1 Timothy 5.8|1 Timothy 5:8]]; see also [[1 Timothy 6.19|1 Timothy 6:19]]; [[D&C 29.34|D&C 29:34]]; “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102; Joseph F. Smith, in Conference Report, Oct. 1900, 46; Bruce R. McConkie, *The Mortal Messiah,* 4 vols. (1979–81), 2:155.
+
+[^14]: In Conference Report, Apr. 1986, 26; or *Ensign,* May 1986, 22.
+
+[^15]: “That Noble Gift—Love at Home,” *Church News,* May 12, 2001, 7.
+
+[^16]: In Conference Report, Oct. 2002, 65; or *Ensign,* Nov. 2002, 58.
+
+[^17]: See *The Teachings of Harold B. Lee,* ed. Clyde J. Williams (1996), 314.
+
+[^18]: [[1 Kings 17.14|1 Kings 17:14]]; see also [[1 Kings 17.8|vv. 8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
+
+[^19]: [[D&C 38.30|D&C 38:30]].
+
+[^20]: Letter dated Mar. 3, 2007.
+
+[^21]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 

@@ -1,5 +1,6 @@
 # The Gospel Makes People Happy
-*By Teddy E. Brewerton - Of the First Quorum of the Seventy*
+
+By Elder Teddy E. Brewerton - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -16,4 +17,7 @@ I pray for a special blessing to be with each of us, that we may catch the visio
 My wife and I had a very unique experience this last week or two. Something we had planned on doing for nearly twenty years was coming to fruition at the end of this year. We independently looked at each other and said, “I don’t know why, but I don’t think we should do it.” And of course, Thursday we found out why.
 
 I’m grateful for the intervention of the Lord in my life. I pray that I will be worthy of the great many blessings he gives to me, that I might be a great service to the upbuilding of his kingdom, in the name of Jesus Christ. Amen.
+
+
+
 

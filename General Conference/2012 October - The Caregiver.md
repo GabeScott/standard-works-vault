@@ -1,21 +1,24 @@
 # The Caregiver
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2012 General Conference*
 
+>*You will be strengthened and yet inspired to know the limits and extent of your ability to serve.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/10/the-caregiver?lang=eng)
 
-I am grateful to be in your company tonight. The women of the Church of Jesus Christ have been moving toward becoming the society of sisters that the Prophet Joseph Smith’s mother, Lucy Mack Smith, described in these words: “We must cherish one another, watch over one another, comfort one another and gain instruction, that we may all sit down in heaven together.”1
+I am grateful to be in your company tonight. The women of the Church of Jesus Christ have been moving toward becoming the society of sisters that the Prophet Joseph Smith’s mother, Lucy Mack Smith, described in these words: “We must cherish one another, watch over one another, comfort one another and gain instruction, that we may all sit down in heaven together.”[^1]
 
 There are three parts to that remarkable description of the qualifications to associate in a state of happiness with God. One is to care for each other. Another is to teach each other and be taught. And the third is to sit down together with God.
 
 My purpose tonight is to help you feel the commendation and appreciation of God for what you have already done to help each other reach that lofty goal. And, second, it is to describe some of what is yet to come in your unified service.
 
-Like the sisters of an earlier time, you have responded to the Lord’s call to go to the relief of others. In 1856 the prophet Brigham Young asked the Saints to go to the aid of handcart pioneers stranded in the mountain snows. He said in that time of need to the members in general conference: “Your faith, religion, and profession of religion, will never save one soul of you in the celestial kingdom of our God, unless you carry out just such principles as I am now teaching you. Go and bring in those people now on the plains, and attend strictly to those things which we call temporal, ... otherwise your faith will be in vain.”2
+Like the sisters of an earlier time, you have responded to the Lord’s call to go to the relief of others. In 1856 the prophet Brigham Young asked the Saints to go to the aid of handcart pioneers stranded in the mountain snows. He said in that time of need to the members in general conference: “Your faith, religion, and profession of religion, will never save one soul of you in the celestial kingdom of our God, unless you carry out just such principles as I am now teaching you. Go and bring in those people now on the plains, and attend strictly to those things which we call temporal, … otherwise your faith will be in vain.”[^2]
 
-Women in Utah responded by the hundreds. In their poverty they filled wagons with all they could spare and all they could gather from others to comfort those in distress. One of those valiant sisters recorded, “I never took more satisfaction and, I might say, pleasure in any labor I ever performed in my life, such a unanimity of feeling prevailed.”3
+Women in Utah responded by the hundreds. In their poverty they filled wagons with all they could spare and all they could gather from others to comfort those in distress. One of those valiant sisters recorded, “I never took more satisfaction and, I might say, pleasure in any labor I ever performed in my life, such a unanimity of feeling prevailed.”[^3]
 
-When the rescue was complete and the snows melted, that same sister recorded the question of her faithful heart: “What comes next for willing hands to do?”4
+When the rescue was complete and the snows melted, that same sister recorded the question of her faithful heart: “What comes next for willing hands to do?”[^4]
 
 In our time, bands of valiant sisters across the earth have turned their faith into action in hundreds of places. And they ask in their hearts and prayers the same question about the future of their lives of service.
 
@@ -33,13 +36,13 @@ She helped her into the car. They arrived at the hospital minutes before Joshua 
 
 The words of Lucy Mack Smith were in part fulfilled that day. A faithful member of the Relief Society, prompted by the Holy Ghost, watched over, cherished, and comforted her sister in God’s kingdom. She and the tens of thousands of others who have given such inspired service over the generations have not only the thanks of those they helped and their loved ones but also of the Lord.
 
-You remember His words of appreciation to those who receive little recognition for their benevolence: “And the King shall answer and say unto them, Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.”5
+You remember His words of appreciation to those who receive little recognition for their benevolence: “And the King shall answer and say unto them, Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.”[^5]
 
-But the miracle of one Relief Society sister arriving to help just in time is multiplied through the power of a unified society of sisters. Here is just a part of the message Elizabeth’s bishop sent to Elizabeth and to Joshua at the hospital hours after the baby was born: “The Relief Society president has everything under control. We are already building a future plan to assist with your girls at home so Elizabeth can travel back and forth to the hospital while the unnamed cute baby remains there. We’ve done it before, long term, and [our] people jump at the chance.”
+But the miracle of one Relief Society sister arriving to help just in time is multiplied through the power of a unified society of sisters. Here is just a part of the message Elizabeth’s bishop sent to Elizabeth and to Joshua at the hospital hours after the baby was born: “The Relief Society president has everything under control. We are already building a future plan to assist with your girls at home so Elizabeth can travel back and forth to the hospital while the unnamed cute baby remains there. We’ve done it before, long term, and \[our\] people jump at the chance.”
 
 The bishop went on to say, speaking for himself and the ward: “We’ve even come to the hospital and sat with kids in the playroom when moms didn’t want to leave them somewhere else.”
 
-And then: “We won’t execute our plan without coordination and concurrence from you, of course. Just wanted to let you know not to worry about the things we can [and will] do.”
+And then: “We won’t execute our plan without coordination and concurrence from you, of course. Just wanted to let you know not to worry about the things we can \[and will\] do.”
 
 What they did for my daughter made it possible for her to have a precious moment when she held, for the first time, her tiny daughter.
 
@@ -69,15 +72,15 @@ One evidence of His appreciation is that God allows you to feel increasing love 
 
 Even though extended and loving service to people is richly rewarded, you have learned that there are physical, emotional, and financial limits to what is possible. The person giving care long enough can become the one who needs care.
 
-The Lord, who is the Master Nurturer of people in need, gave inspired counsel to weary caregivers in these words delivered by King Benjamin and recorded in the Book of Mormon: “For the sake of retaining a remission of your sins ... I would that ye should impart of your substance to the poor, every man according to that which he hath, such as feeding the hungry, clothing the naked, visiting the sick and administering to their relief, both spiritually and temporally, according to their wants.”6
+The Lord, who is the Master Nurturer of people in need, gave inspired counsel to weary caregivers in these words delivered by King Benjamin and recorded in the Book of Mormon: “For the sake of retaining a remission of your sins … I would that ye should impart of your substance to the poor, every man according to that which he hath, such as feeding the hungry, clothing the naked, visiting the sick and administering to their relief, both spiritually and temporally, according to their wants.”[^6]
 
-But then He goes on to warn those of you who might fail to respond to the evidence that you are pushing on too far and too long in your loving service: “And see that all these things are done in wisdom and order; for it is not requisite that a man [or any caregiver] should run faster than he has strength. And again, it is expedient that he should be diligent, that thereby he might win the prize; therefore, all things must be done in order.”7
+But then He goes on to warn those of you who might fail to respond to the evidence that you are pushing on too far and too long in your loving service: “And see that all these things are done in wisdom and order; for it is not requisite that a man \[or any caregiver\] should run faster than he has strength. And again, it is expedient that he should be diligent, that thereby he might win the prize; therefore, all things must be done in order.”[^7]
 
 That counsel can be hard to apply when the choice seems to be balancing a desire to do all you can to help others with the wisdom to be prudent in meeting your own needs to retain your power to serve. You may have seen others struggle with such hard choices. One example is the choice to care for a person approaching the end of life at home or in a care facility when you may be close to exhaustion.
 
 What you know of the plan of salvation can be your guide in such heartrending choices. That is one of the reasons why Lucy Mack Smith wisely said that the sisters were to “gain instruction.”
 
-It helps to have a sure conviction of the purpose of the Lord for every child of God in the crucible of mortal life. He taught the essence of the plan of salvation to the Prophet Joseph this way as he struggled to understand his seemingly endless trials: “And then, if thou endure it well, God shall exalt thee on high.”8
+It helps to have a sure conviction of the purpose of the Lord for every child of God in the crucible of mortal life. He taught the essence of the plan of salvation to the Prophet Joseph this way as he struggled to understand his seemingly endless trials: “And then, if thou endure it well, God shall exalt thee on high.”[^8]
 
 Our choice to best help someone through hard trials then becomes, “What course should I follow that will best help the person I love to ‘endure well’?” It is for us to make it more likely that he or she can exercise faith in Christ, keep a bright hope of eternal life, and practice charity, the pure love of Christ, to the end of his or her life.
 
@@ -100,4 +103,23 @@ My prayer is that many of us will be together in the glorious future that lies b
 The Holy Ghost is sent to you and to those you care for. You will be strengthened and yet inspired to know the limits and extent of your ability to serve. The Spirit will comfort you when you may wonder, “Did I do enough?”
 
 I testify that the Lord will be with you and that your way will be prepared and marked for you by Him in your service to those He loves in their needs and trials. In the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: Lucy Mack Smith, in *Daughters in My Kingdom: The History and Work of Relief Society* (2011), 25.
+
+[^2]: Brigham Young, in *Daughters in My Kingdom,* 36.
+
+[^3]: Lucy Meserve Smith, in *Daughters in My Kingdom,* 37.
+
+[^4]: Lucy Meserve Smith, in *Daughters in My Kingdom,* 37.
+
+[^5]: [[Matthew 25.40|Matthew 25:40]].
+
+[^6]: [[Mosiah 4.26|Mosiah 4:26]].
+
+[^7]: [[Mosiah 4.27|Mosiah 4:27]].
+
+[^8]: [[D&C 121.8|Doctrine and Covenants 121:8]].
 

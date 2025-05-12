@@ -1,13 +1,16 @@
 # Prayers of Faith
-*By Henry B. Eyring - Second Counselor in the First Presidency*
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2020 General Conference*
 
+>*As we pray in faith, we become a vital part in the Lord’s work as He prepares the world for His Second Coming.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/04/17eyring?lang=eng)
 
-The prayer of Elder Maynes at the beginning of this first session of general conference is being answered. Inspiration has come to us through wonderful messages and beautiful music. The promise of President Russell M. Nelson that this conference will be memorable is already beginning to be fulfilled.
+The prayer of Elder Maynes at the beginning of this first session of general conference is being answered. Inspiration has come to us through wonderful messages and beautiful music. The promise of President Russell M. Nelson that this conference will be memorable is already beginning to be fulfilled.
 
-President Nelson has designated this year as “a bicentennial period commemorating 200 years since God the Father and His Beloved Son, Jesus Christ, appeared to Joseph Smith in a vision.” President Nelson invited us to make a personal plan to prepare ourselves for this historic conference, which commemoration he said would be “a hinge point in the history of the Church, and your part is vital.”
+President Nelson has designated this year as “a bicentennial period commemorating 200 years since God the Father and His Beloved Son, Jesus Christ, appeared to Joseph Smith in a vision.” President Nelson invited us to make a personal plan to prepare ourselves for this historic conference, which commemoration he said would be “a hinge point in the history of the Church, and your part is vital.”[^1]
 
 Like me, perhaps you heard his message and asked yourself, “In what way is my part vital?” Perhaps you read and prayed about the events of the Restoration. Perhaps, more than ever before, you read the accounts of those few times when God the Father introduced His Beloved Son. Perhaps you read of the instances when the Savior spoke to the children of our Heavenly Father. I know I did all of those things and more.
 
@@ -19,11 +22,11 @@ The transcendent events we honor were the beginning of the prophesied last dispe
 
 In September 1840, the Prophet Joseph Smith and his counselors in the First Presidency declared the following: “The work of the Lord in these last days, is one of vast magnitude and almost beyond the comprehension of mortals. Its glories are past description, and its grandeur unsurpassable. It is the theme which has animated the bosom of prophets and righteous men from the creation of the world down through every succeeding generation to the present time; and it is truly the dispensation of the fullness of times, when all things which are in Christ Jesus, whether in heaven or on the earth, shall be gathered together in Him, and when all things shall be restored, as spoken of by all the holy prophets since the world began; for in it will take place the glorious fulfilment of the promises made to the fathers, while the manifestations of the power of the Most High will be great, glorious, and sublime.”
 
-They went on to say: “We feel disposed to go forward and unite our energies for the upbuilding of the Kingdom, and establishing the Priesthood in their fullness and glory. The work which has to be accomplished in the last days is one of vast importance, and will call into action the energy, skill, talent, and ability of the Saints, so that it may roll forth with that glory and majesty described by the prophet [Daniel] [see Daniel 2:34–35, 44–45]; and will consequently require the concentration of the Saints, to accomplish works of such magnitude and grandeur.”
+They went on to say: “We feel disposed to go forward and unite our energies for the upbuilding of the Kingdom, and establishing the Priesthood in their fullness and glory. The work which has to be accomplished in the last days is one of vast importance, and will call into action the energy, skill, talent, and ability of the Saints, so that it may roll forth with that glory and majesty described by the prophet \[Daniel\] \[see [[Daniel 2.34|Daniel 2:34–35, 44–45]][[Daniel 2.35|]][[Daniel 2.44|]][[Daniel 2.45|]]\]; and will consequently require the concentration of the Saints, to accomplish works of such magnitude and grandeur.”[^2]
 
 Many of the specifics of what we will do and when we will do it in the unfolding Restoration are not yet revealed. Yet the First Presidency even in those early days knew some of the breadth and depth of the work the Lord has set before us. Here are a few examples of what we do know will take place:
 
-Through His Saints, the Lord will offer the gift of His gospel “to every nation, kindred, tongue, and people.” Technology and miracles will continue to play a part—as will individual “fishers of men” who minister with power and increasing faith.
+Through His Saints, the Lord will offer the gift of His gospel “to every nation, kindred, tongue, and people.”[^3] Technology and miracles will continue to play a part—as will individual “fishers of men”[^4] who minister with power and increasing faith.
 
 We as a people will become more united amid increasing conflict. We will be gathered in the spiritual strength of groups and families filled with gospel light.
 
@@ -33,9 +36,9 @@ How, then, can each of us participate in this work of such magnitude and grandeu
 
 Joseph Smith is an example of how to grow in such spiritual power. He showed us that the prayer of faith is the key to revelation from God. He prayed in faith, believing that God the Father would answer his prayer. He prayed in faith, believing that only through Jesus Christ could he be freed from the guilt he felt for his sins. And he prayed in faith, believing that he needed to find the true Church of Jesus Christ to gain that forgiveness.
 
-Throughout his prophetic ministry, Joseph Smith used prayers of faith to obtain continuous revelation. As we face today’s challenges and those yet to come, we too will need to practice the same pattern. President Brigham Young said, “I do not know any other way for the Latter-day Saints than for every breath to be virtually a prayer for God to guide and direct his people.”
+Throughout his prophetic ministry, Joseph Smith used prayers of faith to obtain continuous revelation. As we face today’s challenges and those yet to come, we too will need to practice the same pattern. President Brigham Young said, “I do not know any other way for the Latter-day Saints than for every breath to be virtually a prayer for God to guide and direct his people.”[^5]
 
-These words from the sacrament prayer should then describe our daily life: “Always remember him.” “Him” refers to Jesus Christ. The next words, “and keep his commandments,” suggest what it means for us to remember Him. As we remember Jesus Christ always, we might ask in silent prayer, “What would He have me do?”
+These words from the sacrament prayer should then describe our daily life: “Always remember him.” “Him” refers to Jesus Christ. The next words, “and keep his commandments,” suggest what it means for us to remember Him.[^6] As we remember Jesus Christ always, we might ask in silent prayer, “What would He have me do?”
 
 Such prayer, offered in faith in Jesus Christ, ushered in this last dispensation. And it will be at the heart of the part each of us will play in its continuing unfolding. I have found, as you have, wonderful examples of such prayer.
 
@@ -59,7 +62,7 @@ Like Joseph, Enos prayed in faith. He described his experience this way:
 
 “And I said: Lord, how is it done?
 
-“And he said unto me: Because of thy faith in Christ, whom thou hast never before heard nor seen. And many years pass away before he shall manifest himself in the flesh; wherefore, go to, thy faith hath made thee whole.”
+“And he said unto me: Because of thy faith in Christ, whom thou hast never before heard nor seen. And many years pass away before he shall manifest himself in the flesh; wherefore, go to, thy faith hath made thee whole.”[^7]
 
 The lesson that has blessed me is in these words: “Because of thy faith in Christ, whom thou hast never before heard nor seen.”
 
@@ -67,11 +70,28 @@ Joseph had faith in Christ to go into the grove and also to pray for release fro
 
 The experience of Enos has taught me the same precious lesson. When I pray with faith, I have the Savior as my advocate with the Father and I can feel that my prayer reaches heaven. Answers come. Blessings are received. There is peace and joy even in hard times.
 
-I remember when, as the newest member of the Quorum of the Twelve Apostles, I knelt in prayer with Elder David B. Haight. He was about the age I am now, with challenges I now experience myself. I remember his voice as he prayed. I didn’t open my eyes to look, but it sounded to me as if he was smiling. He spoke with Heavenly Father with joy in his voice.
+I remember when, as the newest member of the Quorum of the Twelve Apostles, I knelt in prayer with Elder David B. Haight. He was about the age I am now, with challenges I now experience myself. I remember his voice as he prayed. I didn’t open my eyes to look, but it sounded to me as if he was smiling. He spoke with Heavenly Father with joy in his voice.
 
 I can hear in my mind his happiness when he said, “In the name of Jesus Christ.” It sounded to me as if Elder Haight felt the Savior was affirming at that moment the message he had prayed to the Father. And I was sure it would be received with a smile.
 
 Our ability to make our vital contribution to the wonderful continuing Restoration will increase as we grow in our faith in Jesus Christ as our Savior and our Heavenly Father as our loving Father. As we pray in faith, we become a vital part in the Lord’s work as He prepares the world for His Second Coming. I pray that we all may find joy in doing the work He invites each of us to perform.
 
-I testify that Jesus Christ lives. This is His Church and kingdom on earth. Joseph Smith is the prophet of the Restoration. President Russell M. Nelson is the Lord’s prophet on the earth today. He holds all the keys of the priesthood in The Church of Jesus Christ of Latter-day Saints. In the name of Jesus Christ, amen.
+I testify that Jesus Christ lives. This is His Church and kingdom on earth. Joseph Smith is the prophet of the Restoration. President Russell M. Nelson is the Lord’s prophet on the earth today. He holds all the keys of the priesthood in The Church of Jesus Christ of Latter-day Saints. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Russell M. Nelson, “[My 2020 Invitation to You: Share the Message of the Restoration of the Savior’s Gospel](http://www.ChurchofJesusChrist.org/blog/my-2020-invitation-to-you-share-the-message-of-the-restoration-of-the-saviors-gospel),” Jan. 1, 2020, blog.ChurchofJesusChrist.org.
+
+[^2]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 512–13.
+
+[^3]: [[Mosiah 15.28|Mosiah 15:28]].
+
+[^4]: [[Matthew 4.19|Matthew 4:19]].
+
+[^5]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 43–44.
+
+[^6]: [[D&C 20.77|Doctrine and Covenants 20:77]].
+
+[^7]: [[Enos 1.4|Enos 1:4–8]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]].
 

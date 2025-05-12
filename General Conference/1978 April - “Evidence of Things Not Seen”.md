@@ -1,5 +1,6 @@
 # “Evidence of Things Not Seen”
-*By Mark E. Petersen - Of the Council of the Twelve*
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -19,15 +20,15 @@ There are some who do not realize that there were prophets in the original Chris
 
 But instead of unity among Christians, what do we have? We have division, which is overwhelming evidence of the need for the continued ministry of Christian prophets.
 
-Do you remember how Paul explained this principle to the Ephesians? He said that the very foundation of the Church rested upon the apostles and the prophets, with Jesus Christ as the chief cornerstone. (Eph. 2:20.)
+Do you remember how Paul explained this principle to the Ephesians? He said that the very foundation of the Church rested upon the apostles and the prophets, with Jesus Christ as the chief cornerstone. ([[Ephesians 2.20|Eph. 2:20]].)
 
-Then, describing the organization of the Church, he said that the Savior “gave some apostles and some prophets and some evangelists and some pastors and teachers” as officers in the Church. He declared their purpose to be “for the perfecting of the saints, for the work of the ministry, for the edifying of the body” of the Church. (Eph. 4:12.)
+Then, describing the organization of the Church, he said that the Savior “gave some apostles and some prophets and some evangelists and some pastors and teachers” as officers in the Church. He declared their purpose to be “for the perfecting of the saints, for the work of the ministry, for the edifying of the body” of the Church. ([[Ephesians 4.12|Eph. 4:12]].)
 
 Is there ever a time when the members can stop working toward perfection, when they no longer are benefited by activity in the Church, or when they do not require teaching and edifying?
 
 Paul said that these officers who teach and edify are needed in the Church until we become perfect, until we reach the fulness of the measure of the stature of Christ. Heaven knows that none of us has achieved that distinction.
 
-But what was another reason these officers should remain in the Church? Paul says they were given to us as a protection “that we henceforth be no more [as] children tossed to and fro ... with every wind of doctrine.” (Eph. 4:14.)
+But what was another reason these officers should remain in the Church? Paul says they were given to us as a protection “that we henceforth be no more \[as\] children tossed to and fro … with every wind of doctrine.” ([[Ephesians 4.14|Eph. 4:14]].)
 
 They will protect you from the false teachings of cultists and splinter groups and from the misleading philosophies of men.
 
@@ -35,7 +36,7 @@ The Church of Jesus Christ, then, should always be led by living apostles and pr
 
 But as they so ministered they would be providing also new and additional scripture appropriate to the times in which they lived, according to the Lord’s pattern.
 
-The prophets of the early Christian church ministered in their day just as the Old Testament prophets did during the preceding centuries. And why? Because they followed this same divine pattern, for as Amos explained, the Lord works only through prophets. (Amos 3:7.)
+The prophets of the early Christian church ministered in their day just as the Old Testament prophets did during the preceding centuries. And why? Because they followed this same divine pattern, for as Amos explained, the Lord works only through prophets. ([[Amos 3.7|Amos 3:7]].)
 
 When there are no prophets, there is no divine direction, and without such guidance the people walk in darkness.
 
@@ -61,7 +62,7 @@ The Lord himself predicted that there would be other volumes of scripture in add
 
 “And it shall come to pass that the Jews shall have the words of the Nephites, and the Nephites shall have the words of the Jews; and the Nephites and the Jews shall have the words of the lost tribes of Israel; and the lost tribes of Israel shall have the words of the Nephites and the Jews.
 
-“And it shall come to pass that my people, which are of the house of Israel, shall be gathered home unto the lands of their possessions; and my word also shall be gathered in one.” (2 Ne. 29:3, 7–14.)
+“And it shall come to pass that my people, which are of the house of Israel, shall be gathered home unto the lands of their possessions; and my word also shall be gathered in one.” ([[2 Nephi 29.3|2 Ne. 29:3, 7–14]][[2 Nephi 29.7|]][[2 Nephi 29.8|]][[2 Nephi 29.9|]][[2 Nephi 29.10|]][[2 Nephi 29.11|]][[2 Nephi 29.12|]][[2 Nephi 29.13|]][[2 Nephi 29.14|]].)
 
 So said the Lord.
 
@@ -83,7 +84,7 @@ It was brought by an angel of God who came to earth for the particular purpose o
 
 But does anybody believe in angels in this enlightened age?
 
-If you believe the Bible, you must believe in angels. And further, if you read the Bible you will know that it plainly says that an angel was designated to come to earth in the latter days to give a particular book to a particular man within a particular time frame.
+If you believe the Bible, you *must* believe in angels. And further, if you read the Bible you will know that it plainly says that an angel was designated to come to earth in the latter days to give a particular book to a particular man within a particular time frame.
 
 To identify that man, the scripture refers to him as an unlearned man. Strange, isn’t it, that the prophet Isaiah would do this? But that angel did come within the specified time, and came to Joseph Smith who was the specified unlearned man. The book was then translated by Joseph Smith through the power of God and published to the world as the Book of Mormon.
 
@@ -113,11 +114,11 @@ So the published Book of Mormon is a physical witness to the fact of immortality
 
 In this day of doubt and criticism, should we not be grateful for physical evidence of unseen things? Then shall we not accept the Book of Mormon as such evidence?
 
-The chief reason we have the Book of Mormon is that in the mouth of two or three witnesses shall all things be established. (See 2 Cor. 13:1.) We have the Bible; we also have the Book of Mormon. They constitute two voices—two volumes of scripture—from two widely separated ancient peoples, both bearing testimony to the divinity of the Lord Jesus Christ.
+The chief reason we have the Book of Mormon is that in the mouth of two or three witnesses shall all things be established. (See [[2 Corinthians 13.1|2 Cor. 13:1]].) We have the Bible; we also have the Book of Mormon. They constitute two voices—two volumes of scripture—from two widely separated ancient peoples, both bearing testimony to the divinity of the Lord Jesus Christ.
 
 But we have two other scriptural witnesses also, making four altogether. They are the modern scriptures given as revelations through the Prophet Joseph Smith, and they, too, declare that Jesus is the Christ, the Savior, the Creator, the long-promised Messiah.
 
-The world has been so confused by the conflicting creeds of men that the truth had to be given to mankind once again to disabuse their minds and correct their thinking. There was only one way in which this could be done and that was by new revelation. But to have new revelation requires the presence of a prophet to receive it, for as Amos said, the Lord will not act except through prophets. (See Amos 3:7.)
+The world has been so confused by the conflicting creeds of men that the truth had to be given to mankind once again to disabuse their minds and correct their thinking. There was only one way in which this could be done and that was by new revelation. But to have new revelation requires the presence of a prophet to receive it, for as Amos said, the Lord will not act except through prophets. (See [[Amos 3.7|Amos 3:7]].)
 
 There was no prophet in all Christendom at the time the new revelation was to be given. So God raised up a new prophet to receive that revelation, to publish the Book of Mormon, and to direct the preaching of the true gospel in every nation.
 
@@ -128,4 +129,7 @@ Not only was he a divinely chosen prophet himself, but under his hands other pro
 We are those other prophets! We hold the divine authority of Jesus Christ! We speak in his name and declare his word! And our testimony is true!
 
 This we solemnly affirm with all the power of our being, in the name of Jesus Christ. Amen.
+
+
+
 

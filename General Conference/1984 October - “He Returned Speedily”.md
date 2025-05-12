@@ -1,5 +1,6 @@
 # “He Returned Speedily”
-*By Robert B. Harbertson - Of the First Quorum of the Seventy*
+
+By Elder Robert B. Harbertson - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -7,13 +8,13 @@
 
 Brothers and sisters, I want you to know that I stand before you as a living example of Elder Ashton’s definition of endurance. Waiting to stand before these microphones, I have endured pain, anguish, and all the other characteristics he spoke of.
 
-Obedience to God’s commands and a willingness to serve have always been requisites for a true disciple of the Lord Jesus Christ. Paul teaches us that even the Savior, “though he were a Son, yet learned he obedience by the things which he suffered.” (Heb. 5:8.) Our willingness to humble ourselves and shed the shackles of selfishness seems imperative to our progress and true happiness in this life. Isaiah penned these truths:
+Obedience to God’s commands and a willingness to serve have always been requisites for a true disciple of the Lord Jesus Christ. Paul teaches us that even the Savior, “though he were a Son, yet learned he obedience by the things which he suffered.” ([[Hebrews 5.8|Heb. 5:8]].) Our willingness to humble ourselves and shed the shackles of selfishness seems imperative to our progress and true happiness in this life. Isaiah penned these truths:
 
 “Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.
 
-“If ye be willing and obedient, ye shall eat the good of the land.” (Isa. 1:18–19.)
+“If ye be willing and obedient, ye shall eat the good of the land.” ([[Isaiah 1.18|Isa. 1:18–19]][[Isaiah 1.19|]].)
 
-The great test of time reveals that he who refuses to accept these true principles becomes unhappy and dissatisfied and, as the Prophet Joseph indicated, “is left unto himself, to kick against the pricks, to persecute the saints, and to fight against God.” (D&C 121:38.)
+The great test of time reveals that he who refuses to accept these true principles becomes unhappy and dissatisfied and, as the Prophet Joseph indicated, “is left unto himself, to kick against the pricks, to persecute the saints, and to fight against God.” ([[D&C 121.38|D&C 121:38]].)
 
 In the Book of Mormon a great story and teaching experience unfolds as Alma, the son of Alma, begins his ministry in establishing the Church among his people. From Zarahemla to Gideon the Church was set in order and the gospel of Jesus Christ taught. After a season Alma took his journeys into the land of Melek. There Alma had great success. The people heard and believed the word of God and were baptized throughout all the land.
 
@@ -23,9 +24,9 @@ He decided to take his journey to the city of Aaron, being weighed down heavily 
 
 I wonder what his feelings were at that moment, knowing and feeling so strongly the experience he had just endured with these people. He had been reviled and physically thrown out of the city, and I’m sure his life had been threatened. And now he was being told to return once again to these people.
 
-Alma’s reaction to this command is most interesting. The scriptures say this: “Now it came to pass that after Alma had received his message from the angel of the Lord he returned speedily to the land of Ammonihah.” (Alma 8:18.)
+Alma’s reaction to this command is most interesting. The scriptures say this: “Now it came to pass that after Alma had received his message from the angel of the Lord he returned speedily to the land of Ammonihah.” ([[Alma 8.18|Alma 8:18]].)
 
-Isn’t that interesting, brothers and sisters? It says, “He returned speedily.” Maybe his earlier experience with the angel caused him not to tarry or question, but to react immediately. But I believe he was motivated by love for the Lord and his desire to be obedient. Alma’s reaction and attitude to this request has been of great strength to me as I strive to serve the Lord.
+Isn’t that interesting, brothers and sisters? It says, “He returned *speedily.*” Maybe his earlier experience with the angel caused him not to tarry or question, but to react immediately. But I believe he was motivated by love for the Lord and his desire to be obedient. Alma’s reaction and attitude to this request has been of great strength to me as I strive to serve the Lord.
 
 As Alma returned to the city, he met a man who provided him with food and shelter. This man, whose name was Amulek, had received a vision and recognized Alma as a prophet of God. Alma tarried many days with Amulek before he began to preach to the people. Amulek, though a Nephite, had not been as strong as he might have been in defending the truths of God and had fallen somewhat inactive. He was a man of great reputation and was an industrious man who had acquired many riches.
 
@@ -36,4 +37,7 @@ Here again, brothers and sisters, I am strengthened and guided in how I should l
 I have recently been called to serve. I am deeply humbled by this calling and responsibility. I know not why I was called, but pledge to you, my brothers and sisters, to react “speedily” to whatever I am commissioned to do, and I will do so without hesitation.
 
 I love the Lord Jesus Christ and bear solemn testimony to you that he lives. He is the resurrected Son of God. He is our Savior. This is his only true church, and it is good, of which I bear testimony in the name of Jesus Christ, amen.
+
+
+
 

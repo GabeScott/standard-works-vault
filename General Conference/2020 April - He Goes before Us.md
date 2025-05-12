@@ -1,19 +1,22 @@
 # He Goes before Us
-*By Henry B. Eyring - Second Counselor in the First Presidency*
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2020 General Conference*
 
+>*The Lord is leading the Restoration of His gospel and His Church. He knows the future perfectly. He invites you to the work.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/04/35eyring?lang=eng)
 
-My beloved brothers and sisters, I am grateful to be with you in this general conference of The Church of Jesus Christ of Latter-day Saints. In his invitation to reflect on the way the Lord’s Restoration of His Church in this last dispensation has blessed us and our loved ones, President Russell M. Nelson promised that our experience would be not only memorable but unforgettable.
+My beloved brothers and sisters, I am grateful to be with you in this general conference of The Church of Jesus Christ of Latter-day Saints. In his invitation to reflect on the way the Lord’s Restoration of His Church in this last dispensation has blessed us and our loved ones, President Russell M. Nelson promised that our experience would be not only memorable but unforgettable.
 
 My experience has been memorable, as I am sure yours has been. Whether it will be unforgettable depends on each one of us. That matters to me because the experience of preparing for this conference has changed me in a way that I want to last. Let me explain.
 
 My preparation took me to the record of an event in the Restoration. I had read about that event many times, but it had always been to me a report of an important meeting that involved Joseph Smith, the prophet of the Restoration. But this time I saw in the account how the Lord leads us, His disciples, in His Church. I saw what it means for us mortals to be led by the Savior of the world, the Creator—who knows all things, past, present, and future. He teaches us step by step and guides us, never forcing.
 
-The meeting I’m describing was a pivotal moment in the Restoration. It was a Sabbath-day meeting held on April 3, 1836, in the Kirtland Temple in Ohio, seven days after it was dedicated. Joseph Smith described this great moment in the history of the world in a simple way. Much of his account is recorded in Doctrine and Covenants section 110:
+The meeting I’m describing was a pivotal moment in the Restoration. It was a Sabbath-day meeting held on April 3, 1836, in the Kirtland Temple in Ohio, seven days after it was dedicated. Joseph Smith described this great moment in the history of the world in a simple way. Much of his account is recorded in Doctrine and Covenants section 110:
 
-“In the afternoon, I assisted the other Presidents in distributing the Lord’s Supper to the Church, receiving it from the Twelve, whose privilege it was to officiate at the sacred desk this day. After having performed this service to my brethren, I retired to the pulpit, the veils being dropped, and bowed myself, with Oliver Cowdery, in solemn and silent prayer. After rising from prayer, the following vision was opened to both of us.”
+“In the afternoon, I assisted the other Presidents in distributing the Lord’s Supper to the Church, receiving it from the Twelve, whose privilege it was to officiate at the sacred desk this day. After having performed this service to my brethren, I retired to the pulpit, the veils being dropped, and bowed myself, with Oliver Cowdery, in solemn and silent prayer. After rising from prayer, the following vision was opened to both of us.”[^1]
 
 “The veil was taken from our minds, and the eyes of our understanding were opened.
 
@@ -41,31 +44,27 @@ The meeting I’m describing was a pivotal moment in the Restoration. It was a S
 
 “After this vision had closed, another great and glorious vision burst upon us; for Elijah the prophet, who was taken to heaven without tasting death, stood before us, and said:
 
-“Behold, the time has fully come, which was spoken of by the mouth of Malachi—testifying that he [Elijah] should be sent, before the great and dreadful day of the Lord come—
+“Behold, the time has fully come, which was spoken of by the mouth of Malachi—testifying that he \[Elijah\] should be sent, before the great and dreadful day of the Lord come—
 
 “To turn the hearts of the fathers to the children, and the children to the fathers, lest the whole earth be smitten with a curse—
 
-“Therefore, the keys of this dispensation are committed into your hands; and by this ye may know that the great and dreadful day of the Lord is near, even at the doors.”
+“Therefore, the keys of this dispensation are committed into your hands; and by this ye may know that the great and dreadful day of the Lord is near, even at the doors.”[^2]
 
 Now, I had read that account many times. The Holy Ghost had confirmed to me that the account was true. But as I studied and prepared for this conference, I came to see more clearly the power of the Lord to lead in detail His disciples in His work.
 
-Seven years before Moses committed to Joseph the keys of the gathering of Israel in the Kirtland Temple, “Joseph learned from the title page of the Book of Mormon that its purpose was to ‘show unto the remnant of the house of Israel ... that they may know the covenants of the Lord, that they are not cast off forever.’ In 1831, the Lord told Joseph that the gathering of Israel would commence in Kirtland, ‘And from thence [Kirtland], whosoever I will shall go forth among all nations ... for Israel shall be saved, and I will lead them.’”
+Seven years before Moses committed to Joseph the keys of the gathering of Israel in the Kirtland Temple, “Joseph learned from the [title page of the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng) that its purpose was to ‘show unto the remnant of the house of Israel … that they may know the covenants of the Lord, that they are not cast off forever.’ In 1831, the Lord told Joseph that the gathering of Israel would commence in Kirtland, ‘And from thence \[Kirtland\], whosoever I will shall go forth among all nations … for Israel shall be saved, and I will lead them.’”[^3]
 
-Although missionary work was needed to gather Israel, the Lord inspired His leaders to teach the Twelve, who became some of our early missionaries, “Remember you are not to go to other nations, till you receive your endowment.”
+Although missionary work was needed to gather Israel, the Lord inspired His leaders to teach the Twelve, who became some of our early missionaries, “Remember you are not to go to other nations, till you receive your endowment.”[^4]
 
-It seems that the Kirtland Temple was important to the Lord’s step-by-step plan for at least two reasons: First, Moses waited until the temple was completed to restore the keys of the gathering of Israel. And second, President Joseph Fielding Smith taught that “the Lord commanded the Saints to build a temple [the Kirtland Temple] in which he could reveal the keys of authority and where the apostles could be endowed and prepared to prune his vineyard for the last time.” Although the temple endowment as we know it today wasn’t administered in the Kirtland Temple, in fulfillment of prophecy, preparatory temple ordinances began to be introduced there, along with an outpouring of spiritual manifestations which armed those called on missions with the promised endowment of “power from on high” that led to a great gathering through missionary service.
+It seems that the Kirtland Temple was important to the Lord’s step-by-step plan for at least two reasons: First, Moses waited until the temple was completed to restore the keys of the gathering of Israel. And second, President Joseph Fielding Smith taught that “the Lord commanded the Saints to build a temple \[the Kirtland Temple\] in which he could reveal the keys of authority and where the apostles could be endowed and prepared to prune his vineyard for the last time.”[^5] Although the temple endowment as we know it today wasn’t administered in the Kirtland Temple, in fulfillment of prophecy, preparatory temple ordinances began to be introduced there, along with an outpouring of spiritual manifestations which armed those called on missions with the promised endowment of “power from on high”[^6] that led to a great gathering through missionary service.
 
 After the keys of the gathering of Israel were committed to Joseph, the Lord inspired the Prophet to send out members of the Twelve on missions. As I studied, it became clear to me that the Lord had prepared in detail the way for the Twelve to go on missions abroad where people had been prepared to believe and sustain them. In time, thousands would, through them, be brought into the Lord’s restored Church.
 
-According to our records, it is estimated that between 7,500 and 8,000 were baptized during the two missions of the Twelve to the British Isles. This laid the foundation for missionary work in Europe. By the end of the 19th century, some 90,000 had gathered to America, with the most of these coming from the British Isles and Scandinavia. The Lord had inspired Joseph and those faithful missionaries who went to work to achieve a harvest that must have, at the time, seemed beyond them. But the Lord, with His perfect foresight and preparation, made it possible.
+According to our records, it is estimated that between 7,500 and 8,000 were baptized during the two missions of the Twelve to the British Isles. This laid the foundation for missionary work in Europe. By the end of the 19th century, some 90,000 had gathered to America, with the most of these coming from the British Isles and Scandinavia.[^7] The Lord had inspired Joseph and those faithful missionaries who went to work to achieve a harvest that must have, at the time, seemed beyond them. But the Lord, with His perfect foresight and preparation, made it possible.
 
 You remember the apparently simple and almost poetic language from section 110 of the Doctrine and Covenants:
 
-“Behold, the time has fully come, which was spoken of by the mouth of Malachi—testifying that he [Elijah] should be sent, before the great and dreadful day of the Lord come—
-
-“To turn the hearts of the fathers to the children, and the children to the fathers, lest the whole earth be smitten with a curse—
-
-“Therefore, the keys of this dispensation are committed into your hands; and by this ye may know that the great and dreadful day of the Lord is near, even at the doors.”
+“Therefore, the keys of this dispensation are committed into your hands; and by this ye may know that the great and dreadful day of the Lord is near, even at the doors.”[^8]
 
 I testify that the Lord saw far into the future and how He would lead us to help Him accomplish His purposes in the last days.
 
@@ -79,11 +78,32 @@ The Lord let us make improvements to help people gain feelings of familiarity an
 
 The spirit of Elijah is changing the hearts of young and old, children and parents, grandchildren and grandparents. Temples will soon again be happily scheduling baptismal opportunities and other sacred ordinances. The desire to serve our ancestors and the bonding of parents and children are growing.
 
-The Lord saw it all coming. He planned for it, step by step, as He has done with other changes in His Church. He has raised up and prepared faithful people who choose to do hard things well. He has always been lovingly patient in helping us learn “line upon line, precept upon precept, here a little and there a little.” He is firm in the timing and the sequence of His intentions, yet He ensures that sacrifice often brings continuing blessings that we did not foresee.
+The Lord saw it all coming. He planned for it, step by step, as He has done with other changes in His Church. He has raised up and prepared faithful people who choose to do hard things well. He has always been lovingly patient in helping us learn “line upon line, precept upon precept, here a little and there a little.”[^9] He is firm in the timing and the sequence of His intentions, yet He ensures that sacrifice often brings continuing blessings that we did not foresee.
 
 I close by expressing my gratitude to the Lord—He who inspired President Nelson to invite me to make a sacrifice to prepare for this conference. Every hour and every prayer during my preparation brought a blessing.
 
 I invite all who hear this message or read these words to have faith that the Lord is leading the Restoration of His gospel and His Church. He goes before us. He knows the future perfectly. He invites you to the work. He joins you in it. He has in place a plan for your service. And even as you sacrifice, you will feel joy as you help others rise to be ready for His coming.
 
 I testify to you that God the Father lives. Jesus is the Christ. This is His Church. He knows and loves you. He guides you. He has prepared the way for you. In the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: [Doctrine and Covenants 110, section heading](https://churchofjesuschrist.org/study/scriptures/dc-testament/dc/110?lang=eng&id=study_intro1#study_intro1); see also Joseph Smith, “[History, 1838–1856, volume B-1 [1 September 1834–2 November 1838]](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-b-1-1-september-1834-2-november-1838/181),” Apr. 3, 1836, 727, josephsmithpapers.org.
+
+[^2]: [[D&C 110.1|Doctrine and Covenants 110:1–16]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
+
+[^3]: Karl Ricks Anderson, *The Savior in Kirtland: Personal Accounts of Divine Manifestations* (2012), 276; [[D&C 38.33|Doctrine and Covenants 38:33]].
+
+[^4]: Given in the apostolic charge administered by Oliver Cowdery, in “[Minute Book 1](https://www.josephsmithpapers.org/paper-summary/minute-book-1/166),” Feb. 21, 1835, 162, josephsmithpapers.org.
+
+[^5]: Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie (1955), 2:234.
+
+[^6]: [[D&C 38.32|Doctrine and Covenants 38:32]].
+
+[^7]: See James B. Allen, Ronald K. Esplin, and David J. Whittaker, *Men with a Mission: The Quorum of the Twelve Apostles in the British Isles, 1837–1841* (1992), 53, 302; Brandon S. Plewe, ed., *Mapping Mormonism: An Atlas of Latter-day Saint History* (2012), 104.
+
+[^8]: [[D&C 110.14|Doctrine and Covenants 110:14–16]][[D&C 110.15|]][[D&C 110.16|]].
+
+[^9]: [[2 Nephi 28.30|2 Nephi 28:30]].
 

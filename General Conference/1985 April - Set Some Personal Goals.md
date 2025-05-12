@@ -1,19 +1,22 @@
 # Set Some Personal Goals
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1985 General Conference*
+
+>*A videotape presentation followed featuring these extracts from talks given by President Kimball in past general conference priesthood sessions.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1985/04/set-some-personal-goals?lang=eng)
 
 “I am happy to be with you here tonight in this priesthood meeting. It is a particular delight to us to see the fathers and their sons coming early to the Saturday night priesthood meeting—many of them an hour or two early to be sure of a good seat, and thousands of others, fathers and sons, hurrying to the Tabernacle and to the numerous stake and ward buildings all over the country. This is a delightful extension of our family life which we celebrate and love and which the world is beginning to recognize as a basic family pattern—to have fathers and sons together.
 
-“We are grateful to have you present, and our appreciation for you is great and our affection sincere.” (Ensign, May 1974, p. 86.)
+“We are grateful to have you present, and our appreciation for you is great and our affection sincere.” (In Conference Report, Apr. 1974, p. 124; or *Ensign,* May 1974, p. 86.)
 
-“We are concerned, brethren, with our need to provide continually significant opportunities for our young men to stretch their souls in service. Young men do not usually become inactive in the Church because they are given too many significant things to do. No young man who has really witnessed for himself that the gospel works in the lives of the people will walk away from his duties in the kingdom and leave them undone.” (Ensign, May 1976, p. 45.)
+“We are concerned, brethren, with our need to provide continually significant opportunities for our young men to stretch their souls in service. Young men do not usually become inactive in the Church because they are given too many significant things to do. No young man who has really witnessed for himself that the gospel works in the lives of the people will walk away from his duties in the kingdom and leave them undone.” (In Conference Report, Apr. 1976, p. 68; or *Ensign,* May 1976, p. 45.)
 
 “It is most appropriate for Aaronic Priesthood youth, as well as Melchizedek Priesthood men, to quietly, and with determination, set some serious personal goals in which they will seek to improve by selecting certain things that they will accomplish within a specified period of time. Even if the priesthood holders of our Heavenly Father are headed in the right direction, if they are men without momentum they will have too little influence. You are the leaven on which the world depends; you must use your powers to stop a drifting and aimless world.
 
-“We hope we can help our young men and young women to realize, even sooner than they do now, that they need to make certain decisions only once. I have mentioned at this pulpit before some determinations made early in my life, which decisions were such a help to me because I did not have to remake those decisions perpetually. We can push some things away from us once and have done with them! We can make a single decision about certain things that we will incorporate in our lives and then make them ours—without having to brood and redecide a hundred times what it is we will do and what we will not do.” (Ensign, May 1976, p. 46.)
+“We hope we can help our young men and young women to realize, even sooner than they do now, that they need to make certain decisions only once. I have mentioned at this pulpit before some determinations made early in my life, which decisions were such a help to me because I did not have to remake those decisions perpetually. We can push some things away from us once and have done with them! We can make a single decision about certain things that we will incorporate in our lives and then make them ours—without having to brood and redecide a hundred times what it is we will do and what we will not do.” (In Conference Report, Apr. 1976, p. 61; or *Ensign,* May 1976, p. 46.)
 
 “Let me tell you of one of the goals that I made when I was still but a lad. When I heard a Church leader from Salt Lake City tell us at conference that we should read the scriptures, and I recognized that I had never read the Bible, that very night at the conclusion of that very sermon I walked to my home a block away and climbed up in my little attic room in the top of the house and lighted a little coal-oil lamp that was on the little table, and I read the first chapters of Genesis. A year later I closed the Bible, having read every chapter in that big and glorious book.
 
@@ -21,9 +24,9 @@
 
 “I found that there were certain parts that were hard for a 14-year-old boy to understand. There were some pages that were not especially interesting to me, but when I had read the 66 books and 1,189 chapters and 1,519 pages, I had a glowing satisfaction that I had made a goal and that I had achieved it.
 
-“Now I am not telling you this story to boast; I am merely using this as an example to say that if I could do it by coal-oil light, you can do it by electric light. I have always been glad I read the Bible from cover to cover. ...
+“Now I am not telling you this story to boast; I am merely using this as an example to say that if I could do it by coal-oil light, you can do it by electric light. I have always been glad I read the Bible from cover to cover. …
 
-“And I remember that without being pressured by anyone, I made up my mind while still a little boy that I would never break the Word of Wisdom. I knew where it was written and I knew in a general way what the Lord had said, and I knew that when the Lord said it, it was pleasing unto him for men to abstain from all these destructive elements and that the thing I wanted to do was to please my Heavenly Father. And so I made up my mind firmly and solidly that I would never touch those harmful things. Having made up my mind fully and unequivocably, I found it not too difficult to keep the promise to myself and to my Heavenly Father.” (Ensign, May 1974, p. 88.)
+“And I remember that without being pressured by anyone, I made up my mind while still a little boy that I would never break the Word of Wisdom. I knew where it was written and I knew in a general way what the Lord had said, and I knew that when the Lord said it, it was pleasing unto him for men to abstain from all these destructive elements and that the thing I wanted to do was to please my Heavenly Father. And so I made up my mind firmly and solidly that I would never touch those harmful things. Having made up my mind fully and unequivocably, I found it not too difficult to keep the promise to myself and to my Heavenly Father.” (In Conference Report, Apr. 1974, p. 126; or *Ensign,* May 1974, p. 88.)
 
 “To be sure your life will be full and abundant, you must plan your life. What you plan now when you are deacons can assure you an abundant life. Have you already been saving money dedicated to your missions?
 
@@ -31,21 +34,21 @@
 
 “You can determine now that you will be the most faithful deacon and teacher and priest. You can decide that now with an irrevocable covenant. You can be a good student; you can use your time properly and efficiently. All the balance of your life you can be happy if you use your time well.
 
-“You can make up your mind this early that you will fill an honorable mission when you reach mission age, and to that end that you will now earn money and save it and invest it for your mission, that you will study and serve and use every opportunity to properly prepare your mind and heart and soul for that glorious period of your life.” (Ensign, May 1974; p. 86.)
+“You can make up your mind this early that you will fill an honorable mission when you reach mission age, and to that end that you will now earn money and save it and invest it for your mission, that you will study and serve and use every opportunity to properly prepare your mind and heart and soul for that glorious period of your life.” (In Conference Report, Apr. 1974, p. 125; or *Ensign,* May 1974; p. 86.)
 
 “And since you will now establish your goal to fill a mission, remember it costs money to go to the various parts of the world and preach the gospel. Remember, then, it is your privilege now to begin to save your money.
 
-“Every time money comes into your hands, through gifts or earnings, set at least a part of it away in a savings account to be used for your mission. Every boy would like to be independent and furnish his own funds for his mission, rather than to ask his parents to do that for him. Every boy in every country in all the world who has been baptized and received the Holy Ghost will have the responsibility of bearing the message of the gospel to the people of the world. And this is also your opportunity, and it will contribute greatly toward your greatness.” (Ensign, Nov. 1974, p. 83.)
+“Every time money comes into your hands, through gifts or earnings, set at least a part of it away in a savings account to be used for your mission. Every boy would like to be independent and furnish his own funds for his mission, rather than to ask his parents to do that for him. Every boy in every country in all the world who has been baptized and received the Holy Ghost will have the responsibility of bearing the message of the gospel to the people of the world. And this is also your opportunity, and it will contribute greatly toward your greatness.” (In Conference Report, Oct. 1974, p. 117; or *Ensign,* Nov. 1974, p. 83.)
 
-“The question has been often asked, Is the mission program one of compulsion? And the answer, of course, is no. Everyone is given his free agency. ... he should pay his tithing, like he should attend his meetings, like he should keep his life clean and free from the ugliness of the world and plan a celestial marriage in the temple of the Lord.” (or Ensign, May 1974, p. 87.)
+“The question has been often asked, Is the mission program one of compulsion? And the answer, of course, is no. Everyone is given his free agency. … he *should* pay his tithing, like he *should* attend his meetings, like he *should* keep his life clean and free from the ugliness of the world and plan a celestial marriage in the temple of the Lord.” (In Conference Report, Apr. 1974, p. 125; or *Ensign,* May 1974, p. 87.)
 
-“I remind you young men that regardless of your present age, you are building your life; it will be cheap and shoddy or it will be valuable and beautiful; it will be full of constructive activities or it can be destructive; it can be full of joy and happiness, or it can be full of misery. It all depends upon you and your attitudes, for your altitude, or the height you climb, is dependent upon your attitude or your response to situations.” (Ensign, Nov. 1974, p. 80.)
+“I remind you young men that regardless of your present age, you are building your life; it will be cheap and shoddy or it will be valuable and beautiful; it will be full of constructive activities or it can be destructive; it can be full of joy and happiness, or it can be full of misery. It all depends upon you and your attitudes, for your altitude, or the height you climb, is dependent upon your attitude or your response to situations.” (In Conference Report, Oct. 1974, p. 112; or *Ensign,* Nov. 1974, p. 80.)
 
 “And you, my fine young men, must not be just average. Your lives must be clean and free from all kinds of evil thoughts or acts—no lying, no theft, no anger, no faithlessness, no failure to do that which is right, no sexual sins of any kind, at any time.
 
 “You know what is right and what is wrong. You have all received the Holy Ghost following your baptism. You need no one to brand the act or thought as wrong or right. You know by the Spirit. You are painting your own picture, carving your own statue. It is up to you to make it acceptable.
 
-“May God bless you, our beloved young men. I know your Heavenly Father is your true friend. Everything he asks you to do is right and will bring blessings to you and make you manly and strong.” (Ensign, Nov. 1974, p. 83.)
+“May God bless you, our beloved young men. I know your Heavenly Father is your true friend. Everything he asks you to do is right and will bring blessings to you and make you manly and strong.” (In Conference Report, Oct. 1974, p. 118; or *Ensign,* Nov. 1974, p. 83.)
 
 “The youth of the Church should realize that they do not need to be old men, long experienced, to receive the blessings of the Church. Joseph Smith was only 14 when he had the Vision, 25 when the Church was organized, 18 when he met Moroni, 24 when he got the plates, and 39 when he was martyred.
 
@@ -57,5 +60,8 @@
 
 “The Lord bless you as you grow year by year to receive the inspiration of the Lord to be able to pass on the glorious blessings of the gospel.
 
-“And this, my dear beloved brethren, I pray in the name of Jesus Christ. Amen.” (Ensign, May 1976, p. 47.)
+“And this, my dear beloved brethren, I pray in the name of Jesus Christ. Amen.” (In Conference Report, Apr. 1976, p. 71; or *Ensign,* May 1976, p. 47.)
+
+
+
 

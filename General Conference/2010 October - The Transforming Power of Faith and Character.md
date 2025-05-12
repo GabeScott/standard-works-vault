@@ -1,7 +1,10 @@
 # The Transforming Power of Faith and Character
-*By Richard G. Scott - Of the Quorum of the Twelve Apostles*
+
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
+
+>*A consistent, righteous life produces an inner power and strength that can be permanently resistant to the eroding influence of sin and transgression.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/10/the-transforming-power-of-faith-and-character?lang=eng)
 
@@ -11,11 +14,11 @@ Faith is a foundation building block of creation. I am confident that the Savior
 
 Faith in the future is demonstrated by a couple sealed in the temple. They understand that by obedience to the teachings of Jesus Christ and the plan of happiness of our Father in Heaven, they can have a joyous life together. They recognize that when the challenges intended to be growth opportunities come, they will find ways, as prompted by the Holy Ghost, to overcome them in ways that are productive and character building.
 
-Faith and character are intimately related. Faith in the power of obedience to the commandments of God will forge strength of character available to you in times of urgent need. Such character is not developed in moments of great challenge or temptation. That is when it is intended to be used. Your exercise of faith in true principles builds character; fortified character expands your capacity to exercise more faith. As a result, your capacity and confidence to conquer the trials of life is enhanced. The more your character is fortified, the more enabled you are to benefit from exercising the power of faith. You will discover how faith and character interact to strengthen one another. Character is woven patiently from threads of applied principle, doctrine, and obedience.
+Faith and character are intimately related. Faith in the power of obedience to the commandments of God will forge strength of character available to you in times of urgent need. Such character is not developed in moments of great challenge or temptation. That is when it is intended to be used. Your exercise of faith in true principles builds character; fortified character expands your capacity to exercise more faith. As a result, your capacity and confidence to conquer the trials of life are enhanced. The more your character is fortified, the more enabled you are to benefit from exercising the power of faith. You will discover how faith and character interact to strengthen one another. Character is woven patiently from threads of applied principle, doctrine, and obedience.
 
-President Hugh B. Brown said: “Wherever in life great spiritual values await man’s appropriation, only faith can appropriate them. Man cannot live without faith, because in life’s adventure the central problem is character-building—which is not a product of logic, but of faith in ideals and sacrificial devotion to them” (in Conference Report, Oct. 1969, 105). We exercise faith by doing. Joseph Smith said that “faith [is] the principle of action and of power” (Lectures on Faith [1985], 72).
+President Hugh B. Brown said: “Wherever in life great spiritual values await man’s appropriation, only faith can appropriate them. Man cannot live without faith, because in life’s adventure the central problem is character-building—which is not a product of logic, but of faith in ideals and sacrificial devotion to them” (in Conference Report, Oct. 1969, 105). We exercise faith by doing. The *Lectures on Faith* state that “faith \[is\] the principle of action and of power” (*Lectures on Faith* \[1985\], 72).
 
-We become what we want to be by consistently being what we want to become each day. Righteous character is a precious manifestation of what you are becoming. Righteous character is more valuable than any material object you own, any knowledge you have gained through study, or any goals you have attained no matter how well lauded by mankind. In the next life your righteous character will be evaluated to assess how well you used the privilege of mortality.
+We *become* what we want to *be* by consistently *being* what we want to *become* each day. Righteous character is a precious manifestation of what you are becoming. Righteous character is more valuable than any material object you own, any knowledge you have gained through study, or any goals you have attained, no matter how well lauded by mankind. In the next life your righteous character will be evaluated to assess how well you used the privilege of mortality.
 
 Neither Satan nor any other power can destroy or undermine your growing character. Only you could do that through disobedience. A sterling character is converted into worthless ashes when eroded by deceit or transgression.
 
@@ -23,17 +26,17 @@ Strong moral character results from consistent correct choices in the trials and
 
 What are some of the empowering principles upon which faith is based?
 
-Trust in God and in His willingness to provide help when needed, no matter how challenging the circumstance.
+- Trust in God and in His willingness to provide help when needed, no matter how challenging the circumstance.
 
-Obedience to His commandments and a life that demonstrates that He can trust you.
+- Obedience to His commandments and a life that demonstrates that He can trust you.
 
-Sensitivity to the quiet promptings of the Holy Spirit.
+- Sensitivity to the quiet promptings of the Holy Spirit.
 
-Courageous implementation of that prompting.
+- Courageous implementation of that prompting.
 
-Patience and understanding when God lets you struggle to grow and when answers come a piece at a time over an extended period.
+- Patience and understanding when God lets you struggle to grow and when answers come a piece at a time over an extended period.
 
-“Faith is things which are hoped for and not seen; wherefore, dispute not because ye see not, for ye receive no witness until after the trial of your faith” (Ether 12:6). Thus, every time you try your faith—that is, act in worthiness on an impression—you will receive the confirming evidence of the Spirit. As you walk to the boundary of your understanding into the twilight of uncertainty, exercising faith, you will be led to find solutions you would not obtain otherwise. With even your strongest faith, God will not always reward you immediately according to your desires. Rather, God will respond with what in His eternal plan is best for you, when it will yield the greatest advantage. Be thankful that sometimes God lets you struggle for a long time before that answer comes. That causes your faith to increase and your character to grow.
+“Faith is things which are hoped for and not seen; wherefore, dispute not because ye see not, for ye receive no witness until after the trial of your faith” ([[Ether 12.6|Ether 12:6]]). Thus, every time you try your faith—that is, act in worthiness on an impression—you will receive the confirming evidence of the Spirit. As you walk to the boundary of your understanding into the twilight of uncertainty, exercising faith, you will be led to find solutions you would not obtain otherwise. With even your strongest faith, God will not always reward you immediately according to your desires. Rather, God will respond with what in His eternal plan is best for you, when it will yield the greatest advantage. Be thankful that sometimes God lets you struggle for a long time before that answer comes. That causes your faith to increase and your character to grow.
 
 The bedrock of character is integrity. Worthy character will strengthen your capacity to recognize the direction of the Spirit and to be obedient to it. Your consistent exercise of faith builds strong character. A secure foundation for your growing character is laid by making Jesus Christ and His teachings the center of your life.
 
@@ -45,7 +48,7 @@ An axiom we all understand is that you get what you pay for. That is true for sp
 
 You cannot be passive in life, or in time the natural man will undermine your efforts to live worthily. You become what you do and what you think about. Lack of character leads one under pressure to satisfy appetite or seek personal gain. You cannot successfully bolster a weak character with the cloak of pretense.
 
-In time one who makes decisions based upon circumstance is virtually assured to commit serious transgressions. There is no iron rod of truth to keep that person in the right way. He or she will continually be faced with many subtle temptations to make deviations from the commandments. Those choices are justified by arguing that they are not that bad, that they are more socially acceptable and provide a broader base of friends. A clever individual without foundation principles can at times acquire, temporarily, impressive accomplishments. Yet that attainment is like a sand castle. When the test of character comes, it crumbles, often taking others with it. Despite how carefully a transgressor seeks to keep the violation of commandments hidden, in time they nearly always become publicly known. Satan himself sees to that. He and his minions are determined to cause the greatest possible harm to each of Father in Heaven’s children. One serious act of disobedience or violation of trust invariably raises questions of whether or not there are others. The faith and confidence of others in that individual’s character is undermined.
+In time, one who makes decisions based upon circumstance is virtually assured to commit serious transgressions. There is no iron rod of truth to keep that person in the right way. He or she will continually be faced with many subtle temptations to make deviations from the commandments. Those choices are justified by arguing that they are not that bad, that they are more socially acceptable and provide a broader base of friends. A clever individual without foundation principles can at times acquire, temporarily, impressive accomplishments. Yet that attainment is like a sand castle. When the test of character comes, it crumbles, often taking others with it. Despite how carefully a transgressor seeks to keep the violation of commandments hidden, in time they nearly always become publicly known. Satan himself sees to that. He and his minions are determined to cause the greatest possible harm to each of Father in Heaven’s children. One serious act of disobedience or violation of trust invariably raises questions of whether or not there are others. The faith and confidence of others in that individual’s character is undermined.
 
 This mortal life is a proving ground. How well you meet its challenges determines how strong your character will be. Your faith in Jesus Christ and His teachings fortifies your character.
 
@@ -59,27 +62,30 @@ Satan’s increasing influence in the world is allowed to provide an atmosphere 
 
 To summarize:
 
-God uses your faith to mold your character.
+- God uses your faith to mold your character.
 
-Character is the manifestation of what you are becoming.
+- Character is the manifestation of what you are becoming.
 
-Strong character results from consistent correct choices.
+- Strong character results from consistent correct choices.
 
-The bedrock of character is integrity.
+- The bedrock of character is integrity.
 
-The more your character is fortified, the more enabled you are to exercise the power of faith.
+- The more your character is fortified, the more enabled you are to exercise the power of faith.
 
 Humility is that quality that permits us to be taught from on high through the Spirit or to be taught from sources whose origin was inspiration from the Lord, such as the scriptures and the comments of the prophets. Humility is the precious fertile soil of righteous character. In it the seeds of personal growth germinate. When cultivated through the exercise of faith, pruned by repentance, and fortified by obedience and good works, such seeds produce the cherished fruit of spiritual direction. Divine inspiration and power then result—inspiration to know the will of the Lord, power to provide the ability to accomplish that inspired will.
 
 May I share four principles which have brought the deepest feelings of peace and happiness into my own life? The Lord has established these cornerstones in His eternal plan, and each one is essential. All work together in harmony and reinforce one another. When they are applied with diligence and consistency, they produce strength of character, increasing ability to convert the challenges of life into stepping-stones of happiness now and forever. They are:
 
-Faith in the Lord Jesus Christ and His program to acquire the power to achieve.
+- Faith in the Lord Jesus Christ and His program to acquire the power to achieve.
 
-Repentance to rectify the consequences of mistakes of omission or commission.
+- Repentance to rectify the consequences of mistakes of omission or commission.
 
-Obedience to the commandments of the Lord to provide strength and direction in our lives.
+- Obedience to the commandments of the Lord to provide strength and direction in our lives.
 
-Selfless service to enrich the lives of others.
+- Selfless service to enrich the lives of others.
 
 If you have determined to live righteously, don’t become discouraged. Life may seem difficult now, but hold on tightly to that iron rod of truth. You are making better progress than you realize. Your struggles are defining character, discipline, and confidence in the promises of your Father in Heaven and the Savior as you consistently obey Their commandments. May the Holy Ghost prompt you to always make decisions that fortify your character and yield much joy and happiness. In the name of Jesus Christ, amen.
+
+
+
 

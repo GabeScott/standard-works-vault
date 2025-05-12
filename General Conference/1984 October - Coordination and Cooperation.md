@@ -1,5 +1,6 @@
 # Coordination and Cooperation
-*By Dean L. Larsen - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -30,4 +31,7 @@ As my daughter and I were standing side by side admiring some of the porcelain f
 The sound of breaking attracted the attention of everyone in the shop. Instinctively, I stepped away. Just as instinctively, my daughter did the opposite thing. She quickly stepped to the side of this elderly lady, put her arm around her, whispered some consoling words in her ear, and then stooped to begin to pick up the pieces of the porcelain object. I felt a little chagrined for myself, but a deep sense of pride and love for my daughter. In my mind and by commitment, I knew what I should have done, but instinctively, I did not. By instinct, she did what the Savior would have done.
 
 I can think of no better illustration to reflect the marvelous qualities that you as sisters, as daughters of God, bring to bear, not only in making our own lives better, but in contributing, in a most essential way, to the successful operation of the plan of life and salvation that God has provided for all of his children. I honor you and express my deep love and appreciation to all of you for these wonderful gifts you have. May you be blessed to enlarge them, to expand them, and to use them, striving together in effective ways to bless all of God’s children and to assist in the great onward movement of his work in this vital time in which we all live, in the name of Jesus Christ, amen.
+
+
+
 

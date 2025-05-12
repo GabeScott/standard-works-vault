@@ -1,5 +1,6 @@
 # “I Was in Prison, and Ye Came unto Me”
-*By By Bishop Victor L. Brown - Of the Presiding Bishopric*
+
+By Bishop Victor L. Brown - *Of the Presiding Bishopric*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -41,5 +42,8 @@ Release from the prison would not begin to solve their most urgent problems; and
 
 There are many who find themselves in circumstances similar to those of Jim and Ed—not necessarily confined to a correctional institution, but nevertheless in prison, a prison from which legal authorities cannot release them, a prison of personal habits such as alcohol, drugs, immorality, selfishness, dishonesty, laziness, aimlessness; yes, these can be more confining and damning than any state prison. Yet there is a way to escape to a freedom that surpasses anything designed by man—the kind of freedom Jim and Ed have found.
 
-This freedom can only be found by accepting the divine plan and keeping the commandments of him who gave his life for each of us that we might find eternal life—even Jesus Christ. For did he not say: “And ye shall know the truth, and the truth shall make you free”? (John 8:32.) In the name of Jesus Christ. Amen.
+This freedom can only be found by accepting the divine plan and keeping the commandments of him who gave his life for each of us that we might find eternal life—even Jesus Christ. For did he not say: “And ye shall know the truth, and the truth shall make you free”? ([[John 8.32|John 8:32]].) In the name of Jesus Christ. Amen.
+
+
+
 

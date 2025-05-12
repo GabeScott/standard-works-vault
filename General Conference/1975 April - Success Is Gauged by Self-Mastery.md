@@ -1,5 +1,6 @@
 # Success Is Gauged by Self-Mastery
-*By N. Eldon Tanner - First Counselor in the First Presidency*
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -23,13 +24,13 @@ First, I should like to quote some of the philosophers.
 
 Plato said: “The first and best victory is to conquer self; to be conquered by self is, of all things, the most shameful and vile.”
 
-And da Vinci once said: “You will never have a greater or lesser dominion than that over yourself.” Then he goes on to say that “the height of a man’s success is gauged by his self-mastery; the depth of his failure by his self-abandonment. ... And this law is the expression of eternal justice. He who cannot establish dominion over himself will have no dominion over others.” In other words, he cannot be a worthy father or leader.
+And da Vinci once said: “You will never have a greater or lesser dominion than that over yourself.” Then he goes on to say that “the height of a man’s success is gauged by his self-mastery; the depth of his failure by his self-abandonment. … And this law is the expression of eternal justice. He who cannot establish dominion over himself will have no dominion over others.” In other words, he cannot be a worthy father or leader.
 
-Solomon in all his wisdom made this meaningful statement: “He that is slow to anger is better than the mighty; and he that ruleth his spirit than he that taketh a city.” (Prov. 16:32.)
+Solomon in all his wisdom made this meaningful statement: “He that is slow to anger is better than the mighty; and he that ruleth his spirit than he that taketh a city.” ([[Proverbs 16.32|Prov. 16:32]].)
 
 There are two important elements in self-mastery. The first is to determine your course or set the sails, so to speak, of moral standards; the other is the willpower, or the wind in the sails carrying one forward. As I said before, character is determined by the extent to which we can master ourselves toward good ends. It is difficult to say just what builds good character, but we know it when we see it. It always commands our admiration, and the absence of it our pity. But it is largely a matter of willpower.
 
-I think it was Garrison who showed his great determination when he said: “I am in earnest—I will not equivocate—I will not excuse—I will not retreat a single inch—and I will be heard!” (William Lloyd Garrison, Salutory Address of the Liberator, 1 Jan. 1831.)
+I think it was Garrison who showed his great determination when he said: “I am in earnest—I will not equivocate—I will not excuse—I will not retreat a single inch—and I will be heard!” (William Lloyd Garrison, Salutory Address of *the Liberator,* 1 Jan. 1831.)
 
 This should apply to every one of us engaged in the cause of right and truth.
 
@@ -37,7 +38,7 @@ Christ probably gave us more definitely and clearly the answer as to how to succ
 
 “Enter ye in at the strait gate: for wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat:
 
-“Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.” (Matt. 7:13–14.)
+“Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.” ([[Matthew 7.13|Matt. 7:13–14]][[Matthew 7.14|]].)
 
 As we think of this, it is so evident that those who keep on the straight and narrow path leading to their goal, realizing that the straight line is the shortest distance between two points and that detours are very dangerous, are those who succeed in life and enjoy self-realization and achievement. This requires self-control and self-discipline.
 
@@ -45,19 +46,15 @@ On the other hand, those who fail to keep their goals in mind and fail to discip
 
 There are those who complain that to follow the straight and narrow path requires limitations, restrictions, overcoming, and doing without things that are very tempting. We must remember, however, that it guarantees victory and achievement of our goal, which is gained by setting a goal and being able to concentrate and follow an undeviating course.
 
-Narrow is a very meaningful word. Often people accuse us of being narrow-minded if we are following the straight and narrow path, which certainly does require self-restraint and self-denial. We must realize and be prepared to accept the fact that it confines us, restricts us, and limits us in certain areas. But let us fully realize that it does not fetter or shackle mankind. On the contrary, it is the way to emancipation, independence, and liberty.
+*Narrow* is a very meaningful word. Often people accuse us of being narrow-minded if we are following the straight and narrow path, which certainly does require self-restraint and self-denial. We must realize and be prepared to accept the fact that it confines us, restricts us, and limits us in certain areas. But let us fully realize that it does not fetter or shackle mankind. On the contrary, it is the way to emancipation, independence, and liberty.
 
 Remember that—
 
-The heights by great men reached and kept
-
-Were not attained by sudden flight,
-
-But they, while their companions slept,
-
-Were toiling upward in the night.
-
-Henry Wadsworth Longfellow, “The Ladder of St. Augustine”
+>The heights by great men reached and kept
+>Were not attained by sudden flight,
+>But they, while their companions slept,
+>Were toiling upward in the night.
+>
 
 Remember also that nature never pays an unearned account and she never fails to pay one that has been earned. If you wish to achieve financial success, if you wish to be happy, if you wish to be healthy, if you would be morally clean, if you wish to find religious peace of mind, there is only one sure way, and that is the straight and narrow path—the way of honor, the way of industry, of moderation, simplicity, and virtue.
 
@@ -111,9 +108,12 @@ He said to me how honored he was to be able to translate for a prophet. He told 
 
 The Lord is always looking for men in whom he can place his full confidence, who can represent him in the mission field, and men who can be trusted in every way and who are prepared to help build his kingdom.
 
-He said, “This is my work and my glory—to bring to pass the immortality and eternal life of man.” (Moses 1:39.) He is asking us as priesthood holders if we will come and help him spread the gospel and live, and help others to live, so as to enjoy immortality and eternal life.
+He said, “This is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].) He is asking us as priesthood holders if we will come and help him spread the gospel and live, and help others to live, so as to enjoy immortality and eternal life.
 
-I wish to bear my witness to you and to the world at this Easter season that Jesus Christ lives and that he is actually the Son of the living God; that he came and gave his life for you and me; that he gave us the plan of life and salvation, which is the gospel we teach in his restored church; that we are led by a prophet of God, Spencer W. Kimball.
+I wish to bear my witness to you and to the world at this Easter season that Jesus Christ lives and that he is actually the Son of the living God; that he came and gave his life for you and me; that he gave us the plan of life and salvation, which is the gospel we teach in his restored church; that we are led by a prophet of God, Spencer W. Kimball.
 
 May we apply the principles of self-mastery and discipline, so as to prove worthy of the many blessings we receive as priesthood holders, and walk uprightly before the Lord at all times, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

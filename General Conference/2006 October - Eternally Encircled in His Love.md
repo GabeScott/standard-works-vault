@@ -1,7 +1,10 @@
 # Eternally Encircled in His Love
-*By By Bonnie D. Parkin - Relief Society General President*
+
+By Bonnie D. Parkin - *Relief Society General President*
 
 *Given in the October session of the 2006 General Conference*
+
+>*I know that \[Heavenly Father\] loves us, sisters, as does His Son, Jesus Christ. That love will never change—it is constant.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/10/eternally-encircled-in-his-love?lang=eng)
 
@@ -17,13 +20,13 @@ Just as the motto of Relief Society reminds us that “charity never faileth,”
 
 I know of a young mother with five little children who called an older sister, her valued mentor, and asked, “Can we go on a hike?” Her friend knew that meant she needed to talk. Halfway through an eight-mile loop, the young mother finally said, “I just can’t believe that Heavenly Father loves me; I’ve made lots of mistakes in my life. I can’t feel that I’m worthy of His love; how can He possibly love me?” Sisters, this was a woman who had made temple covenants and was active in the Church. And yet she still felt unworthy of His love. The older sister quickly responded, “Of course He loves you. You’re His daughter.”
 
-Do we frequently reject the Lord’s love that He pours out upon us in much more abundance than we are willing to receive? Do we think we have to be perfect in order to deserve His love? When we allow ourselves to feel “encircled about eternally in the arms of his love,” we feel safe, and we realize that we don’t need to be immediately perfect. We must acknowledge that perfection is a process. This is a gospel of eternal progress, and we must remember to appreciate the journey. Eternal means “without beginning or end,” so the encircling of His love is there for us every day. Remember, it’s constant—even when we don’t recognize it. I love Nephi’s description of this great gift: “The love of God ... sheddeth itself abroad in the hearts of the children of men; wherefore, it is the most desirable above all things ... and the most joyous to the soul.” I testify that this is true.
+Do we frequently reject the Lord’s love that He pours out upon us in much more abundance than we are willing to receive? Do we think we have to be perfect in order to deserve His love? When we allow ourselves to feel “encircled about eternally in the arms of his love,”[^1] we feel safe, and we realize that we don’t need to be immediately perfect. We must acknowledge that perfection is a process. This is a gospel of eternal progress, and we must remember to appreciate the journey. *Eternal* means “without beginning or end,” so the encircling of His love is there for us every day. Remember, it’s constant—even when we don’t recognize it. I love Nephi’s description of this great gift: “The love of God … sheddeth itself abroad in the hearts of the children of men; wherefore, it is the most desirable above all things … *and the most joyous to the soul.*”[^2] I testify that this is true.
 
 I know there may be some who have a difficult time imagining what His love feels like. Think of a mother with her newborn baby. The warmth, safety, cherishing, and peace of a mother’s embrace can help us understand what it feels like to be encircled in the arms of His love. A young adult Relief Society sister wrote, “Only in the love of my mother do I come close to understanding the magnitude and power of the love of the Savior.”
 
-Mothers, can you see how essential you are in teaching this truth to your children? As you encircle your children with your love, they will catch glimpses of His love. President Gordon B. Hinckley urges us to “love the Lord [our] God, and love His Son, and be ever grateful for Their love for us. Whenever other love fades, there will be that shining, transcendent, everlasting love of God for each of us and the love of His Son, who gave His life” for us.
+Mothers, can you see how essential you are in teaching this truth to your children? As you encircle your children with your love, they will catch glimpses of His love. President Gordon B. Hinckley urges us to “love the Lord \[our\] God, and love His Son, and be ever grateful for Their love for us. Whenever other love fades, there will be that shining, transcendent, everlasting love of God for each of us and the love of His Son, who gave His life”[^3] for us.
 
-A mother who knows her relationship with God helps her children to know Him and to be encircled by His love. I was touched by the comments a daughter shared at the funeral of her 100-year-old mother: “When I was a teenager trying to plan my class schedule, I would come into the kitchen where Mother was ironing. I would present possible options for my studies. ... She would listen to all of them. We would discuss the possibilities ... and then she would say, ‘OK, Cathy, have you prayed about it?’ That was kind of embarrassing to me, and I would hesitate and then add, ‘Do you have to pray about everything?’ She answered simply, ‘I do.’”
+A mother who knows her relationship with God helps her children to know Him and to be encircled by His love. I was touched by the comments a daughter shared at the funeral of her 100-year-old mother: “When I was a teenager trying to plan my class schedule, I would come into the kitchen where Mother was ironing. I would present possible options for my studies. … She would listen to all of them. We would discuss the possibilities … and then she would say, ‘OK, Cathy, have you prayed about it?’ That was kind of embarrassing to me, and I would hesitate and then add, ‘Do you have to pray about everything?’ She answered simply, ‘I do.’”[^4]
 
 This mother listened. She shared her faith in the Lord; she set an example; she shared her expectations for her daughter to return continually to the Lord. As we approach the Lord, we feel His love draw us closer. Mothers, teach your children to always include the Lord in their lives, and help them to recognize His loving influence.
 
@@ -39,11 +42,22 @@ Because of financial struggles, one sister had to move from her beloved home and
 
 I fear sometimes we see the Lord’s love only in the big events of our lives; we must also see His love in the smallest of things. Don’t underestimate your ability to share His love through a simple, genuine gesture such as sitting next to another sister and making her feel welcome.
 
-Do you feel the Lord’s love in your life? How I feel His love may be different from how you experience it. The key is to come to understand how you feel that love. And once you’ve felt it, be willing to share it.
+Do *you* feel the Lord’s love in *your* life? How I feel His love may be different from how you experience it. The key is to come to understand how *you* feel that love. And once you’ve felt it, be willing to share it.
 
 As a presidency we visited the devastated Gulf Coast following Hurricane Katrina. One evening at a fireside I stood at the pulpit and felt prompted that every sister in attendance needed someone to literally reach out and strengthen her. After the meeting, Sister Hughes, Sister Pingree, and I each stood by a different door and hugged every sister as she exited. We simply wanted to express our love for them. To any of those sisters who are listening tonight, we left your chapel feeling renewed because of the love of God that you shared with us. Thank you for taking care of each other—and the three of us!
 
 In my morning prayers I ask Heavenly Father to fill me with His love so that I can do His work with more heart. I know that I have been blessed because of this daily petition. As Relief Society sisters, we must strive to manifest the love of Christ, who always sought to please His Father by doing His will. Sisters, we must make every effort to follow His supreme example—to demonstrate such love through our thoughts, our speech, our actions—in all the things we do and are. We must not allow pride or vanity, selfishness or personal agendas to displace our reaching out to others in love. Quite simply and profoundly, we must first allow ourselves to be encircled by God’s love. We do this best by embracing the Savior’s eternal Atonement. Then we can expand that circle to include our family and all others. Such a circle is indeed heaven.
 
 My dear sisters, may the Lord bless you to feel His love daily as you keep your covenants, exercise charity, and strengthen families. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[2 Nephi 1.15|2 Nephi 1:15]].
+
+[^2]: [[1 Nephi 11.22|1 Nephi 11:22–23]][[1 Nephi 11.23|]]; emphasis added.
+
+[^3]: “Words of the Living Prophet,” *Liahona,* Dec. 1996, 8; “Excerpts from Recent Addresses of President Gordon B. Hinckley,” *Ensign,* Apr. 1996, 73.
+
+[^4]: Personal correspondence.
 

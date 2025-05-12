@@ -1,5 +1,6 @@
 # “Why Can’t We?”
-*By David B. Haight - Assistant to the Council of the Twelve*
+
+By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -23,9 +24,9 @@ A week later the events were repeated. The home teacher added, “We have a grea
 
 The next Sunday when the home teacher rang the doorbell, he was not greeted with a “Go away! Leave me alone!” but with a man dressed and ready to prove his disinterest. But the spirit of the priesthood meeting, the friendly handclasps, the sincere interest changed his attitude and awakened the conscience of a man who needed a gentle push.
 
-Priesthood quorum leaders are responding to the charge by President Kimball to “reach out to the prospective elders who are, in ... many cases, the fathers of so many of our boys and girls.” (“Lengthening Our Stride,” p. 2.) This challenge should stimulate our best efforts, cause us to ponder, to study better ways. He does not have a magic button to push, only you, the priesthood leaders. He is saying to you, “Why can’t we do better, be better?” He highlights the urgency today—not tomorrow—today.
+Priesthood quorum leaders are responding to the charge by President Kimball to “reach out to the prospective elders who are, in … many cases, the fathers of so many of our boys and girls.” (“Lengthening Our Stride,” p. 2.) This challenge should stimulate our best efforts, cause us to ponder, to study better ways. He does not have a magic button to push, only you, the priesthood leaders. He is saying to you, “Why can’t we do better, be better?” He highlights the urgency today—not tomorrow—today.
 
-The Church could not function effectively in helping the Lord accomplish his divine purpose unless sufficient power and authority were delegated. This is the principal reason for the Lord bestowing on men the holy priesthood to act in his name, to have the power and right to assist him in his divine purpose. The Savior said, “[teach] them to observe all things whatsoever I have commanded you.” (Matt. 28:20.) Inactive fathers and husbands must first be found and then taught how to live the gospel.
+The Church could not function effectively in helping the Lord accomplish his divine purpose unless sufficient power and authority were delegated. This is the principal reason for the Lord bestowing on men the holy priesthood to act in his name, to have the power and right to assist him in his divine purpose. The Savior said, “\[teach\] them to observe all things whatsoever I have commanded you.” ([[Matthew 28.20|Matt. 28:20]].) Inactive fathers and husbands must first be found and then taught how to live the gospel.
 
 Six months ago Raymond Gerloch was called as elders quorum president in the Durango Colorado Stake. He reports wonderful success in reactivating members. Home teaching is their success tool. They use filmstrips to help teach and motivate the inactive. Seven quorum members have each purchased a film projector which home teachers use in the homes of the inactive.
 
@@ -39,7 +40,7 @@ As soon as a man is ready for a calling, the quorum president assists the bishop
 
 “We have a humble prayer before we call a man to a position, and we have never had one turn us down.”
 
-Men who had been away from the Church a long time have said, “I thought no one really cared.” This quorum has caught the spirit exemplified by the Lord: “And as all have not faith, search ye diligently and teach one another.” (D&C 88:118.) President Gerloch has caught the vision of how to recover the lost.
+Men who had been away from the Church a long time have said, “I thought no one really cared.” This quorum has caught the spirit exemplified by the Lord: “And as all have not faith, search ye diligently and teach one another.” ([[D&C 88.118|D&C 88:118]].) President Gerloch has caught the vision of how to recover the lost.
 
 Today stake presidents are calling Melchizedek quorum leaders who are being taught and trained in effective principles of priesthood organization and reactivation. These new leaders are alert and not like the farmer Elder Sterling Sill referred to who was hauling produce to market in his wagon drawn by two horses. The horses were having a difficult time and the grade seemed very steep. Finally the farmer asked a stranger, “How far is it to the top of this hill?” The stranger said, “You’re not on a hill. Your rear wheels are off.”
 
@@ -55,7 +56,10 @@ Recently a man told how he became lost in the middle of a ward with 500 members:
 
 “I am now working with this elders quorum president as his counselor. My wife is teaching Primary and is a visiting teacher. I was lost, but because someone cared, someone took time, someone took the risk of showing his love and concern, I was found and was able to lead my family back to the Lord.” He went on to say, “I plead with all members of the Church to look around and help guide lost children back to their Heavenly Father.”
 
-Our prophet has spoken. Quorums are accepting this challenge, “Why can’t we?” The quorums know that we can. They all realize that there are thousands of men who are waiting only for the friendly extending of the hand. Quorum presidents realize, “The night is far spent, the day is at hand.” (Rom. 13:12.)
+Our prophet has spoken. Quorums are accepting this challenge, “Why can’t we?” The quorums know that we can. They all realize that there are thousands of men who are waiting only for the friendly extending of the hand. Quorum presidents realize, “The night is far spent, the day is at hand.” ([[Romans 13.12|Rom. 13:12]].)
 
 I testify that Jesus the Christ is the source of priesthood power. No power can stay the progress of his church. In the name of Jesus Christ. Amen.
+
+
+
 

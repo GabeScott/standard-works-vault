@@ -1,5 +1,6 @@
 # Be a Missionary—Always—Everywhere You Go!
-*By William H. Bennett - Assistant to the Council of the Twelve*
+
+By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -9,11 +10,11 @@ It was two years ago, my brothers and sisters, when I was called to be an Assist
 
 Now I have received a new assignment from the First Presidency, to preside over the Florida South Mission. Along with my call, a call was issued to Sister Bennett to serve at my side as my companion and to be the supervisor of the activities of the women and children in the mission. We are deeply grateful for this call and accept it without reservations. It is our desire to direct the affairs of the mission in accordance with the instructions of the First Presidency. We ask for an interest in your faith and prayers.
 
-As I thought about what I might say today, I reminded myself of the mission of the Church and the purpose of the gospel of Jesus Christ. Specifically, my mind went back to some statements made by the Savior. In the Pearl of Great Price we read, “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” (Moses 1:39.)
+As I thought about what I might say today, I reminded myself of the mission of the Church and the purpose of the gospel of Jesus Christ. Specifically, my mind went back to some statements made by the Savior. In the Pearl of Great Price we read, “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
-Then in his Sermon on the Mount, the Savior said, “Be ye therefore perfect, even as your Father which is in heaven is perfect.” (Matt. 5:48.) In these words I find an expression of hope and confidence as well as a challenge from our Savior.
+Then in his Sermon on the Mount, the Savior said, “Be ye therefore perfect, even as your Father which is in heaven is perfect.” ([[Matthew 5.48|Matt. 5:48]].) In these words I find an expression of hope and confidence as well as a challenge from our Savior.
 
-I then thought about how the Church and the gospel can help men and women in reaching these great objectives. The words of President David O. McKay came to mind: “The purpose of the gospel is to make bad men good and good men better—to change men’s lives.”
+I then thought about how the Church and the gospel can help men and women in reaching these great objectives. The words of President David O. McKay came to mind: “The purpose of the gospel is to make bad men good and good men better—to change men’s lives.”
 
 I also contemplated the day-to-day operations of the Church and the performance of Church members in the stakes, wards, and missions as revealed in stake activity reports, genealogy reports, mission reports, etc.; and I realized that, while the Church and its members have moved forward and upward in many ways, there is much more that needs to be done.
 
@@ -23,35 +24,25 @@ First, members of the Church everywhere should remind themselves that the gospel
 
 Second, as members of the Church, it is our responsibility to assist the missionaries in finding investigators to whom the message of the gospel can be taught. The missionary program needs the help of all of us—young and old—and it needs our help now.
 
-“There are chances for work all around just now,
-
-Opportunities right in our way;
-
-Do not let them pass by, saying, ‘Sometime I’ll try,’
-
-But go and do something today.
-
-“’Tis noble of man to work and to give,
-
-Love’s labor has merit alone;
-
-Only he who does something is worthy to live,
-
-The world has no use for the drone.
-
-“Then wake up, and do something more
-
-Than dream of your mansion above;
-
-Doing good is a pleasure; a joy beyond measure,
-
-A blessing of duty and love.”
-
-—Hymns, no. 58
+>“There are chances for work all around just now,
+>Opportunities right in our way;
+>Do not let them pass by, saying, ‘Sometime I’ll try,’
+>But go and do something today.
+>
+>“’Tis noble of man to work and to give,
+>Love’s labor has merit alone;
+>Only he who does something is worthy to live,
+>The world has no use for the drone.
+>
+>“Then wake up, and do something more
+>Than dream of your mansion above;
+>Doing good is a pleasure; a joy beyond measure,
+>A blessing of duty and love.”
+>
 
 There are opportunities all around us if we are but alert to them. To illustrate this, I should like to share with you several personal experiences I have had over the years that bear this out and that have strengthened my own testimony, enriched my life, and enabled me to explain the gospel to others.
 
-The question, “What is the main obstacle to success in stake missionary work?” was asked by President S. Dilworth Young of a group of stake missionaries in the East Cache Stake some years ago. A lady missionary’s prompt reply was, “The failure of too many Latter-day Saints to live the gospel as Latter-day Saints should.”
+The question, “What is the main obstacle to success in stake missionary work?” was asked by President S. Dilworth Young of a group of stake missionaries in the East Cache Stake some years ago. A lady missionary’s prompt reply was, “The failure of too many Latter-day Saints to live the gospel as Latter-day Saints should.”
 
 As I have attended stake conferences, I have observed that this also applies to other stakes in the Church. We can and ought to do something to change this situation. We can change it by letting our lives be shining examples of the gospel of Jesus Christ in action.
 
@@ -59,7 +50,7 @@ During World War II, while serving with the 31st Infantry Division in the Dutch 
 
 As we proceeded on one particular patrol behind enemy lines, a native dog fell in with our group; and try as we would, we couldn’t get that dog to leave. I became concerned about this. Later on, however, its alertness caused us to be suspicious to the point where we took extra precautions as we proceeded on to lower ground after coming to a fork in the trail. Therefore, when the enemy opened fire shortly thereafter, we were not caught completely by surprise. Four men were wounded in the initial burst of fire, but not a single man lost his life. We were able to evacuate the wounded and withdraw to the rear under heavy machine gun and rifle fire without losing a single man.
 
-Sergeant Leslie E. Milam of Natchitoches, Louisiana, the only other Mormon in my company, was with me on this patrol. After we returned to the rear, he was contacted by Sergeant Dabbs, our platoon guide, who said that he was aware that Sergeant Milam and I had been meeting on Sundays, whenever conditions would permit, for short religious discussions. He indicated that he knew that our lives had been miraculously saved in this patrol, and he requested permission to meet with us in our next religious discussion. He did meet with us, and he was just as sincere as we were in expressing gratitude to our Father in heaven for his protection and watchful care.
+Sergeant Leslie E. Milam of Natchitoches, Louisiana, the only other Mormon in my company, was with me on this patrol. After we returned to the rear, he was contacted by Sergeant Dabbs, our platoon guide, who said that he was aware that Sergeant Milam and I had been meeting on Sundays, whenever conditions would permit, for short religious discussions. He indicated that he knew that our lives had been miraculously saved in this patrol, and he requested permission to meet with us in our next religious discussion. He did meet with us, and he was just as sincere as we were in expressing gratitude to our Father in heaven for his protection and watchful care.
 
 Shortly after this ambush, Private Collins, who went through the ambush with us, sought me out one night after dark and said, “Lieutenant Bennett, I think we had some help from on high out there the other day.”
 
@@ -99,9 +90,12 @@ This too provided an opportunity to explain the gospel. Before I reached my dest
 
 These examples of true experiences in my life indicate that the door is wide open and that many opportunities are available for doing missionary work—if we are just alert and will put forth a little effort. The joys associated with going the extra mile to open the door and reach the hearts of people with respect to the gospel message can be illustrated by quoting a few sentences from a letter I received from a friend of mine just a few months ago:
 
-“I love the gospel very much. My testimony is my most prized possession, and I couldn’t live without it. My greatest happiness has been through participating in Church activities ... and in missionary work. I have served for seven years as a stake missionary, and I have supported a total of eight full-time missionaries in the field. I have a special love for missionary work.”
+“I love the gospel very much. My testimony is my most prized possession, and I couldn’t live without it. My greatest happiness has been through participating in Church activities … and in missionary work. I have served for seven years as a stake missionary, and I have supported a total of eight full-time missionaries in the field. I have a special love for missionary work.”
 
 May we all feel more dedicated to this great, unselfish service of love that we refer to as missionary work, and may we be willing in our hearts to make a greater contribution to its forward progress.
 
 I bear you my testimony that this work is true. God lives, and his Son Jesus Christ is indeed our Savior, the Redeemer of mankind. The Church of Jesus Christ of Latter-day Saints is the true church, and I bear you this testimony in the name of Jesus Christ. Amen.
+
+
+
 

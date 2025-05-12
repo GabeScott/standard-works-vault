@@ -1,5 +1,6 @@
 # Call to the Holy Apostleship
-*By Russell M. Nelson - Of the Quorum of the Twelve Apostles*
+
+By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
 
@@ -15,7 +16,7 @@ So, President Hinckley, your announcement from the First Presidency should get c
 
 A wide array of feelings has flashed through my heart since I heard the call that will change my life. The first feeling is that of personal inadequacy. That feeling is intensified as I think of the incomparable power of Elders LeGrand Richards and Mark E. Petersen, whose absence we keenly sense. They were, to me, dear friends as well as esteemed leaders. Then, as I look about and see the strength of those more qualified and able than I, I truly am humbled by this calling.
 
-Fortunately, these feelings are blanketed by feelings of faith, for I know the words of Nephi are true: “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” (1 Ne. 3:7.) I have implicit faith in the Lord and in His prophets. I have learned not to put question marks but to use exclamation points when calls are issued through inspired channels of priesthood government.
+Fortunately, these feelings are blanketed by feelings of faith, for I know the words of Nephi are true: “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].) I have implicit faith in the Lord and in His prophets. I have learned not to put question marks but to use exclamation points when calls are issued through inspired channels of priesthood government.
 
 About twenty years ago, two members of the Quorum of the Twelve were assigned to select a new president of the Bonneville stake in which we lived. They were Elders Spencer W. Kimball and LeGrand Richards. That call they extended to me. Now, I am to be ordained an Apostle under the hand of President Spencer W. Kimball, to fill a chair vacated by the passing of Elder LeGrand Richards.
 
@@ -31,13 +32,16 @@ I am grateful to my colleagues in the medical profession who have permitted me t
 
 I sustain the servants of the Lord, from Isaiah and Ezekiel to Joseph Smith and Spencer W. Kimball. For their confidence in me, I am deeply appreciative. To them and all mankind they serve, I express my love.
 
-Now, I understand fully that the call to the Holy Apostleship is one of witness to the world of the divinity of the Lord Jesus the Christ. I know that salvation is centered in Him! Said the angel to King Benjamin: “Salvation was, and is, and is to come, in and through the atoning blood of Christ, the Lord Omnipotent.” (Mosiah 3:18.)
+Now, I understand fully that the call to the Holy Apostleship is one of witness to the world of the divinity of the Lord Jesus the Christ. I know that salvation is centered in Him! Said the angel to King Benjamin: “Salvation was, and is, and is to come, in and through the atoning blood of Christ, the Lord Omnipotent.” ([[Mosiah 3.18|Mosiah 3:18]].)
 
-The Prophet Joseph Smith was asked, “What are the fundamental principles of your religion?” He answered: “The fundamental principles of our religion are the testimony of the Apostles and Prophets, concerning Jesus Christ, that He died, was buried, and rose again the third day, and ascended into heaven; and all other things which pertain to our religion are only appendages to it.” (History of the Church, 3:30.)
+The Prophet Joseph Smith was asked, “What are the fundamental principles of your religion?” He answered: “The fundamental principles of our religion are the testimony of the Apostles and Prophets, concerning Jesus Christ, that He died, was buried, and rose again the third day, and ascended into heaven; and all other things which pertain to our religion are only appendages to it.” (*History of the Church,* 3:30.)
 
-The creation of the earth and all that dwell therein, the necessary fall that enabled man to be, and the atonement of the Lord are three fundamental components of God’s eternal plan. Without that atoning sacrifice, there would be neither immortality nor eternal life.
+The *creation* of the earth and all that dwell therein, the necessary *fall* that enabled man to be, and the *atonement* of the Lord are three fundamental components of God’s eternal plan. Without that atoning sacrifice, there would be neither immortality nor eternal life.
 
-His message is the restored gospel of Jesus Christ; and it is administered by the Church that bears His name. He directs the affairs of His church by the power of the priesthood and by revelation through prophets who proclaim His doctrine to all people of the world.
+His message *is* the restored gospel of Jesus Christ; and it is administered by the Church that bears His name. He directs the affairs of His church by the power of the priesthood and by revelation through prophets who proclaim His doctrine to all people of the world.
 
 The testimony that I bear is but an echo of the resounding testimonies of the eighty-four who previously have received this call to the Twelve since the spring of 1820. I know that God the Father and the Son appeared to usher in this last great dispensation of eternal truth. I testify that we are of the house of Israel, specifically of the lineage of Joseph, bearing the birthright and charged with the irrevocable responsibility to prepare the world for the second coming of the Savior. Then, numberless multitudes among every nation, kindred, tongue, and people will eventually join in proclaiming that Jesus is the Christ, the Son of the living God. So I solemnly testify in the name of Jesus Christ, amen.
+
+
+
 

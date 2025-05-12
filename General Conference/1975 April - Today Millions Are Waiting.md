@@ -1,11 +1,12 @@
 # Today Millions Are Waiting
-*By Bernard P. Brockbank - Assistant to the Council of the Twelve*
+
+By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/04/today-millions-are-waiting?lang=eng)
 
-The greatest blessing that can come to mankind is to be numbered with the Saints of the Lord. Today there are millions of God’s children waiting to be taught the gospel of Jesus Christ. Yes, as Jesus said, “The harvest truly is great, but the labourers are few.” (Luke 10:2.)
+The greatest blessing that can come to mankind is to be numbered with the Saints of the Lord. Today there are millions of God’s children waiting to be taught the gospel of Jesus Christ. Yes, as Jesus said, “The harvest truly is great, but the labourers are few.” ([[Luke 10.2|Luke 10:2]].)
 
 In accordance with latter-day revelation from the Lord, we are living in the last days of the dispensation of the fulness of times. And according to statisticians the world’s population has increased from one-fourth billion when Jesus Christ lived on this earth to over three and a half billion today and the increase continues.
 
@@ -13,19 +14,19 @@ The phenomenal population growth in these, the latter days, is by divine power w
 
 The dispensation of the fulness of times has staggering statistics, perilous times, and worldwide need for millions of valiant Saints and missionaries.
 
-The Lord, by revelation to his Prophet Joseph Smith, declared and commanded the Latter-day Saints to teach the gospel of Jesus Christ to every nation and people. He said, “Proclaim my gospel from land to land, and from city to city. ...
+The Lord, by revelation to his Prophet Joseph Smith, declared and commanded the Latter-day Saints to teach the gospel of Jesus Christ to every nation and people. He said, “Proclaim my gospel from land to land, and from city to city. …
 
-“Bear testimony in every place, unto every people.” (D&C 66:5, 7.)
+“Bear testimony in every place, unto every people.” ([[D&C 66.5|D&C 66:5, 7]][[D&C 66.7|]].)
 
-“For verily the voice of the Lord is unto all men, and there is none to escape; and there is no eye that shall not see, neither ear that shall not hear, neither heart that shall not be penetrated.” (D&C 1:2.)
+“For verily the voice of the Lord is unto all men, and there is none to escape; and there is no eye that shall not see, neither ear that shall not hear, neither heart that shall not be penetrated.” ([[D&C 1.2|D&C 1:2]].)
 
-“This gospel shall be preached unto every nation, and kindred, and tongue, and people.” (D&C 133:37.)
+“This gospel shall be preached unto every nation, and kindred, and tongue, and people.” ([[D&C 133.37|D&C 133:37]].)
 
-“Every man shall hear the fulness of the gospel in his own tongue, and in his own language, through those who are ordained unto this power.” (D&C 90:11.)
+“Every man shall hear the fulness of the gospel in his own tongue, and in his own language, through those who are ordained unto this power.” ([[D&C 90.11|D&C 90:11]].)
 
 The scriptures are filled with commands and promises and calls and rewards regarding missionary work.
 
-The Lord gave this important warning by commandment to his Latter-day Saints: “Labor ye in my vineyard for the last time—for the last time call upon the inhabitants of the earth.” (D&C 43:28.)
+The Lord gave this important warning by commandment to his Latter-day Saints: “Labor ye in my vineyard for the last time—for the last time call upon the inhabitants of the earth.” ([[D&C 43.28|D&C 43:28]].)
 
 “It is the eleventh hour, and the last time that I shall call laborers into my vineyard.
 
@@ -37,13 +38,13 @@ The Lord gave this important warning by commandment to his Latter-day Saints: �
 
 “Yea, verily, verily, I say unto you, that the field is white already to harvest; wherefore, thrust in your sickles, and reap with all your might, mind, and strength.
 
-“Open your mouths and they shall be filled. ...
+“Open your mouths and they shall be filled. …
 
 “Yea, open your mouths and spare not, and you shall be laden with sheaves upon your backs, for lo, I am with you.
 
 “Yea, open your mouths and they shall be filled, saying: Repent, repent, and prepare ye the way of the Lord, and make his paths straight; for the kingdom of heaven is at hand;
 
-“Yea, repent and be baptized, every one of you, for a remission of your sins; yea, be baptized even by water, and then cometh the baptism of fire and of the Holy Ghost.” (D&C 33:3–11.)
+“Yea, repent and be baptized, every one of you, for a remission of your sins; yea, be baptized even by water, and then cometh the baptism of fire and of the Holy Ghost.” ([[D&C 33.3|D&C 33:3–11]][[D&C 33.4|]][[D&C 33.5|]][[D&C 33.6|]][[D&C 33.7|]][[D&C 33.8|]][[D&C 33.9|]][[D&C 33.10|]][[D&C 33.11|]].)
 
 Again, by commandment of the Lord missionary work is the duty and responsibility of every member of The Church of Jesus Christ of Latter-day Saints.
 
@@ -51,23 +52,23 @@ Jesus said, “I give unto you a commandment, that every man, both elder, priest
 
 “And let your preaching be the warning voice, every man to his neighbor, in mildness and in meekness.
 
-“And go ye out from among the wicked,” the Lord said. “Save yourselves.” And the Lord commanded, “Be ye clean that bear the vessels of the Lord.” (D&C 38:40–42.)
+“And go ye out from among the wicked,” the Lord said. “Save yourselves.” And the Lord commanded, “Be ye clean that bear the vessels of the Lord.” ([[D&C 38.40|D&C 38:40–42]][[D&C 38.41|]][[D&C 38.42|]].)
 
-Upon no other group of men in the world rests greater responsibility than upon the priesthood holders of The Church of Jesus Christ of Latter-day Saints. And every member of the Lord’s church should live and prepare himself to be a savior of men. By preaching the gospel of salvation to the world, the Saints become saviors of men. Of his Saints the Lord said, “They were set to be a light unto the world, and to be saviors of men.” And he added these words of warning: “And inasmuch as they are not the saviors of men, they are as salt that has lost its savor, and is henceforth good for nothing but to be cast out and trodden under foot of men.” (D&C 103:9–10.)
+Upon no other group of men in the world rests greater responsibility than upon the priesthood holders of The Church of Jesus Christ of Latter-day Saints. And every member of the Lord’s church should live and prepare himself to be a savior of men. By preaching the gospel of salvation to the world, the Saints become saviors of men. Of his Saints the Lord said, “They were set to be a light unto the world, and to be saviors of men.” And he added these words of warning: “And inasmuch as they are not the saviors of men, they are as salt that has lost its savor, and is henceforth good for nothing but to be cast out and trodden under foot of men.” ([[D&C 103.9|D&C 103:9–10]][[D&C 103.10|]].)
 
 Saints who do not become saviors will be cast out and trodden under foot of men. Now is the time to do missionary work. Now is the time to be saviors.
 
 To all who will teach the gospel of Jesus Christ to their friends and neighbors the Lord has promised salvation to their souls. Hear this divine counsel and promise:
 
-“O ye that embark in the service of God, see that ye serve him with all your heart, might, mind and strength, that ye may stand blameless before God at the last day. ...
+“O ye that embark in the service of God, see that ye serve him with all your heart, might, mind and strength, that ye may stand blameless before God at the last day. …
 
-“For behold the field is white already to harvest; and lo, he that thrusteth in his sickle with his might, the same layeth up in store that he perisheth not, but bringeth salvation to his soul.” (D&C 4:2, 4.)
+“For behold the field is white already to harvest; and lo, he that thrusteth in his sickle with his might, the same layeth up in store that he perisheth not, but bringeth salvation to his soul.” ([[D&C 4.2|D&C 4:2, 4]][[D&C 4.4|]].)
 
 I would like to quote several statements that were given by President Kimball. He said:
 
-“Perhaps the greatest reason for missionary work is to give the world its chance to hear and accept the gospel. The scriptures are replete with commands and promises and calls and rewards for teaching the gospel. I use the word command deliberately,” he said, “for it seems to be an insistent directive from which we, singly and collectively, cannot escape. ... [Ours is a missionary church. We must prepare missionaries. We must be missionaries.] Every young man should fill a mission. ... What an army we should have teaching Christ and him crucified! ...
+“Perhaps the greatest reason for missionary work is to give the world its chance to hear and accept the gospel. The scriptures are replete with commands and promises and calls and rewards for teaching the gospel. I use the word *command* deliberately,” he said, “for it seems to be an insistent directive from which we, singly and collectively, cannot escape. … \[Ours is a missionary church. We must prepare missionaries. We must be missionaries.\] Every young man should fill a mission. … What an army we should have teaching Christ and him crucified! …
 
-“[We hope to go to all the world. How we’ll do that only the Lord knows, but we are trying to find out.] I believe that the Lord is anxious to put into our hands inventions of which we laymen have hardly had a glimpse. ... He will open the gates and make possible the proselyting. ... I believe the time has come when we must ... change our sights and raise our goals.” (“When the World Will Be Converted,” Ensign, Oct. 1974, pp. 4, 8, 10, 13, 14.)
+“\[We hope to go to all the world. How we’ll do that only the Lord knows, but we are trying to find out.\] I believe that the Lord is anxious to put into our hands inventions of which we laymen have hardly had a glimpse. … He will open the gates and make possible the proselyting. … I believe the time has come when we must … change our sights and raise our goals.” (“When the World Will Be Converted,” *Ensign,* Oct. 1974, pp. 4, 8, 10, 13, 14.)
 
 Today the following words from the Lord should always be uppermost in our thoughts and actions. The Lord has commanded, “Remember the worth of souls is great in the sight of God;
 
@@ -77,17 +78,20 @@ Today the following words from the Lord should always be uppermost in our though
 
 “And how great is his joy in the soul that repenteth!
 
-“Wherefore, you are called to cry repentance unto this people.” (D&C 18:10–14.)
+“Wherefore, you are called to cry repentance unto this people.” ([[D&C 18.10|D&C 18:10–14]][[D&C 18.11|]][[D&C 18.12|]][[D&C 18.13|]][[D&C 18.14|]].)
 
-Brothers and sisters, we are all called to cry repentance unto the people. “And if it so be that you should labor all your days in crying repentance into this people,” the Lord said, “and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father.” What a blessing and achievement it is when you help one of God’s children to become godlike and prepare to live with our Heavenly Father in his celestial kingdom. “And now, if your joy will be great with one soul that you have brought unto me into the kingdom of my Father,” the Lord said, “how great will be your joy if you should bring many souls unto me!” (D&C 18:15–16.)
+Brothers and sisters, we are all called to cry repentance unto the people. “And if it so be that you should labor all your days in crying repentance into this people,” the Lord said, “and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father.” What a blessing and achievement it is when you help one of God’s children to become godlike and prepare to live with our Heavenly Father in his celestial kingdom. “And now, if your joy will be great with one soul that you have brought unto me into the kingdom of my Father,” the Lord said, “how great will be your joy if you should bring many souls unto me!” ([[D&C 18.15|D&C 18:15–16]][[D&C 18.16|]].)
 
-Jesus said the harvest truly is great, but the laborers are few. Then he gave this important commandment that often we overlook, “Pray ye therefore the Lord of the harvest, that he would send forth labourers into his harvest.” (Luke 10:2.) If all the Saints would pray to the Lord to send forth laborers unto the harvest, we’d have many more. A prophet of God said, “Every member a missionary.” That is a prophetic statement with prophetic power.
+Jesus said the harvest truly is great, but the laborers are few. Then he gave this important commandment that often we overlook, “Pray ye therefore the Lord of the harvest, that he would send forth labourers into his harvest.” ([[Luke 10.2|Luke 10:2]].) If all the Saints would pray to the Lord to send forth laborers unto the harvest, we’d have many more. A prophet of God said, “Every member a missionary.” That is a prophetic statement with prophetic power.
 
-The following divine promise has great eternal meaning to the Saints of the Lord. Jesus said, “By hearkening to observe all the words which I, the Lord their God, shall speak unto them, they shall never cease to prevail until the kingdoms of the world are subdued under my feet, and the earth is given unto the saints, to possess it forever and ever.” (D&C 103:7.)
+The following divine promise has great eternal meaning to the Saints of the Lord. Jesus said, “By hearkening to observe all the words which I, the Lord their God, shall speak unto them, they shall never cease to prevail until the kingdoms of the world are subdued under my feet, and the earth is given unto the saints, to possess it forever and ever.” ([[D&C 103.7|D&C 103:7]].)
 
 The number of saints that will possess this earth “forever and ever” depends, in part, on the missionary effort of the valiant Saints that live on this earth in the latter days.
 
-Jesus said, “This is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” (John 17:3.) We should give, we that have testimonies, the Lord’s children a chance and opportunity to know the only true God and Jesus Christ.
+Jesus said, “This is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” ([[John 17.3|John 17:3]].) We should give, we that have testimonies, the Lord’s children a chance and opportunity to know the only true God and Jesus Christ.
 
-I love and sustain President Spencer W. Kimball. He’s truly a prophet of God. I bear witness that God lives, in the name of Jesus Christ. Amen.
+I love and sustain President Spencer W. Kimball. He’s truly a prophet of God. I bear witness that God lives, in the name of Jesus Christ. Amen.
+
+
+
 

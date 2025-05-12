@@ -1,7 +1,10 @@
 # Stand as a Witness
-*By By Margaret D. Nadauld - Young Women General President*
+
+By Margaret D. Nadauld - *Young Women General President*
 
 *Given in the April session of the 2000 General Conference*
+
+>*You have all you need to stand strong and firm and true because you have the Lord on your side.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2000/04/stand-as-a-witness?lang=eng)
 
@@ -15,7 +18,7 @@ First of all, in standing as a witness at all times, we promise to love the Lord
 
 Anya lives in Russia. When she was only 14 years old, she was being taught the gospel by the missionaries. One day in her school class, the teacher was saying false things about the Church and about the Book of Mormon. There were no Latter-day Saints in the school to defend it; but little Anya, who was not even a member, only an investigator of the Church, knew that what the teacher was saying was wrong. She stood up in front of the whole class and defended the Book of Mormon and the Church. What courage! She told them that what they were saying was not true and that she knew the Book of Mormon was true, and if anyone wanted to know the truth for themselves, she invited them to read it like she had done. Then Anya went home and told the missionaries she was ready to be baptized. I love Anya’s courage as she stood as a witness at an important time.
 
-Standing as a witness in all things means all things—big things, little things, in all conversations, in jokes, in games played and books read and music listened to, in causes supported, in service rendered, in clothes worn, in friends made.
+Standing as a witness in all things means *all* things—big things, little things, in all conversations, in jokes, in games played and books read and music listened to, in causes supported, in service rendered, in clothes worn, in friends made.
 
 Kendra, a Laurel, says: “I never thought that I was being an example or ‘standing as a witness’ when I made right choices. I was only trying to live worthy to obtain all the blessings Heavenly Father has promised me.”
 
@@ -25,19 +28,19 @@ Our Heavenly Father does bless us when we show our love for Him in all things.
 
 Finally, we say that we will stand as a witness in all places. That means not only in public places but in private places, in secret, in dark or in light places; in church, school, home, or cars; in mountain places or beach places; on the street or in the park. Stand as an example of a worthy daughter of God in all places.
 
-I read about Shannon in the New Era. Her high school speech teacher assigned a group project to the students. They were to select a scene from a play to perform for the class. One group chose a questionable scene dealing with morality issues. The teacher allowed them to keep their selection “for the sake of art.” But knowing that it might be offensive, the teacher gave permission for those who felt uncomfortable to leave the room.
+I read about Shannon in the *New Era.* Her high school speech teacher assigned a group project to the students. They were to select a scene from a play to perform for the class. One group chose a questionable scene dealing with morality issues. The teacher allowed them to keep their selection “for the sake of art.” But knowing that it might be offensive, the teacher gave permission for those who felt uncomfortable to leave the room.
 
 As the students’ scene began, Shannon felt a little bit nervous. Several of her classmates blushed and giggled uneasily, but no one left. She looked at a few of her Latter-day Saint friends, watching for one of them to give the signal for them all to walk out together. But none of them did. Shannon remained at her desk with her head down so no one could see her crimson cheeks. She felt very uncomfortable, but she was also afraid to leave. After all, it was art, right? Shannon states:
 
-“At [that] moment, the Young Women theme came into my mind: ‘We will “stand as witnesses of God at all times and in all things, and in all places.”’ (Mosiah 18:9). Immediately, I knew what [I was going to] do. ‘All places’ meant everywhere, even in a classroom with my friends.
+“At \[that\] moment, the Young Women theme came into my mind: ‘We will “stand as witnesses of God at all times and in all things, and in all places.”’ ([[Mosiah 18.9|Mosiah 18:9]]). Immediately, I knew what \[I was going to\] do. ‘All places’ meant everywhere, even in a classroom with my friends.
 
-“Quietly, I got up and left the room. That was it. No one got up and followed me. No one applauded my valiant act. No one was converted by my example. But inside I knew I had done the right thing” (Shannon D. Jensen, “Stand as a Witness,” New Era, Nov. 1998, 10).
+“Quietly, I got up and left the room. That was it. No one got up and followed me. No one applauded my valiant act. No one was converted by my example. But inside I knew I had done the right thing” (Shannon D. Jensen, “Stand as a Witness,” *New Era,* Nov. 1998, 10).
 
-There is something, sisters, that each one of these examples has in common. In order to stand as a witness, each young woman exercised good judgment. Have you heard it said of someone that she has good judgment? That is a great compliment. Exercising good judgment is a sign of maturity and trustworthiness. Our Heavenly Father has asked us to make judgments. As we read in Moroni, chapter 7, verse 15: “It is given unto you to judge, that ye may know good from evil; and the way to judge is as plain, that ye may know with a perfect knowledge, as the daylight is from the dark night.” It says we can know that clearly! How? The way to do it is laid out for us very simply in verse 16: “For every thing which inviteth [1] to do good, and [2] to persuade to believe in Christ, is sent forth by the power and gift of Christ; wherefore ye may know with a perfect knowledge it is of God” (numbering added).
+There is something, sisters, that each one of these examples has in common. In order to stand as a witness, each young woman exercised good judgment. Have you heard it said of someone that she has good judgment? That is a great compliment. Exercising good judgment is a sign of maturity and trustworthiness. Our Heavenly Father has asked us to make judgments. As we read in Moroni, chapter 7, verse 15: “It is given unto you to judge, that ye may know good from evil; and the way to judge is as plain, that ye may know with a perfect knowledge, as the daylight is from the dark night.” It says we can know that clearly! How? The way to do it is laid out for us very simply in verse 16: “For every thing which inviteth *\[1\]* to do good, and *\[2\]* to persuade to believe in Christ, is sent forth by the power and gift of Christ; wherefore ye may know with a perfect knowledge it is of God” (numbering added).
 
-But listen to this in verse 17: “Whatsoever thing persuadeth men [1] to do evil, and [2] [to] believe not in Christ, [3] ... [to] deny him, [4] ... [to] serve not God, then ye may know with a perfect knowledge it is of the devil; ... for he persuadeth no man to do good, no, not one” (numbering added).
+But listen to this in verse 17: “Whatsoever thing persuadeth men *\[1\]* to do evil, and *\[2\]* \[to\] believe not in Christ, *\[3\]* … \[to\] deny him, *\[4\]* … \[to\] serve not God, then ye may know with a perfect knowledge it is of the devil; … for he persuadeth no man to do good, no, not one” (numbering added).
 
-Remember Joseph who was sold into Egypt? Certainly he exercised good judgment when he was tempted by Potiphar’s wife to become involved with her in an immoral act. We read in the Bible that at this critical time in his young life, Joseph stood up and got himself out of the situation (see Gen. 39:7–12). He didn’t sit around wondering what to do. He didn’t linger a little longer. He stood—he stood as a witness of righteousness at this crucial time. He exercised good judgment, and it made all the difference.
+Remember Joseph who was sold into Egypt? Certainly he exercised good judgment when he was tempted by Potiphar’s wife to become involved with her in an immoral act. We read in the Bible that at this critical time in his young life, Joseph stood up and got himself out of the situation (see [[Genesis 39.7|Gen. 39:7–12]][[Genesis 39.8|]][[Genesis 39.9|]][[Genesis 39.10|]][[Genesis 39.11|]][[Genesis 39.12|]]). He didn’t sit around wondering what to do. He didn’t linger a little longer. He *stood*—he stood as a witness of righteousness at this crucial time. He exercised good judgment, and it made all the difference.
 
 You, like Joseph, are of noble heritage. You have a royal inheritance, for you are a spirit daughter of God. You are of a chosen generation. You were chosen, before this world was, to come forth at this time. You were taught in a premortal world by God Himself.
 
@@ -51,11 +54,14 @@ As you view images, whether on TV or videos or movies or Internet or magazines, 
 
 Dear beautiful young women, you know some things that the good people of this world don’t know because you have been taught truth. You have all you need to stand strong and firm and true because you have the Lord on your side. The Savior will help you stand strong by the power of His love.
 
-There are so many of us who care about you. Walk with us. Walk with God. “Be thou humble; and the Lord thy God shall lead thee by the hand, and give thee answer to thy prayers” (D&C 112:10). Put your hand in His, and He will lead and guide you in peace.
+There are so many of us who care about you. Walk with us. Walk with God. “Be thou humble; and the Lord thy God shall lead thee by the hand, and give thee answer to thy prayers” ([[D&C 112.10|D&C 112:10]]). Put your hand in His, and He will lead and guide you in peace.
 
 We stand together in this, the morning of a new millennium. Newly baptized Whitney and young women all over the world join to commemorate the 2,000 years since the birth of the Savior, the Son of God.
 
 I think it truly remarkable that the world still remembers that little baby boy born in Bethlehem so long ago. He lived a life that we still try to follow. He showed us the way. He taught truths we still try to live. He willingly suffered for our sins because He loved us so completely. He gave us the right to repent. And He gave His life that we might be resurrected and live again after death.
 
 When we think of the magnificence of His gift to us, what small thing could we do for Him and for our Heavenly Father who sent Him? We could stand as witnesses of Their love and teachings at all times, in all things, and in all places. It is my prayer that we will, in the name of Jesus Christ, amen.
+
+
+
 

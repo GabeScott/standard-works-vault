@@ -1,5 +1,6 @@
 # An Example of What Welfare Services Can Do
-*By By Harold G. Hillam - President, Idaho Falls Idaho South Stake*
+
+By Harold G. Hillam - *President, Idaho Falls Idaho South Stake*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -36,4 +37,7 @@ Those of us who are here today have at our disposal the principles of the welfar
 I give you my solemn witness that we are engaged in the Lord’s work. May each one of us strive to carry out our stewardships, so the work may be done in His own way. The work and labor which we perform in welfare services will lead us steadily forward to that time when we will be blessed to live the great law of consecration in a Zion society.
 
 May each of us be found doing our duty, I pray in the name of him whose plan it is, even Jesus Christ, amen.
+
+
+
 

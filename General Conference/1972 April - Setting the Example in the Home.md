@@ -1,5 +1,6 @@
 # Setting the Example in the Home
-*By By Bishop H. Burke Peterson - Of the Presiding Bishopric*
+
+By Bishop H. Burke Peterson - *Of the Presiding Bishopric*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -34,4 +35,7 @@ Now you would wonder what four little boys would recognize about this. The one t
 This humble man and his wife, who didn’t have much of the world’s goods, by some very simple experiences implanted in their sons a love for the Lord. And it is because of these experiences, and others like them, that I can stand here this morning and tell you that I know that God lives; that I know that Jesus is the Christ, and that I know that this is his church and that he organized it for the salvation of his children.
 
 I know these things are true, and I testify of them in the name of Jesus Christ. Amen.
+
+
+
 

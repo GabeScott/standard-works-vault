@@ -1,5 +1,6 @@
 # “Shake Off the Chains with Which Ye Are Bound”
-*By Marvin J. Ashton - Of the Quorum of the Twelve Apostles*
+
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
 
@@ -11,15 +12,15 @@ Another acquaintance is a lovely, well-educated woman who has been a very heavy 
 
 As I have been rereading the Book of Mormon, following the counsel of President Ezra Taft Benson, our beloved prophet, I have been even more impressed with the counsel father Lehi gave his family shortly before his death. He pleads with his sons with these words:
 
-“Awake, my sons; put on the armor of righteousness. Shake off the chains with which ye are bound, and come forth out of obscurity, and arise from the dust” (2 Ne. 1:23).
+“Awake, my sons; put on the armor of righteousness. Shake off the chains with which ye are bound, and come forth out of obscurity, and arise from the dust” ([[2 Nephi 1.23|2 Ne. 1:23]]).
 
 Those words apply to us today. Who among us hasn’t felt the chains of bad habits? These habits may have impeded our progress, may have made us forget who we are, may have destroyed our self-image, may have put our family life in jeopardy, and may have hindered our ability to serve our fellowmen and our God. So many of us tend to say, “This is the way I am. I can’t change. I can’t throw off the chains of habit.”
 
-Lehi warned his sons to “shake off the chains” because he knew that chains restrict our mobility, growth, and happiness. They cause us to become confused and less able to be guided by God’s Spirit. Lehi also reminded his sons that their new land should “be a land of liberty unto them; wherefore, they shall never be brought down into captivity; if so, it shall be because of iniquity” (2 Ne. 1:7). He could have said, “If so, it shall be because ye have been bound into captivity by the chains of unrighteous living.” Samuel Johnson wisely shared, “The chains of habit are too small to be felt until they are too strong to be broken” (International Dictionary of Thoughts, Chicago: J. G. Ferguson Publishing Co., 1969, p. 348).
+Lehi warned his sons to “shake off the chains” because he knew that chains restrict our mobility, growth, and happiness. They cause us to become confused and less able to be guided by God’s Spirit. Lehi also reminded his sons that their new land should “be a land of liberty unto them; wherefore, they shall never be brought down into captivity; if so, it shall be because of iniquity” ([[2 Nephi 1.7|2 Ne. 1:7]]). He could have said, “If so, it shall be because ye have been bound into captivity by the chains of unrighteous living.” Samuel Johnson wisely shared, “The chains of habit are too small to be felt until they are too strong to be broken” (*International Dictionary of Thoughts,* comp. John P. Bradley, Chicago: J. G. Ferguson Publishing Co., 1969, p. 348).
 
 The lady of whom I spoke was able to break the chains of a bad habit because she became committed to change. Some of the Lamanites under King Lamoni were able to break the chains of their iniquities of murder, indolence, and hatred when they were taught by Ammon. They became even more valiant than the Nephites because they became committed to righteousness.
 
-Righteous living is a shield, a protector, an insulation, a strength, a power, a joy, a Christlike trait. Yes, living a life of righteousness is a chainbreaker.
+Righteous living is a shield, a protector, an insulation, a strength, a power, a joy, a Christlike trait. Yes, living a life of righteousness is a chain-breaker.
 
 Many of us today are shackled by the restrictive chains of poor habits. We are bound by inferior self-images created by misconduct and indifference. We are chained by an unwillingness to change for the better. Is it any wonder, in our day as it was in Nephi’s, that God’s pleas are “awake,” “listen,” “procrastinate no longer,” “believe me,” “come back,” and “seek the straight course”?
 
@@ -31,7 +32,7 @@ Chains weigh heavily on troubled hearts and souls. They relegate us to lives of 
 
 Sometimes the chains of arrogance and domination cause priesthood bearers to lose their way and stumble. No man in The Church of Jesus Christ of Latter-day Saints is worthy of his priesthood powers and blessings if he makes unrighteous demands upon his wife or family. God forbid that any man would find satisfaction or comfort in exercising this type of domination.
 
-“No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned” (D&C 121:41).
+“No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned” ([[D&C 121.41|D&C 121:41]]).
 
 Let me share some chains I have recently observed in the lives of some friends, chains that are causing misdirection, family destruction, loss of self-respect, and sadness.
 
@@ -43,7 +44,7 @@ Any judge who allows convicted drug peddlers to go their ways with only light pe
 
 I am acquainted with a wife and mother who is chained securely at the present time to a life-style of murmuring and criticism. She is the first to point out faults in her husband or to repeat neighborhood gossip. How damaging is a habit that permits fault-finding, character assassination, and the sharing of malicious rumors! Gossip and caustic comments often create chains of contention. These chains may appear to be very small, but what misery and woe they can cause!
 
-“O that ye would awake; awake from a deep sleep, yea, even from the sleep of hell, and shake off the awful chains by which ye are bound, which are the chains which bind the children of men, that they are carried away captive down to the eternal gulf of misery and woe” (2 Ne. 1:13).
+“O that ye would awake; awake from a deep sleep, yea, even from the sleep of hell, and shake off the awful chains by which ye are bound, which are the chains which bind the children of men, that they are carried away captive down to the eternal gulf of misery and woe” ([[2 Nephi 1.13|2 Ne. 1:13]]).
 
 Listen to the words of a friend who understands well the meaning of this scripture, a man who was bound by the chains of indifference. But when he sought God’s help and turned to righteous principles, those chains were not only broken, but smashed. This letter was received a few weeks ago.
 
@@ -63,13 +64,16 @@ To change or break some of our chains even in a small way means to give up some 
 
 Every worthy change means risk—the risk of losing an old and damaging habit for a new and improved way of life.
 
-If fear and an unwillingness to take the risk and challenge of the better way of life gain the upper hand, we will not be able to change. Shakespeare in Measure for Measure says it this way: “Our doubts are traitors, and make us lose the good we oft might win by fearing to attempt” (act 1, scene 4).
+If fear and an unwillingness to take the risk and challenge of the better way of life gain the upper hand, we will not be able to change. Shakespeare in *Measure for Measure* says it this way: “Our doubts are traitors, and make us lose the good we oft might win by fearing to attempt” (act 1, scene 4).
 
-Even the chains of fear can be broken by those who will humbly seek God’s help and strength. It can be done with this strengthening promise in Doctrine and Covenants 122:4 [D&C 122:4]: “Because of thy righteousness ... thy God shall stand by thee forever and ever.”
+Even the chains of fear can be broken by those who will humbly seek God’s help and strength. It can be done with this strengthening promise in [[D&C 122.4|Doctrine and Covenants 122:4]]: “Because of thy righteousness … thy God shall stand by thee forever and ever.”
 
 A truly wise person will constantly move forward, striving for self-improvement, knowing that daily repentance is needed for progress. He will realize the good life is simply conforming to a standard of right and justice. The joys of happiness can only be realized by living lofty principles.
 
 Those who are committed to improvement break chains by having the courage to try. Those who live without commitment mistakenly think it is easier to adapt their life-styles to the weight and restrictions of chains rather than to put forth the effort to change.
 
 God help us to shake off and break the chains with which we are bound. With God’s help they can be shaken off by faith, works, prayer, constant commitment, and self-discipline. May we have the will and strength to shake off the chains that would control and destroy our progress, I pray in the name of Jesus Christ, amen.
+
+
+
 

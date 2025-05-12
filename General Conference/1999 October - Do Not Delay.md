@@ -1,7 +1,10 @@
 # Do Not Delay
-*By Henry B. Eyring - Of the Quorum of the Twelve Apostles*
+
+By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
+
+>*Nephi was right. God gives no commandments to the children of men save He prepares a way for them to obey. However difficult our circumstances, we can repent.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1999/10/do-not-delay?lang=eng)
 
@@ -13,13 +16,13 @@ For the five unprepared virgins, it was this:
 
 “Afterward came also the other virgins, saying, Lord, Lord, open to us.
 
-“But he answered and said, Verily I say unto you, I know you not” (Matt. 25:11–12).
+“But he answered and said, Verily I say unto you, I know you not” ([[Matthew 25.11|Matt. 25:11–12]][[Matthew 25.12|]]).
 
 For the faithless servants who delayed their preparation, it was this:
 
 “The lord of that servant shall come in a day when he looketh not for him, and in an hour that he is not aware of,
 
-“And shall cut him asunder, and appoint him his portion with the hypocrites: there shall be weeping and gnashing of teeth” (Matt. 24:50–51).
+“And shall cut him asunder, and appoint him his portion with the hypocrites: there shall be weeping and gnashing of teeth” ([[Matthew 24.50|Matt. 24:50–51]][[Matthew 24.51|]]).
 
 The temptation to delay repentance comes not only at the end of the world as suggested by those scriptures. That temptation seems to have been nearly constant since the beginning of time and goes on throughout our lives. In youth we may have thought: “There will be time enough to worry about spiritual things just before my mission or before marriage. Spiritual things are for older people.” Then, in the early years of marriage, the pressures of life, of jobs, of bills, of finding a moment for rest and recreation seem to crowd us so closely that delay in meeting obligations to God and family again seems reasonable. It is easy to think, “Perhaps there will be more time for that in the middle years.” But the compression of time does not ease in the years that follow. There is so much to do, and time seems to shrink. The 55th birthday and the 65th and the 75th don’t seem to be a decade apart.
 
@@ -29,17 +32,17 @@ Not all of us fall into that trap of inaction. But enough people do that we each
 
 That temptation to delay comes from our enemy, Lucifer. He knows that we can never be truly happy unless we have hope in this life and then realization, in the next, of eternal life. It is the greatest of all the gifts of God. It is to live in families forever with our Heavenly Father and with Jesus Christ and to have eternal increase. Satan wants us to be miserable as he is. And he knows that we can only have that true happiness if we are washed clean through faith in the Lord Jesus Christ, by deep and continuing repentance, and the making and keeping of sacred covenants offered only through God’s authorized servants. The scriptures confirm the hazard:
 
-“Wherefore, if ye have sought to do wickedly in the days of your probation, then ye are found unclean before the judgment-seat of God; and no unclean thing can dwell with God; wherefore, ye must be cast off forever” (1 Ne. 10:21).
+“Wherefore, if ye have sought to do wickedly in the days of your probation, then ye are found unclean before the judgment-seat of God; and no unclean thing can dwell with God; wherefore, ye must be cast off forever” ([[1 Nephi 10.21|1 Ne. 10:21]]).
 
 And so Satan tempts with procrastination throughout our days of probation. Any choice to delay repentance gives him the chance to steal happiness from one of the spirit children of our Heavenly Father.
 
-We have all been tempted with that delay. We know from our own experience that President Spencer W. Kimball was right when he wrote, “One of the most serious human defects in all ages is procrastination,” and then he defined it: “an unwillingness to accept personal responsibility now” (The Teachings of Spencer W. Kimball, ed. Edward L. Kimball [1982], 48; emphasis in original). And so Satan works on both our desire to think we have no cause to repent and our desire to push anything unpleasant into the future. He has tempted you and me, and those we love, with thoughts like this: “God is so loving; surely He won’t hold me personally responsible for mistakes which are simply the result of being human.” And then, if that fails, there is the thought that will almost surely come: “Well, I may be responsible to repent, but this is not a good time to start. If I wait, later will be better.”
+We have all been tempted with that delay. We know from our own experience that President Spencer W. Kimball was right when he wrote, “One of the most serious human defects in all ages is procrastination,” and then he defined it: “an unwillingness to accept personal responsibilities *now*” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[1982\], 48; emphasis in original). And so Satan works on both our desire to think we have no cause to repent and our desire to push anything unpleasant into the future. He has tempted you and me, and those we love, with thoughts like this: “God is so loving; surely He won’t hold me personally responsible for mistakes which are simply the result of being human.” And then, if that fails, there is the thought that will almost surely come: “Well, I may be responsible to repent, but this is not a good time to start. If I wait, later will be better.”
 
 There are some truths which expose those lies intended to tempt us to procrastinate repentance. Let’s start with the deception, which is so attractive, that we have no need to repent.
 
 The truth is that we all need repentance. If we are capable of reason and past the age of eight, we all need the cleansing that comes through applying the full effects of the Atonement of Jesus Christ. When that is clear, we cannot be tricked into delay by the subtle question: “Have I crossed the line of serious sin, or can I put off even thinking about repentance?” The question that really matters is this: “How can I learn to sense even the beginning of sin and so repent early?”
 
-A second truth about our accountability is to know that we are not the helpless victims of our circumstances. The world tries to tell us that the opposite is true: imperfections in our parents or our faulty genetic inheritance are presented to us as absolving us of personal responsibility. But difficult as circumstances may be, they do not relieve us of accountability for our actions or our inactions. Nephi was right. God gives no commandments to the children of men save He prepares a way for them to obey. However difficult our circumstances, we can repent.
+A second truth about our accountability is to know that we are not the helpless victims of our circumstances. The world tries to tell us that the opposite is true: imperfections in our parents or our faulty genetic inheritance is presented to us as absolving us of personal responsibility. But difficult as circumstances may be, they do not relieve us of accountability for our actions or our inactions. Nephi was right. God gives no commandments to the children of men save He prepares a way for them to obey. However difficult our circumstances, we can repent.
 
 Similarly, the world might be willing to excuse our bad behavior because those around us behave badly. It is not true that the behavior of others removes our responsibility for our own. God’s standards for our behavior are unchanged whether or not others choose to rise to them.
 
@@ -65,17 +68,20 @@ I testify that the words of a servant of God, spoken long ago, are true:
 
 “And now, as I said unto you before, as ye have had so many witnesses, therefore, I beseech of you that ye do not procrastinate the day of your repentance until the end; for after this day of life, which is given us to prepare for eternity, behold, if we do not improve our time while in this life, then cometh the night of darkness wherein there can be no labor performed.
 
-“Ye cannot say, when ye are brought to that awful crisis, that I will repent, that I will return to my God. Nay, ye cannot say this; for that same spirit which doth possess your bodies at the time that ye go out of this life, that same spirit will have power to possess your body in that eternal world” (Alma 34:30–34).
+“Ye cannot say, when ye are brought to that awful crisis, that I will repent, that I will return to my God. Nay, ye cannot say this; for that same spirit which doth possess your bodies at the time that ye go out of this life, that same spirit will have power to possess your body in that eternal world” ([[Alma 34.30|Alma 34:30–34]][[Alma 34.31|]][[Alma 34.32|]][[Alma 34.33|]][[Alma 34.34|]]).
 
 There is another temptation to be resisted. It is to yield to the despairing thought that it is too hard and too late to repent. I knew a man once who could have thought that and given up. When he was 12 he was ordained a deacon. Some of his friends tempted him to begin to smoke. He began to feel uncomfortable in church. He left his little town, not finishing high school, to begin a life following construction jobs across the United States. He was a heavy-equipment operator. He married. They had children. The marriage ended in a bitter divorce. He lost his children. He lost an eye in an accident. He lived alone in boardinghouses. He lost everything he owned except what he could carry in a trunk.
 
 One night, as he prepared to move yet again, he decided to lighten the load of that trunk. Beneath the junk of years, he found a book. He never knew how it got there. It was the Book of Mormon. He read it through, and the Spirit told him it was true. He knew then that all those years ago he had walked away from the true Church of Jesus Christ and from the happiness which could have been his.
 
-Later, he was my more-than-70-year-old district missionary companion. I asked the people we were teaching, as I testified of the power of the Savior’s Atonement, to look at him. He had been washed clean and given a new heart, and I knew they would see that in his face. I told the people that what they saw was evidence that the Atonement of Jesus Christ could wash away all the corrosive effects of sin.
+Later, he was my more-than-70-year-old district missionary companion. I asked the people we were teaching, as I testified of the power of the Savior’s Atonement, to look at him. He had been washed clean and given a new heart, and I knew they would see that in his face. I told the people that what they saw was evidence that the Atonement of Jesus Christ could wash away *all* the corrosive effects of sin.
 
 That was the only time he ever rebuked me. He told me in the darkness outside the trailer where we had been teaching that I should have told the people that while God was able to give him a new heart, He had not been able to give him back his wife and his children and what he might have done for them. But he had not looked back in sorrow and regret for what might have been. He moved forward, lifted by faith, to what yet might be.
 
 One day he told me that in a dream the night before, the sight in his blind eye was restored. He realized that the dream was a glimpse of a future day, walking among loving people in the light of a glorious resurrection. Tears of joy ran down the deeply lined face of that towering, raw-boned man. He spoke to me quietly, with a radiant smile. I don’t remember what he said he saw, but I remember that his face shone with happy anticipation as he described the view. With the Lord’s help and the miracle of that book in the bottom of a trunk, it had not for him been too late nor the way too hard.
 
 I testify that God the Father lives. I know that. And He loves us. His Only Begotten Son lives. Because He was resurrected, we too will live again. We will see then those we have loved and who have loved us. We can through faith and obedience have family associations forever. Those in our families who love us, on both sides of the veil, would say as we consider whether to humble our hearts and repent, “Please, do not delay.” That is the Savior’s invitation and His plea. In the name of Jesus Christ, amen.
+
+
+
 

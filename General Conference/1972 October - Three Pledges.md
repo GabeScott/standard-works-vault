@@ -1,5 +1,6 @@
 # Three Pledges
-*By L. Tom Perry - Assistant to the Council of the Twelve*
+
+By Elder L. Tom Perry - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -14,4 +15,7 @@ Second, to my three lovely children, Barbara, Lee, and Gay. I will try to live w
 And finally, to President Lee, his great counselors, the Council of the Twelve, I sustain and support you. Let me help you carry the great burden which is yours.
 
 This is the Church of Jesus Christ as it has been established in the latter days. I am grateful for that testimony, for the strength it gives me. I say this humbly, in the name of Jesus Christ. Amen.
+
+
+
 

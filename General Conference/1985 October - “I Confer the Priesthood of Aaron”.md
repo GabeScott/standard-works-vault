@@ -1,5 +1,6 @@
 # “I Confer the Priesthood of Aaron”
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
 
@@ -9,17 +10,17 @@ I have invited a special young man to assist me with my presentation tonight. I 
 
 Terry, how old are you?
 
-Terry: Twelve.
+*Terry:* Twelve.
 
 What special event has happened in your life this year?
 
-Terry: I received the Aaronic Priesthood and was ordained a deacon.
+*Terry:* I received the Aaronic Priesthood and was ordained a deacon.
 
 Terry, again I would like to congratulate you on the preparation you have made in your life to be worthy of receiving this great gift. As I stood in the circle on that special occasion and listened to the blessing you received from your father as he conferred the Aaronic Priesthood upon you and ordained you a deacon, I was impressed with the special privilege this is in your young life.
 
 I wanted to have a little grandfather-to-grandson chat right afterward, but unfortunately I had an appointment with an airplane. So I’m taking advantage of this assignment to have our little visit. Let’s make it public just in case what we talk about might be of benefit to other young bearers of the Aaronic Priesthood listening to us tonight. All right?
 
-Terry: Okay.
+*Terry:* Okay.
 
 Terry, I am not overly pleased with worldly conditions that you and other young men are inheriting as you assume your role in moving toward manhood. While those of us who are older have been of an age and position to influence the world, I believe we’ve greatly failed you in what we have allowed the conditions in the world to become. This places you in a position where many of those with whom you must associate have not been reared with an understanding of or respect for traditional values. Thus, peer pressure becomes much more difficult and extreme.
 
@@ -33,7 +34,7 @@ There’s an exciting way to read the scriptures to make them come alive. Read t
 
 One of the heroes I have always enjoyed reading about is Daniel in the Old Testament. During the period of time in which he lived, Israel was not faithful in keeping the commandments of the Lord. Because of this she lost her power and was not able to defend herself against her enemies. Strategically, she was in an awkward position. The powerful nations of Egypt and Syria bordered her on the south and on the north. Instead of doing battle on their own lands, these two nations took turns overrunning Israel and making her their battleground.
 
-It was under these conditions that Daniel was born. When he was just a child, Nebuchadnezzar, king of Babylon, besieged Jerusalem. As part of the spoils of his conquest, he went into the holy temple and took the sacred vessels back as trophies. Then, to make his nation even stronger, he took hostage all of the bright and promising children of the Israelites. As the scriptures record, the king took those “children in whom was no blemish, but well favoured, and skilful in all wisdom, and cunning in knowledge, and understanding science, and such as had ability in them to stand in the king’s palace, and whom they might teach the learning and the tongue of the Chaldeans.” (Dan. 1:4.)
+It was under these conditions that Daniel was born. When he was just a child, Nebuchadnezzar, king of Babylon, besieged Jerusalem. As part of the spoils of his conquest, he went into the holy temple and took the sacred vessels back as trophies. Then, to make his nation even stronger, he took hostage all of the bright and promising children of the Israelites. As the scriptures record, the king took those “children in whom was no blemish, but well favoured, and skilful in all wisdom, and cunning in knowledge, and understanding science, and such as had ability in them to stand in the king’s palace, and whom they might teach the learning and the tongue of the Chaldeans.” ([[Daniel 1.4|Dan. 1:4]].)
 
 Daniel was one of those who was taken back to the palace as a slave of Nebuchadnezzar, to be trained in the king’s ways in order that Nebuchadnezzar might use him and his knowledge to make his empire stronger.
 
@@ -43,13 +44,13 @@ Daniel knew in his heart, because of the training he had received, that the food
 
 The prince was astonished at this request. He did not dare allow Daniel the privilege of eating anything other than what the king had ordered. He was afraid he would lose his position, or perhaps his life, if the king found out. Daniel understood this, but he had been taught correct principles. He bargained with the prince this way: He would eat only the foods he had been taught were good for him for just ten days. If after ten days his countenance was not fairer and his appearance more healthy than all the rest, he would then eat the king’s portion of meat and drink the wine.
 
-Of course, because Daniel followed the Lord’s way, at the end of the tenth day he was the strongest of all who were taken before the king. (See Dan. 1.)
+Of course, because Daniel followed the Lord’s way, at the end of the tenth day he was the strongest of all who were taken before the king. (See [[Daniel 1.1|Dan. 1]][[Daniel 1.2|]][[Daniel 1.3|]][[Daniel 1.4|]][[Daniel 1.5|]][[Daniel 1.6|]][[Daniel 1.7|]][[Daniel 1.8|]][[Daniel 1.9|]][[Daniel 1.10|]][[Daniel 1.11|]][[Daniel 1.12|]][[Daniel 1.13|]][[Daniel 1.14|]][[Daniel 1.15|]][[Daniel 1.16|]][[Daniel 1.17|]][[Daniel 1.18|]][[Daniel 1.19|]][[Daniel 1.20|]][[Daniel 1.21|]][[Daniel 1.22|]][[Daniel 1.23|]][[Daniel 1.24|]][[Daniel 1.25|]][[Daniel 1.26|]][[Daniel 1.27|]][[Daniel 1.28|]][[Daniel 1.29|]][[Daniel 1.30|]][[Daniel 1.31|]][[Daniel 1.32|]][[Daniel 1.33|]][[Daniel 1.34|]][[Daniel 1.35|]][[Daniel 1.36|]][[Daniel 1.37|]][[Daniel 1.38|]][[Daniel 1.39|]][[Daniel 1.40|]][[Daniel 1.41|]][[Daniel 1.42|]][[Daniel 1.43|]][[Daniel 1.44|]][[Daniel 1.45|]].)
 
 Terry, many times in your life you will be tested, tried, and tempted to use things that you have been taught are not good for your body. You may be ridiculed and laughed at when you refuse to partake of them. But just as Daniel of old received strength by obeying the Lord’s commandments, you too will be blessed in the same way.
 
-The Lord’s laws are eternal. Just as surely as we follow them, we will receive His blessings. He has promised us that “all saints who remember to keep and do these sayings, walking in obedience to the commandments, shall receive health, ... wisdom and great treasures of knowledge, even hidden treasures; And shall run and not be weary, and shall walk and not faint.” (D&C 89:18–20.) Daniel passed the first test and was blessed by the Lord.
+The Lord’s laws are eternal. Just as surely as we follow them, we will receive His blessings. He has promised us that “all saints who remember to keep and do these sayings, walking in obedience to the commandments, shall receive health, … wisdom and great treasures of knowledge, even hidden treasures; And shall run and not be weary, and shall walk and not faint.” ([[D&C 89.18|D&C 89:18–20]][[D&C 89.19|]][[D&C 89.20|]].) Daniel passed the first test and was blessed by the Lord.
 
-At the end of the three-year training period, these young men were brought before the king to be judged. Daniel had not wasted his time and had studied hard. His efforts had blessed him with “knowledge and skill in all learning and wisdom.” (Dan. 1:17.) He was now prepared for the test to be given him by the king.
+At the end of the three-year training period, these young men were brought before the king to be judged. Daniel had not wasted his time and had studied hard. His efforts had blessed him with “knowledge and skill in all learning and wisdom.” ([[Daniel 1.17|Dan. 1:17]].) He was now prepared for the test to be given him by the king.
 
 As the king met with them, he found none to be like Daniel. In all matters of wisdom and understanding that the king inquired of him, Daniel was found to be ten times better than all of the king’s wise men.
 
@@ -63,13 +64,13 @@ The third challenge which came to Daniel resulted from a change in administratio
 
 In his drunken state the king sent for the sacred vessels which had been taken from the holy temple by Nebuchadnezzar. He desecrated these vessels by drinking wine from them. His actions so displeased God that the Lord wrote some words on the wall with His finger. This frightened the king, and he trembled so much that his knees knocked together in front of his royal guests.
 
-When not one of all the noble and wise men present could interpret the writings on the wall, they sent for Daniel who, of course, with the power of the Lord, could interpret what was written there. Daniel let the king know that the Lord’s displeasure with him was so great that his life would be taken. (See Dan. 5.)
+When not one of all the noble and wise men present could interpret the writings on the wall, they sent for Daniel who, of course, with the power of the Lord, could interpret what was written there. Daniel let the king know that the Lord’s displeasure with him was so great that his life would be taken. (See [[Daniel 5.1|Dan. 5]][[Daniel 5.2|]][[Daniel 5.3|]][[Daniel 5.4|]][[Daniel 5.5|]][[Daniel 5.6|]][[Daniel 5.7|]][[Daniel 5.8|]][[Daniel 5.9|]][[Daniel 5.10|]][[Daniel 5.11|]][[Daniel 5.12|]][[Daniel 5.13|]][[Daniel 5.14|]][[Daniel 5.15|]][[Daniel 5.16|]][[Daniel 5.17|]][[Daniel 5.18|]][[Daniel 5.19|]][[Daniel 5.20|]][[Daniel 5.21|]][[Daniel 5.22|]][[Daniel 5.23|]][[Daniel 5.24|]][[Daniel 5.25|]][[Daniel 5.26|]][[Daniel 5.27|]][[Daniel 5.28|]][[Daniel 5.29|]][[Daniel 5.30|]][[Daniel 5.31|]].)
 
 This story has always been interesting to me because those at the party had to send for Daniel. Even though he was one of the most prestigious of all the wise men, he did not attend such an event. He would not permit himself to be present in such evil and worldly surroundings. He had met the third test. He had separated himself from the evil environment which could only fill his mind with unrighteous thoughts and actions.
 
 Terry, be as strong as Daniel in keeping distance between yourself and the evil practices and places of the world. Don’t let the wrong kinds of books, pictures, and other reading material be near you to tempt you to take even the slightest glance. Such materials can intoxicate and destroy your mind just as surely as liquor and drugs can intoxicate and destroy your body.
 
-Have the courage to turn off unfit television programs, and stay away from movies and videotapes that would fill your mind with thoughts of evil and violence. Remember, the scripture has said, “For as [a man] thinketh in his heart, so is he.” (Prov. 23:7.)
+Have the courage to turn off unfit television programs, and stay away from movies and videotapes that would fill your mind with thoughts of evil and violence. Remember, the scripture has said, “For as \[a man\] thinketh in his heart, so is he.” ([[Proverbs 23.7|Prov. 23:7]].)
 
 The fourth challenge which came to Daniel was far, far more important to him than life itself. The king had selected 120 princes to preside over his entire kingdom. Over the princes he placed three presidents to be their leaders. Daniel was selected to be the first president. You see, he did not have to go along with their riotous, unrighteous living to be recognized and sought after as a person of great worth.
 
@@ -77,7 +78,7 @@ The other princes and presidents were envious of the power given to Daniel, and 
 
 Daniel’s faith in the living God was strong and vigorous. He continued his prayers, and of course was quickly discovered and brought before the king. The king was bound by law, and even though it grieved him greatly, he was required to sentence Daniel to the lions’ den.
 
-After the sentence was passed, the king was so troubled that he could not sleep all night. Early in the morning he rushed to the lions’ den to see if Daniel’s God had protected him from the lions. His joy was exceedingly great when he found Daniel had been protected by the Lord and was alive and unharmed. The king was in awe over this great miracle and declared that Daniel’s God was the living God and steadfast forever. (See Dan. 6.)
+After the sentence was passed, the king was so troubled that he could not sleep all night. Early in the morning he rushed to the lions’ den to see if Daniel’s God had protected him from the lions. His joy was exceedingly great when he found Daniel had been protected by the Lord and was alive and unharmed. The king was in awe over this great miracle and declared that Daniel’s God was the living God and steadfast forever. (See [[Daniel 6.1|Dan. 6]][[Daniel 6.2|]][[Daniel 6.3|]][[Daniel 6.4|]][[Daniel 6.5|]][[Daniel 6.6|]][[Daniel 6.7|]][[Daniel 6.8|]][[Daniel 6.9|]][[Daniel 6.10|]][[Daniel 6.11|]][[Daniel 6.12|]][[Daniel 6.13|]][[Daniel 6.14|]][[Daniel 6.15|]][[Daniel 6.16|]][[Daniel 6.17|]][[Daniel 6.18|]][[Daniel 6.19|]][[Daniel 6.20|]][[Daniel 6.21|]][[Daniel 6.22|]][[Daniel 6.23|]][[Daniel 6.24|]][[Daniel 6.25|]][[Daniel 6.26|]][[Daniel 6.27|]][[Daniel 6.28|]].)
 
 Terry, this story of Daniel teaches us of the great blessings in store for those who place their trust in the Lord, even the protection of life itself.
 
@@ -86,4 +87,7 @@ These stories in the scriptures will never grow old. They will be just as exciti
 Build your life on a foundation of truth and righteousness. It is the only foundation that will stand the pressures of this life and endure through the eternities. The priesthood you bear is a special gift, for the giver is the Lord Himself. Use it, magnify it, live worthy of it. I want you to know that I have a direct testimony of its power. It has blessed my life in so many ways.
 
 We love you and ask the Lord’s blessings to continually be with you. I bear witness of His work, in the name of Jesus Christ, amen.
+
+
+
 

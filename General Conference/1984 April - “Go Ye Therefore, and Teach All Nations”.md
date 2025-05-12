@@ -1,5 +1,6 @@
 # “Go Ye Therefore, and Teach All Nations”
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
 
@@ -13,7 +14,7 @@ Throughout His ministry, the Savior encouraged us to do the things that we had s
 
 “If I then, your Lord and Master, have washed your feet; ye also ought to wash one another’s feet.
 
-“For I have given you an example, that ye should do as I have done to you.” (John 13:14–15.)
+“For I have given you an example, that ye should do as I have done to you.” ([[John 13.14|John 13:14–15]][[John 13.15|]].)
 
 It is evident, then, that if the Master served, we should serve. If He taught, we should teach. If He prayed, we should also pray. He knew that if we would catch the spirit of His ministry, our hearts and our souls would be so full of that which we had received that we could not be content unless we were sharing, serving, teaching, and praying together.
 
@@ -27,7 +28,7 @@ As Matthew completed His Gospel, he recorded this instruction of the Lord to His
 
 “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost:
 
-“Teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, even unto the end of the world. Amen.” (Matt. 28:16–20.)
+“Teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, even unto the end of the world. Amen.” ([[Matthew 28.16|Matt. 28:16–20]][[Matthew 28.17|]][[Matthew 28.18|]][[Matthew 28.19|]][[Matthew 28.20|]].)
 
 The scriptures are replete with examples of what happens to individuals when the light of the gospel really permeates their souls. Let us just consider two examples. The first is from the New Testament. There is a story in the book of John about two disciples who followed John the Baptist. Again from the scripture:
 
@@ -37,13 +38,13 @@ The scriptures are replete with examples of what happens to individuals when the
 
 “And the two disciples heard him speak, and they followed Jesus.
 
-“Then Jesus turned, and saw them following, and saith unto them, What seek ye? They said unto him, ... Master, where dwellest thou?
+“Then Jesus turned, and saw them following, and saith unto them, What seek ye? They said unto him, … Master, where dwellest thou?
 
 “He saith unto them, Come and see. They came and saw where he dwelt, and abode with him that day: for it was about the tenth hour.
 
 “One of the two which heard John speak, and followed him, was Andrew, Simon Peter’s brother.
 
-“He first findeth his own brother Simon, and saith unto him, We have found the ... Christ.” (John 1:35–41.)
+“He first findeth his own brother Simon, and saith unto him, We have found the … Christ.” ([[John 1.35|John 1:35–41]][[John 1.36|]][[John 1.37|]][[John 1.38|]][[John 1.39|]][[John 1.40|]][[John 1.41|]].)
 
 When Andrew had received something special in his life, he wanted to share it with his brother, and could not rest until he had found him and told him he had found the Lord.
 
@@ -51,7 +52,7 @@ There is another great example in the Book of Mormon about Alma and the sons of 
 
 It is most interesting to see what occurred when the light of the gospel came into his life. From the Book of Mosiah we read:
 
-“And now it came to pass that Alma began from this time forward to teach the people, and those who were with Alma at the time the angel appeared unto them, traveling round about through all the land, publishing to all the people the things which they had heard and seen, and preaching the word of God in much tribulation, being greatly persecuted by those who were unbelievers, being smitten by many of them.” (Mosiah 27:32.)
+“And now it came to pass that Alma began from this time forward to teach the people, and those who were with Alma at the time the angel appeared unto them, traveling round about through all the land, publishing to all the people the things which they had heard and seen, and preaching the word of God in much tribulation, being greatly persecuted by those who were unbelievers, being smitten by many of them.” ([[Mosiah 27.32|Mosiah 27:32]].)
 
 And then, speaking of the four sons of Mosiah, the scripture says:
 
@@ -59,7 +60,7 @@ And then, speaking of the four sons of Mosiah, the scripture says:
 
 “And thus they were instruments in the hands of God in bringing many to the knowledge of the truth, yea, to the knowledge of their Redeemer.
 
-“And how blessed are they! For they did publish peace; they did publish good tidings of good; and they did declare unto the people that the Lord reigneth.” (Mosiah 27:35–37.)
+“And how blessed are they! For they did publish peace; they did publish good tidings of good; and they did declare unto the people that the Lord reigneth.” ([[Mosiah 27.35|Mosiah 27:35–37]][[Mosiah 27.36|]][[Mosiah 27.37|]].)
 
 After conversion comes the desire to share—not so much out of a sense of duty, even though that responsibility falls on the priesthood, but out of a sincere love and appreciation for that which has been received. When such a “pearl of great price” comes into our lives, we cannot be content just to admire it by ourselves. It must be shared! And here is the great joy and happiness of the gift!
 
@@ -93,7 +94,7 @@ I hear you stand and bear your testimonies, acknowledging your love for your com
 
 President Heber J. Grant has said:
 
-“I feel sorry for the man or the woman who has never experienced the sweet joy which comes to the missionary who proclaims the gospel of Jesus Christ, who bring honest souls to a knowledge of the truth, and who hears the expressions of gratitude and thanksgiving that come from the hearts of those who have been brought by his labor to a comprehension of life eternal. So also do I feel sorry for those who have never experienced the sweet joy resulting from reaching out their hands and helping those who were needy. Assuredly there is more blessing comes to us from giving than in accumulating; there is no question of this in my mind. There is also more blessing comes to us in going forth to proclaim the gospel of Jesus Christ, and laboring for the salvation of the souls of men, than can possibly come to us by merely having a knowledge of the truth of our religion, and then remaining at home to mingle and labor in the ordinary affairs of life, and accumulate the wealth of this world that perishes with the using. One great trouble is that we ofttimes lose sight of what is the most valuable labor for us to perform, the labor that will be most pleasing in the sight of our Heavenly Father.” (Gospel Standards, comp. G. Homer Durham, Salt Lake City: Improvement Era, 1969, p. 104.)
+“I feel sorry for the man or the woman who has never experienced the sweet joy which comes to the missionary who proclaims the gospel of Jesus Christ, who bring honest souls to a knowledge of the truth, and who hears the expressions of gratitude and thanksgiving that come from the hearts of those who have been brought by his labor to a comprehension of life eternal. So also do I feel sorry for those who have never experienced the sweet joy resulting from reaching out their hands and helping those who were needy. Assuredly there is more blessing comes to us from giving than in accumulating; there is no question of this in my mind. There is also more blessing comes to us in going forth to proclaim the gospel of Jesus Christ, and laboring for the salvation of the souls of men, than can possibly come to us by merely having a knowledge of the truth of our religion, and then remaining at home to mingle and labor in the ordinary affairs of life, and accumulate the wealth of this world that perishes with the using. One great trouble is that we ofttimes lose sight of what is the most valuable labor for us to perform, the labor that will be most pleasing in the sight of our Heavenly Father.” (*Gospel Standards,* comp. G. Homer Durham, Salt Lake City: Improvement Era, 1969, p. 104.)
 
 Bishops, will you please give more encouragement to the healthy, retired, or soon-to-be retired couples who are considering missions? Many are awaiting your call, reluctant to come forward and ask. How we need their maturity, their wisdom, and their experience in our rapidly growing Church!
 
@@ -102,4 +103,7 @@ Bishops, instill in these couples a desire and the confidence that they will nee
 May the Lord bless you great, mature couples in the Church with an earnest desire to be anxiously engaged in His service.
 
 I leave you my witness of the truthfulness of this great work, in the name of Jesus Christ, amen.
+
+
+
 

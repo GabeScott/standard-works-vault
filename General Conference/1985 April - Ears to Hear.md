@@ -1,5 +1,6 @@
 # Ears to Hear
-*By By Bishop Henry B. Eyring - First Counselor in the Presiding Bishopric*
+
+By Bishop Henry B. Eyring - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1985 General Conference*
 
@@ -21,7 +22,7 @@ Now I can hear the young deacons saying, “Well, now, that may be fine for you,
 
 I remember one boy in the quorum had to miss a few meetings, and so he sent his brother to the class with a tape recorder. His brother recorded our meeting and took it home. It happened more than once. When the deacon came back, I asked him why. I don’t remember his words, but I remember that it was clear he knew what I knew. God was trying to speak to that deacons quorum. The boy wasn’t anxious to have a tape recording to hear me; he was trying to hear God. He knew where to listen and how to hear.
 
-He’d read the scriptures for us in class, and I knew he knew them and loved them. And so, even when I wasn’t teaching very well, by the power of the Holy Ghost and from knowing the Master’s voice in the scriptures, he could hear what he needed to hear. The memory of that black recorder with its tape turning will always remind me of the scripture which says, “He that hath ears to hear, let him hear.” (Matt. 11:15.)
+He’d read the scriptures for us in class, and I knew he knew them and loved them. And so, even when I wasn’t teaching very well, by the power of the Holy Ghost and from knowing the Master’s voice in the scriptures, he could hear what he needed to hear. The memory of that black recorder with its tape turning will always remind me of the scripture which says, “He that hath ears to hear, let him hear.” ([[Matthew 11.15|Matt. 11:15]].)
 
 I spoke at his funeral just a few years later. He lived about as many years as the Prophet Joseph had lived when he saw God the Father and Jesus Christ in the grove. My deacon hadn’t seen a vision, but he had heard the voice of God through his servants in a deacons quorum. He wanted to hear, he knew how, and he had the faith he could. Like the boy prophet Joseph, he knew the heavens were open.
 
@@ -34,4 +35,7 @@ I’m grateful for the gift given to me of ears to hear. One of my great-grandfa
 John Bennion went on another mission to Wales and back again to this valley. Henry Eyring went on to Colonia Juarez, as Miles Romney did. And they left for me a tradition which I deeply appreciate. They were the yeomen of the Church, the soldiers of the Church, and my great-grandfathers. You can’t find in their journals records of the positions they held, just of the instructions they heard, and knew were from God, and followed. I’m grateful to my parents who handed me that heritage undiminished. I’m grateful to my wife, who more than once has heard when I did not and gently said, “Would you pray about it?” If my sons and daughters will listen to her, and hear through her what God has in mind for them, we will pass the heritage on again.
 
 God lives, Jesus is the Christ, Joseph Smith in fact saw God and His Son and received all the keys of the priesthood. And President Kimball holds them today. I testify that God loves his children and can tell us what is true. I pray that we all may have ears to hear, that he may guide us. I pray that I may serve you and him, in the name of the Lord Jesus Christ, amen.
+
+
+
 

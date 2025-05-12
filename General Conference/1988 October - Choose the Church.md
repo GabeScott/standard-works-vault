@@ -1,5 +1,6 @@
 # Choose the Church
-*By Albert Choules, Jr. - Of the First Quorum of the Seventy*
+
+By Elder Albert Choules, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
 
@@ -15,7 +16,10 @@ I remember as a young boy about to receive the priesthood my father calling me t
 
 I promised President Hinckley on Thursday afternoon, and now tonight I would like to do so again to the First Presidency, the Quorum of the Twelve, and these other Brethren that I desire to dedicate my all and serve to whatever extent I am asked.
 
-Four years ago I began service in the Mesa Arizona Temple as a sealer. During these years, I have had an opportunity to gain a greater appreciation, understanding of, and testimony of the exalting ordinances of the priesthood. That service, on the heels of a delightful three-year mission experience in New York City, has taught me the importance of the priesthood and its ordinances and the eternal nature thereof.
+Four years ago I began service in the Mesa Arizona Temple as a sealer. During these years, I have had an opportunity to gain a greater appreciation, understanding, and testimony of the exalting ordinances of the priesthood. That service, on the heels of a delightful three-year mission experience in New York City, has taught me the importance of the priesthood and its ordinances and the eternal nature thereof.
 
 I bear you my witness that I know that God lives and that Jesus is the Christ, that this is the Church of Jesus Christ. My current wife, my bride of fifteen months, has promised that with Rosemary, my first wife, pulling for me on the other side of the veil, and with her pulling for me on this side, I will succeed. I know that with the help of the Lord I will succeed. To him I promise to give my all, in the holy name of Jesus Christ, amen.
+
+
+
 

@@ -1,19 +1,17 @@
 # “Feed My Sheep”
-*By David B. Haight - Of the Council of the Twelve*
+
+By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/04/feed-my-sheep?lang=eng)
 
-I must admit that my heart beat a little faster with spiritual emotion as the choir was singing “The Morning Breaks; the Shadows Flee,” one of the great, stirring hymns of the Church. You will recall that Parley P. Pratt, one of the Twelve sent to Great Britain by the Prophet Joseph Smith to assist in opening the work abroad, composed those words. They were to help explain the true gospel message to the world. He penned,
+I must admit that my heart beat a little faster with spiritual emotion as the choir was singing “The Morning Breaks; the Shadows Flee,” one of the great, stirring hymns of the Church. You will recall that Parley P. Pratt, one of the Twelve sent to Great Britain by the Prophet Joseph Smith to assist in opening the work abroad, composed those words. They were to help explain the true gospel message to the world. He penned,
 
-“The morning breaks; the shadows flee;
-
-Lo, Zion’s standard is unfurled!
-
-The dawning of a brighter day.”
-
-(Hymns, no. 269.)
+>“The morning breaks; the shadows flee;
+>Lo, Zion’s standard is unfurled!
+>The dawning of a brighter day.”
+>
 
 The morning light of the gospel is spreading over the world, the shadows of darkness are disappearing, the majesty of his work is bursting forth. Tens of thousands are accepting the gospel of salvation.
 
@@ -21,7 +19,7 @@ A few months ago we drove along the coast of Chile with President Lester Haymore
 
 We reflected on the many priesthood, Relief Society, and Sunday School classes where husbands and wives who have been trained in the gospel—many with unusual talents—were not now being fully used. Some stakes are crowded with mature couples fully prepared to accept a mission call, who could not only enthusiastically help in spreading the gospel but strengthen new members in areas of the world where we are growing so rapidly. The thousands of newly baptized members now in the Church, with its somewhat strange, unfamiliar ways, could be encouraged and trained by someone who today is sitting comfortably at home. We thought, if we could only transplant hundreds of our faithful, well-prepared couples out into one of the greatest chapters of their lives!
 
-Amulek taught: “And he shall come into the world to redeem his people” (Alma 11:40). Must we not encourage and hold together “his people” and help prepare them for his coming?
+Amulek taught: “And he shall come into the world to redeem his people” ([[Alma 11.40|Alma 11:40]]). Must we not encourage and hold together “his people” and help prepare them for his coming?
 
 Some generally think that full-time missionary service is only for younger, unmarried men and women. However, a new social pattern is emerging. The number of men and women retiring from active employment or from professions is continually increasing, at what President Kimball or Elder LeGrand Richards would consider a very early age.
 
@@ -41,7 +39,7 @@ And then Brother Fossum said, “Fifty years ago I served a mission in Hawaii an
 
 Sister Fossum said, “It’s really hard on grandmas to be away from twenty-six grandchildren, but I’m coming through with flying colors—sometimes at half-mast, but they are flying!”
 
-This dedicated couple concluded: “A mission for those of mature years is a rich, rewarding experience. It’s for those who want to live out their retirement and not just exist.”
+This dedicated couple concluded: “A mission for those of mature years is a rich, rewarding experience. It’s for those who want to *live out* their retirement and not just *exist.*”
 
 Now we need more—many more—couples like the Fossums who are willing, wondering and asking, “What can I do for the Lord?” and willing to use part of their golden years in this vital service.
 
@@ -49,7 +47,7 @@ In the early days of the Church, the Lord’s work urgently required sacrifice a
 
 “Wherefore, be not weary in well-doing, for ye are laying the foundation of a great work. And out of small things proceedeth that which is great.
 
-“Behold, the Lord requireth the heart and a willing mind; and the willing and obedient shall eat the good of the land of Zion in these last days.” (D&C 64:33–34.)
+“Behold, the Lord requireth the heart and a willing mind; and the willing and obedient shall eat the good of the land of Zion in these last days.” ([[D&C 64.33|D&C 64:33–34]][[D&C 64.34|]].)
 
 Now to you mature couples: don’t wait until your retirement dinner and the traditional gold watch to make plans, but let’s start now. Prepare for what may be the most rewarding experience of your life. Why not begin now to expand your horizons; plan to increase your knowledge and learn another language. You can start with Spanish or German. President Kimball is suggesting Mandarin Chinese.
 
@@ -59,7 +57,7 @@ We are witnessing a continuing unfolding of the Lord’s work in this, the last 
 
 Moroni, the Book of Mormon prophet, taught of the careful attention given to the newly baptized then:
 
-“And after they had been received unto baptism, and were wrought upon and cleansed by the power of the Holy Ghost, they were numbered among the people of the church of Christ; and their names were taken, that they might be remembered and nourished by the good word of God, to keep them in the right way, to keep them continually watchful unto prayer” (Moro. 6:4; italics added).
+“And after they had been received unto baptism, and were wrought upon and cleansed by the power of the Holy Ghost, they were *numbered among the people* of the church of Christ; and *their names were taken,* that *they might be remembered* and *nourished* by the good word of God, to keep them in the right way, to keep them continually watchful unto prayer” ([[Moroni 6.4|Moro. 6:4]]; italics added).
 
 In many areas of the world we have converts that need to be remembered with care and love and encouraged and kept in the right way, as Moroni stated. But the couples with the experience who could assist are usually living elsewhere. We need the help of seasoned Church members who can provide the training, encouragement, and, above all, the compassionate concern.
 
@@ -81,9 +79,12 @@ Again, the second time, “Lovest thou me?”
 
 He said unto him the third time, “Simon, son of Jonas, lovest thou me?” Peter, now grieved because the Savior had asked the third time, “Lovest thou me?” said, “Lord, thou knowest all things; thou knowest that I love thee.”
 
-Jesus said unto him, “Feed my sheep.” (See John 21:15–17.)
+Jesus said unto him, “Feed my sheep.” (See [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].)
 
 To us of his church, isn’t the duty clear: forever to “feed my sheep,” his followers, those who have accepted his gospel? They are his. Isn’t he saying they are dear to him? You are stronger and your faith is firm. Be a friend to those who are new. “Feed my lambs,” he is saying to us.
 
 May many of us who are fully prepared and needing the blessings put aside the things of the world and become shepherds to the flock and lose ourselves in his service. In the name of the Lord Jesus Christ, amen.
+
+
+
 

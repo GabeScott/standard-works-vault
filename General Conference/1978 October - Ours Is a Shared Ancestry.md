@@ -1,5 +1,6 @@
 # Ours Is a Shared Ancestry
-*By J. Thomas Fyans - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -7,11 +8,11 @@
 
 Elder Faust, I am sure the Presidency of the First Quorum of the Seventy will sustain me in our expression of love and our complete vote of sustaining you in your new call, and as well, we greet you three new Brethren warmly, knowing you will help shoulder the tremendous opportunities that rest upon our shoulders.
 
-When I think of my father, I call him my father; but my two brothers and two sisters would remind me that he isn’t just my father, he is our father.
+When I think of my father, I call him *my* father; but my two brothers and two sisters would remind me that he isn’t just *my* father, he is *our* father.
 
-In thinking of my grandfather, if I were to claim him as mine alone, not only my brothers and sisters would remind me that grandfather is our grandfather, but my first cousins would join in the chorus to say, “He is our grandfather, as well.” If I were to mention my great-grandfather as mine, second cousins would add their voices and remind me that great-grandfather is ours.
+In thinking of my grandfather, if I were to claim him as mine alone, not only my brothers and sisters would remind me that grandfather is *our* grandfather, but my first cousins would join in the chorus to say, “He is *our* grandfather, as well.” If I were to mention my great-grandfather as mine, second cousins would add their voices and remind me that great-grandfather is *ours.*
 
-It is apparent, then, that ours is a shared ancestry. We shouldn’t think back and say “mine, mine, mine”; we should say “ours, ours, ours.” The farther back we reach, the greater the chorus swells.
+It is apparent, then, that *ours* is a shared ancestry. We shouldn’t think back and say “mine, mine, mine”; we should say “ours, ours, ours.” The farther back we reach, the greater the chorus swells.
 
 It has become apparent that genealogical research efforts are being duplicated. To determine the extent to which such duplication exists, I took my genealogical records to a professional research institute. They compared my records with their name pool and determined that they already had ninety-five percent of my records in their file. That means that only five percent of my records are unique to me. Thirty-four other clients shared my ancestry. I was rather amazed with this and wondered if such a high rate of duplication existed among the general population. At my request the institute took a sampling of clients from all parts of the United States, members of the Church and nonmembers. These names were compared with records in their name pool, and it was determined that eighty percent were duplicates. Only twenty percent were unique.
 
@@ -60,4 +61,7 @@ We must make available all the exalting blessings of the gospel to all of his ch
 At what rate are we progressing? As members of the Church we are identifying approximately one million names a year for these sacred ordinances. At that rate it would require a thousand years, or a millennium, to identify one billion names. I’m not sure his time schedule will allow us a millennium for each billion of his children who have lived.
 
 With his blessings—spiritual blessings, technological blessings—we can accelerate the availability of exalting opportunities to his children who are awaiting our expression of love in turning our hearts to them. In the name of Jesus Christ, amen.
+
+
+
 

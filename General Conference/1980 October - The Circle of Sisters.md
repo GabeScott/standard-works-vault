@@ -1,5 +1,6 @@
 # The Circle of Sisters
-*By Boyd K. Packer - Of the Quorum of the Twelve Apostles*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -9,19 +10,19 @@ Just days ago Sister Packer and I attended Relief Society somewhere in Eastern E
 
 I told those sisters that they belonged to the largest, and by all measure, the greatest women’s organization on earth. I quoted the Prophet Joseph Smith when he and the Brethren organized the Relief Society.
 
-“I now turn the key in [behalf of all women].”
+“I now turn the key in \[behalf of all women\].”
 
-This society is organized, “according to your natures. ... You are now placed in a situation in which you can act according to those sympathies” within you.
+This society is organized, “according to your natures. … You are now placed in a situation in which you can act according to those sympathies” within you.
 
-“If you live to these privileges, ... the angels cannot be restrained from being your associates. ...
+“If you live to these privileges, … the angels cannot be restrained from being your associates. …
 
-“If this society listen to the counsel of the Almighty, through the heads of the Church, they shall have power to command queens in their midst.” (History of the Church, 4:607, 605.)
+“If this society listen to the counsel of the Almighty, through the heads of the Church, they shall have power to command queens in their midst.” (*History of the Church,* 4:607, 605.)
 
 The Spirit was in that meeting! And when the meeting closed, the lovely sister who had conducted with gentility and reverence wept openly.
 
 I then told them about you, and they were strengthened. I spoke of the assignment to speak to you here tonight and asked if they had a message for you. Several of them made notes; each expression, every one, was in the spirit of sending something to you—not of asking something from you. One of them said, “A small circle of sisters send their own hearts and thoughts to all the sisters and begs the Lord to help us go forward.”
 
-Those words, “circle of sisters,” inspired me. I could see them standing in your circle. I caught then the vision of a great circle of sisters—the same vision the Apostles and prophets before us have had.
+Those words, “circle of sisters,” inspired me. I could see them standing in *your* circle. I caught then the vision of a great circle of sisters—the same vision the Apostles and prophets before us have had.
 
 That evening I stood, for a moment, in that circle and felt the impulses of faith and courage and love coming and going on either side. I remembered the sealing rooms of the temples. In some of them mirrors are placed on opposing walls. If you stand near the altar and look to either side, you can see a corridor of diminishing images. It gives one the feeling of looking into the infinite, into the eternities. You can see as far as you can see and you have the feeling that if you could move to the limit of your vision you could yet see on forever.
 
@@ -33,9 +34,9 @@ The Relief Society, the Prophet told us, is organized after the pattern of the p
 
 Membership in the priesthood magnifies the man and the boy. Wherever he is, whatever he does, no matter with whom he associates, he is expected to honor his priesthood. It is the commitment of his manhood to the highest standards of integrity. Attendance at quorum meetings on Sunday is but a part, even a small part, of his membership responsibilities. Through full activity in the priesthood every worthy desire may be achieved, every need of the man can be fulfilled.
 
-The brethren do not talk much of the needs of men; certainly they are not preoccupied with them. You may be surprised to learn that they are seldom discussed. Those needs are important, very important. So are the restraints that protect each holder of the priesthood and guide him to a complete fulfillment in life. But the brethren are not preoccupied with their needs. They are preoccupied with the priesthood! It is a worthy preoccupation.
+The brethren do not talk much of the needs of men; certainly they are not preoccupied with them. You may be surprised to learn that they are seldom discussed. Those needs are important, very important. So are the restraints that protect each holder of the priesthood and guide him to a complete fulfillment in life. But the brethren are not preoccupied with their needs. They are preoccupied with the *priesthood!* It is a worthy preoccupation.
 
-When the priesthood is organized and functions as it should, the worthy aspirations of all who have part in it are satisfied. Through the priesthood men can be trained in the proper relationship with all sisters—their wives and daughters and mothers. Priesthood is the cause for men and boys in the Church.
+When the priesthood is organized and functions as it should, the worthy aspirations of all who have part in it are satisfied. Through the priesthood men can be trained in the proper relationship with all sisters—their wives and daughters and mothers. Priesthood is *the* cause for men and boys in the Church.
 
 Relief Society is a great strength to the priesthood. Through it you will share in the privileges and blessings that belong to the priesthood. Indeed, the holders of the priesthood cannot have a fulness without you.
 
@@ -57,9 +58,9 @@ Because it is your course of study this coming year, we turn to the Old Testamen
 
 Then came Nehemiah the prophet, known now as “the wall builder.” He rallied the Israelites to their own defense. Under his direction they began to rebuild the wall.
 
-At first their enemies ridiculed them. Tobiah, the Ammonite, mocked them, saying, “Even that which they build, if a fox go up, he shall even break down their stone wall” (Neh. 4:3).
+At first their enemies ridiculed them. Tobiah, the Ammonite, mocked them, saying, “Even that which they build, if a fox go up, he shall even break down their stone wall” ([[Nehemiah 4.3|Neh. 4:3]]).
 
-But Nehemiah consoled his people and set to work. The enemy was everywhere. “Nevertheless,” he recorded, “we made [a] prayer unto our God, and set a watch against them” (Neh. 4:9).
+But Nehemiah consoled his people and set to work. The enemy was everywhere. “Nevertheless,” he recorded, “we made \[a\] prayer unto our God, and set a watch against them” ([[Nehemiah 4.9|Neh. 4:9]]).
 
 Sisters, think carefully upon that. They “made a prayer,” and “set a watch,” and proceeded with their work.
 
@@ -67,11 +68,11 @@ The day came when their enemies saw that the wall went up. It encircled the city
 
 And here is the lesson. It is a type, it is symbolic, it is a warning! In it is a message for every sister in Relief Society; for the general presidency and their board; for the stake and ward officers and teachers; indeed, for every member. Consider it very, very carefully.
 
-Sanballat and Tobiah and Geshem sent for Nehemiah. “Come,” they enticed, “let us meet together in some one of the villages in the plain of Ono.” They endeavored to draw him away from his work on the wall. But the prophet knew their hearts and said, “They thought to do me mischief.” (Neh. 6:2.)
+Sanballat and Tobiah and Geshem sent for Nehemiah. “Come,” they enticed, “let us meet together in some one of the villages in the plain of Ono.” They endeavored to draw him away from his work on the wall. But the prophet knew their hearts and said, “They thought to do me mischief.” ([[Nehemiah 6.2|Neh. 6:2]].)
 
 Five times they sent for him to come out to them. Their importuning came then, just as it comes now to us: “Come parley with us, come join our cause, come do things our way. Come out into the world and be part with us.”
 
-His answer to them holds counsel for every sister in Relief Society. It is a message as well to the brethren of the priesthood. “I sent messengers unto them,” Nehemiah recorded, “saying, I am doing a great work, so that I cannot come down: why should the work cease, whilst I leave it, and come down to you?” (Neh. 6:3.)
+His answer to them holds counsel for every sister in Relief Society. It is a message as well to the brethren of the priesthood. “I sent messengers unto them,” Nehemiah recorded, “saying, I am doing a great work, so that I cannot come down: why should the work cease, whilst I leave it, and come down to you?” ([[Nehemiah 6.3|Neh. 6:3]].)
 
 Sisters, you have a great work to do. Build Relief Society! Strengthen its organization! Do not be enticed to leave it and go down to the worldly plains of Ono.
 
@@ -79,11 +80,11 @@ Do not allow yourselves to be organized under another banner. Do not run to and 
 
 As I followed the history of your great organization, I came across a message to the Relief Society from the First Presidency of the Church, sent to them on the occasion of their centennial. Here is their message:
 
-“We ask our Sisters of the Relief Society never to forget that they are a unique organization in the whole world, for they were organized under the inspiration of the Lord. ... No other woman’s organization in all the earth has had such a birth.
+“We ask our Sisters of the Relief Society never to forget that they are a unique organization in the whole world, for they were organized under the inspiration of the Lord. … No other woman’s organization in all the earth has had such a birth.
 
 “This divinely inspired origin brings with it a corresponding responsibility, in consecration to service, and in the loftiest loyalty to the Priesthood of God and to one another. The members should permit neither hostile nor competitive interests of any kind to detract from the duties and obligations, the privileges and honors, the opportunities and achievements of membership in this great Society.
 
-“The prime, almost the exclusive allegiance of every member of this great group, runs ... to their fellow members and to the organization. Members should permit no other affiliation either to interrupt or to interfere with the work of this Society. They should give to Relief Society service precedence over all social and other clubs and societies of similar kinds. We urge this because in the work of the Relief Society are intellectual, cultural, and spiritual values found in no other organization and sufficient for all general needs of its members.
+“The prime, almost the exclusive allegiance of every member of this great group, runs … to their fellow members and to the organization. Members should permit no other affiliation either to interrupt or to interfere with the work of this Society. They should give to Relief Society service precedence over all social and other clubs and societies of similar kinds. We urge this because in the work of the Relief Society are intellectual, cultural, and spiritual values found in no other organization and sufficient for all general needs of its members.
 
 “We urge all the Sisters to take these things to heart, and to cooperate in continuing the Relief Society in its position of the greatest and most efficient woman’s organization in the World.” (“A Centenary of Relief Society,” p. 7, Deseret News Press, 1942.)
 
@@ -91,7 +92,7 @@ That counsel from the First Presidency holds today! Rally to the cause of Relief
 
 We now move cautiously into the darkening mists of the future. We hear the ominous rumbling of the gathering storm. The narrow places of the past have been a preliminary and a preparatory testing. The issue of this dispensation now is revealed before us. It touches the life of every sister. We do not tremble in fear—for you hold in your gentle hands the light of righteousness. It blesses the brethren and nourishes our children.
 
-Those who tell you that in the kingdom of God a woman’s lot is less than that of the man know nothing of the love, akin to worship, that the worthy man has for his wife. He cannot have his priesthood, not the fulness of it, without her. “For no man,” the Prophet said, “can get the fulness of the priesthood outside the temple of the Lord” (see D&C 131:1–3). And she is there beside him in that sacred place. She is there and shares in all that he receives. Each, individually, receives the washings and anointings, each may be endowed. But he cannot ascend to the highest ordinances—the sealing ordinances—without her at his side.
+Those who tell you that in the kingdom of God a woman’s lot is less than that of the man know nothing of the love, akin to worship, that the worthy man has for his wife. He cannot have his priesthood, not the fulness of it, without her. “For no man,” the Prophet said, “can get the fulness of the priesthood outside the temple of the Lord” (see [[D&C 131.1|D&C 131:1–3]][[D&C 131.2|]][[D&C 131.3|]]). And she is there beside him in that sacred place. She is there and shares in all that he receives. Each, individually, receives the washings and anointings, each may be endowed. But he cannot ascend to the highest ordinances—the sealing ordinances—without her at his side.
 
 Oh, how powerful the tender, tempering teachings and the disarming wisdom of our sisters can be. I found the spirit of Relief Society—the whole of it—in the quiet reply of one of your number.
 
@@ -102,4 +103,7 @@ Someone ridiculed her determination to gather her year’s supply. She had store
 God bless you sisters of the Relief Society who bring so much. God bless that little circle of sisters somewhere in Eastern Europe who are a part of this great eternal circle of sisters—God’s organization for women upon this earth—the Relief Society of The Church of Jesus Christ of Latter-day Saints.
 
 I bear witness that God lives, that He directs this work, that His benevolent power is upon this great circle of sisters, in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # Daughters in the Covenant
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
+
+>*The path … we must take on our journey back to our Heavenly Father … is marked by sacred covenants with God.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/04/daughters-in-the-covenant?lang=eng)
 
@@ -23,7 +26,7 @@ My mother was the one who had carefully prepared me for making that covenant and
 
 “For this shall be a law unto the inhabitants of Zion, or in any of her stakes which are organized.
 
-“And their children shall be baptized for the remission of their sins when eight years old, and receive the [Holy Ghost].”1
+“And their children shall be baptized for the remission of their sins when eight years old, and receive the \[Holy Ghost\].”[^1]
 
 My mother had done her part. She had prepared her children with words much like those of Alma, as recorded in the Book of Mormon:
 
@@ -33,7 +36,7 @@ My mother had done her part. She had prepared her children with words much like 
 
 “Now I say unto you, if this be the desire of your hearts, what have you against being baptized in the name of the Lord, as a witness before him that ye have entered into a covenant with him, that ye will serve him and keep his commandments, that he may pour out his Spirit more abundantly upon you?
 
-“And now when the people had heard these words, they clapped their hands for joy, and exclaimed: This is the desire of our hearts.”2
+“And now when the people had heard these words, they clapped their hands for joy, and exclaimed: This is the desire of our hearts.”[^2]
 
 You may not have clapped your hands when you first heard that invitation to covenant by baptism, but you surely felt the love of the Savior and a greater commitment to nurture others for Him. I can say “surely” because those feelings are placed deep in the hearts of all of Heavenly Father’s daughters. That is part of your divine heritage from Him.
 
@@ -47,7 +50,7 @@ You have been blessed not only to find the way to make those covenants in this l
 
 You all have felt the blessing of being in the company tonight of daughters of God who are also under covenant to help and direct you as they promised to do. I have seen what you have seen as covenant sisters keep that commitment to comfort and help—and do it with a smile.
 
-I remember the smile of Sister Ruby Haight. She was the wife of Elder David B. Haight, who was a member of the Quorum of the Twelve Apostles. As a young man he served as the president of the Palo Alto stake in California. He prayed over, and worried about, the girls in the Mia Maid class in his own ward.
+I remember the smile of Sister Ruby Haight. She was the wife of Elder David B. Haight, who was a member of the Quorum of the Twelve Apostles. As a young man he served as the president of the Palo Alto stake in California. He prayed over, and worried about, the girls in the Mia Maid class in his own ward.
 
 So President Haight was inspired to ask the bishop to call Ruby Haight to teach those young girls. He knew she would be a witness of God who would lift, comfort, and love the girls in that class.
 
@@ -65,7 +68,7 @@ As you feel of that great sisterhood, what we thought divides us falls away. For
 
 With that view, young women should look forward to their entry into Relief Society as an opportunity to enlarge their circle of sisters whom they will come to know, admire, and love.
 
-That same capacity to see what we can be is increasing in families and in Primary. It is happening in family home evenings and in Primary programs. Little children are being inspired to say great and marvelous things, as they did when the Savior loosed their tongues when He taught them after He was resurrected.3
+That same capacity to see what we can be is increasing in families and in Primary. It is happening in family home evenings and in Primary programs. Little children are being inspired to say great and marvelous things, as they did when the Savior loosed their tongues when He taught them after He was resurrected.[^3]
 
 While Satan may be attacking sisters at earlier ages, the Lord is lifting sisters to higher and higher levels of spirituality. For example, young women are teaching their mothers how to use FamilySearch to find and save ancestors. Some young sisters that I know are choosing to go early in the morning to perform proxy baptisms in temples without any urging beyond the spirit of Elijah.
 
@@ -73,11 +76,11 @@ In missions across the earth, sisters are being called to serve as leaders. The 
 
 Whether or not you serve as a full-time missionary, you can gain the same ability to enrich your marriage and the capacity to raise noble children by following the examples of great women.
 
-Consider Eve, the mother of all living. Elder Russell M. Nelson said this of Eve: “We and all mankind are forever blessed because of Eve’s great courage and wisdom. By partaking of the fruit first, she did what needed to be done. Adam was wise enough to do likewise.”4
+Consider Eve, the mother of all living. Elder Russell M. Nelson said this of Eve: “We and all mankind are forever blessed because of Eve’s great courage and wisdom. By partaking of the fruit first, she did what needed to be done. Adam was wise enough to do likewise.”[^4]
 
-Every daughter of Eve has the potential to bring the same blessing to her family that Eve brought to hers. She was so important in the establishment of families that we have this report of her creation: “And the Gods said: Let us make an help meet for the man, for it is not good that the man should be alone, therefore we will form an help meet for him.”5
+Every daughter of Eve has the potential to bring the same blessing to her family that Eve brought to hers. She was so important in the establishment of families that we have this report of her creation: “And the Gods said: Let us make an help meet for the man, for it is not good that the man should be alone, therefore we will form an help meet for him.”[^5]
 
-We don’t know all the help Eve was to Adam and to their family. But we do know of one great gift that she gave, which each of you can also give: she helped her family see the path home when the way ahead seemed hard. “And Eve, his wife, heard all these things and was glad, saying: Were it not for our transgression we never should have had seed, and never should have known good and evil, and the joy of our redemption, and the eternal life which God giveth unto all the obedient.”6
+We don’t know all the help Eve was to Adam and to their family. But we do know of one great gift that she gave, which each of you can also give: she helped her family see the path home when the way ahead seemed hard. “And Eve, his wife, heard all these things and was glad, saying: Were it not for our transgression we never should have had seed, and never should have known good and evil, and the joy of our redemption, and the eternal life which God giveth unto all the obedient.”[^6]
 
 You have her example to follow.
 
@@ -85,11 +88,28 @@ By revelation, Eve recognized the way home to God. She knew that the Atonement o
 
 “Trust in the Lord with all thine heart; and lean not unto thine own understanding.
 
-“In all thy ways acknowledge him, and he shall direct thy paths.”7
+“In all thy ways acknowledge him, and he shall direct thy paths.”[^7]
 
 I know that Eve faced sorrows and disappointments, but I also know that she found joy in the knowledge that she and her family could return to live with God. I know that many of you who are here face sorrows and disappointments. I leave you my blessing that, like Eve, you may feel the same joy that she felt as you journey back home.
 
 I have a sure witness that God the Father watches over you in love. He loves each of you. You are His daughters in the covenant. Because He loves you, He will provide the help that you need to move yourself and others upward along the way back to His presence.
 
-I know that the Savior paid the price of all of our sins and that the Holy Ghost testifies of truth. You have felt that comfort in this meeting. I have a testimony that all the keys which bind sacred covenants have been restored. They are held and exercised today by our living prophet, President Thomas S. Monson. I leave these words of comfort and hope with you, His beloved covenant daughters, in the sacred name of Jesus Christ, amen.
+I know that the Savior paid the price of all of our sins and that the Holy Ghost testifies of truth. You have felt that comfort in this meeting. I have a testimony that all the keys which bind sacred covenants have been restored. They are held and exercised today by our living prophet, President Thomas S. Monson. I leave these words of comfort and hope with you, His beloved covenant daughters, in the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[D&C 68.25|Doctrine and Covenants 68:25–27]][[D&C 68.26|]][[D&C 68.27|]].
+
+[^2]: [[Mosiah 18.8|Mosiah 18:8–11]][[Mosiah 18.9|]][[Mosiah 18.10|]][[Mosiah 18.11|]].
+
+[^3]: See [[3 Nephi 26.14|3 Nephi 26:14]].
+
+[^4]: Russell M. Nelson, “Constancy amid Change,” *Ensign,* Nov. 1993, 34.
+
+[^5]: [[Abraham 5.14|Abraham 5:14]].
+
+[^6]: [[Moses 5.11|Moses 5:11]].
+
+[^7]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 

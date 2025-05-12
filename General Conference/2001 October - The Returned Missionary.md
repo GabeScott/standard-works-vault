@@ -1,7 +1,10 @@
 # The Returned Missionary
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
+
+>*What we need is a royal army of returned missionaries reenlisted into service.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2001/10/the-returned-missionary?lang=eng)
 
@@ -9,11 +12,11 @@ This afternoon, I want to address my remarks to a special group. During the last
 
 “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost:
 
-“Teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, even unto the end of the world” (Matt. 28:19–20).
+“Teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, even unto the end of the world” ([[Matthew 28.19|Matt. 28:19–20]][[Matthew 28.20|]]).
 
 It was your privilege to go to the many parts of the world to carry the Savior’s message—an invitation to come unto Him and enjoy the fruits of His gospel. You were privileged to live in different cultures and learn different languages. It was also a time of building your own personal testimony of the mission of Jesus Christ.
 
-I have always been honored to visit with you returned missionaries over the years—many of you long to return and visit the people you had the privilege of serving. You are anxious to share moments of your experiences in the mission field. In your wedding announcements and your employment résumés, you insert a line that identifies you as a returned missionary. While you no longer wear a missionary’s badge, you seem anxious to identify yourselves as one who has served the Lord as a missionary. Moreover, you have fond memories because you discovered the joy of gospel service.
+I have always been honored to visit with you returned missionaries over the years. Many of you long to return and visit the people you had the privilege of serving. You are anxious to share moments of your experiences in the mission field. In your wedding announcements and your employment résumés, you insert a line that identifies you as a returned missionary. While you no longer wear a missionary’s badge, you seem anxious to identify yourselves as one who has served the Lord as a missionary. Moreover, you have fond memories because you discovered the joy of gospel service.
 
 I have also learned from many conversations with you that the adjustment associated with leaving the mission field and returning to the world you left behind is sometimes difficult. Perhaps it is hard to keep alive the spirit of missionary work when you are no longer serving as a full-time missionary of The Church of Jesus Christ of Latter-day Saints.
 
@@ -59,7 +62,10 @@ My visit with my first missionary companion was the last opportunity I had to be
 
 “Now these sons of Mosiah were with Alma at the time the angel first appeared unto him; therefore Alma did rejoice exceedingly to see his brethren; and what added more to his joy, they were still his brethren in the Lord; yea, and they had waxed strong in the knowledge of the truth; for they were men of a sound understanding and they had searched the scriptures diligently, that they might know the word of God.
 
-“But this is not all; they had given themselves to much prayer, and fasting; therefore they had the spirit of prophecy, and the spirit of revelation, and when they taught, they taught with power and authority of God” (Alma 17:1–3).
+“But this is not all; they had given themselves to much prayer, and fasting; therefore they had the spirit of prophecy, and the spirit of revelation, and when they taught, they taught with power and authority of God” ([[Alma 17.1|Alma 17:1–3]][[Alma 17.2|]][[Alma 17.3|]]).
 
 I wish all of you could have an experience similar to the one I had with my first missionary companion, that you could pause and reflect on a time of service when you gave diligently of your time and your talents in building our Father in Heaven’s kingdom. If you try to make it happen, I promise you that it will be one of the thrilling experiences of your life. You are a great army of returned missionaries. Go forward with new zeal and determination, and through your example shine the light of the gospel in this troubled world. This is the Lord’s work in which we are engaged. God lives. Jesus is the Christ. We belong to His Church. This is my witness to you in the name of Jesus Christ, amen.
+
+
+
 

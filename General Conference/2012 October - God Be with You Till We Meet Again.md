@@ -1,7 +1,10 @@
 # God Be with You Till We Meet Again
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2012 General Conference*
+
+>*As we take the messages of the past two days into our hearts and into our lives, we will be blessed.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/10/god-be-with-you-till-we-meet-again?lang=eng)
 
@@ -9,7 +12,7 @@ My dear brothers and sisters, we have come to the close of another inspiring gen
 
 We offer our heartfelt gratitude to all who have participated in any way. The truths of the gospel have been beautifully taught and reemphasized. As we take the messages of the past two days into our hearts and into our lives, we will be blessed.
 
-As always, the proceedings of this conference will be available in the coming issues of the Ensign and the Liahona magazines. I encourage you to read the talks once again and to ponder the messages contained therein. I have found in my own life that I gain even more from these inspired sermons when I study them in greater depth.
+As always, the proceedings of this conference will be available in the coming issues of the *Ensign* and the *Liahona* magazines. I encourage you to read the talks once again and to ponder the messages contained therein. I have found in my own life that I gain even more from these inspired sermons when I study them in greater depth.
 
 We have had unprecedented coverage of the conference, reaching across the continents and the oceans to people everywhere. Though we are far removed from many of you, we feel of your spirit and send our love and appreciation to you.
 
@@ -25,9 +28,14 @@ May we ever watch over one another, assisting in times of need. Let us not be cr
 
 Let us be of good cheer as we go about our lives. Although we live in increasingly perilous times, the Lord loves us and is mindful of us. He is always on our side as we do what is right. He will help us in time of need. Difficulties come into our lives, problems we do not anticipate and which we would never choose. None of us is immune. The purpose of mortality is to learn and to grow to be more like our Father, and it is often during the difficult times that we learn the most, as painful as the lessons may be. Our lives can also be filled with joy as we follow the teachings of the gospel of Jesus Christ.
 
-The Lord admonished, “Be of good cheer; I have overcome the world.”1 What great happiness this knowledge should bring to us. He lived for us and He died for us. He paid the price for our sins. May we emulate His example. May we show our great gratitude to Him by accepting His sacrifice and living lives that will qualify us to return and one day live with Him.
+The Lord admonished, “Be of good cheer; I have overcome the world.”[^1] What great happiness this knowledge should bring to us. He lived for us and He died for us. He paid the price for our sins. May we emulate His example. May we show our great gratitude to Him by accepting His sacrifice and living lives that will qualify us to return and one day live with Him.
 
 As I have mentioned at previous conferences, I thank you for your prayers in my behalf. I need them; I feel them. We as General Authorities also remember all of you and pray for our Heavenly Father’s choicest blessings to be with you.
 
 Now, my beloved brothers and sisters, we adjourn for six months. May God be with you until we meet again at that time. In the name of our Savior and Redeemer, even Jesus Christ the Lord, amen.
+
+
+
+
+[^1]: [[John 16.33|John 16:33]].
 

@@ -1,5 +1,6 @@
 # The Relief Society
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -11,23 +12,23 @@ It is the Relief Society, one of the oldest women’s organizations in the world
 
 When the Prophet Joseph Smith established it, he said to the women:
 
-“You will receive instructions through the order of the Priesthood which God has established, through the medium of those appointed to ... direct the affairs of the Church in this last dispensation; and I now turn the key in your behalf in the name of the Lord, and this Society shall rejoice, and knowledge and intelligence shall flow down from this time henceforth” (History of the Church, 4:607).
+“You will receive instructions through the order of the Priesthood which God has established, through the medium of those appointed to … direct the affairs of the Church in this last dispensation; and I now turn the key in your behalf in the name of the Lord, and this Society shall rejoice, and knowledge and intelligence shall flow down from this time henceforth” (*History of the Church,* 4:607).
 
-The Prophet told them that the organization would be “a charitable Society, and according to your natures,” and then he added, “If you live up to your privileges, the angels cannot be restrained from being your associates” (History of the Church, 4:605).
+The Prophet told them that the organization would be “a charitable Society, and according to your natures,” and then he added, “If you live up to your privileges, the angels cannot be restrained from being your associates” (*History of the Church,* 4:605).
 
 Thirty years ago, President George Albert Smith said:
 
-“You are ... more blessed than any other women in all the world. You were the first women to have the franchise; the first women to have a voice in the work of a church. It was God that gave it to you and it came as a result of revelation to a Prophet of the Lord. Since that time, think what benefits the women of this world have enjoyed. Not only you belonging to the Church have enjoyed the blessing of equality, but when the Prophet Joseph Smith turned the key for the emancipation of womankind, it was turned for all the world, and from generation to generation the number of women who can enjoy the blessings of religious liberty and civil liberty has been increasing.” (Relief Society Magazine, Dec. 1945, p. 717.)
+“You are … more blessed than any other women in all the world. You were the first women to have the franchise; the first women to have a voice in the work of a church. It was God that gave it to you and it came as a result of revelation to a Prophet of the Lord. Since that time, think what benefits the women of this world have enjoyed. Not only you belonging to the Church have enjoyed the blessing of equality, but when the Prophet Joseph Smith turned the key for the emancipation of womankind, it was turned for all the world, and from generation to generation the number of women who can enjoy the blessings of religious liberty and civil liberty has been increasing.” (*Relief Society Magazine,* Dec. 1945, p. 717.)
 
 I would not press to join the Relief Society. I can get more from it if I leave it to be a women’s organization. I then benefit more, much more, than I could by holding membership.
 
 I hope the name, the Relief Society, will never be changed. It ties back to the very charter given to women by the Prophet. Its full, balanced program responds to every worthy need that is by nature a part of womanhood.
 
-Each member is constantly exposed to literature, art, music, to current events, to homemaking skills, and, I emphasize, to spiritual living. She is encouraged to the full expression of every worthy feeling and impulse and talent.
+Each member is constantly exposed to literature, art, music, to current events, to *homemaking skills,* and, I emphasize, to *spiritual living.* She is encouraged to the full expression of every worthy feeling and impulse and talent.
 
 When my wife returns from the grocery store, some things are set out for immediate use. Other things are set on the shelf until she, for instance, bakes again. Some are to be used only in time of an emergency.
 
-Very frequently there are things that are not for us at all. They are to be given away to someone that she wants to do for.
+Very frequently there are things that are not for us at all. They are to be given away to someone that she wants to *do for.*
 
 She returns from Relief Society in much the same way, this time bearing spiritual commodities. Some are used right away; others are to be stored. But most of it she got for someone else.
 
@@ -35,7 +36,7 @@ Her store is replenished by attendance at Relief Society, and she still draws, n
 
 I do not benefit, I repeat, from having membership in the Relief Society. We, as a family, benefit through association with women who do.
 
-Many years ago there was published in the Church this statement: “The place of woman in the Church is to walk beside the man, not in front of him nor behind him” (John A. Widtsoe, Evidences and Reconciliations, comp. by G. Homer Durham, Salt Lake City: Bookcraft, 1960, p. 305).
+Many years ago there was published in the Church this statement: “The place of woman in the Church is to walk beside the man, not in front of him nor behind him” (John A. Widtsoe, *Evidences and Reconciliations,* comp. by G. Homer Durham, Salt Lake City: Bookcraft, 1960, p. 305).
 
 In an organized way Relief Society symbolizes the relationship between man and woman in the Church.
 
@@ -43,13 +44,13 @@ Relief Society is for virtuous women, for steady women, for organized women. It 
 
 Into its ranks are invited those women who are unsteady or disorganized, the lost, careworn women. The Relief Society is an unmeasured blessing to lonely women.
 
-Shortly after the funeral held for the first wife of President Harold B. Lee, I was in a group which included his daughter Helen.
+Shortly after the funeral held for the first wife of President Harold B. Lee, I was in a group which included his daughter Helen.
 
 Someone expressed sympathy to her for the passing of her mother and said, “She took such good care of your father. I’m sure he must be lonely and must miss all of the things she did for him.”
 
-Helen responded with an insight of remarkable wisdom. “You do not understand,” she said. “It is not so much that he misses all of the things that Mother did for him. He misses her most because he needs somebody to do for.”
+Helen responded with an insight of remarkable wisdom. “You do not understand,” she said. “It is not so much that he misses all of the things that Mother did for him. He misses her most because he needs *somebody to do for.*”
 
-We all need someone to do for. When that is unfulfilled as a need, we become lonely. In the Lord’s own way, Relief Society provides for that need.
+We all need *someone to do for.* When that is unfulfilled as a need, we become lonely. In the Lord’s own way, Relief Society provides for that need.
 
 Sister, you are needed there. We need women who will applaud decency and quality in everything from the fashion of clothing to crucial social issues.
 
@@ -61,7 +62,7 @@ We need women with the gift of discernment who can view the trends in the world 
 
 We need women who can discern those positions that may not be popular at all, but are right.
 
-The Prophet Joseph Smith said, in organizing the Relief Society, that there is a need for “decision of character, aside from sympathy” (History of the Church, 4:570).
+The Prophet Joseph Smith said, in organizing the Relief Society, that there is a need for “decision of character, aside from sympathy” (*History of the Church,* 4:570).
 
 The Relief Society is so vital a link in our welfare services that save it be strong, we must surely fail.
 
@@ -73,7 +74,7 @@ It is as obligatory upon a woman to draw into her life the virtues that are fost
 
 Recently I listened to several sisters discuss Relief Society. One young woman said, “We find it so difficult to interest both the older and the younger women. If we have a lesson or project the younger women are interested in, the older women do not come. It’s so hard to get something to please everyone.”
 
-Sisters, to me there is something pathetic about those of our sisters who sit at home waiting to be enticed to Relief Society. That is not right!
+Sisters, to me there is something pathetic about those of our sisters who sit at home waiting to be *enticed* to Relief Society. That is not right!
 
 When faithful sisters pray and work and make a worthy presentation, they deserve your support. Just to have you attend is a great help.
 
@@ -122,4 +123,7 @@ I know that Relief Society today is led by wise and inspired and strong women. T
 The bewilderment of the uninspired and the misled will be replaced with assurance and direction.
 
 After months of prayerful concern over this matter, having inquired myself of Him whose organization it is, without reservation, without hesitancy, I endorse and applaud the Relief Society of The Church of Jesus Christ of Latter-day Saints and pray God to bless these, our sisters, to strengthen them, for this is His church and we are led by a prophet. In the name of Jesus Christ, amen.
+
+
+
 

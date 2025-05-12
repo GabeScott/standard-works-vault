@@ -1,5 +1,6 @@
 # As a Beacon on a Hill
-*By By Bishop H. Burke Peterson - First Counselor in the Presiding Bishopric*
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -19,13 +20,13 @@ When he was baptized, his father kept his word and opened the back door, telling
 
 Yes, there are those of your number who will make no excuse for doing as a priesthood holder of God should do. There are those who will find ways to do what is right and expected of them, in spite of others around them who may try to turn them away from the straight path. There are those who are your friends who will find ways to go on missions because it’s right.
 
-School has started for almost all of you. Unfortunately, there are some of your number who, this school year, will find it easier to follow the crowd, even when the crowd is wrong. There are some who don’t understand that there is no right way to do something wrong.
+School has started for almost all of you. Unfortunately, there are some of your number who, this school year, will find it easier to follow the crowd, *even when the crowd is wrong.* There are some who don’t understand that there is *no right way* to do something wrong.
 
 My young brethren, we are all a part of a great battle that is covering the face of the earth—a conflict between the brethren of the priesthood and the legions of Satan. It’s a very real battle. Many are wounded or die spiritually every day. The casualty list of our own is most tragic. It’s interesting to note in this battle the strong always survive.
 
 You know it isn’t hard to recognize a real warrior for the priesthood. You meet him at every turn. He is the one who says no when others say yes to movies on Sunday, to R- or X-rated shows at any time (he knows he must not fall to this temptation). He’s the one who says no to immoral books or magazines or pictures or stories at any time. He says no to fishing or swimming or boating on Sunday. He’s the one who says no when others say, “Just try it,” to a beer or a cigarette—even if it’s just one. This courageous warrior is also the one who says yes when others say no to priesthood meeting Sunday morning, to sacrament meeting, to tithe paying, to prayers each day, to seminary or institute classes. This stalwart young man is one who says yes when others say no to a mission.
 
-It’s too bad, but you will also meet at many turns each day those who are helping Satan in his grim work to destroy. And you can easily recognize them too: they will show lack of courage; they will show lack of backbone, if you please, when it comes time to say no to something that is not right.
+It’s too bad, but you will also meet at many turns each day those who are *helping* Satan in his grim work to destroy. And you can easily recognize them too: they will show lack of courage; they will show lack of backbone, if you please, when it comes time to say no to something that is not right.
 
 Recently, in fact last spring at the end of the school year, there was a high school graduation in a community here in the West. Several appropriate parties were planned for the graduates. However, there was one party that sort of sneaked into the lineup that was wrong. It was bad. In this case several shows of an immoral nature had been planned at a local residence. Not knowing beforehand the nature of the movies, a group of unsuspecting Latter-day Saint young people went to the home for the party. As soon as the film started to run and its vulgar message came to the screen, part of the Latter-day Saint young people got up and left, while others of the same group stayed in the home.
 
@@ -33,11 +34,11 @@ When outside, the few who were leaving met some of their friends just arriving. 
 
 May I tell you, brethren, it’s worth doing whatever we must to be approved by the Lord. And I say this, knowing it isn’t easy to be made fun of and to be laughed at when you do what is right. Many times it isn’t the popular thing to do to go against the crowd or to do differently than one or two friends. May the Lord bless and strengthen you young brethren as you meet this challenge.
 
-May I also say to you who are members of ward bishoprics and branch presidencies, there are those of your number who really believe that, outside their own home, their greatest and most important priesthood responsibility is with the Aaronic Priesthood. Brethren, there are those among you who make no excuses for doing what they should, who find a way to spend their prime time in Church service with the young people of their ward or branch. You will notice as we do, because of their personal involvement, that their young people have a very special spirit about them, a spiritual alertness, and a strength that will easily compare to Helaman’s 2,000 stripling Ammonite sons. We see them often in the many stakes of the Church each weekend.
+May I also say to you who are members of ward bishoprics and branch presidencies, there are those of your number who *really believe* that, outside their own home, their greatest and most important priesthood responsibility is with the Aaronic Priesthood. Brethren, there are those among you who make no excuses for doing what they should, who find a way to spend their prime time in Church service with the young people of their ward or branch. You will notice as we do, because of their personal involvement, that their young people have a very special spirit about them, a spiritual alertness, and a strength that will easily compare to Helaman’s 2,000 stripling Ammonite sons. We see them often in the many stakes of the Church each weekend.
 
 You will see these great brethren of the bishoprics on every turn also, and you will recognize them as brethren who understand their stewardship because they will be the ones who are letting the Melchizedek Priesthood quorum leaders function in their callings as leaders, letting them take the lead in sending the priesthood brethren into every home. We call it home teaching—the priesthood in action.
 
-You’ll recognize them because they are letting the Lord select the Aaronic Priesthood quorum presidencies. These bishoprics have studied and understand the ninth section of the Doctrine and Covenants. After careful consideration, they present the names of the quorum officers to the Lord for his approval, before talking to the parents or to the young man.
+You’ll recognize them because they are letting the Lord select the Aaronic Priesthood quorum presidencies. These bishoprics have studied and understand the ninth section of the Doctrine and Covenants. After careful consideration, they present the names of the quorum officers to the Lord for his approval, *before* talking to the parents or to the young man.
 
 These great brethren are the ones who make the quorum presidency call to the young man in a dignified manner: never on the phone or in the hall or on the front porch, but in the bishop’s office by the presidency of the Aaronic Priesthood of the ward.
 
@@ -45,7 +46,7 @@ You see, this type of bishopric has the vision of what properly called and train
 
 You will recognize this bishopric with ease because they are the ones who are actually training these choice young men weekly in proper priesthood principles. They are always in the Aaronic Priesthood quorum meetings on Sunday with the young men. This bishopric will be found calling Aaronic Priesthood quorum presidents “president” during the priesthood meeting times.
 
-Yes, you can spot right off the bishopric who know their chief responsibility from the Lord is with the Aaronic Priesthood—with no exceptions. They know that other things may not get done, but the work of the Aaronic Priesthood and the Young Women must not suffer, it must not fail. They know they will one day answer to the Lord for this sacred trust and stewardship.
+Yes, you can spot right off the bishopric who know *their chief responsibility from the Lord* is with the Aaronic Priesthood—with no exceptions. They know that other things may not get done, but the work of the Aaronic Priesthood and the Young Women must not suffer, it must not fail. They know they will one day answer to the Lord for this sacred trust and stewardship.
 
 Brethren, you can also recognize the stake president who knows what it is to be chairman of the Aaronic Priesthood committee of his stake. It’s interesting to observe his actions too. He hasn’t released his counselor or the high council brethren from their efforts as he assumes the chairmanship of this committee, but rather he now takes a more personal interest in the committee work. He becomes alive not only with interest but with involvement in the Aaronic Priesthood program of his stake as he joins hands with the other great brethren of the stake committee.
 
@@ -62,4 +63,7 @@ Brethren, our success in the priesthood depends on the pattern of our life. When
 In a world of conflict and trouble there will be the giants among men. There will be the peacemakers. There will be those who can calm troubled waters. There will be those whose life’s pattern will be as a beacon on a hill, as a lighthouse in a storm. There will be those who others will look to for strength and guidance. You can be that ray of hope to those around you, especially to your own.
 
 Remember, the brightest light and the clearest signal come from the cleanest instrument. May the Lord guide us and strengthen us as we purify and cleanse our lives. I bear testimony to you, my brethren, that I know God lives. I know he’s in the heavens. And I pray that he’ll bless us to honor the priesthood he’s given us, in the name of Jesus Christ. Amen.
+
+
+
 

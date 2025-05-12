@@ -1,5 +1,6 @@
 # “Not My Will, but Thine”
-*By Robert L. Simpson - Of the First Quorum of the Seventy*
+
+By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -21,7 +22,7 @@ Just about four months ago a missionary was released from one of our Australia-N
 
 Now listen to this part: “As I awaited my hour of release, I received a witness that the Lord was pleased with my effort. It was thrilling when I talked to the mission president, especially when he looked me in the eye and said, ‘I am proud of you.’ That was reward enough for me. What a great feeling to look back and know that I gave the Lord the best that was in me! It brings a satisfaction and a peace that can come in no other way.”
 
-Here’s another choice bit: “I was very nervous about my homecoming talk in sacrament meeting. I wanted to say the right things. Since that special Sunday evening, my bishop writes me down here at the “Y” [Brigham Young University] and tells me that there are three young people in the ward beginning to plan for missions as a direct result of my talk!”
+Here’s another choice bit: “I was very nervous about my homecoming talk in sacrament meeting. I wanted to say the right things. Since that special Sunday evening, my bishop writes me down here at the “Y” \[Brigham Young University\] and tells me that there are three young people in the ward beginning to plan for missions as a direct result of my talk!”
 
 And finally: “Not once have I ever regretted accepting the call to go on a mission. It is the most worthwhile thing I ever did. I am even thankful for the hard times, for they strengthened my character and helped me to at least begin to be the person my Heavenly Father would have me be. I learned so much more than I could have learned if I had stayed home. The Church is true without a doubt, and I am so thankful just to be a member. I am so thankful for the relationship which I have developed with the Savior, for it is an outgrowth of my mission and nothing else.”
 
@@ -35,7 +36,7 @@ Brethren of the priesthood, whether you be the most recently ordained deacon or 
 
 Let me conclude by sharing with you a recent episode in the life of Elder Anguiano, a young Mexican-American who prepared for a Spanish-speaking mission, only to be called by the prophet to serve in Christchurch, New Zealand, of all places! Imagine a young man with Spanish as his prime language being sent to a country where the Spanish language is spoken very rarely, if ever!
 
-As President Philip Sonntag waited at the airport for his one lone missionary to arrive, his mind was seeking for divine help in the proper placement of a young man with Spanish language ability in a mission where only English was understood. As the passengers started deplaning, President Sonntag spotted his new elder immediately. Maybe it was his gleaming, new white shirt that seemed particularly white compared to the other holidaying passengers. His sparkling attitude set him apart as being very special. He was one of the Lord’s anointed. His steps quickened as he neared the terminal building. He was obviously eager to start his mission. As he approached his mission president, it was with outstretched arms for a warm Mexican abrazo. This was his background, this was his custom even in faraway New Zealand. And then he spoke his first words: “President, I have come here to baptize.”
+As President Philip Sonntag waited at the airport for his one lone missionary to arrive, his mind was seeking for divine help in the proper placement of a young man with Spanish language ability in a mission where only English was understood. As the passengers started deplaning, President Sonntag spotted his new elder immediately. Maybe it was his gleaming, new white shirt that seemed particularly white compared to the other holidaying passengers. His sparkling attitude set him apart as being very special. He was one of the Lord’s anointed. His steps quickened as he neared the terminal building. He was obviously eager to start his mission. As he approached his mission president, it was with outstretched arms for a warm Mexican *abrazo.* This was his background, this was his custom even in faraway New Zealand. And then he spoke his first words: “President, I have come here to baptize.”
 
 Now, mission presidents don’t usually release one of their assistants to be a trainer for a new missionary, but when the Spirit prompted President Sonntag for the third time, he was convinced, and Elder Keung, an outstanding young man of Chinese and Maori parentage, was made available to form this “League of Nations” companionship.
 
@@ -43,7 +44,10 @@ Would you believe that not more than three weeks later President Sonntag was inf
 
 The Lord is in charge of this work! You and I are involved in a divine process that involves the salvation of Heavenly Father’s children wherever they may be. We must prepare now so the prophet will not be restricted in what he has been given to do.
 
-Our greatest challenge as missionaries will be to lift people up, to literally remove them from the ways of the world—a world that is being rocked with immorality, weakened by unclean thoughts, eroded by selfishness, and riddled with human pride. May virtue garnish our thoughts unceasingly; then our confidence will be strong in His service. (See D&C 121:45.) We first must take ourselves out of the world as much as we can; then, standing on higher ground, we can reach out; we can lift up; we can then teach the truth. It shouldn’t matter when the call comes. It shouldn’t matter where we are asked to go. It may be within the ward, it could be halfway around the world; but as the Savior said during His most trying hour, “Father, ... not my will, but thine, be done.” (Luke 22:42.) I wonder if each of us could say that right here tonight: “Not my will, but thine.”
+Our greatest challenge as missionaries will be to lift people up, to literally remove them from the ways of the world—a world that is being rocked with immorality, weakened by unclean thoughts, eroded by selfishness, and riddled with human pride. May virtue garnish our thoughts unceasingly; then our confidence will be strong in His service. (See [[D&C 121.45|D&C 121:45]].) We first must take ourselves out of the world as much as we can; then, standing on higher ground, we can reach out; we can lift up; we can then teach the truth. It shouldn’t matter when the call comes. It shouldn’t matter where we are asked to go. It may be within the ward, it could be halfway around the world; but as the Savior said during His most trying hour, “Father, … not my will, but thine, be done.” ([[Luke 22.42|Luke 22:42]].) I wonder if each of us could say that right here tonight: “Not my will, but thine.”
 
 May it be so, I pray, for in this great priesthood assemblage tonight are those foreordained to be the hope of the world; and I so declare it as my personal testimony, and I do it in the name of Jesus Christ. Amen.
+
+
+
 

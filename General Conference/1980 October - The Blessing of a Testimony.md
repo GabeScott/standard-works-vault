@@ -1,5 +1,6 @@
 # The Blessing of a Testimony
-*By N. Eldon Tanner - First Counselor in the First Presidency*
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -14,4 +15,7 @@ We know we are spirit children of God, and we were present when it was decided t
 Jesus Christ was chosen to be the Savior of the world. He gave the plan of life and salvation to the prophets in the old days, as recorded in Genesis and elsewhere. We know who we are, where we came from, why we are here, and how we can get back to his presence.
 
 We are very fortunate in having a testimony of the teachings of the gospel of Jesus Christ. I hope and pray that all of us will do our best in the duties that are given to us. May our example and influence be felt for good wherever we are. In the name of Jesus Christ, amen.
+
+
+
 

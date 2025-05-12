@@ -1,5 +1,6 @@
 # The Developing Welfare Services Department
-*By By Bishop Vaughn J. Featherstone - Second Counselor in the Presiding Bishopric*
+
+By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -7,17 +8,17 @@
 
 A recently organized department of Welfare Services, the Developing Welfare Services Department, has been charged to promote the mission of Welfare Services by—
 
-assisting in the teaching and implementation of Welfare Services in the developing areas of the Church, thereby enabling members residing there to enjoy the blessings of family and ward preparedness; and
+1. assisting in the teaching and implementation of Welfare Services in the developing areas of the Church, thereby enabling members residing there to enjoy the blessings of family and ward preparedness; and
 
-providing stake and mission presidents in developing areas with health, agriculture, and other Welfare Services missionaries.
+2. providing stake and mission presidents in developing areas with health, agriculture, and other Welfare Services missionaries.
 
 This department provides a geographical emphasis for Welfare Services in world areas where, because of lack of opportunity and other unfavorable circumstances, people often are afflicted with temporal welfare problems, including poverty, poor housing, disease, malnutrition, unemployment, and a shortened life span.
 
 In addition, priesthood leaders in these areas are frequently recent converts who request special training and help in implementing family preparedness to prevent and solve these problems.
 
-The Presiding Bishopric has been charged to extend welfare services to “the ends of the earth.” President Harold B. Lee, in setting apart Bishop Victor L. Brown and his counselors on April 9, 1972, challenged:
+The Presiding Bishopric has been charged to extend welfare services to “the ends of the earth.” President Harold B. Lee, in setting apart Bishop Victor L. Brown and his counselors on April 9, 1972, challenged:
 
-“It is your responsibility to see that the processes of Welfare organization are extended. ... One of your great challenges will be to see how the Welfare program can be moved into the new stakes to the ends of the earth in order that the full processes of the Lord’s plan can be fully realized.”
+“It is your responsibility to see that the processes of Welfare organization are extended. … One of your great challenges will be to see how the Welfare program can be moved into the new stakes to the ends of the earth in order that the full processes of the Lord’s plan can be fully realized.”
 
 We have accepted this challenge. We are redoubling our efforts to provide priesthood leaders and members in developing areas of the Church with needed training and examples so that they can, as rapidly as possible and in an orderly fashion, implement family and ward preparedness. We recognize that priesthood leaders living in the developing areas of the world in the 1970s will need the same careful, in-depth training that was provided during the 1930s and 1940s to stake presidents and bishops in the United States and Canada by President Lee and President Romney.
 
@@ -25,7 +26,7 @@ Careful training of devoted priesthood leaders will enable the Church to impleme
 
 To date, priesthood leaders in developing areas of the Church are provided with many needed Welfare Services resources:
 
-The Welfare Services Handbook has been or is being translated and distributed in sixteen languages.
+The *Welfare Services Handbook* has been or is being translated and distributed in sixteen languages.
 
 Bishopric training materials on Welfare Services are prepared, translated, and distributed.
 
@@ -53,7 +54,7 @@ One proud father helped provide a safe and sanitary way for his family to dispos
 
 Members are encouraged by the priesthood to utilize appropriate local health resources such as clinics. Health missionaries assist the priesthood and Relief Society in helping members understand how to utilize these resources. Instead of seeing a doctor only when severe illness occurs, members are striving to prevent disease and keep their children healthy and strong.
 
-* * * * * *
+* * * * * *
 
 One branch agricultural project has put a parcel of Church property adjacent to a chapel under cultivation to provide fresh produce. The lot had been filled with weeds until the local priesthood leaders, using agriculture missionaries as resources, initiated this project to assist branch members with severe nutritional problems.
 
@@ -67,15 +68,18 @@ The Church has now had considerable experience in health missionary work. More i
 
 The Welfare Services missionaries continue to complement proselyting by referring doctors, nurses, nutritionists, businessmen, agricultural specialists, and others to the proselyting missionaries for the missionary discussions.
 
-* * * * * *
-
 A good start has been made; yet much remains to be done in alleviating sorrow and suffering and in making the Saints self-sustaining and able to share with others, preparatory to living the full law of consecration.
 
 Your help is needed, my brothers and sisters. There is a pressing need for couples who have experience and teachable skills in agriculture, career development, financial management, health, and related vocations. Priesthood leaders, are there couples in your stakes and wards who, now that their children are grown, are in a position to serve as health or agriculture missionaries in other parts of the world? We need those with good health, vigor, and enthusiasm who can help the Church lengthen its stride throughout the world.
 
 Our hearts reach out and we feel sincere compassion for the hundreds of millions of our Heavenly Father’s children who do not have all of the necessities of life. To bring those who belong to the Church as rapidly as possible to where they can enjoy the blessings of family and ward preparedness is our desire and goal.
 
-In closing I would like to read a quote from President Marion G. Romney. This is a statement he made in a similar Welfare Services meeting on April 7, 1973.
+In closing I would like to read a quote from President Marion G. Romney. This is a statement he made in a similar Welfare Services meeting on April 7, 1973.
 
-“The First Presidency has designated Presiding Bishop Victor L. Brown as chairman of the new general committee directing Welfare Services. This brings into correlation the welfare services of the Church, a tremendous responsibility, an unlimited field for services. When we make all of these work, brothers and sisters, as they should to the blessing of those who give and the glorification of those who receive, we will be ready for the coming of the Savior.” May we so prepare, I pray in the name of Jesus Christ. Amen.
+“The First Presidency has designated Presiding Bishop Victor L. Brown as chairman of the new general committee directing Welfare Services. This brings into correlation the welfare services of the Church, a tremendous responsibility, an unlimited field for services. When we make all of these work, brothers and sisters, as they should to the blessing of those who give and the glorification of those who receive, we will be ready for the coming of the Savior.” May we so prepare, I pray in the name of Jesus Christ. Amen.
+
+
+
+
+[^*]: (*excerpts only*)
 

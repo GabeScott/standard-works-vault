@@ -1,5 +1,6 @@
 # “These Things Are Manifested unto Us Plainly”
-*By By Elaine L. Jack - Relief Society General President*
+
+By Elaine L. Jack - *Relief Society General President*
 
 *Given in the October session of the 1990 General Conference*
 
@@ -13,9 +14,9 @@ For thirty years I have wanted to meet the woman against whom more Latter-day Sa
 
 Where is she? Who is she? What does she do that makes her seem beyond the reach of any woman? I’ve made a careful study, and I’ve found this woman. Tonight I’ll introduce you to our sister so we can see her as she is.
 
-The prophet Jacob taught, “The Spirit speaketh the truth and lieth not. Wherefore, it speaketh of things as they really are, and of things as they really will be; wherefore, these things are manifested unto us plainly, for the salvation of our souls.” (Jacob 4:13.)
+The prophet Jacob taught, “The Spirit speaketh the truth and lieth not. Wherefore, it speaketh of things as they really are, and of things as they really will be; wherefore, these things are manifested unto us plainly, for the salvation of our souls.” ([[Jacob 4.13|Jacob 4:13]].)
 
-Dear sisters, I wish to speak of “things as they really are, and of things as they really will be.” (Jacob 4:13.) For many of us, comparing ourselves to a practically perfect Latter-day Saint woman is part of how things are. While some of us are motivated and encouraged by such imagined or real-life models, others of us are disheartened and discouraged by this same ideal woman—whether she is a composite of many women, or someone of whom we have read, or even someone we know.
+Dear sisters, I wish to speak of “things as they really are, and of things as they really will be.” ([[Jacob 4.13|Jacob 4:13]].) For many of us, comparing ourselves to a practically perfect Latter-day Saint woman is part of how things are. While some of us are motivated and encouraged by such imagined or real-life models, others of us are disheartened and discouraged by this same ideal woman—whether she is a composite of many women, or someone of whom we have read, or even someone we know.
 
 As women make these comparisons, I hear such comments as: “When they talk about being a good mother in Relief Society, I always feel so guilty because sometimes I shout at my children.” “I’m not comfortable in church because my husband isn’t active.” “I wish I didn’t have to work, but I need a paycheck to sustain my family.”
 
@@ -23,7 +24,7 @@ I’ve heard: “I’m not a mother. I’m not married, and I’m most painfully
 
 These statements and others like them come, I believe, from unrealistic comparisons we make against some ideal. Because I know many of you, I know of your goodness and your individual gifts from the Lord. I can see that these comparisons may keep you from achieving your potential and basking in associations that will enrich your lives and the lives of others. Sometimes the basis for these incorrect comparisons comes from other Relief Society sisters, the Relief Society organization, or expectations about roles in life. Whatever the origin, the point of comparison is wrong unless it accounts for things as they really are—now and forever.
 
-The prophet Jacob said things as they “really are” and “really will be” are “manifested unto us plainly, for the salvation of our souls.” (Jacob 4:13.)
+The prophet Jacob said things as they “really are” and “really will be” are “manifested unto us plainly, for the salvation of our souls.” ([[Jacob 4.13|Jacob 4:13]].)
 
 Sisters, how are these things manifest unto us? Plainly, through the fulness of the gospel of Jesus Christ, through the example of our Savior’s life. Only by living His gospel can we find what is real. We can never accurately take the measure of our lives based on social, economic, ethnic, age, marital, or physical conditions. Ask yourself, are the comparisons you may make of yourself and others based on the model of the Savior’s life, or do they come from trying to fit your life into the pattern of others’ lives?
 
@@ -39,19 +40,19 @@ The good news is that she actually does exist.
 
 The better news is that she is wonderful.
 
-The best news is that she’s you! And this is who you really are!
+The best news is that she’s *you!* And this is who you really are!
 
-2.78 million of you live in 128 countries and territories across the globe from Invercargill to Edmonton, from Chicago to Singapore.
+- 2.78 million of you live in 128 countries and territories across the globe from Invercargill to Edmonton, from Chicago to Singapore.
 
-8,000 of you are single, full-time missionaries; 1,700 are serving your mission as part of a couple.
+- 8,000 of you are single, full-time missionaries; 1,700 are serving your mission as part of a couple.
 
-You are raising 1.2 million children, and a half million young women and one-half million young men who are teenagers.
+- You are raising 1.2 million children, and a half million young women and one-half million young men who are teenagers.
 
-You made approximately one million visits to each other doing visiting teaching in just the first five months of 1990.
+- You made approximately one million visits to each other doing visiting teaching in just the first five months of 1990.
 
-If I could have the desire of my heart for you, it would be that you feel valued for your own goodness. The starting point is knowing that you are a daughter of God. The Young Women say together each week, “We are daughters of our Heavenly Father who loves us, and we love him. We will stand as witnesses of God at all times, and in all things and in all places.” (See Mosiah 18:9.)
+If I could have the desire of my heart for you, it would be that you feel valued for your own goodness. The starting point is knowing that you are a daughter of God. The Young Women say together each week, “We are daughters of our Heavenly Father who loves us, and we love him. We will stand as witnesses of God at all times, and in all things and in all places.” (See [[Mosiah 18.9|Mosiah 18:9]].)
 
-The Primary children sing, “I belong to The Church of Jesus Christ of Latter-day Saints. I know who I am. I know God’s plan. I’ll follow him in faith.” When my grandchildren and their parents sing this song together with great enthusiasm, it brings tears of joy. I know who I am, I know God’s plan, and this knowledge makes all the difference.
+The Primary children sing, “I belong to The Church of Jesus Christ of Latter-day Saints. I know who I am. I know God’s plan. I’ll follow him in faith.” When my grandchildren and their parents sing this song together with great enthusiasm, it brings tears of joy. I know who *I* am, I know God’s plan, and this knowledge makes all the difference.
 
 We Relief Society sisters follow our motto, Charity Never Faileth. This motto is very personal to me. It means that we love our Heavenly Father, and we best express that love through all that we do for others.
 
@@ -61,7 +62,7 @@ The Savior taught the Samaritan woman at Jacob’s well:
 
 “Whosoever drinketh of the water that I shall give him shall never thirst; but the water that I shall give him shall be in him a well of water springing up into everlasting life.
 
-“The woman saith unto him, Sir, give me this water, that I thirst not.” (John 4:14–15.)
+“The woman saith unto him, Sir, give me this water, that I thirst not.” ([[John 4.14|John 4:14–15]][[John 4.15|]].)
 
 A Relief Society sister in Ghana visits a woman who thirsts for truth but cannot read. To give her sister the opportunity to drink deeply of gospel truths, the visiting teacher tries to be with her as often as possible. She reads the scriptures to her sister and explains their meaning, in her native tongue.
 
@@ -81,7 +82,7 @@ Our focus in Relief Society for this new decade reflects our quest for things th
 
 First: Build personal testimony. This means leading lives of faith and hope, and becoming thoughtful, prayerful disciples of our Savior.
 
-Second: Bless the individual woman. I believe in you. I delight in our diversity as Relief Society women and the joy we find in righteous living. The prophet Nephi tells us: “Behold, the Lord esteemeth all flesh in one; he that is righteous is favored of God.” (1 Ne. 17:35.)
+Second: Bless the individual woman. I believe in you. I delight in our diversity as Relief Society women and the joy we find in righteous living. The prophet Nephi tells us: “Behold, the Lord esteemeth all flesh in one; he that is righteous is favored of God.” ([[1 Nephi 17.35|1 Ne. 17:35]].)
 
 Third: Develop and exercise charity. Our Relief Society motto, Charity Never Faileth, is worth living by. The challenge ahead is to become more active in meeting the real needs of the world around us—loneliness, neglect, illiteracy, homelessness.
 
@@ -89,11 +90,14 @@ Fourth: Strengthen families. In the many types of family units, we love and nour
 
 Fifth: Enjoy a unified sisterhood as we share our faith, our experiences, and our ideas in loving friendship.
 
-Build, bless, develop and exercise, strengthen, and enjoy—these are propelling, motivating action words that invite our personal best.
+*Build, bless, develop and exercise, strengthen,* and *enjoy*—these are propelling, motivating action words that invite our personal best.
 
 Our goal is that each of you enjoys the process of life. Build your own personal testimony and rejoice with me in being a typical Relief Society woman.
 
 These things are real—testimony, individuality, charity, families, sisterhood. These are real. And so are you. You are everywhere. I pay tribute to you.
 
 I pray for the blessings of our Father in Heaven, who loves us, to continue to be with you, in every part of the world, in the name of Jesus Christ, amen.
+
+
+
 

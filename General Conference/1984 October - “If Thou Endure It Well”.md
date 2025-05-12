@@ -1,5 +1,6 @@
 # “If Thou Endure It Well”
-*By Marvin J. Ashton - Of the Quorum of the Twelve Apostles*
+
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -15,43 +16,43 @@ It was evident that this distraught couple was not to be calmed or reassured by 
 
 In their present tragedy they were not seeking counsel or comfort; rather, it appeared, they were looking for someone who would suffer with them and join in the chorus of “If there is a merciful God, why does He allow this to happen?” We must remember that all suffering is not punishment. It is imperative that we do not allow ourselves to be destroyed by the conduct of others.
 
-Sometimes we spend so much time trying to determine what we did wrong in the past to deserve the unpleasant happenings of the moment that we fail to resolve the challenges of the present. Og Mandino wrote in his book The Greatest Miracle in the World, “If we lock ourselves in a prison of failure and self-pity, we are the only jailers ... we have the only key to our freedom.” (New York: Frederick Fell Publishers, 1975, p. 61.)
+Sometimes we spend so much time trying to determine what we did wrong in the past to deserve the unpleasant happenings of the moment that we fail to resolve the challenges of the present. Og Mandino wrote in his book *The Greatest Miracle in the World,* “If we lock ourselves in a prison of failure and self-pity, we are the only jailers … we have the only key to our freedom.” (New York: Frederick Fell Publishers, 1975, p. 61.)
 
 We can let ourselves out of such a prison by turning to the Lord for strength. With His help we can use our trials as stepping-stones. The keys are in our hands.
 
-“I, the Lord, am bound when ye do what I say; but when ye do not what I say, ye have no promise.” (D&C 82:10.)
+“I, the Lord, am bound when ye do what I say; but when ye do not what I say, ye have no promise.” ([[D&C 82.10|D&C 82:10]].)
 
 If we are offended and resentful, can we believe that He is bound to help us in our tragedies and disappointments? This scripture does not tell us how or when this commitment will be effective or realized, but His promise is real and binding. Our challenge is to endure. There will always be testings and trials along life’s paths. Heartaches and tragedies need not defeat us if we remember God’s promise.
 
-A worthwhile attitude for all of us could well be, “Help us, O Lord, to remember thy love for us and help us to be fortified by thy strength when our eyes are blurred with tears of sorrow and our vision is limited.”
+A worthwhile attitude for all of us could well be, “Help us, O Lord, to remember Thy love for us and help us to be fortified by Thy strength when our eyes are blurred with tears of sorrow and our vision is limited.”
 
 It is expedient for all of us, particularly those who may be weighed down by grief because of acts of misconduct or misfortune, to recall that even the Prophet Joseph Smith had hours of despair because of his very trying experiences in the Liberty Jail. Perhaps he too was entitled to question, “What did I do wrong? What have I done to displease Thee, O Lord? Where have I failed? Why are the answers to my prayers and pleas withheld?” In response to the feelings of his heart and mind he cried out:
 
-“O God, where art thou? And where is the pavilion that covereth thy hiding place?” (D&C 121:1.)
+“O God, where art thou? And where is the pavilion that covereth thy hiding place?” ([[D&C 121.1|D&C 121:1]].)
 
 The reassuring response came:
 
 “My son, peace be unto thy soul; thine adversity and thine afflictions shall be but a small moment;
 
-“And then, if thou endure it well, God shall exalt thee on high; thou shalt triumph over all thy foes.” (D&C 121:7–8.)
+“And then, if thou endure it well, God shall exalt thee on high; thou shalt triumph over all thy foes.” ([[D&C 121.7|D&C 121:7–8]][[D&C 121.8|]].)
 
 The promise God gave to Joseph Smith is a promise for all of us: “If thou endure it well, God shall exalt thee on high; thou shalt triumph over all thy foes,” and also over heartaches caused by misconduct of loved ones.
 
 As we are called upon to suffer we need to ask ourselves the question:
 
-“The Son of Man hath descended below them all. Art thou greater than he?” (D&C 122:8.)
+“The Son of Man hath descended below them all. Art thou greater than he?” ([[D&C 122.8|D&C 122:8]].)
 
 When I think of the Savior’s admonition to do cheerfully all things that lie in our power, I think of the father of the prodigal son. The father was heartbroken by the loss and conduct of his wayward son. Yet we have no mention of his lamenting, “Where did I go wrong?” “What have I done to deserve this?” Or, “Where did I fail?”
 
-Instead he seemed to have endured without bitterness his son’s misconduct and welcomed him back with love. “For this my son was dead, and is alive again; he was lost, and is found. And they began to be merry.” (Luke 15:24.)
+Instead he seemed to have endured without bitterness his son’s misconduct and welcomed him back with love. “For this my son was dead, and is alive again; he was lost, and is found. And they began to be merry.” ([[Luke 15.24|Luke 15:24]].)
 
 When family members disappoint us, we especially need to learn endurance. As long as we exercise love, patience, and understanding, even when no progress is apparent, we are not failing. We must keep trying.
 
 As we viewed on television some of the Olympic games held this summer in Los Angeles, we thrilled at the abilities of these fine young athletes from all over the world. One might easily compare these races and contests of the Olympics with the great race in which we are all involved—the race for eternal life. One gold-medal winner said his success was achieved by being able to endure the pain of commitment and self-discipline.
 
-The Apostle Paul likened life to a great race when he declared: “Know ye not that they which run in a race run all, but one receiveth the prize? So run that ye may obtain.” (1 Cor. 9:24.)
+The Apostle Paul likened life to a great race when he declared: “Know ye not that they which run in a race run all, but one receiveth the prize? So run that ye may obtain.” ([[1 Corinthians 9.24|1 Cor. 9:24]].)
 
-And before the words of Paul fell upon the ears of his listeners, the counsel of the Preacher, the son of David, cautioned: “The race is not to the swift, nor the battle to the strong, but he that endureth to the end shall be saved.” (See Eccl. 9:11; Matt. 10:22; Mark 13:13.)
+And before the words of Paul fell upon the ears of his listeners, the counsel of the Preacher, the son of David, cautioned: “The race is not to the swift, nor the battle to the strong, but he that endureth to the end shall be saved.” (See [[Ecclesiastes 9.11|Eccl. 9:11]]; [[Matthew 10.22|Matt. 10:22]]; [[Mark 13.13|Mark 13:13]].)
 
 What does it take to endure in the race for eternal life, to become a champion?
 
@@ -87,11 +88,14 @@ Day by day we can make the effort to gain the power to last and to suffer withou
 
 Friends and loved ones often offer strength and support when our own resolve is weak. In turn, our own strength and capacity will be doubled when we help others endure.
 
-I pray that God will help us to endure well, with purpose and power. When we so do, the meaningful declaration in 2 Tim. 4:7 will take on a new dimension:
+I pray that God will help us to endure well, with purpose and power. When we so do, the meaningful declaration in [[2 Timothy 4.7|2 Tim. 4:7]] will take on a new dimension:
 
 “I have fought a good fight, I have finished my course, I have kept the faith.”
 
-When heartaches, tragedies, disappointments, injury, unusual attention, fame, or excessive prosperity become part of our lives, our challenges and responsibilities will be to endure them well. God will assist us in our quest to conquer, triumph, and continue if we humbly rededicate ourselves to the meaningful declaration “We have endured many things, and hope to be able to endure all things.” (A of F 1:13.)
+When heartaches, tragedies, disappointments, injury, unusual attention, fame, or excessive prosperity become part of our lives, our challenges and responsibilities will be to endure them well. God will assist us in our quest to conquer, triumph, and continue if we humbly rededicate ourselves to the meaningful declaration “We have endured many things, and hope to be able to endure all things.” ([[Articles of Faith 1.13|A of F 1:13]].)
 
 God does live. Jesus is the Christ. One of His marks of greatness, His endurance, stands as a constant beacon for us to emulate. During His earthly sojourn He endured well as He suffered agony and rejection in their deepest forms. I bear my witness that God will help us to endure as we put forth the effort to live His teachings, seek His guidance, and keep His commandments. In the name of Jesus Christ, amen.
+
+
+
 

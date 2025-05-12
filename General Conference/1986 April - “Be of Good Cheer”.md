@@ -1,5 +1,6 @@
 # “Be of Good Cheer”
-*By Marvin J. Ashton - Of the Quorum of the Twelve Apostles*
+
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
 
@@ -9,7 +10,7 @@ Over the last number of weeks as I have contemplated this occasion, I have been 
 
 “Behold, this is the promise of the Lord unto you, O ye my servants.
 
-“Wherefore, be of good cheer, and do not fear, for I the Lord am with you, and will stand by you; and ye shall bear record of me, even Jesus Christ, that I am the Son of the living God, that I was, that I am, and that I am to come.” (D&C 68:5–6.)
+“Wherefore, be of good cheer, and do not fear, for I the Lord am with you, and will stand by you; and ye shall bear record of me, even Jesus Christ, that I am the Son of the living God, that I was, that I am, and that I am to come.” ([[D&C 68.5|D&C 68:5–6]][[D&C 68.6|]].)
 
 Good cheer is a state of mind or mood that promotes happiness or joy. Some like to think good cheer is found in a bottle, a six-pack, an injection, a pinch under the lip, rationalization, or self-deceit. Incidentally, it has been my observation over the years that those who try to drown their sorrows with drink only sicken their tomorrows. With God’s help, good cheer permits us to rise above the depressing present or difficult circumstances. It is a process of positive reassurance and reinforcement. It is sunshine when clouds block the light.
 
@@ -17,7 +18,7 @@ Recently, while visiting with a wife who had suddenly lost a husband through a t
 
 None of us will escape tragedy and suffering. Each of us will probably react differently. However, if we can recall the Lord’s promise, “for I the Lord am with you,” we will be able to face our problems with dignity and courage. We will find the strength to be of good cheer instead of becoming resentful, critical, or defeated. We will be able to meet life’s unpleasant happenings with clear vision, strength, and power.
 
-All over the world we have many members who are taking the blessings of the gospel to those who will listen. Those who accept and live the teachings of our Savior find the strength to be of good cheer, for he declared, “Whosoever will save his life shall lose it: and whosoever will lose his life for my sake shall find it.” (Matt. 16:25.) When we apply this principle in our lives and share it with our associates, it is possible to supplant discouragement, tragedy, and gloom with hope and cheer. The fruits of cheerfulness lie within each of us, side by side with our resolution, priorities, and desires. They will never come from without. They cannot be purchased or stolen. They are above price.
+All over the world we have many members who are taking the blessings of the gospel to those who will listen. Those who accept and live the teachings of our Savior find the strength to be of good cheer, for he declared, “Whosoever will save his life shall lose it: and whosoever will lose his life for my sake shall find it.” ([[Matthew 16.25|Matt. 16:25]].) When we apply this principle in our lives and share it with our associates, it is possible to supplant discouragement, tragedy, and gloom with hope and cheer. The fruits of cheerfulness lie within each of us, side by side with our resolution, priorities, and desires. They will never come from without. They cannot be purchased or stolen. They are above price.
 
 When I think of those about us who are well-disciplined and anxiously engaged in being of good cheer, many great examples come to mind. They lift us with their state of mind of gladness, joy, and hope. They seem to move forward happily with an extra dimension of power and love. Let me share an example or two.
 
@@ -53,13 +54,13 @@ In contrast to this family in Bangkok, some of us who have the happiness and goo
 
 Modern-day prophets have pled in plainness for us to avoid “get-rich-quick” schemes if we would avoid the heartaches of financial bondage. Perhaps we have not said enough about the fact that too many of us, in our moments of dreaming of grandeur, plant the seeds of economic disaster. Then at a later date when much is lost, we blame those who participated with us. It is difficult to be of good cheer when self-deceit is our companion. When we willingly expose ourselves to the winds and storms of fraud and scam, we should not be surprised when we come down with deficit disease. Over the years of listening to those who have suffered heavy money losses, I have heard many in desperation declare, “I was taken.” Often my heart, mind, and the Spirit have prompted me to share, “Yes, you were taken by yourself.” We all need to be encouraged to lift up our heads and see where our thoughts and undeclared priorities are taking us. Self-deceit permits us to blame others for our failures.
 
-For many years President Ezra Taft Benson has reinforced his talks of love and guidance to our youth with the truth that wickedness never can be happiness. (See Alma 41:10.) In dating and courting, decisions of conduct, to be effective, must be made before the moment of enticement and temptation surfaces. Too often immoral conduct results from self-deceit. We have allowed ourselves to blame others for the incident of misconduct when our failure to make decisions ahead of time was not thought to be of importance. The thought that wickedness brings good cheer makes reason stare.
+For many years President Ezra Taft Benson has reinforced his talks of love and guidance to our youth with the truth that wickedness never can be happiness. (See [[Alma 41.10|Alma 41:10]].) In dating and courting, decisions of conduct, to be effective, must be made before the moment of enticement and temptation surfaces. Too often immoral conduct results from self-deceit. We have allowed ourselves to blame others for the incident of misconduct when our failure to make decisions ahead of time was not thought to be of importance. The thought that wickedness brings good cheer makes reason stare.
 
 A constant effort must be made to lift our daily conduct so that it squares with our knowledge of truth and our standards. Self-mastery must always triumph over self-deceit for us to taste the fruits of good cheer.
 
 One form of self-deceit is rationalization. We prevent the Lord from being with us because we stray from his paths and explain our actions by consciously or unconsciously making excuses. We say to ourselves: “I did it just to see what it was like.” “Everyone else was doing it.” “I didn’t want to be different.” “There was no other way to be accepted graciously.” Or “He made me do it.”
 
-The companionship of good cheer is possible through keeping the commandments of God, not through rationalization. We must commit ourselves to principles and not live by comparison or excuses. Horace Mann wisely said, “In vain do they talk of happiness who never subdued an impulse in obedience to a principle.” (from Common School Journal, quoted in Horace Mann: His Ideas and Ideals, comp. Joy Elmer Morgan, Washington, D.C.: National Home Library Foundation, 1936, p. 149.)
+The companionship of good cheer is possible through keeping the commandments of God, not through rationalization. We must commit ourselves to principles and not live by comparison or excuses. Horace Mann wisely said, “In vain do they talk of happiness who never subdued an impulse in obedience to a principle.” (From *Common School Journal,* quoted in *Horace Mann: His Ideas and Ideals,* comp. Joy Elmer Morgan, Washington, D.C.: National Home Library Foundation, 1936, p. 149.)
 
 Self-deceit is at best only temporarily successful. Then when the gap between truth and our knowledge of the right and our behavior becomes too large, we are forced to close it with rationalization. The true test is, how do we measure up when Christlike conduct standards are applied.
 
@@ -71,9 +72,12 @@ Good cheer is best shared by those who will discard fear, cheerfully accept what
 
 Being of good cheer makes it possible for us to turn all of our sunsets into sunrises.
 
-With good cheer, carrying our cross can be our ladder to happiness. When Jesus comes into our lives, cheer lights the way. How powerful and comforting is the Savior’s declaration, “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.” (John 16:33.)
+With good cheer, carrying our cross can be our ladder to happiness. When Jesus comes into our lives, cheer lights the way. How powerful and comforting is the Savior’s declaration, “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.” ([[John 16.33|John 16:33]].)
 
-He promises to stand by us. He invites us to bear record and witness of him. What a joy and honor it is for me to declare in good cheer and without fear that Jesus Christ is the Son of the living God, that he was the Only Begotten of the Father, that he is, and that he will yet come again in God’s name. I thank God for the Savior’s life, his cheerful love, and his example. “There is no fear in love; but perfect love casteth out fear.” (1 Jn. 4:18.)
+He promises to stand by us. He invites us to bear record and witness of him. What a joy and honor it is for me to declare in good cheer and without fear that Jesus Christ is the Son of the living God, that he was the Only Begotten of the Father, that he is, and that he will yet come again in God’s name. I thank God for the Savior’s life, his cheerful love, and his example. “There is no fear in love; but perfect love casteth out fear.” ([[1 John 4.18|1 Jn. 4:18]].)
 
 To all mankind everywhere I cheerfully testify that our Lord and Savior Jesus Christ is our Redeemer. He will sustain us now and forever if we will walk in his paths, be of good cheer, and not fear. In the name of Jesus Christ, amen.
+
+
+
 

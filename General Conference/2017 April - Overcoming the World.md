@@ -1,47 +1,54 @@
 # Overcoming the World
-*By Neil L. Andersen - Of the Quorum of the Twelve Apostles*
+
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
 
+>*Overcoming the world is not one defining moment in a lifetime, but a lifetime of moments that define an eternity.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/04/overcoming-the-world?lang=eng)
 
-Many years ago, President David O. McKay told of a beautiful experience he had while sailing on a boat toward Samoa. After falling asleep, he “beheld in vision something infinitely sublime. In the distance,” he said, “I beheld a beautiful white city. ... Trees with luscious fruit ... and flowers in perfect bloom abounded everywhere. ... A great concourse of people [was] approaching the city. Each one wore a white flowing robe. ... Instantly my attention ... centered upon their leader, and though I could see only the profile of his features ... , I recognized him at once as my Savior! The ... radiance of his countenance [was] glorious. ... [The] peace about him ... was divine!”
+Many years ago, President David O. McKay told of a beautiful experience he had while sailing on a boat toward Samoa. After falling asleep, he “beheld in vision something infinitely sublime. In the distance,” he said, “I beheld a beautiful white city. … Trees with luscious fruit … and flowers in perfect bloom abounded everywhere. … A great concourse of people \[was\] approaching the city. Each one wore a white flowing robe. … Instantly my attention … centered upon their leader, and though I could see only the profile of his features … , I recognized him at once as my Savior! The … radiance of his countenance \[was\] glorious. … \[The\] peace about him … was divine!”
 
-President McKay continues, “The city ... was his ... the City Eternal; and the people following him were to abide there in peace and eternal happiness.”
+President McKay continues, “The city … was his … the City Eternal; and the people following him were to abide there in peace and eternal happiness.”
 
-President McKay wondered, “Who [are] they? [Who are these people?]”
+President McKay wondered, “Who \[are\] they? \[Who are these people?\]”
 
 He explains what happened next:
 
-“As if the Savior read my thoughts, he answered by pointing to [words in] a semicircle that ... appeared above [the people], ... written in gold ... :
+“As if the Savior read my thoughts, he answered by pointing to \[words in\] a semicircle that … appeared above \[the people\], … written in gold … :
 
-“‘These Are They Who Have Overcome the World—
+*“‘These Are They Who Have Overcome the World—*
 
-“Who Have Truly Been Born Again!’”
+*“Who Have Truly Been Born Again!’”*[^1]
 
 For decades, I have remembered the words: “These are they who have overcome the world.”
 
-The blessings that the Lord has promised to those who overcome the world are breathtaking. They will be “clothed in white ... and [named in] the book of life.” The Lord “will confess [their names] before [the] Father, and before his angels.” Each shall have “part in the first resurrection,” receive eternal life, and “go no more out” from the presence of God.
+The blessings that the Lord has promised to those who overcome the world are breathtaking. They will be “clothed in white … and \[named in\] the book of life.” The Lord “will confess \[their names\] before \[the\] Father, and before his angels.”[^2] Each shall have “part in the first resurrection,”[^3] receive eternal life,[^4] and “go no more out”[^5] from the presence of God.
 
 Is it possible to overcome the world and receive these blessings? Yes, it is.
 
+## Love for the Savior
+
 Those who overcome the world develop an all-encompassing love for our Lord and Savior, Jesus Christ.
 
-His divine birth, His perfect life, His infinite Atonement at Gethsemane and Golgotha assured the Resurrection of each of us. And with our sincere repentance, He alone is able to cleanse us from our sins, allowing us to return to the presence of God. “We love him, because he first loved us.”
+His divine birth, His perfect life, His infinite Atonement at Gethsemane and Golgotha assured the Resurrection of each of us. And with our sincere repentance, He alone is able to cleanse us from our sins, allowing us to return to the presence of God. “We love him, because he first loved us.”[^6]
 
-Jesus said, “Be of good cheer; I have overcome the world.”
+Jesus said, “Be of good cheer; I have overcome the world.”[^7]
 
-Later He added, “I will that ye should overcome the world.”
+Later He added, “I will that ye should overcome the world.”[^8]
 
 Overcoming the world is not one defining moment in a lifetime, but a lifetime of moments that define an eternity.
 
-It can begin as a child learns to pray and reverently sings, “I’m trying to be like Jesus.” It continues as a person studies the life of the Savior in the New Testament and ponders the power of the Savior’s Atonement in the Book of Mormon.
+It can begin as a child learns to pray and reverently sings, “I’m trying to be like Jesus.”[^9] It continues as a person studies the life of the Savior in the New Testament and ponders the power of the Savior’s Atonement in the Book of Mormon.
 
 Praying, repenting, following the Savior, and receiving His grace lead us to better understand why we are here and who we are to become.
 
-Alma described it this way: “A mighty change [is] wrought in their hearts, and they [humble] themselves and put their trust in the true and living God ... [remaining] faithful until the end.”
+Alma described it this way: “A mighty change \[is\] wrought in their hearts, and they \[humble\] themselves and put their trust in the true and living God … \[remaining\] faithful until the end.”[^10]
 
-Those overcoming the world know that they will be accountable to their Heavenly Father. Sincerely changing and repenting of sins is no longer restraining but liberating, as “sins [of] scarlet ... [become] white as snow.”
+Those overcoming the world know that they will be accountable to their Heavenly Father. Sincerely changing and repenting of sins is no longer restraining but liberating, as “sins \[of\] scarlet … \[become\] white as snow.”[^11]
+
+## Accountability to God
 
 Those of the world have difficulty with accountability to God—like a child who parties in his parents’ home while they are out of town, enjoying the ruckus, refusing to think about the consequences when the parents return 24 hours later.
 
@@ -49,31 +56,35 @@ The world is more interested in indulging the natural man than in subduing him.
 
 Overcoming the world is not a global invasion but a private, personal battle, requiring hand-to-hand combat with our own internal foes.
 
-Overcoming the world means treasuring the greatest commandment: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength.”
+Overcoming the world means treasuring the greatest commandment: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength.”[^12]
 
-The Christian writer C. S. Lewis described it this way: “Christ says ‘Give me All. I don’t want so much of your time and so much of your money and so much of your work: I want You.’”
+The Christian writer C. S. Lewis described it this way: “Christ says ‘Give me All. I don’t want so much of your time and so much of your money and so much of your work: I want You.’”[^13]
 
-Overcoming the world is keeping our promises to God—our baptismal and temple covenants and our oath of faithfulness to our eternal companion. Overcoming the world leads us humbly to the sacrament table each week, asking for forgiveness and pledging to “remember him and keep his commandments,” that we “may always have his Spirit to be with [us].”
+Overcoming the world is keeping our promises to God—our baptismal and temple covenants and our oath of faithfulness to our eternal companion. Overcoming the world leads us humbly to the sacrament table each week, asking for forgiveness and pledging to “remember him and keep his commandments,” that we “may always have his Spirit to be with \[us\].”[^14]
 
 Our love for the Sabbath day does not end when the chapel doors close behind us but instead opens the doors to a beautiful day of resting from routine tasks, studying, praying, and reaching out to family and others who need our attention. Instead of breathing a sigh of relief when church is over and frantically running in search of a television before the football game begins, let our focus remain on the Savior and upon His holy day.
 
-The world is incessantly pulled by a flood of enticing and seductive voices.
+The world is incessantly pulled by a flood of enticing and seductive voices.[^15]
 
-Overcoming the world is trusting in the one voice that warns, comforts, enlightens, and brings peace “not as the world giveth.”
+Overcoming the world is trusting in the one voice that warns, comforts, enlightens, and brings peace “not as the world giveth.”[^16]
 
-Overcoming the world means turning ourselves outward, remembering the second commandment: “He that is greatest among you shall be your servant.” The happiness of our spouse is more important than our own pleasure. Helping our children to love God and keep His commandments is a primary priority. We willingly share our material blessings through tithing, fast offerings, and giving to those in need. And as our spiritual antennas are pointed heavenward, the Lord guides us to those we can help.
+## Unselfishness
+
+Overcoming the world means turning ourselves outward, remembering the second commandment[^17]: “He that is greatest among you shall be your servant.”[^18] The happiness of our spouse is more important than our own pleasure. Helping our children to love God and keep His commandments is a primary priority. We willingly share our material blessings through tithing, fast offerings, and giving to those in need. And as our spiritual antennas are pointed heavenward, the Lord guides us to those we can help.
 
 The world builds its universe around itself, proudly proclaiming: “Look at me compared to my neighbor! Look at what is mine! See how important I am!”
 
 The world is easily irritated, disinterested, and demanding, loving the cheers of the crowd, while overcoming the world brings humility, empathy, patience, and compassion for those different than yourself.
 
+## Safety in the Prophets
+
 Overcoming the world will always mean that we will have some beliefs that are ridiculed by the world. The Savior said:
 
 “If the world hate you, ye know that it hated me before it hated you.
 
-“If ye were of the world, the world would love his own.”
+“If ye were of the world, the world would love his own.”[^19]
 
-President Russell M. Nelson said this morning, “True disciples of Jesus Christ are willing to stand out, speak up, and be different from the people of the world.”
+President Russell M. Nelson said this morning, “True disciples of Jesus Christ are willing to stand out, speak up, and be different from the people of the world.”[^20]
 
 A disciple of Christ is not alarmed if a post about her faith does not receive 1,000 likes or even a few friendly emojis.
 
@@ -81,19 +92,21 @@ Overcoming the world is being less concerned with our online connections and mor
 
 The Lord gives us safety as we heed the guidance from His living prophets and apostles.
 
-President Thomas S. Monson has said: “The world can be ... challenging. ... [As we go to the temple], ... we will be more able to bear every trial and to overcome each temptation. ... We will be renewed and fortified.”
+President Thomas S. Monson has said: “The world can be … challenging. … \[As we go to the temple\], … we will be more able to bear every trial and to overcome each temptation. … We will be renewed and fortified.”[^21]
 
 With increasing temptations, distractions, and distortions, the world attempts to beguile the faithful into dismissing the rich spiritual experiences of one’s past, redefining them as foolish deceptions.
 
-Overcoming the world is remembering, even when we are discouraged, the times we have felt the love and light of the Savior. Elder Neal A. Maxwell explained one of these experiences this way: “I had been blessed, and I knew that God knew that I knew I had been blessed.” Although we may temporarily feel forgotten, we do not forget.
+Overcoming the world is remembering, even when we are discouraged, the times we have felt the love and light of the Savior. Elder Neal A. Maxwell explained one of these experiences this way: “I had been blessed, and I knew that God knew that I knew I had been blessed.”[^22] Although we may temporarily feel forgotten, we do not forget.
 
 Overcoming the world does not mean we live a cloistered life, protected from the unfairness and difficulties of mortality. Rather, it opens the more expansive view of faith, drawing us to the Savior and His promises.
 
-While perfection is not complete in this life, overcoming the world keeps our hope aflame that one day we “shall stand before [our Redeemer]; [and] see his face with pleasure,” and hear His voice: “Come, ye blessed of my Father, inherit the kingdom prepared for you.”
+While perfection is not complete in this life, overcoming the world keeps our hope aflame that one day we “shall stand before \[our Redeemer\]; \[and\] see his face with pleasure,”[^23] and hear His voice: “Come, ye blessed of my Father, inherit the kingdom prepared for you.”[^24]
 
-On December 28 of this past year, our dear friend and beloved General Authority Elder Bruce D. Porter completed his mortality. He was 64 years old.
+## The Example of Elder Bruce D. Porter
 
-I first met Bruce when we were students at Brigham Young University. He was one of the best and the brightest. After he received his doctoral degree from Harvard University, emphasizing Russian affairs, Bruce’s thinking and writing brought prominence that could have derailed him, but the wealth and praise of the world never clouded his view. His loyalty was to his Savior, Jesus Christ; to his eternal companion, Susan; to his children and grandchildren.
+On December 28 of this past year, our dear friend and beloved General Authority Elder Bruce D. Porter completed his mortality. He was 64 years old.
+
+I first met Bruce when we were students at Brigham Young University. He was one of the best and the brightest. After he received his doctoral degree from Harvard University, emphasizing Russian affairs, Bruce’s thinking and writing brought prominence that could have derailed him, but the wealth and praise of the world never clouded his view.[^25] His loyalty was to his Savior, Jesus Christ; to his eternal companion, Susan; to his children and grandchildren.
 
 Bruce was born with a kidney defect. He had surgery, but over time his kidneys continued to decline.
 
@@ -103,23 +116,86 @@ Life for Elder Porter changed dramatically in 1997 when his kidney function and 
 
 During his 22 years of service in the Seventy, Bruce was hospitalized numerous times, including for 10 surgeries. Doctors told Susan on two occasions that Bruce would not live through the night, but he did.
 
-For more than 12 years of his service as a General Authority, Bruce was on dialysis to clean his blood. For much of that time, the dialysis consumed five evenings a week for four hours each treatment so that he could serve in his calling during the day and accept conference assignments on the weekends. When his health did not improve after several priesthood blessings, Bruce was puzzled, but he knew in whom he trusted.
+For more than 12 years of his service as a General Authority, Bruce was on dialysis to clean his blood. For much of that time, the dialysis consumed five evenings a week for four hours each treatment so that he could serve in his calling during the day and accept conference assignments on the weekends. When his health did not improve after several priesthood blessings, Bruce was puzzled, but he knew in whom he trusted.[^26]
 
 In 2010, Bruce received a kidney from his son David. This time his body did not reject the transplant. It was a miracle, bringing renewed health and eventually allowing him and Susan to return to their beloved Russia, with him serving in the Area Presidency.
 
-On December 26 of last year, after fighting continuous infections in a hospital in Salt Lake City, he asked the doctors to leave the room. Bruce told Susan “that he knew through the Spirit that there was nothing the doctors could do that would save his life. He knew ... that Heavenly Father would take him home. He was filled with peace.”
+On December 26 of last year, after fighting continuous infections in a hospital in Salt Lake City, he asked the doctors to leave the room. Bruce told Susan “that he knew through the Spirit that there was nothing the doctors could do that would save his life. He knew … that Heavenly Father would take him home. He was filled with peace.”[^27]
 
-On December 28, Bruce returned to his family home. A few hours later, surrounded by loved ones, he peacefully returned to his heavenly home.
+On December 28, Bruce returned to his family home. A few hours later, surrounded by loved ones, he peacefully returned to his heavenly home.
 
 Years ago, Bruce Porter wrote these words to his children:
 
-“The testimony I have of the reality and love of Jesus Christ has been the compass of my life. ... It [is] a pure, burning witness of the Spirit that he lives, that he is my Redeemer and Friend in every time of need.”
+“The testimony I have of the reality and love of Jesus Christ has been the compass of my life. … It \[is\] a pure, burning witness of the Spirit that he lives, that he is my Redeemer and Friend in every time of need.”[^28]
 
-“Our challenge ... is to come to know [the Savior] ... and, through faith in him, to overcome the trials and temptations of this world.”
+“Our challenge … is to come to know \[the Savior\] … and, through faith in him, to overcome the trials and temptations of this world.”[^29]
 
-“Let us be faithful and true, trusting in him.”
+“Let us be faithful and true, trusting in him.”[^30]
 
 Bruce Douglas Porter overcame the world.
 
 May we each try a little harder in our efforts to overcome the world, not excusing serious offenses yet being patient with minor slips and falls, eagerly hastening our speed and generously helping others. As you trust more fully in the Savior, I promise you blessings of greater peace in this life and a greater assurance of your eternal destiny, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: *Teachings of Presidents of the Church: David O. McKay* (2003), 1–2.
+
+[^2]: [[Revelation 3.5|Revelation 3:5]].
+
+[^3]: [[D&C 76.64|Doctrine and Covenants 76:64]].
+
+[^4]: See [[Revelation 2.1|Revelation 2]][[Revelation 2.2|]][[Revelation 2.3|]][[Revelation 2.4|]][[Revelation 2.5|]][[Revelation 2.6|]][[Revelation 2.7|]][[Revelation 2.8|]][[Revelation 2.9|]][[Revelation 2.10|]][[Revelation 2.11|]][[Revelation 2.12|]][[Revelation 2.13|]][[Revelation 2.14|]][[Revelation 2.15|]][[Revelation 2.16|]][[Revelation 2.17|]][[Revelation 2.18|]][[Revelation 2.19|]][[Revelation 2.20|]][[Revelation 2.21|]][[Revelation 2.22|]][[Revelation 2.23|]][[Revelation 2.24|]][[Revelation 2.25|]][[Revelation 2.26|]][[Revelation 2.27|]][[Revelation 2.28|]][[Revelation 2.29|]], chapter heading.
+
+[^5]: [[Revelation 3.12|Revelation 3:12]].
+
+[^6]: [[1 John 4.19|1 John 4:19]].
+
+[^7]: [[John 16.33|John 16:33]].
+
+[^8]: [[D&C 64.2|Doctrine and Covenants 64:2]].
+
+[^9]: “I’m Trying to Be like Jesus,” *Children’s Songbook,* 78.
+
+[^10]: [[Alma 5.13|Alma 5:13]].
+
+[^11]: [[Isaiah 1.18|Isaiah 1:18]].
+
+[^12]: [[Mark 12.30|Mark 12:30]].
+
+[^13]: C. S. Lewis, *Mere Christianity* (1960), 153.
+
+[^14]: [[D&C 20.77|Doctrine and Covenants 20:77]].
+
+[^15]: See James E. Faust, “[The Voice of the Spirit](https://speeches.byu.edu/talks/james-e-faust_voice-spirit)” (Brigham Young University fireside, Sept. 5, 1993), speeches.byu.edu.
+
+[^16]: [[John 14.27|John 14:27]].
+
+[^17]: See [[Mark 12.31|Mark 12:31]].
+
+[^18]: [[Matthew 23.11|Matthew 23:11]].
+
+[^19]: [[John 15.18|John 15:18–19]][[John 15.19|]].
+
+[^20]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona,* May 2017, 40.
+
+[^21]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 93.
+
+[^22]: Personal conversation with Elder Neal A. Maxwell referring to a story shared in his April 2004 conference talk, “[[2004 April - Remember How Merciful the Lord Hath Been.md|Remember How Merciful the Lord Hath Been]]” (see *Ensign* or *Liahona,* May 2004, 44–46).
+
+[^23]: [[Enos 1.27|Enos 1:27]].
+
+[^24]: [[Matthew 25.34|Matthew 25:34]].
+
+[^25]: An example of Elder Porter’s intellectual capacity is his 400-page book *War and the Rise of the State,* written 23 years ago. It is still available and widely circulated among political thinkers.
+
+[^26]: Personal correspondence from Susan Porter, dated Mar. 6, 2017.
+
+[^27]: Personal correspondence from Susan Porter, dated Mar. 6, 2017.
+
+[^28]: Bruce D. Porter, *The King of Kings* (2000), 14, 15.
+
+[^29]: Bruce D. Porter, *The King of Kings,* 7.
+
+[^30]: Bruce D. Porter, *The King of Kings,* 18.
 

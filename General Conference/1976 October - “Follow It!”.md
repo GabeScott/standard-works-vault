@@ -1,5 +1,6 @@
 # “Follow It!”
-*By Paul H. Dunn - Of the Seventy*
+
+By Elder Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -35,7 +36,7 @@ He said, “Oh, it’s you again.”
 
 I said, “Yes, sir, maybe you didn’t understand my earlier question. I asked you where to sign up for varsity baseball.”
 
-He said, “I asked you a question. Do you want to play ball or be a champion?”
+He said, “I asked *you* a question. Do you want to play ball or be a champion?”
 
 Well, I knew the other answer hadn’t worked, so I said, “I want to be a champion.”
 
@@ -57,11 +58,7 @@ The coach said in front of the whole team, “Did you sign a contract with me?�
 
 “And you broke the contract?”
 
-“Yes, sir.”
-
 “Do you know the penalty?”
-
-“Yes, sir.”
 
 “Would you turn in your uniform? You’re through.”
 
@@ -69,7 +66,7 @@ I wanted to say, “Coach, tomorrow’s the big game. (Jimmy was batting .385 an
 
 I drew the assignment the next day to pitch against Al Yalian, who later signed with the New York Yankees for a fabulous bonus. Thirteen innings we went, and he beat me in the thirteenth—1–0. The run came when a ground ball was hit to second where Jimmy normally played. The ball got through a nervous substitute’s legs onto the outfield grass and eventually scored an unearned run, which defeated us. And now, years later, I thank God for a great coach who taught me that principles are more important than games.
 
-As I reflect upon these kinds of experiences and the influence that great men have had on my life, I think of the question that young people quite often ask those of us in these positions, “Why do we hold so many meetings in the Church?” The Lord understood and answered, speaking to you and me, young people, through a prophet: “And now, behold, I give unto you a commandment, that when ye are assembled together ye shall instruct and edify each other.” Why? “That ye may know how to act and direct my church.” (D&C 43:8.) And I thank God that in this great conference and others that have preceded it we are taught how to act. “We thank thee, O God, for a prophet to guide us in these latter days.”
+As I reflect upon these kinds of experiences and the influence that great men have had on my life, I think of the question that young people quite often ask those of us in these positions, “Why do we hold so many meetings in the Church?” The Lord understood and answered, speaking to you and me, young people, through a prophet: “And now, behold, I give unto you a commandment, that when ye are assembled together ye shall instruct and edify each other.” Why? “That ye may know how to act and direct my church.” ([[D&C 43.8|D&C 43:8]].) And I thank God that in this great conference and others that have preceded it we are taught how to act. “We thank thee, O God, for a prophet to guide us in these latter days.”
 
 Like many of you, I am frequently before those who are not of our faith, and the challenge is great and wonderful. Not long ago I was given a little honor before a great group of non-Latter-day Saint athletes. In the proceedings of the convention, one of my great idols, a Hall of Famer, was to take the rostrum and speak to us. Being the great athlete that he was, respected by many, I was shocked to hear his language as he repeatedly took the name of the Lord in vain. As I sat there, I wondered, “What do you do as a Latter-day Saint in these kinds of social situations?” And then I remembered—again, a great influence in my life—the counsel from a prophet and an experience that he had had one time coming out of surgery. An orderly who was wheeling the prophet back to his hospital room on a little metal cart caught his hand between the door and the cart in the elevator and, not thinking, let go with a few adjectives, taking the name of the Lord in vain in the process. And a prophet, sick as he was physically but very well spiritually, lifted his head and said, “Please don’t talk that way—that’s my best friend.”
 
@@ -79,7 +76,10 @@ He said, “Didn’t you like my workshop?”
 
 I said, “I loved it. But every time you opened your mouth, you offended me and a lot of other people out there. I’m going to challenge you tonight, as your friend, to clean up your language.”
 
-I thought of the apostle Paul and Joseph Smith and particularly of a prophet today, Spencer W. Kimball; and I learned on that occasion, as I have on many others, that people really want what you and I have, if we have the courage to give it.
+I thought of the apostle Paul and Joseph Smith and particularly of a prophet today, Spencer W. Kimball; and I learned on that occasion, as I have on many others, that people really want what you and I have, if we have the courage to give it.
 
 God grant us to have that courage and determination as we go forth, edified and fortified by the influences of great men in our lives, to be an example unto the world. I testify that I know that God lives, that Jesus is the Christ, and that here sits his prophet. In the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Time-Out!
-*By Paul H. Dunn - Of the First Quorum of the Seventy*
+
+By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -27,7 +28,7 @@ I’m reminded of something I read just the other day. Let me share it with you.
 
 Well, let me just tell you that however tight the game seems at the moment, I know the coach and I know that He can help. There is a personal and loving God who knows all of the plays. He understands the game of life. He understands you and me. And he understands what you and I need now to help in our lives. Talking to him is an easy thing, really. All you have to do is call time-out. Say to yourself, “I’ve had it. I need help.” And be prepared to listen. Say to him, “I can’t take any more of this running without seeing clearly where the bases are or the direction I’m headed.”
 
-Are you aware that all through history great leaders have called time-out? Washington at Valley Forge, Lincoln seeking answers in the war, Joseph Smith in the grove. This was true of the prophets of old: Abraham sought God; Moses called upon the Lord. Nephi, a great young champion, says in his own account: “I, Nephi, being exceeding young [like many of you], nevertheless being large in stature, and also having great desires to know of the mysteries of God, wherefore, I did cry unto the Lord; and behold he did visit me, and did soften my heart that I did believe all the words which had been spoken by my father; wherefore, I did not rebel against him like unto my brothers” (1 Ne. 2:16).
+Are you aware that all through history great leaders have called time-out? Washington at Valley Forge, Lincoln seeking answers in the war, Joseph Smith in the grove. This was true of the prophets of old: Abraham sought God; Moses called upon the Lord. Nephi, a great young champion, says in his own account: “I, Nephi, being exceeding young \[like many of you\], nevertheless being large in stature, and also having great desires to know of the mysteries of God, wherefore, I did cry unto the Lord; and behold he did visit me, and did soften my heart that I did believe all the words which had been spoken by my father; wherefore, I did not rebel against him like unto my brothers” ([[1 Nephi 2.16|1 Ne. 2:16]]).
 
 Accounts such as these in scripture have always given me great courage to do likewise. That’s why I think the prophets, even the leaders today, have counseled us to know the scriptures that we might be motivated to seek help.
 
@@ -78,4 +79,7 @@ I said, “As often as you would like.”
 We did on several other occasions. But you know what else was interesting? Before the season ended, several other knocks came at my door. One night it was the first baseman, then the shortstop, and the left fielder. And each in his own wonderful way said, “Don’t tell the others.”
 
 I learned on that occasion that people are really seeking and want what you and I have. God bless you, my wonderful brethren, to have the wisdom and strength to call time-out and visit with your Heavenly Father. He really lives, as does his Son, to which I testify in the holy name of Jesus Christ, amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # For the Sake of Your Posterity
-*By Carlos A. Godoy - Of the Presidency of the Seventy*
+
+By Elder Carlos A. Godoy - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
+
+>*Don’t be the weak link in this beautiful chain of faith you started, or you received, as a legacy. Be the strong one.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/10/14godoy?lang=eng)
 
@@ -13,9 +16,9 @@ Well, after that inviting question, I knew my quiet moments were over. I could n
 
 I learned that his name was Omar, his wife’s name was Maria Teresa, and they had two children—Carolina, age 14, and Rodrigo, age 10. Omar had been a member of the Church since he was a child. His family was active, but at some point, his parents stopped going to church. Omar became completely inactive when he was 15. He was then 40 years old.
 
-At that moment I realized I did not take the wrong taxi. It was not a coincidence! I told him who I was and that I was in his taxi because the Lord was calling him back to His fold.
+At that moment I realized I did *not* take the wrong taxi. *It was not a coincidence!* I told him who I was and that I was in his taxi because the Lord was calling him back to His fold.
 
-We then talked about the time he and his family were active members of the Church. He had fond memories of sweet family home evening moments and some Primary songs. He then softly sang a few words of “I Am a Child of God.”1
+We then talked about the time he and his family were active members of the Church. He had fond memories of sweet family home evening moments and some Primary songs. He then softly sang a few words of “I Am a Child of God.”[^1]
 
 After getting his address, phone number, and permission to share with his bishop, I told him I would find a way to be in the chapel on his first day back to church. We finished our trip from the airport to my home, as well as our little trip to his past, and we went our separate ways.
 
@@ -33,17 +36,17 @@ It is so sad when we come across inactive members or nonmembers of the Church wh
 
 Their children and grandchildren have been precluded from the protection and the blessings of the gospel of Jesus Christ in their lives. Even more heartbreaking, they have lost the promises of an eternal family which were there one day. The decision of one has impacted a whole chain of descendants. A legacy of faith has been broken.
 
-However, as we know, anything broken can be mended through Jesus Christ. For this reason, please consider this invitation from President Russell M. Nelson: “Now, if you have stepped off the path, may I invite you with all the hope in my heart to please come back. Whatever your concerns, whatever your challenges, there is a place for you in this, the Lord’s Church. You and generations yet unborn will be blessed by your actions now to return to the covenant path.”2
+However, as we know, anything broken can be mended through Jesus Christ. For this reason, please consider this invitation from President Russell M. Nelson: “Now, if you have stepped off the path, may I invite you with all the hope in my heart to please come back. Whatever your concerns, whatever your challenges, there is a place for you in this, the Lord’s Church. *You and generations yet unborn will be blessed by your actions now to return to the covenant path*.”[^2]
 
 Now, let’s address the second scenario, today’s participating members who maybe are not being as faithful as they should be. Just as yesterday’s decisions impact today’s realities, decisions of today will impact our future and the future of our family members.
 
-President Dallin H. Oaks taught us:
+President Dallin H. Oaks taught us:
 
-“The restored gospel of Jesus Christ encourages us to think about the future. ... It teaches great ideas about the future to guide our actions today.
+“The restored gospel of Jesus Christ encourages us to think about the future. … It teaches great ideas about the future to guide our actions today.
 
 “In contrast, we all know persons who are concerned only with the present: spend it today, enjoy it today, and take no thought for the future.
 
-“... As we make current decisions, we should always be asking, ‘Where will this lead?’”3 Will our current decisions lead us to joy now and in eternity, or will they lead us to sorrow and tears?
+“… As we make current decisions, we should always be asking, ‘*Where will this lead?*’”[^3] Will our current decisions lead us to joy now and in eternity, or will they lead us to sorrow and tears?
 
 Some may think, “We don’t need to attend church every Sunday,” or “We will pay tithing when things get better,” or “I will not support the Church leaders in this subject.”
 
@@ -51,17 +54,30 @@ Some may think, “We don’t need to attend church every Sunday,” or “We wi
 
 Those with thoughts like these do not realize the negative impact this “lukewarm” type of membership will have on their lives and on the lives of their posterity. The parents may remain active, but the risk of losing their children is high—in this life and in eternity.
 
-Regarding those who will not inherit celestial glory with their families, the Lord says, “These are they who are not valiant in the testimony of Jesus; wherefore, they obtain not the crown over the kingdom of our God.”4 Is that what we want for ourselves or our children? Shouldn’t we be more valiant and less lukewarm for our own sake and for the sake of our posterity?
+Regarding those who will not inherit celestial glory with their families, the Lord says, “These are they who are not *valiant* in the testimony of Jesus; wherefore, they obtain not the crown over the kingdom of our God.”[^4] Is that what we want for ourselves or our children? Shouldn’t we be more *valiant* and less *lukewarm* for our own sake and for the sake of our posterity?
 
-President M. Russell Ballard also addressed a similar concern:
+President M. Russell Ballard also addressed a similar concern:
 
-“For some, Christ’s invitation to believe and remain continues to be hard. ... Some disciples struggle to understand a specific Church policy or teaching. Others find concerns in our history or in the imperfections of some members and leaders, past and present. ...
+“For some, Christ’s invitation to believe and remain continues to be hard. … Some disciples struggle to understand a specific Church policy or teaching. Others find concerns in our history or in the imperfections of some members and leaders, past and present. …
 
-“... The decision to ‘walk no more’ with Church members and the Lord’s chosen leaders will have a long-term impact that cannot always be seen right now.”5
+“… The decision to ‘walk no more’ with Church members and the Lord’s chosen leaders will have a *long-term impact* that cannot always be seen right now.”[^5]
 
 What a sad legacy to pass along—and for what reason? Whatever it is, it isn’t enough to ignore the negative spiritual impact it will create for generations ahead.
 
 My dear brothers and sisters, if you are going through one of these two situations I mentioned in my message, please reconsider your course of action. You know there is a plan for us in this life. You know that families can be eternal. Why put yours at risk? Don’t be the weak link in this beautiful chain of faith you started, or you received, as a legacy. Be the strong one. It is your turn to do it, and the Lord can help you.
 
 From the bottom of my heart, I invite you to think about it, to look ahead and evaluate “where this will lead,” and, if necessary, to be valiant enough to reshape your path for the sake of your posterity. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: “I Am a Child of God,” *Hymns*, no. 301.
+
+[^2]: Russell M. Nelson, “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng&id=p14#p14),” *Ensign* or *Liahona*, Apr. 2018, 7; emphasis added.
+
+[^3]: Dallin H. Oaks, “[[2019 April - Where Will This Lead.md|Where Will This Lead]]?,” *Ensign* or *Liahona*, May 2019, 60; emphasis added.
+
+[^4]: [[D&C 76.79|Doctrine and Covenants 76:79]]; emphasis added.
+
+[^5]: M. Russell Ballard, “[[2016 October - To Whom Shall We Go.md|To Whom Shall We Go]]?,” *Ensign* or *Liahona*, Nov. 2016, 90–91; emphasis added.
 

@@ -1,5 +1,6 @@
 # “This Is My Beloved Son”
-*By Loren C. Dunn - Of the Seventy*
+
+By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -11,7 +12,7 @@ From the sixty-eighth section of the Doctrine and Covenants come these familiar 
 
 “And their children shall be baptized for the remission of their sins when eight years old, and receive the laying on of the hands.
 
-“And they shall also teach their children to pray, and to walk uprightly before the Lord.” (D&C 68:25–28.)
+“And they shall also teach their children to pray, and to walk uprightly before the Lord.” ([[D&C 68.25|D&C 68:25–28]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]].)
 
 To help us with these sacred responsibilities, the Lord has given us the revelation of family home evening. But at the basis of the successful home evening there has to be the proper relationship between the parents and the other members of the family.
 
@@ -33,7 +34,7 @@ This conflict of ideals and standards between what a young person is taught to d
 
 Someone once said that the middle-aged and the old forget how keenly the young are affected and by what. The young haven’t had any experience with this amazing process called youth, and we all need to realize that.
 
-As a father in the Church attempts to be a father to his children, there are occasionally some special conflicts. In the 75th section of the Doctrine and Covenants the Lord says: “And again, verily I say unto you, that every man who is obliged to provide for his own family, let him provide, and he shall in nowise lose his crown; and let him labor in the church.” (D&C 75:28.)
+As a father in the Church attempts to be a father to his children, there are occasionally some special conflicts. In the 75th section of the Doctrine and Covenants the Lord says: “And again, verily I say unto you, that every man who is obliged to provide for his own family, let him provide, and he shall in nowise lose his crown; and let him labor in the church.” ([[D&C 75.28|D&C 75:28]].)
 
 This spells out two basic responsibilities: providing for our families and laboring in the Church. There arise questions sometimes as to a seeming conflict between a father’s duty to his family and the many church responsibilities that might be his.
 
@@ -53,7 +54,7 @@ I also remember that no matter how tired he and Mother must have been, they neve
 
 In addition to that, we would have some very profound discussions during those quiet, uninterrupted late night hours. He was always willing to talk if I wanted to talk, no matter what the hour. I would have to say that my father was the greatest man I ever knew, although he didn’t have a great deal of time to spend with me.
 
-As I look back on it, I realize that although the amount of time we spend is important, probably the more important thing is the ability to build our children into our lives. If we can express sincere interest in them and let them know that we know what is going on, even if we have to do it on the run sometimes, this seems to be far more important than a parent who has more time but somehow does not convey this interest.
+As I look back on it, I realize that although the amount of time we spend is important, probably the more important thing is the ability to build our children into our lives. If we can express sincere interest in them and let them know that *we* know what is going on, even if we have to do it on the run sometimes, this seems to be far more important than a parent who has more time but somehow does not convey this interest.
 
 Finally, may I just state how preciously short the time is for a father to influence his children. In the United States and Canada, if your child is nine years old, he has spent approximately one-half the time he is going to spend in your home. By the time a young person is eighteen, he may be off to school or otherwise beginning his own life. By the time he is nineteen, he is on his mission.
 
@@ -65,31 +66,27 @@ The little girl waited patiently and finally in an almost exasperated manner she
 
 In this sense, oh, may each of us be the bishops of our own home just as the duly authorized bishop is the father of his ward. I would hope too that the bishop of the ward and the home teachers would be especially attentive to those families where the fathers are permanently or temporarily missing.
 
-May we take the time and do what we need to do and want to do with our children now, before it is too late, because the days have a way of escaping into months and then into years.
+May we take the time and do what we need to do and want to do with our children *now,* before it is too late, because the days have a way of escaping into months and then into years.
 
 Like the words of the popular song:
 
-“Is this the little girl I carried?
-
-Is this the little boy at play?
-
-I don’t remember growing older.
-
-When did they?
-
-When did she get to be a beauty?
-
-When did he grow to be so tall?
-
-Wasn’t it yesterday when they were small?
-
-Sunrise, sunset,
-
-Swiftly fly the years.
-
-One season following another,
-
-Laden with happiness and tears.”1
+>“Is this the little girl I carried?
+>Is this the little boy at play?
+>I don’t remember growing older.
+>When did they?
+>When did she get to be a beauty?
+>When did he grow to be so tall?
+>Wasn’t it yesterday when they were small?
+>Sunrise, sunset,
+>Swiftly fly the years.
+>One season following another,
+>Laden with happiness and tears.”[^1]
+>
 
 May we strive to rededicate and strengthen our relationships with our children and to lend even greater help and leadership to the lovely mothers of this church as we work to bring the principles of righteousness and truth and joy and peace and happiness to the youth of our families, in the name of Jesus Christ. Amen.
+
+
+
+
+[^1]: “Sunrise, Sunset,” from *Fiddler on the Roof,* lyrics by Sheldon Harnick (New York: Sunbeam Music Corp., 1964). Used by permission.
 

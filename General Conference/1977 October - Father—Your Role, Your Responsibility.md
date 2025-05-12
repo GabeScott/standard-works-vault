@@ -1,5 +1,6 @@
 # Father—Your Role, Your Responsibility
-*By L. Tom Perry - Of the Council of the Twelve*
+
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -7,7 +8,7 @@
 
 The Book of Mormon tells a remarkable story about a father who loved his son so much he gave him his own name. The father was chief high priest in the land, and spent much of his days administering to the spiritual needs of the people. How disappointed he must have been when his son chose to turn from his teachings.
 
-As any righteous father, he pleaded with the Lord for a change to occur in the life of his son. In answer to his prayers, an angel stood before this young man and said, “Behold, the Lord hath heard the prayers of his people, and also the prayers of his servant, Alma, who is thy father; for he has prayed with much faith concerning thee that thou mightest be brought to a knowledge of the truth.” (Mosiah 27:14.)
+As any righteous father, he pleaded with the Lord for a change to occur in the life of his son. In answer to his prayers, an angel stood before this young man and said, “Behold, the Lord hath heard the prayers of his people, and also the prayers of his servant, Alma, who is thy father; for he has prayed with much faith concerning thee that thou mightest be brought to a knowledge of the truth.” ([[Mosiah 27.14|Mosiah 27:14]].)
 
 The scriptures record how the prayers of a righteous father had been answered. History attests to the power of righteous leadership in the home.
 
@@ -17,15 +18,15 @@ I stand before you today to accuse many of the husbands and fathers who are with
 
 Husbands and fathers, could we again remind you of your role and your responsibility?
 
-First, as a husband: The first instruction given to man and woman immediately following the creation was, “Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh.” (Gen. 2:24.)
+First, as a husband: The first instruction given to man and woman immediately following the creation was, “Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh.” ([[Genesis 2.24|Gen. 2:24]].)
 
 So God in His divine plan ordained that marriage was to bring about his basic organizational unit, the family. The role of husband and wife was clearly defined from the very beginning. In the Lord’s plan, these roles are unchanged and eternal.
 
-A prophet has said of womanhood, “A beautiful, modest, gracious woman is creation’s masterpiece.” (David O. McKay, Gospel Ideals, Improvement Era Publication, 1953, p. 449.)
+A prophet has said of womanhood, “A beautiful, modest, gracious woman is creation’s masterpiece.” (David O. McKay, *Gospel Ideals,* Improvement Era Publication, 1953, p. 449.)
 
 To safeguard this masterpiece, the Lord gave to man the duty and responsibility to be the provider and protector. Husbands, if the Lord’s plan is to work, you must learn how to perform in the leadership role He has designed for you. Could I remind you of some of these requirements?
 
-First, let me tell you an experience related by Emma Rae McKay, wife of President David O. McKay:
+First, let me tell you an experience related by Emma Rae McKay, wife of President David O. McKay:
 
 “Last summer on reaching Los Angeles, we decided to have our car washed by one of those ‘Quickies’ on Wilshire Boulevard.
 
@@ -43,17 +44,17 @@ First, let me tell you an experience related by Emma Rae McKay, wife of Presiden
 
 “‘Oh, I’m sorry if he doesn’t.’
 
-“‘I guess you’re not going to get a divorce,’ he [questioned me].
+“‘I guess you’re not going to get a divorce,’ he \[questioned me\].
 
 “‘No, of course not; we’ve been married over fifty years. Why do you ask that?’
 
-“‘Cuz everybody gets a divorce around here. My pop is getting a divorce from my mom, and I love my pop and I love my mom. ...
+“‘Cuz everybody gets a divorce around here. My pop is getting a divorce from my mom, and I love my pop and I love my mom. …
 
 “His voice broke and tears welled up in his eyes, but he was too much of a little man to let them fall.
 
 “‘Oh, I’m sorry to hear that!’
 
-“And then he came very close and whispered confidentially into my ear, ‘You’d better hurry out of this place or you’ll be getting a divorce too!’” (The Savior the Priesthood and You, Melchizedek Priesthood Manual, 1973–74, p. 207.)
+“And then he came very close and whispered confidentially into my ear, ‘You’d better hurry out of this place or you’ll be getting a divorce too!’” (The Savior the Priesthood and You, *Melchizedek Priesthood Manual,* 1973–74, p. 207.)
 
 Husbands, are your actions at all times a reflection of your love for wife? If that had been you at the carwash, would that little boy have noticed the same tender love in so much abundance?
 
@@ -61,9 +62,9 @@ Second is your responsibility to provide peace and security in your home. It is 
 
 Third, it is a twenty-four-hour-a-day job to show appreciation and consideration for her. The Lord has warned you in the scriptures by saying:
 
-“We have learned by sad experience that it is the nature and disposition of almost all men, as soon as they get a little authority, as they suppose, they will immediately begin to exercise unrighteous dominion. ...
+“We have learned by sad experience that it is the nature and disposition of almost all men, as soon as they get a little authority, as they suppose, they will immediately begin to exercise unrighteous dominion. …
 
-“No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by longsuffering, by gentleness and meekness, and by love unfeigned.” (D&C 121:39, 41.)
+“No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by longsuffering, by gentleness and meekness, and by love unfeigned.” ([[D&C 121.39|D&C 121:39, 41]][[D&C 121.41|]].)
 
 She is not your chattel. She does not have to follow you in unrighteousness. She is your wife, your companion, your best friend, your full partner. The Lord has blessed her with great potential, talent, and ability. She, too, must be given the opportunity for self-expression and development. Her happiness should be your greatest concern. Learn how to magnify both your roles in order that the husband and wife can be found having fulfilling and happy lives together.
 
@@ -83,7 +84,7 @@ Third, an opportunity for development. My children taught me a great lesson one 
 
 The shock of that statement was overwhelming to me. If that statement was true, I needed to repent fast. My children deserved a father. Is it not our obligation as fathers to spend as much time as possible with our children, to teach them honesty, industry, and morality?
 
-Fourth, give your children the opportunity of having a joyful, happy childhood. The priesthood manual a few years ago quoted a story written in 1955 by Bryant S. Hinckley. It is as follows:
+Fourth, give your children the opportunity of having a joyful, happy childhood. The priesthood manual a few years ago quoted a story written in 1955 by Bryant S. Hinckley. It is as follows:
 
 “‘Three hundred twenty-six school children of a district near Indianapolis were asked to write anonymously just what each thought of his father.
 
@@ -91,7 +92,7 @@ Fourth, give your children the opportunity of having a joyful, happy childhood. 
 
 “‘It did.
 
-“‘They came in $400 cars and $4,000 cars. Bank president, laborer, professional man, clerk, salesman, meter reader, farmer, utility magnate, merchant, baker, tailor, manufacturer, and contractor, every man with a definite estimate of himself in terms of money, skill, and righteousness. ...
+“‘They came in $400 cars and $4,000 cars. Bank president, laborer, professional man, clerk, salesman, meter reader, farmer, utility magnate, merchant, baker, tailor, manufacturer, and contractor, every man with a definite estimate of himself in terms of money, skill, and righteousness. …
 
 “‘The president picked at random from another stack of papers. “I like my daddy,” she read from each. The reasons were many: He built my doll house, took me coasting, taught me to shoot, helps me with my schoolwork, takes me to the park, gave me a pig to fatten and sell. Scores of essays could be reduced to “I like my daddy. He plays with me.”’
 
@@ -99,9 +100,12 @@ Fourth, give your children the opportunity of having a joyful, happy childhood. 
 
 “The fathers went into the meeting from many walks of life. They came out in two classes: companions to their children or strangers to their children.
 
-“No man is too rich or too poor to play with his children.” (The Savior the Priesthood and You, Melchizedek Priesthood Manual, 1973–74, p. 226.)
+“No man is too rich or too poor to play with his children.” (The Savior the Priesthood and You, *Melchizedek Priesthood Manual,* 1973–74, p. 226.)
 
 I am aware how concerned we each are with the leadership we find in the world today. To change the head of a nation, state, or community towards righteous leadership may require our earnest efforts for years. But there is something we can change today to make the world a better place in which to live. Husbands and fathers, the power is within you as bearers of the priesthood. Enjoy the inspiration of God, our Eternal Father, to lead, guide, and direct your families in righteousness. You stand at the head of the only organization I know of that can be eternal. Should not that charge and responsibility receive top priority in your life?
 
 God bless you to understand your duties and responsibilities to be righteous husbands and fathers, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

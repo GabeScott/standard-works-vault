@@ -1,7 +1,10 @@
 # To the Boys and to the Men
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1998 General Conference*
+
+>*I am suggesting that the time has come to get our houses in order.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/10/to-the-boys-and-to-the-men?lang=eng)
 
@@ -13,9 +16,9 @@ You are not “dead-end” kids. You are not wasting your lives in drifting aiml
 
 When your energies are harnessed, when your dreams are focused, marvelous things happen. I recently received a proclamation from a group of LDS young men from the northern area of California. They are from 19 stakes, and as they gathered in the mountains, they visited the scene of a pioneer tragedy. As the boys pondered the things they saw and the reminders of their inheritance, they were invited to sign a Mormon Trail Scout Encampment Proclamation. I should like to read this pledge to you:
 
-“Be it known to all that we are Boy Scouts ... and bearers of the Aaronic Priesthood of God. We pledge our allegiance to the values and principles that guided the men of the Mormon Battalion and the Latter-day Saint Pioneer men and women who helped establish this state of California. As their grateful sons, we rejoice in our heritage of service.
+“Be it known to all that we are Boy Scouts … and bearers of the Aaronic Priesthood of God. We pledge our allegiance to the values and principles that guided the men of the Mormon Battalion and the Latter-day Saint pioneer men and women who helped establish this state of California. As their grateful sons, we rejoice in our heritage of service.
 
-“On this 18th day of July 1998, we pledge to become converted to the gospel of Jesus Christ. We will study the scriptures. We will pray for strength to obey. We will work. We will strive with all our hearts to follow the example of Jesus.
+“On this eighteenth day of July 1998, we pledge to become converted to the gospel of Jesus Christ. We will study the scriptures. We will pray for strength to obey. We will work. We will strive with all our hearts to follow the example of Jesus.
 
 “We will magnify the priesthood we have been given by serving other people. We will keep ourselves worthy to administer the sacrament of the Lord’s supper. Wherever there is a need for help, like our forefathers, we will step forward.
 
@@ -35,13 +38,13 @@ On the agenda of your lives, of course, would be a mission. You would gladly go 
 
 Permit me to read to you parts of a letter from a young man now serving a mission. It is written to his family, and I hope I do not violate propriety in reading it to this great gathering. I will not disclose the name of the writer or the mission in which he serves.
 
-He says: “This past year has been great! I transferred out of the mission office and came to this small branch. My life has changed dramatically since that last transfer. I have in the past few months learned what is really important. I have learned what matters. I have learned to forget myself. I have learned to work effectively. I have learned to love others. I have learned that God loves me and that I love Him. In short, I have learned to live what I believe. ...
+He says: “This past year has been great! I transferred out of the mission office and came to this small branch. My life has changed dramatically since that last transfer. I have in the past few months learned what is really important. I have learned what matters. I have learned to forget myself. I have learned to work effectively. I have learned to love others. I have learned that God loves me and that I love Him. In short, I have learned to live what I believe. …
 
-“I have learned about people and things. I have watched tears of joy come to those who never knew they were children of God. I have seen the prayers of the penitent be answered. I have seen people absorb the gospel of Jesus Christ and want to change into new persons, all because of a feeling. ...
+“I have learned about people and things. I have watched tears of joy come to those who never knew they were children of God. I have seen the prayers of the penitent be answered. I have seen people absorb the gospel of Jesus Christ and want to change into new persons, all because of a feeling. …
 
 “I often dream about the plan of salvation. I think about the marvelous work and a wonder that has taken place. I think about the power and force of angels that stand among us. I wonder at times how many of these are around me helping to bear testimony in a language I never thought could be fully understood.
 
-“I ponder upon the peaceable things of immortal glory visioned by Enoch. ... I am thankful to God to be who I am. My greatest blessing in life is to be alive—alive in the service of our God. In this, I find great peace and joy.”
+“I ponder upon the peaceable things of immortal glory visioned by Enoch. … I am thankful to God to be who I am. My greatest blessing in life is to be alive—alive in the service of our God. In this, I find great peace and joy.”
 
 Now, my dear young friends, I hope all of you are pointed in the direction of missionary service. I cannot promise you fun. I cannot promise you ease and comfort. I cannot promise you freedom from discouragement, from fear, from downright misery at times. But I can promise you that you will grow as you have never grown in a similar period during your entire lives. I can promise you a happiness that will be unique and wonderful and lasting. I can promise you that you will reevaluate your lives, that you will establish new priorities, that you will live closer to the Lord, that prayer will become a real and wonderful experience, that you will walk with faith in the outcome of the good things you do.
 
@@ -57,27 +60,27 @@ Pharaoh, the ruler of Egypt, dreamed dreams which greatly troubled him. The wise
 
 “And, behold, there came up out of the river seven kine, fatfleshed and well favoured; and they fed in a meadow:
 
-“And, behold, seven other kine came up after them, poor and very ill favoured and leanfleshed. ...
+“And, behold, seven other kine came up after them, poor and very ill favoured and leanfleshed. …
 
-“And the lean and the ill favoured kine did eat up the first seven fat kine: ...
+“And the lean and the ill favoured kine did eat up the first seven fat kine: …
 
-“And I saw in my dream ... seven ears came up in one stalk, full and good:
+“And I saw in my dream … seven ears came up in one stalk, full and good:
 
 “And, behold, seven ears, withered, thin, and blasted with the east wind, sprung up after them:
 
-“And the thin ears devoured the seven good ears: ...
+“And the thin ears devoured the seven good ears. …
 
-“And Joseph said unto Pharaoh, ... God hath shewed Pharaoh what he is about to do.
+“And Joseph said unto Pharaoh, … God hath shewed Pharaoh what he is about to do.
 
-“The seven good kine are seven years; and the seven good ears are seven years: the dream is one. ...
+“The seven good kine are seven years; and the seven good ears are seven years: the dream is one. …
 
-“... What God is about to do he sheweth unto Pharaoh.
+“… What God is about to do he sheweth unto Pharaoh.
 
 “Behold, there come seven years of great plenty throughout all the land of Egypt:
 
-“And there shall arise after them seven years of famine;
+“And there shall arise after them seven years of famine. …
 
-“... And God will shortly bring it to pass” (Gen. 41:17–20, 22–26, 28–30, 32).
+“… And God will shortly bring it to pass” ([[Genesis 41.17|Gen. 41:17–20, 22–26, 28–30, 32]][[Genesis 41.18|]][[Genesis 41.19|]][[Genesis 41.20|]][[Genesis 41.22|]][[Genesis 41.23|]][[Genesis 41.24|]][[Genesis 41.25|]][[Genesis 41.26|]][[Genesis 41.28|]][[Genesis 41.29|]][[Genesis 41.30|]][[Genesis 41.32|]]).
 
 Now, brethren, I want to make it very clear that I am not prophesying, that I am not predicting years of famine in the future. But I am suggesting that the time has come to get our houses in order.
 
@@ -97,15 +100,15 @@ Everyone knows that every dollar borrowed carries with it the penalty of paying 
 
 We are beguiled by seductive advertising. Television carries the enticing invitation to borrow up to 125 percent of the value of one’s home. But no mention is made of interest.
 
-President J. Reuben Clark Jr., in the April 1938 general conference, said from this pulpit: “Once in debt, interest is your companion every minute of the day and night; you cannot shun it or slip away from it; you cannot dismiss it; it yields neither to entreaties, demands, or orders; and whenever you get in its way or cross its course or fail to meet its demands, it crushes you” (in Conference Report, Apr. 1938, 103).
+President J. Reuben Clark Jr., in the April 1938 general conference, said from this pulpit, “Once in debt, interest is your companion every minute of the day and night; you cannot shun it or slip away from it; you cannot dismiss it; it yields neither to entreaties, demands, or orders; and whenever you get in its way or cross its course or fail to meet its demands, it crushes you” (in Conference Report, Apr. 1938, 103).
 
 I recognize that it may be necessary to borrow to get a home, of course. But let us buy a home that we can afford and thus ease the payments which will constantly hang over our heads without mercy or respite for as long as 30 years.
 
-No one knows when emergencies will strike. I am somewhat familiar with the case of a man who was highly successful in his profession. He lived in comfort. He built a large home. Then one day he was suddenly involved in a serious accident. Instantly, without warning, he almost lost his life. He was left a cripple. Destroyed was his earning power. He faced huge medical bills. He had other payments to make. He was helpless before his creditors. One moment he was rich, the next he was broke.
+No one knows when emergencies will strike. I am somewhat familiar with the case of a man who was highly successful in his profession. He lived in comfort. He built a large home. Then one day he was suddenly involved in a serious accident. Instantly, without warning, he almost lost his life. He was left a cripple. Destroyed was his earning power. He faced huge medical bills. He had other payments to make. He was helpless before his creditors. One moment he was rich; the next he was broke.
 
-Since the beginnings of the Church, the Lord has spoken on this matter of debt. To Martin Harris through revelation He said: “Pay the debt thou hast contracted with the printer. Release thyself from bondage” (D&C 19:35).
+Since the beginnings of the Church, the Lord has spoken on this matter of debt. To Martin Harris through revelation He said: “Pay the debt thou hast contracted with the printer. Release thyself from bondage” ([[D&C 19.35|D&C 19:35]]).
 
-President Heber J. Grant spoke repeatedly on this matter from this pulpit. He said: “If there is any one thing that will bring peace and contentment into the human heart, and into the family, it is to live within our means. And if there is any one thing that is grinding and discouraging and disheartening, it is to have debts and obligations that one cannot meet” (Gospel Standards, comp. G. Homer Durham [1941], 111).
+President Heber J. Grant spoke repeatedly on this matter from this pulpit. He said: “If there is any one thing that will bring peace and contentment into the human heart, and into the family, it is to live within our means. And if there is any one thing that is grinding and discouraging and disheartening, it is to have debts and obligations that one cannot meet” (*Gospel Standards,* comp. G. Homer Durham \[1941\], 111).
 
 We are carrying a message of self-reliance throughout the Church. Self-reliance cannot obtain when there is serious debt hanging over a household. One has neither independence nor freedom from bondage when he is obligated to others.
 
@@ -124,4 +127,7 @@ I urge you, brethren, to look to the condition of your finances. I urge you to b
 This is a part of the temporal gospel in which we believe. May the Lord bless you, my beloved brethren, to set your houses in order. If you have paid your debts, if you have a reserve, even though it be small, then should storms howl about your head, you will have shelter for your wives and children and peace in your hearts. That’s all I have to say about it, but I wish to say it with all the emphasis of which I am capable.
 
 I leave with you my testimony of the divinity of this work and my love for each of you, in the name of the Redeemer, the Lord Jesus Christ, amen.
+
+
+
 

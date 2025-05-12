@@ -1,11 +1,12 @@
 # A Living Network
-*By By Chieko N. Okazaki - First Counselor in the Relief Society General Presidency*
+
+By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1995 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1995/10/a-living-network?lang=eng)
 
-My dear sisters, aloha! As we share thoughts tonight on strengthening every family, I want to talk about how Relief Society can help accomplish that goal by weaving us together in a strong sisterhood.
+My dear sisters, aloha! As we share thoughts tonight on strengthening *every* family, I want to talk about how Relief Society can help accomplish that goal by weaving us together in a strong sisterhood.
 
 This is a net, a fisherman’s net that my father, Kanenori Nishimura, made in Hawaii many years ago. It has been mine since he died thirty years ago, and I have cherished it for his sake. For me, that moment of casting the net is a supremely beautiful one. I loved seeing my father standing on a rocky point on the beach, the net close-gathered in his hands, then with a strong, graceful gesture, like a dancer, flinging the net up and out. It would unfold in flight, opening like a fan or an umbrella, then fall over the fish that were darting like silver arrows through the surf. The lead sinkers around the edge of the net would make it sink gently to the bottom, completely enclosing the fish.
 
@@ -17,7 +18,7 @@ My father sorted out the fish that he wanted and put the rest back; but the gosp
 
 In the case of my father’s fish, the net took them out of their native element into alien air where they died. But the gospel brings us together in an environment where we experience some of the cherishing, the kindness, the love, the service, the instruction, and the watching over each other that give us glimpses of what heaven can be like. In fact, we are the fish, we are the net, and we are the fisher simultaneously.
 
-The second point about the net that holds true for our sisterhood is that it didn’t happen accidentally or spontaneously. It took work. My father made this net with his own hands. He bought the hard-twist, double-ply twine at our local general store. Then he spent many hours in the evenings after work and on weekends patiently working. He started with this square right here where it would become the middle of the net. Then he worked outward in a circle, patiently knotting these other squares of a size that he could just get his thumb through. At every corner, he made a square knot so that each square of the mesh was solid and strong. If one strand caught on a rock or ripped through because it was weak, the squares next to it would not unravel. They would hold strong and firm.
+The second point about the net that holds true for our sisterhood is that it didn’t happen accidentally or spontaneously. It took work. My father *made* this net with his own hands. He bought the hard-twist, double-ply twine at our local general store. Then he spent many hours in the evenings after work and on weekends patiently working. He started with this square right here where it would become the middle of the net. Then he worked outward in a circle, patiently knotting these other squares of a size that he could just get his thumb through. At every corner, he made a square knot so that each square of the mesh was solid and strong. If one strand caught on a rock or ripped through because it was weak, the squares next to it would not unravel. They would hold strong and firm.
 
 And every time my father used this net, he took care of it. When he got home, he would rinse it thoroughly in fresh water so that the salt water would not weaken and eat through the fibers. Then he would hang it on the fence, shaking out the folds carefully so that it would dry quickly and evenly. When it was dry, before he folded it up and put it away, he went over the net minutely, inspecting the mesh. If a knot seemed to be loosening or if a string was frayed, he repaired it immediately, before it became serious. A net like this would last for many years. It would stay strong because he always took care of it.
 
@@ -29,13 +30,13 @@ But mortality is designed as part of the gospel plan to bring us mingled experie
 
 Every family, whether struggling with problems that seem perennial or whether blessed by ideal circumstances, is a valuable, cherished, and beloved family. The Savior wants you to succeed. Heavenly Father loves you. We love you. We pray that you may be strengthened, that you may receive the help you need, and that you may extend help to others in need.
 
-The third point of comparison I want to stress is that our network, like my father’s net, is designed to bring you abundance—overflowing blessings, bounteous love, unimaginable grace. My father’s net was designed to be used from the beach, but remember that wonderful story in Luke when the Savior told Peter, after a night of fruitless effort, “Launch out into the deep, and let down your nets” (Luke 5:4). Do you remember what happened? The nets were filled with such an enormous number of fish that the nets were breaking. They called for help in hauling in the nets, and both boats almost swamped. The scriptural account doesn’t say what Jesus did while these amazed fishermen were making the catch of their life, but I imagine he watched, smiling.
+The third point of comparison I want to stress is that our network, like my father’s net, is designed to bring you abundance—overflowing blessings, bounteous love, unimaginable grace. My father’s net was designed to be used from the beach, but remember that wonderful story in Luke when the Savior told Peter, after a night of fruitless effort, “Launch out into the deep, and let down your nets” ([[Luke 5.4|Luke 5:4]]). Do you remember what happened? The nets were filled with such an enormous number of fish that the nets were breaking. They called for help in hauling in the nets, and both boats almost swamped. The scriptural account doesn’t say what Jesus did while these amazed fishermen were making the catch of their life, but I imagine he watched, smiling.
 
 You know, the great thing about a beach is all the activity there. You can see people sunning themselves or playing volleyball or having barbecues. You can see crabs scuttling sideways on their fragile little legs and sea anemones blooming in tide pools. You can see gulls following the cresting waves to see if any fish become visible for a second. In other words, you can spend your whole life on the beach and it would always be beautiful and interesting and exciting because interesting, beautiful, and exciting things are going on all the time.
 
-But the Savior wants us to pull for the deep, to launch into the deep water, because he has treasures for us that simply don’t exist and can’t exist in the sand, the froth, and the constant activity of the beach. The Savior says, “If thou shalt ask, thou shalt receive revelation upon revelation, knowledge upon knowledge, that thou mayest know the mysteries and peaceable things—that which bringeth joy, that which bringeth life eternal” (D&C 42:61). And the experience of Peter, James, and John tells us that we need partners in pulling in this abundance.
+But the Savior wants us to pull for the deep, to launch into the deep water, because he has treasures for us that simply don’t exist and can’t exist in the sand, the froth, and the constant activity of the beach. The Savior says, “If thou shalt ask, thou shalt receive revelation upon revelation, knowledge upon knowledge, that thou mayest know the mysteries and peaceable things—that which bringeth joy, that which bringeth life eternal” ([[D&C 42.61|D&C 42:61]]). And the experience of Peter, James, and John tells us that we need partners in pulling in this abundance.
 
-But as Psalm 42:7 [Ps. 42:7] says, “deep calleth unto deep.” The deeps are not just the deep knowledge of the gospel but also the deeps in you. I hope you have a beach part of your personality where there’s a lot of scrambling and laughing and sunning. But I hope there’s also a part of you that wants to leave the shallow, sandy self and go into the deep. And sometimes, even when we do not want to, powerful currents of mortality carry us into the deeps—into the deeps of sorrow and suffering and soul-searching. There in the deeps, we discover who we really are and who the Savior really is.
+But as Psalm 42:7 \[[[Psalms 42.7|Ps. 42:7]]\] says, “deep calleth unto deep.” The deeps are not just the deep knowledge of the gospel but also the deeps in you. I hope you have a beach part of your personality where there’s a lot of scrambling and laughing and sunning. But I hope there’s also a part of you that wants to leave the shallow, sandy self and go into the deep. And sometimes, even when we do not want to, powerful currents of mortality carry us into the deeps—into the deeps of sorrow and suffering and soul-searching. There in the deeps, we discover who we really are and who the Savior really is.
 
 Sisters, we in the Relief Society presidency are mindful of the burdens that you carry. We pray in every meeting that each of you will be strengthened as individuals so that you can, in turn, provide strength to family members, friends, your wards, and your communities. We thrill to your gallant courage and cheerfulness. We sorrow with your pain. We are humbled by your faith. And we are nourished by your love. Share your courage, your faith, and your love with each other. Strengthen yourselves and strengthen each other. Weave a living network.
 
@@ -45,9 +46,12 @@ Please, sisters, recognize that no one can carry your burdens for you except the
 
 Sisters, in conclusion, remember my father’s net and build a living network in your Relief Societies. All family situations take courage, faith, and love. Our relationships as parents and children are based on deeper, older relationships as eternal brothers and sisters, children of a Heavenly Father who loves us and watches over us and yearns that our faith may increase, that our courage may uplift others, and that we may enfold others in our love as he enfolds us in his. In the words of the Apostle Paul:
 
-“The Lord make you to increase and abound in love one toward another, and toward all ... even as we do toward you:
+“The Lord make you to increase and abound in love one toward another, and toward all … even as we do toward you:
 
-“To the end he may stablish your hearts unblameable in holiness before God, even our Father, at the coming of our Lord Jesus Christ with all his saints” (1 Thes. 3:12–13).
+“To the end he may stablish your hearts unblameable in holiness before God, even our Father, at the coming of our Lord Jesus Christ with all his saints” ([[1 Thessalonians 3.12|1 Thes. 3:12–13]][[1 Thessalonians 3.13|]]).
 
 So may it be, I pray in the name of Jesus Christ, amen.
+
+
+
 

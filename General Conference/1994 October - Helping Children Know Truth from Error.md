@@ -1,5 +1,6 @@
 # Helping Children Know Truth from Error
-*By By Michaelene P. Grassli - Recently Released Primary General President*
+
+By Michaelene P. Grassli - *Recently Released Primary General President*
 
 *Given in the October session of the 1994 General Conference*
 
@@ -7,7 +8,7 @@
 
 It is a distinct privilege to participate in this historic meeting, adding my heart and hand and voice to sustain the Lord’s living prophet—and I do so with all my heart. I support also the action taken today sustaining Sister Patricia Pinegar as the new Primary general president. My time here has been full of extraordinary experiences, and I will miss them. But I know Sister Pinegar, Sister Wirthlin, and Sister Warner, and I know our children are in good hands. I wish this new presidency well.
 
-The Church of Jesus Christ of Latter-day Saints has always cherished children. The First Presidency, recognizing today’s unprecedented world conditions, has taken unprecedented action that renews our commitment to our little ones. Through a message to the Church called “Focus on Children,” they have asked us to love and protect our children as never before, to teach them better than we have done in the past, to prepare them more thoroughly to conquer Satan’s power in their lives and to receive of the Lord’s eternal peace and glory (see Ensign, Jan. 1994, p. 80).
+The Church of Jesus Christ of Latter-day Saints has always cherished children. The First Presidency, recognizing today’s unprecedented world conditions, has taken unprecedented action that renews our commitment to our little ones. Through a message to the Church called “Focus on Children,” they have asked us to love and protect our children as never before, to teach them better than we have done in the past, to prepare them more thoroughly to conquer Satan’s power in their lives and to receive of the Lord’s eternal peace and glory (see “Focus on Children,” *Ensign,* Jan. 1994, p. 80).
 
 We care what happens to our children. They are precious to our Heavenly Father, and they are our hope for bringing about good in the world. President Boyd K. Packer once told me, “It is today’s children who will bring the gospel to all the world. The children must be powerful and strong and independent in their agency. In order for that to be, they must have a knowledge of the gospel and a testimony that it is true.”
 
@@ -15,19 +16,19 @@ Let me tell you about a little girl who is well on her way. Eight-year-old Linds
 
 Children need to be able to discern truth from error for themselves and have the courage to act on what they know, as Lindsay did. As I have studied principles governing discernment, I’ve made some discoveries. One discovery comes from the book of Moses in the Pearl of Great Price.
 
-We read in the first chapter of Moses that God talked to Moses face to face, taught him that he was a son of God, and showed him the earth from its beginning to the end. Then “Satan came tempting him, saying: Moses, son of man, worship me” (Moses 1:12).
+We read in the first chapter of Moses that God talked to Moses face to face, taught him that he was a son of God, and showed him the earth from its beginning to the end. Then “Satan came tempting him, saying: Moses, son of man, worship me” ([[Moses 1.12|Moses 1:12]]).
 
-And how did Moses respond to Satan’s confrontation? “It came to pass that Moses looked upon Satan and said: Who art thou? For behold, I am a son of God, in the similitude of his Only Begotten; and where is thy glory, that I should worship thee?” (Moses 1:13).
+And how did Moses respond to Satan’s confrontation? “It came to pass that Moses looked upon Satan and said: Who art thou? For behold, I am a son of God, in the similitude of his Only Begotten; and where is thy glory, that I should worship thee?” ([[Moses 1.13|Moses 1:13]]).
 
 Because Moses knew God, he recognized that Satan was an imposter. If our children know truth, they can recognize error.
 
-When Moses recognized error, he took action. He didn’t hang around with Satan for the experience. No, he said: “I can judge between thee and God; ...
+When Moses recognized error, he took action. He didn’t hang around with Satan for the experience. No, he said: “I can judge between thee and God; …
 
-“Get thee hence, Satan; deceive me not” (Moses 1:15–16).
+“Get thee hence, Satan; deceive me not” ([[Moses 1.15|Moses 1:15–16]][[Moses 1.16|]]).
 
-He prayed for help and continued to do so, although Satan became agitated and insistent and redoubled his efforts, tempting Moses again. Satan told him, “I am the Only Begotten, worship me” (Moses 1:19).
+He prayed for help and continued to do so, although Satan became agitated and insistent and redoubled his efforts, tempting Moses again. Satan told him, “I am the Only Begotten, worship me” ([[Moses 1.19|Moses 1:19]]).
 
-Moses knew this was not true, but Satan’s rantings had a terrifying effect on him. However, he did not let fear overtake him. He prayed again, received strength from God, and commanded Satan again to depart. Then with loud wailing, weeping, and gnashing of teeth, Satan finally departed (see Moses 1:20–22).
+Moses knew this was not true, but Satan’s rantings had a terrifying effect on him. However, he did not let fear overtake him. He prayed again, received strength from God, and commanded Satan again to depart. Then with loud wailing, weeping, and gnashing of teeth, Satan finally departed (see [[Moses 1.20|Moses 1:20–22]][[Moses 1.21|]][[Moses 1.22|]]).
 
 Moses recognized error, he prayed continually for help, and he overcame fear. Thus he was able to defy Satan’s attempts to intimidate him.
 
@@ -43,35 +44,30 @@ With all my heart, I thank each of you who are serving in Primary. You are bless
 
 “Those who have the opportunity to teach children in the Church are particularly blessed as they help children understand their divine origin and Heavenly Father’s plan for them. These individuals will receive spiritual understanding in their own lives as they teach the precious truths of the gospel to children.”
 
-A second way we can help children learn to discern truth from error is to give them opportunities to practice discerning the truth and choosing righteously.
+A second way we can help children learn to discern truth from error is to give them opportunities to *practice* discerning the truth and choosing righteously.
 
 One mother says each time one of her children leaves the house, “Remember!” And they respond, “I know, CTR!” They know CTR means “choose the right.”
 
 In family home evening, a family we know role-play situations they are likely to encounter, and they practice possible responses to the situations. In this way the children are able to have a plan before the confrontation comes. These children are learning to discern truth from error and to be independent in using their agency wisely.
 
-When our children are familiar with truth, they can face opposing voices with confidence. No one can tell them the Church is not true, because that will sound wrong to them. When they make mistakes or have questions about doctrines as we all do, the feelings and memories of truth from their childhood can help draw them back.
+When our children are familiar with truth, they can face opposing voices with confidence. No one can tell them the Church is not true, because that will sound wrong to them. When they make mistakes or have questions about doctrines, as we all do, the feelings and memories of truth from their childhood can help draw them back.
 
 When I was a little girl, my father sat at the foot of my bed at night and taught my sister and me that we had lived with our Heavenly Father before the world was, that we had made a choice to obey God’s commandments and to reject Satan. He taught us that Satan rejoices when we disobey Father. I made a determination then as a very young child that I wanted my Heavenly Father to rejoice over me, not Satan. That commitment has had a very powerful effect on my life.
 
 May all our children be immersed in gospel teachings and have opportunities to practice using their agency wisely. I pray that all children will have the opportunity to know, as I do, that God lives, that Jesus Christ is our Savior, and that we are led by a living prophet today. May the words to this favorite Primary song ring in their hearts as they do in mine today:
 
-I feel my Savior’s love
-
-And know that he will bless me.
-
-I offer him my heart;
-
-My shepherd he will be.
-
-He knows I will follow him,
-
-Give all my life to him.
-
-I feel my Savior’s love,
-
-The love he freely gives me.
-
-(Children’s Songbook, p. 74)
+>I feel my Savior’s love
+>And know that he will bless me.
+>I offer him my heart;
+>My shepherd he will be.
+>He knows I will follow him,
+>Give all my life to him.
+>I feel my Savior’s love,
+>The love he freely gives me.
+>
 
 In the name of Jesus Christ, amen.
+
+
+
 

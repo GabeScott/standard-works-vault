@@ -1,7 +1,10 @@
 # Until We Meet Again
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2014 General Conference*
+
+>*May we all ponder the truths we have heard, and may they help us to become even more valiant disciples.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/10/until-we-meet-again?lang=eng)
 
@@ -15,13 +18,20 @@ May we return to our homes with a resolve in our hearts to be a little better th
 
 There are those who struggle every day with challenges. Let us extend to them our concern, as well as a helping hand. As we care for each other, we will be blessed.
 
-May we remember the elderly and those who are homebound. As we take time to visit them, they will know that they are loved and valued. May we follow the mandate to “succor the weak, lift up the hands which hang down, and strengthen the feeble knees.”1
+May we remember the elderly and those who are homebound. As we take time to visit them, they will know that they are loved and valued. May we follow the mandate to “succor the weak, lift up the hands which hang down, and strengthen the feeble knees.”[^1]
 
-May we be people of honesty and integrity, trying to do the right thing at all times and in all circumstances. May we be faithful followers of Christ, examples of righteousness, thus becoming “lights in the world.”2
+May we be people of honesty and integrity, trying to do the right thing at all times and in all circumstances. May we be faithful followers of Christ, examples of righteousness, thus becoming “lights in the world.”[^2]
 
 My brothers and sisters, I thank you for your prayers in my behalf. They strengthen me and lift me as I strive with all my heart and strength to do God’s will and to serve Him and to serve you.
 
 As we leave this conference, I invoke the blessings of heaven upon each of you. May you who are away from your homes return to them safely and find all in order. May we all ponder the truths we have heard, and may they help us to become even more valiant disciples than we were when this conference began.
 
 Until we meet again in six months’ time, I ask the Lord’s blessings to be upon you and, indeed, upon all of us, and I do so in His holy name—even Jesus Christ, our Lord and Savior—amen.
+
+
+
+
+[^1]: [[D&C 81.5|Doctrine and Covenants 81:5]].
+
+[^2]: [[Philippians 2.15|Philippians 2:15]].
 

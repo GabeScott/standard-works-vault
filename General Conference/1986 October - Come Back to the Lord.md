@@ -1,5 +1,6 @@
 # Come Back to the Lord
-*By F. Burton Howard - Of the First Quorum of the Seventy*
+
+By Elder F. Burton Howard - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
 
@@ -9,7 +10,7 @@ From the beginning, prophets have called almost all men to repentance. Those who
 
 But prophets have also pled with another group—those who were once believers, but who, because of pride or sin or something else, abandoned the faith. In this group are the less active, the critics, the uncommitted, and the rebellious. These are Church members who have grown away from God as they have grown older. To these, the invitation has always been to come back to the Lord.
 
-As we think about members of the Church repenting and returning to activity, the stories of Saul or Alma may come to mind. Some may be waiting for a similar miraculous experience before committing themselves again. However, they will probably wait in vain. For, as the Savior taught his disciples, “if they hear not Moses and the prophets, neither will they be persuaded, though one rose from the dead” (Luke 16:31).
+As we think about members of the Church repenting and returning to activity, the stories of Saul or Alma may come to mind. Some may be waiting for a similar miraculous experience before committing themselves again. However, they will probably wait in vain. For, as the Savior taught his disciples, “if they hear not Moses and the prophets, neither will they be persuaded, though one rose from the dead” ([[Luke 16.31|Luke 16:31]]).
 
 Without some such incentive to change, others may wonder if it is possible to return to faith from doubt. Can the cynic ever really become as a little child? Can the slave of habit or passion become free again? Is there a way back? If so, is it worth the effort to find and follow it? Where and when does one begin?
 
@@ -47,17 +48,17 @@ I finished the interview and talked with her husband as well. They were complete
 
 Now, did you notice the elements of their return? It wasn’t easy. They had always known. She had prayed for years. There was a lot of wasted time. Finally, before it was too late, they talked to the bishop, repentance took place, old attitudes and habits were forgotten, and they came back.
 
-Another who came back was Aminadab (see Hel. 5). He had once belonged to the church of God, but he became critical and contentious. He evidently sympathized with the opposition, because he was present when two young missionaries named Nephi and Lehi were taken captive by an army of Lamanites.
+Another who came back was Aminadab (see [[Helaman 5.1|Hel. 5]][[Helaman 5.2|]][[Helaman 5.3|]][[Helaman 5.4|]][[Helaman 5.5|]][[Helaman 5.6|]][[Helaman 5.7|]][[Helaman 5.8|]][[Helaman 5.9|]][[Helaman 5.10|]][[Helaman 5.11|]][[Helaman 5.12|]][[Helaman 5.13|]][[Helaman 5.14|]][[Helaman 5.15|]][[Helaman 5.16|]][[Helaman 5.17|]][[Helaman 5.18|]][[Helaman 5.19|]][[Helaman 5.20|]][[Helaman 5.21|]][[Helaman 5.22|]][[Helaman 5.23|]][[Helaman 5.24|]][[Helaman 5.25|]][[Helaman 5.26|]][[Helaman 5.27|]][[Helaman 5.28|]][[Helaman 5.29|]][[Helaman 5.30|]][[Helaman 5.31|]][[Helaman 5.32|]][[Helaman 5.33|]][[Helaman 5.34|]][[Helaman 5.35|]][[Helaman 5.36|]][[Helaman 5.37|]][[Helaman 5.38|]][[Helaman 5.39|]][[Helaman 5.40|]][[Helaman 5.41|]][[Helaman 5.42|]][[Helaman 5.43|]][[Helaman 5.44|]][[Helaman 5.45|]][[Helaman 5.46|]][[Helaman 5.47|]][[Helaman 5.48|]][[Helaman 5.49|]][[Helaman 5.50|]][[Helaman 5.51|]][[Helaman 5.52|]]). He had once belonged to the church of God, but he became critical and contentious. He evidently sympathized with the opposition, because he was present when two young missionaries named Nephi and Lehi were taken captive by an army of Lamanites.
 
-A cloud of darkness came upon him, and he heard a still, mild voice whisper, “Repent ... and seek no more to destroy my servants” (Hel. 5:29–30). Surprised, he turned around and looked at Nephi and Lehi. Their faces shone through the darkness, and they appeared to be lifting their voices to heaven (see Hel. 5:36).
+A cloud of darkness came upon him, and he heard a still, mild voice whisper, “Repent … and seek no more to destroy my servants” ([[Helaman 5.29|Hel. 5:29–30]][[Helaman 5.30|]]). Surprised, he turned around and looked at Nephi and Lehi. Their faces shone through the darkness, and they appeared to be lifting their voices to heaven (see [[Helaman 5.36|Hel. 5:36]]).
 
 Aminadab then recognized them for what they were. In a loud voice he told the Lamanites that the young men were servants of God. As the army turned to look, they too became aware of the darkness which surrounded them. They asked Aminadab how to dispel it, and he, drawing on truth learned, I believe, at another time, said:
 
-“You must repent, and cry unto the [Lord], even until ye shall have faith in Christ ... ; and when ye shall do this, the cloud of darkness shall be removed from overshadowing you” (Hel. 5:41).
+“You must repent, and cry unto the \[Lord\], even until ye shall have faith in Christ … ; and when ye shall do this, the cloud of darkness shall be removed from overshadowing you” ([[Helaman 5.41|Hel. 5:41]]).
 
 Now notice again, the scripture speaks of darkness overshadowing those who have abandoned the faith. The effect of darkness is to prevent one from seeing clearly. To find the way back, as Aminadab discovered, one must repent and pray until doubt and darkness disappear and important things can be seen again.
 
-One final story—once again from when I was a bishop. One night, while I was in a sound sleep, the doorbell rang. I stumbled to answer it and found a young member of my priests quorum at the door. I knew him well, well enough to have gone on outings with him, to have prayed with and about him, and to have taught him. I knew him as well as a good bishop knows any active eighteen-year-old priest, which was well enough for me to ask what he was doing at my front door in the middle of the night.
+One final story—once again from when I was a bishop. One night, while I was in a sound sleep, the doorbell rang. I stumbled to answer it and found a young member of my priests quorum at the door. I knew him well—well enough to have gone on outings with him, to have prayed with and about him, and to have taught him. I knew him as well as a good bishop knows any active eighteen-year-old priest, which was well enough for me to ask what he was doing at my front door in the middle of the night.
 
 He said, “I have to talk to you, bishop. I’ve just done something serious, and I can’t go home.”
 
@@ -79,9 +80,12 @@ As I continued on my way, something happened—something difficult to explain, b
 
 I was chagrined. There was no satisfactory answer to the question. I have never wondered about it again. And I knew more surely then than I had ever known before that the Lord is pleased when his children return to him.
 
-All who are shepherds and all lost sheep should note this one last thing. The Lord really meant it when he said, “He who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more” (D&C 58:42).
+All who are shepherds and all lost sheep should note this one last thing. The Lord really meant it when he said, “He who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more” ([[D&C 58.42|D&C 58:42]]).
 
 Some years ago it was fashionable in certain circles to use the phrase, “You can never go home again.” That is just simply not true. It is possible to return. It is possible for those who have ceased to pray, to pray again. It is possible for those who are lost to find their way through the dark and come home.
 
 And when they do, they will know, as I know, that the Lord is more concerned with what a man is than with what he was, and with where he is than with where he has been. I so testify in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # Follow the Light
-*By By Margaret D. Nadauld - Young Women General President*
+
+By Margaret D. Nadauld - *Young Women General President*
 
 *Given in the April session of the 1999 General Conference*
+
+>*The Lord invites us to come out of the cold danger of worldliness and into the warmth of His light.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1999/04/follow-the-light?lang=eng)
 
@@ -15,7 +18,7 @@ With prayers on our lips and white-knuckled hands holding on, we followed that l
 
 We are each one on a road going toward home, but we’re not trying to get there for Christmas. We’re trying to get there for eternity. We want to arrive home safely to our loving Father in Heaven. He wants us to make it safely there, so He has sent a guiding light for us to follow: a Savior, the Lord Jesus Christ, the perfect example. He knows the way. He lights our path in the dark of night, in storms, at crossroads, and in the daylight. He is always ready to show the way back home.
 
-He tells us, “And I will also be your light; ... I will prepare the way before you, if it so be that ye shall keep my commandments; ... ye shall know that it is by me that ye are led” (1 Ne. 17:13).
+He tells us, “And I will also be your light; … I will prepare the way before you, if it so be that ye shall keep my commandments; … ye shall know that it is by me that ye are led” ([[1 Nephi 17.13|1 Ne. 17:13]]).
 
 One young woman wrote to me about a road she was on. She said: “I was with a group of my friends watching a video. It was one I knew I shouldn’t be sitting through. The Spirit prompted me to leave. I was able to listen and get up and leave. I felt the Spirit so strong. I know it was because of the choice I made” (letter in possession of Young Women office). She followed the light to safety.
 
@@ -31,7 +34,7 @@ Upon arrival in the Salt Lake Valley, Langley was still alive! He was 18 years o
 
 You probably will not have to push a handcart in a blizzard over the plains, sisters, or run away from a mob, but you may have to walk away from friends and fashions and invitations which would compromise your standards of goodness. And that takes courage. Soon you will be Relief Society sisters and one day mothers who must lend strength and testimony to future generations. Now in your preparing years, you can’t afford to say: “I’m going to give up. The Church standards are too high. It’s too hard to live the standards of personal purity with exactness. I’m too weak.” You can do it! For the sake of your future, you must do it!
 
-You can live in the world and not be of the world. The Lord invites us to come out of the cold danger of worldliness and into the warmth of His light. This requires integrity, strength of character, and faith—faith in the truths taught by the Lord Jesus Christ, who said, “I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life” (John 8:12).
+You can live in the world and not be of the world. The Lord invites us to come out of the cold danger of worldliness and into the warmth of His light. This requires integrity, strength of character, and faith—faith in the truths taught by the Lord Jesus Christ, who said, “I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life” ([[John 8.12|John 8:12]]).
 
 The Lord’s light helped Shelly Ann Scoffield face a frightening trial in her young life, but she faced it with great faith and love for Heavenly Father. One day Shelly began to feel sick. She saw a doctor, who determined that there was something seriously wrong. Shelly said: “I was scared. I had huge masses on my lungs, and the doctor began to say things like cancer and chemotherapy and radiation.” But Shelly didn’t give in to her fears. True to her training in Personal Progress, she got busy and set a long list of goals to accomplish while she couldn’t go to school because of her treatments. She busied herself with accomplishing good things. She was mindful of her blessings, including a father with the priesthood who had administered to her, a wonderful family, super friends, and great doctors. “Best of all,” Shelly said, “I have a testimony of my Heavenly Father, that He loves me and will help me through this struggle.”
 
@@ -53,11 +56,12 @@ The Young Women office looks out at the holy Salt Lake Temple, and we can see br
 
 Just as we followed the light of a truck one stormy winter night, so did Shelly and Mary Elizabeth and Jane follow the light of the Lord, and so can you. And when you come to those times that will require courage and strength and faith, remember the words of the hymn:
 
-The Lord is my light; then why should I fear?
-
-By day and by night his presence is near.
-
-(“The Lord Is My Light,” Hymns, no. 89)
+>The Lord is my light; then why should I fear?
+>By day and by night his presence is near.
+>
 
 I testify that the Lord is always there to help you. The example of His life and His teachings is a steady, sure guide. We can follow Him with confidence and perfect trust, for He is our Savior. I love Him. I love you and bear testimony of His love for you in the name of Jesus Christ, amen.
+
+
+
 

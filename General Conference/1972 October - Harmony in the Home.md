@@ -1,5 +1,6 @@
 # Harmony in the Home
-*By By Bishop H. Burke Peterson - Of the Presiding Bishopric*
+
+By Bishop H. Burke Peterson - *Of the Presiding Bishopric*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -19,17 +20,17 @@ One of Satan’s most effective tools is at work among us today—it is a destro
 
 Now, some will say, “This is our way of life—everybody’s doing it.” Lest we think these acts are not serious and are just our way of life, to be accepted and lived with, let us hear the word of the Lord as expressed by an ancient prophet.
 
-We read in 3 Nephi: “... And there shall be no disputations among you, as there have hitherto been; neither shall there be disputations among you concerning the points of my doctrine, as there have hitherto been.
+We read in 3 Nephi: “… And there shall be no disputations among you, as there have hitherto been; neither shall there be disputations among you concerning the points of my doctrine, as there have hitherto been.
 
 “For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.
 
-“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away.” (3 Ne. 11:28–30.)
+“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away.” ([[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]].)
 
 Over 2,000 years ago the great King Benjamin gave warning and wise counsel to the people of his day—and to us also. We read in Mosiah:
 
 “And ye will not suffer your children that they go hungry, or naked: neither will ye suffer that they transgress the laws of God, and fight and quarrel one with another, and serve the devil, who is the master of sin, or who is the evil spirit which hath been spoken of by our fathers, he being an enemy to all righteousness.
 
-“But ye will teach them to walk in the ways of truth and soberness: ye will teach them to love one another, and to serve one another.” (Mosiah 4:14–15.)
+“But ye will teach them to walk in the ways of truth and soberness: ye will teach them to love one another, and to serve one another.” ([[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]].)
 
 From the scripture we see that King Benjamin points out in a very positive way how we can help our children, for he said we shall teach them truth, teach them soberness, teach them to love one another, and teach them to serve one another. Fathers and mothers, may I remind you that we are always teaching.
 
@@ -62,4 +63,7 @@ I wonder how we might treat these little ones if they had this kind of introduct
 Remember again the scripture, “But ye will teach them to walk in ways of truth and soberness: ye will teach them to love one another, and to serve one another.” And may I add—ye will teach them by your example.
 
 Fathers and mothers and children, wherever you are, I want you to know that I know we have a Father in heaven, and I want you to know that his Son Jesus is the Christ; and I want you to know that I know he established his kingdom on the earth for our blessing and for our benefit. I testify that there is a prophet on the earth, and I testify that we will be happy if we follow his teachings, in the name of Jesus Christ. Amen.
+
+
+
 

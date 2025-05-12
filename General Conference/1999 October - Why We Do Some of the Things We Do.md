@@ -1,7 +1,10 @@
 # Why We Do Some of the Things We Do
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1999 General Conference*
+
+>*This … is not a cause of ease nor a work without effort, even sacrifice. We shall go on pursuing the path which the Lord has marked out before us.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1999/10/why-we-do-some-of-the-things-we-do?lang=eng)
 
@@ -21,7 +24,7 @@ The Lord has decreed in revelation:
 
 “Of things both in heaven and in the earth, and under the earth; things which have been, things which are, things which must shortly come to pass; things which are at home, things which are abroad; the wars and the perplexities of the nations, and the judgments which are on the land; and a knowledge also of countries and of kingdoms—
 
-“That ye may be prepared in all things when I shall send you again to magnify the calling whereunto I have called you, and the mission with which I have commissioned you” (D&C 88:78–80).
+“That ye may be prepared in all things when I shall send you again to magnify the calling whereunto I have called you, and the mission with which I have commissioned you” ([[D&C 88.78|D&C 88:78–80]][[D&C 88.79|]][[D&C 88.80|]]).
 
 It is apparent that we are obligated not only to learn of ecclesiastical matters but also of secular matters. There is a tradition in the Church that deals with these things. There was the School of the Prophets in Kirtland. The Seventies Hall in Nauvoo was used for educational purposes. A university was projected in Nauvoo.
 
@@ -43,7 +46,7 @@ We have a few business interests. Not many. Most of these were begun in very ear
 
 The Church sold the banks which it once held. As good banking services developed in the community, there was no longer any need for Church-owned banks.
 
-Some of these business interests directly serve the needs of the Church. For instance, our business is communication. We must speak with people across the world. We must speak at home to let our stand be known, and abroad to acquaint others with our work. And so we own a newspaper, the Deseret News, the oldest business institution in Utah.
+Some of these business interests directly serve the needs of the Church. For instance, our business is communication. We must speak with people across the world. We must speak at home to let our stand be known, and abroad to acquaint others with our work. And so we own a newspaper, the *Deseret News,* the oldest business institution in Utah.
 
 We likewise own television and radio stations. These provide a voice in the communities which they serve. I may add that we are sometimes embarrassed by network television presentations. Our people do the best they can to minimize the impact of these.
 
@@ -51,7 +54,7 @@ We have a real estate arm designed primarily to ensure the viability and the att
 
 Are these businesses operated for profit? Of course they are. They operate in a competitive world. They pay taxes. They are important citizens of this community. And they produce a profit, and from that profit comes the money which is used by The Church of Jesus Christ of Latter-day Saints Foundation to help with charitable and worthwhile causes in this community and abroad and, more particularly, to assist in the great humanitarian efforts of the Church.
 
-These businesses contribute one-tenth of their profit to the Foundation. The Foundation cannot give to itself or to other Church entities, but it can use its resources to assist other causes, which it does so generously. Millions of dollars have been so distributed. Thousands upon thousands have been fed. They have been supplied with medicine. They have been supplied with clothing and shelter in times of great emergency and terrible distress. How grateful I feel for the beneficence of this great Foundation which derives its resources from the business interests of the Church.
+These businesses contribute one-tenth of their profit to the Foundation. The Foundation cannot give to itself or to other Church entities, but it can use its resources to assist other causes, which it does so generously. Millions of dollars have been so distributed. Thousands upon thousands have been fed. They have been supplied with medicine. They have been supplied with clothing and shelter in times of great emergency and terrible distress. How grateful I feel for the beneficence of this great Foundation, which derives its resources from the business interests of the Church.
 
 I have time to discuss one other question: “Why does the Church become involved in issues that come before the legislature and the electorate?”
 
@@ -65,7 +68,7 @@ I commend those of our membership who have voluntarily joined with other like-mi
 
 I think that is all I need to say on that and the other matters on which I have commented. I have tried to explain why we do some of the things that we do. I hope I have been helpful.
 
-Now, in conclusion, I wish to say that I love the priesthood of this Church. It is a vital, living thing. It is the very heart and strength of this work. It is the power and authority by which God, our Eternal Father, accomplishes His work in the earth. It is the authority by which men speak in His name. It is the authority by which they govern His Church.
+Now in conclusion I wish to say that I love the priesthood of this Church. It is a vital, living thing. It is the very heart and strength of this work. It is the power and authority by which God, our Eternal Father, accomplishes His work in the earth. It is the authority by which men speak in His name. It is the authority by which they govern His Church.
 
 I love the boys who hold the Aaronic Priesthood. Every young man who does so, walking in obedience to the commandments of the Lord, may expect to have the guidance of the Holy Spirit in his life. That Spirit will bless him in his studies and other pursuits and will lead him in efforts that will bless him and bless the lives of others all about him.
 
@@ -86,4 +89,7 @@ May God bless you as you go forward with your lives, walking in obedience to His
 This, I remind every man and boy in this vast audience tonight, is the Church and kingdom of the Almighty God. As our history has amply demonstrated, it is not a cause of ease nor a work without effort, even sacrifice. We shall go on pursuing the path which the Lord has marked out before us. We shall try to be strong and faint not as we pursue those programs and practices which have been established and maintained through generations of time.
 
 Brethren, what a tremendous organization we are all a part of. We shall go forward and never flag or be deterred in our efforts to build this kingdom and establish righteousness in the earth. May God grant us wisdom, strength, and resolution, I humbly pray in the name of our Redeemer, the Lord Jesus Christ, amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # Become as a Little Child
-*By By Jean A. Stevens - First Counselor in the Primary General Presidency*
+
+By Jean A. Stevens - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2011 General Conference*
+
+>*If we have a heart to learn and a willingness to follow the example of children, their divine attributes can hold a key to unlocking our own spiritual growth.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/04/become-as-a-little-child?lang=eng)
 
@@ -15,7 +18,7 @@ It was Jesus Christ Himself who taught us to look to children as an example. The
 
 “Except ye be converted, and become as little children, ye shall not enter into the kingdom of heaven.
 
-“Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven” (Matthew 18:3–4).
+“Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven” ([[Matthew 18.3|Matthew 18:3–4]][[Matthew 18.4|]]).
 
 What is it we should learn from children? What qualities do they possess and what examples do they demonstrate that can help us in our own spiritual development?
 
@@ -35,7 +38,7 @@ During these anxious times, his dad spoke to him with words of encouragement and
 
 We are all learning important lessons from Liam—lessons about choosing faith and trusting in the Lord. Just like Liam, we cannot see our Heavenly Father, but we can listen for His voice to give us the strength we need to endure the challenges of life.
 
-Could Liam’s example help us to better understand King Benjamin’s words to become as a child—submissive, meek, humble, patient, and full of love? (see Mosiah 3:19).
+Could Liam’s example help us to better understand King Benjamin’s words to become as a child—submissive, meek, humble, patient, and full of love? (see [[Mosiah 3.19|Mosiah 3:19]]).
 
 These children are providing examples of some of the childlike qualities we need to develop or rediscover in ourselves in order to enter into the kingdom of heaven. They are bright spirits who are untarnished by the world—teachable and full of faith. It is no wonder the Savior has a special love and appreciation for little children.
 
@@ -43,23 +46,17 @@ Among the transcendent events of the Savior’s visit to the Americas, His tende
 
 “And he took their little children, one by one, and blessed them, and prayed unto the Father for them.
 
-“And when he had done this he wept. ...
+“And when he had done this he wept. …
 
-“And he spake unto the multitude, and said unto them: Behold your little ones” (3 Nephi 17:21–23).
+“And he spake unto the multitude, and said unto them: Behold your little ones” ([[3 Nephi 17.21|3 Nephi 17:21–23]][[3 Nephi 17.22|]][[3 Nephi 17.23|]]).
 
-Elder M. Russell Ballard has taught us the importance of the Savior’s admonition to “behold your little ones” when he said: “Notice that He didn’t say ‘glance at them’ or ‘casually observe them’ or ‘occasionally take a look in their general direction.’ He said to behold them. To me that means that we should embrace them with our eyes and with our hearts; we should see and appreciate them for who they really are: spirit children of our Heavenly Father, with divine attributes” (“Behold Your Little Ones,” Tambuli, Oct. 1994, 40; emphasis added; “Great Shall Be the Peace of Thy Children,” Ensign, Apr. 1994, 59).
+Elder M. Russell Ballard has taught us the importance of the Savior’s admonition to “behold your little ones” when he said: “Notice that He didn’t say ‘glance at them’ or ‘casually observe them’ or ‘occasionally take a look in their general direction.’ He said to *behold* them. To me that means that we should embrace them with our eyes and with our hearts; we should see and appreciate them for who they really are: spirit children of our Heavenly Father, with divine attributes” (“Behold Your Little Ones,” *Tambuli,* Oct. 1994, 40; emphasis added; “Great Shall Be the Peace of Thy Children,” *Ensign,* Apr. 1994, 59).
 
 There is not a more perfect place to behold our little ones than in our families. Home is a place where we can all learn and grow together. One of our beautiful Primary songs teaches this truth:
 
-God gave us families
-
-To help us become what He wants us to be—
-
-This is how He shares His love,
-
-For the fam’ly is of God.
-
-(“The Family Is of God,” Liahona, Oct. 2008, F12–13; Friend, Oct. 2008, 28–29)
+>God gave us families to help us become what He wants us to be—
+>This is how He shares His love, for the fam’ly is of God.
+>
 
 It is here in our families, in an atmosphere of love, where we see and appreciate in a more personal way the divine attributes of His spirit children. It is here in our families where our hearts can be softened and in humility we desire to change, to become more childlike. It is a process by which we can become more Christlike.
 
@@ -68,4 +65,7 @@ Have some of life’s experiences taken from you the believing heart and childli
 I will always be grateful for the blessing of my own children. The example of each one has taught me lessons I need. They have helped me to change for the better.
 
 I bear my humble but certain testimony that Jesus is the Christ. He is the one perfect Son—submissive, meek, humble, patient, and so full of love. May each of us have a heart to follow His example, to become as a little child, and thereby return to our heavenly home, I pray in the name of Jesus Christ, amen.
+
+
+
 

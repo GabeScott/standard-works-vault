@@ -1,11 +1,12 @@
 # The Last Words of Moroni
-*By Mark E. Petersen - Of the Council of the Twelve*
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1978/10/the-last-words-of-moroni?lang=eng)
 
-Last week we passed one of the most significant anniversaries recognized by our Church. It marked the visitations of the Angel Moroni to the Prophet Joseph Smith, preliminary to the restoration of the gospel of Jesus Christ in our day. (See JS—H 1:28–65.)
+Last week we passed one of the most significant anniversaries recognized by our Church. It marked the visitations of the Angel Moroni to the Prophet Joseph Smith, preliminary to the restoration of the gospel of Jesus Christ in our day. (See [[Joseph Smith History 1.28|JS—H 1:28–65]][[Joseph Smith History 1.29|]][[Joseph Smith History 1.30|]][[Joseph Smith History 1.31|]][[Joseph Smith History 1.32|]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.34|]][[Joseph Smith History 1.35|]][[Joseph Smith History 1.36|]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]][[Joseph Smith History 1.40|]][[Joseph Smith History 1.41|]][[Joseph Smith History 1.42|]][[Joseph Smith History 1.43|]][[Joseph Smith History 1.44|]][[Joseph Smith History 1.45|]][[Joseph Smith History 1.46|]][[Joseph Smith History 1.47|]][[Joseph Smith History 1.48|]][[Joseph Smith History 1.49|]][[Joseph Smith History 1.50|]][[Joseph Smith History 1.51|]][[Joseph Smith History 1.52|]][[Joseph Smith History 1.53|]][[Joseph Smith History 1.54|]][[Joseph Smith History 1.55|]][[Joseph Smith History 1.56|]][[Joseph Smith History 1.57|]][[Joseph Smith History 1.58|]][[Joseph Smith History 1.59|]][[Joseph Smith History 1.60|]][[Joseph Smith History 1.61|]][[Joseph Smith History 1.62|]][[Joseph Smith History 1.63|]][[Joseph Smith History 1.64|]][[Joseph Smith History 1.65|]].)
 
 Moroni came back from the dead, a resurrected man!
 
@@ -13,7 +14,7 @@ He had lived in America some fifteen hundred years ago and was the sole survivor
 
 He had witnessed the destruction of his whole nation, including his own family. In bitter vengeance their enemies had vowed their complete annihilation, and now this threat was accomplished.
 
-Moroni’s father was commander of the armies of this ancient people, known as Nephites. His name was Mormon. The war of which we speak took place here in America some four hundred years after Christ. (See Morm. 6.)
+Moroni’s father was commander of the armies of this ancient people, known as Nephites. His name was Mormon. The war of which we speak took place here in America some four hundred years after Christ. (See [[Mormon 6.1|Morm. 6]][[Mormon 6.2|]][[Mormon 6.3|]][[Mormon 6.4|]][[Mormon 6.5|]][[Mormon 6.6|]][[Mormon 6.7|]][[Mormon 6.8|]][[Mormon 6.9|]][[Mormon 6.10|]][[Mormon 6.11|]][[Mormon 6.12|]][[Mormon 6.13|]][[Mormon 6.14|]][[Mormon 6.15|]][[Mormon 6.16|]][[Mormon 6.17|]][[Mormon 6.18|]][[Mormon 6.19|]][[Mormon 6.20|]][[Mormon 6.21|]][[Mormon 6.22|]].)
 
 As the fighting neared its end, Mormon gathered the remnant of his forces about a hill which they called Cumorah, located in what is now the western part of the state of New York.
 
@@ -21,11 +22,11 @@ Their enemies, known as Lamanites, came against them on this hill. Of that dread
 
 “My people, with their wives and their children, did now behold the armies of the Lamanites marching towards them; and with that awful fear of death which fills the breasts of all the wicked, did they await to receive them.
 
-“... Every soul was filled with terror because of the greatness of their numbers.
+“… Every soul was filled with terror because of the greatness of their numbers.
 
 “And it came to pass that they did fall upon my people with the sword, and with the bow, and with the arrow, and with the ax, and with all manner of weapons of war.
 
-“And it came to pass that my men were hewn down, yea, even my ten thousand who were with me, and I fell wounded in the midst.” (Morm. 6:7–10.)
+“And it came to pass that my men were hewn down, yea, even my ten thousand who were with me, and I fell wounded in the midst.” ([[Mormon 6.7|Morm. 6:7–10]][[Mormon 6.8|]][[Mormon 6.9|]][[Mormon 6.10|]].)
 
 Then he spoke of other leaders serving with him in the Nephite army, all of whom had fallen with the forces under their command. He accounted for about a quarter of a million Nephite soldiers killed in that final encounter at Cumorah.
 
@@ -41,13 +42,13 @@ He mourned over this great loss and wrote:
 
 “But behold, ye are gone, and my sorrows cannot bring your return.
 
-“O that ye had repented before this great destruction had come upon you.” (Morm. 6:16–20, 22.)
+“O that ye had repented before this great destruction had come upon you.” ([[Mormon 6.16|Morm. 6:16–20, 22]][[Mormon 6.17|]][[Mormon 6.18|]][[Mormon 6.19|]][[Mormon 6.20|]][[Mormon 6.22|]].)
 
 Why were the Nephites destroyed?
 
 They had been told that it was a privilege for anyone to live on the American continent, for it is a promised land, and those who reside here must abide by the rules that God decreed pertaining to it.
 
-Only those who are willing to serve Jesus Christ, who is the God of this land, may remain here. Others will be swept off. (See Ether 2:10–12.)
+Only those who are willing to serve Jesus Christ, who is the God of this land, may remain here. Others will be swept off. (See [[Ether 2.10|Ether 2:10–12]][[Ether 2.11|]][[Ether 2.12|]].)
 
 The Nephites knew this, but with malice aforethought, they reveled in sin and rejected the teachings of Christ.
 
@@ -57,13 +58,13 @@ At the time Mormon recorded the details of this dreadful tragedy, he said that o
 
 When finished with the record, Moroni was to hide it up in that same Hill Cumorah which was their battlefield. It would come forth in modern times as the Book of Mormon, named after Moroni’s father, the historian who compiled it.
 
-Realizing the importance of completing it, this lone survivor wrote: “I, Moroni, do finish the record of my father, Mormon” (Morm. 8:1).
+Realizing the importance of completing it, this lone survivor wrote: “I, Moroni, do finish the record of my father, Mormon” ([[Mormon 8.1|Morm. 8:1]]).
 
-Then he wrote a description of the last battle and added: “I ... remain alone to write the sad tale of the destruction of my people. ...
+Then he wrote a description of the last battle and added: “I … remain alone to write the sad tale of the destruction of my people. …
 
-“Therefore I will write and hide up the records in the earth. ...
+“Therefore I will write and hide up the records in the earth. …
 
-“My father hath been slain in battle, and all my kinsfolk, and I have not friends nor whither to go; and how long the Lord will suffer that I may live I know not.” (Morm. 8:3–5.)
+“My father hath been slain in battle, and all my kinsfolk, and I have not friends nor whither to go; and how long the Lord will suffer that I may live I know not.” ([[Mormon 8.3|Morm. 8:3–5]][[Mormon 8.4|]][[Mormon 8.5|]].)
 
 As he wrote his fateful words, he said again that his people were annihilated because they loved wickedness, rejected the counsel of God, and gave themselves over to seeking wealth and corruption. This made up the deadly concoction which brought about their extinction.
 
@@ -73,47 +74,47 @@ In closing his record, and knowing that it would come to us, Moroni pleaded with
 
 “Behold, I speak unto you as if ye were present, and yet ye are not. But behold, Jesus Christ hath shown you unto me, and I know your doing.
 
-“And I know that ye do walk in the pride of your hearts; ...
+“And I know that ye do walk in the pride of your hearts; …
 
-“Ye do love money, and your substance, and your fine apparel.” (Morm. 8:35–36.)
+“Ye do love money, and your substance, and your fine apparel.” ([[Mormon 8.35|Morm. 8:35–36]][[Mormon 8.36|]].)
 
 In prophecy also he spoke of the tragic moral pollutions which would engulf many modern Americans. He asked why we are so foolish as to revel in sin, why we would reject the Christ, and thereby invite disaster.
 
-“Why are ye ashamed to take upon you the name of Christ?” he asked, speaking to modern America, knowing full well that many might profess to believe in him and yet refuse to do his works (Morm. 8:38). It is by engaging in his works that we truly take his name upon us. It is not through lip service. Moroni knew that faith without works is dead. And so likewise should we.
+“Why are ye ashamed to take upon you the name of Christ?” he asked, speaking to modern America, knowing full well that many might profess to believe in him and yet refuse to do his works ([[Mormon 8.38|Morm. 8:38]]). It is by engaging in his works that we truly take his name upon us. It is not through lip service. Moroni knew that faith without works is dead. And so likewise should we.
 
 He made it clear that advance warning is given to us who live today through the very book which he and his father had written and which he was now about to bury in Cumorah. It would be published in our day to give us that warning.
 
-Describing our day, he said the book would come forth when millions deny the power of God, when the world would be in turmoil, with earthquakes, violent storms, wars, and rumors of wars in many places. (See Morm. 8:26–34.)
+Describing our day, he said the book would come forth when millions deny the power of God, when the world would be in turmoil, with earthquakes, violent storms, wars, and rumors of wars in many places. (See [[Mormon 8.26|Morm. 8:26–34]][[Mormon 8.27|]][[Mormon 8.28|]][[Mormon 8.29|]][[Mormon 8.30|]][[Mormon 8.31|]][[Mormon 8.32|]][[Mormon 8.33|]][[Mormon 8.34|]].)
 
-He said it would be in a time of great pollution (see Morm. 8:31). Isn’t it interesting that he would speak of great pollution on the earth? Does it remind you of the claims of our modern ecologists?
+He said it would be in a time of great pollution (see [[Mormon 8.31|Morm. 8:31]]). Isn’t it interesting that he would speak of great pollution on the earth? Does it remind you of the claims of our modern ecologists?
 
 He said also that it would be in a time of extensive crime, of murders, robberies, lies, deceptions, and immorality. Think of those words in terms of today’s cover-ups, bribes, thievings, embezzlements, and other fraudulent practices among individuals, in business, and also in government. Hasn’t dishonesty almost become a way of life with many people?
 
 Think, too, of the epidemic of social diseases sweeping the nations in the wake of their vast immorality. What frightful pollutions these things are!
 
-Before his death, Mormon wrote that his record would, of course, be a warning to those he called Gentiles, but that it would be a blessing to the Lamanites. Also he said that it would come with a special message to the Jews. For them it was published that they “may be persuaded that Jesus is the Christ, the Son of the living God; that the Father may bring about, through his most Beloved, his great and eternal purpose, in restoring the Jews, or all the house of Israel, to the land of their inheritance, which the Lord their God hath given them, unto the fulfilling of his covenant” (Morm. 5:14). Consider the current significance of that scripture!
+Before his death, Mormon wrote that his record would, of course, be a warning to those he called Gentiles, but that it would be a blessing to the Lamanites. Also he said that it would come with a special message to the Jews. For them it was published that they “may be persuaded that Jesus is the Christ, the Son of the living God; that the Father may bring about, through his most Beloved, his great and eternal purpose, in restoring the Jews, or all the house of Israel, to the land of their inheritance, which the Lord their God hath given them, unto the fulfilling of his covenant” ([[Mormon 5.14|Morm. 5:14]]). Consider the current significance of that scripture!
 
 Mormon then wrote directly to us as modern Americans who now occupy this promised land and said: “How can ye stand before the power of God, except ye shall repent and turn from your evil ways?
 
 “Know ye not that ye are in the hands of God? Know ye not that he hath all power, and at his great command the earth shall be rolled together as a scroll?
 
-“Therefore, repent ye, and humble yourselves before him, lest he shall come out in justice against you.” (Morm. 5:22–24.)
+“Therefore, repent ye, and humble yourselves before him, lest he shall come out in justice against you.” ([[Mormon 5.22|Morm. 5:22–24]][[Mormon 5.23|]][[Mormon 5.24|]].)
 
 Can we ignore such a warning, directed specifically at this generation?
 
 Moroni joined his father with this: “Who can stand against the works of the Lord? Who can deny his sayings? Who will rise up against the almighty power of the Lord? Who will despise the works of the Lord? Who will despise the children of Christ?
 
-“Behold, all ye who are despisers of the works of the Lord, for ye shall ... perish.” (Morm. 9:26.)
+“Behold, all ye who are despisers of the works of the Lord, for ye shall … perish.” ([[Mormon 9.26|Morm. 9:26]].)
 
 It should be remembered that these men wrote to us out of the desperation of the event they were passing through as the Nephites were being wiped off the face of the earth. They knew that we live here now under the same conditions that were given to them.
 
 As Moroni wrote his last testimony, he realized how important his book would be to our generation. He asked that we read it and believe it. So he pleaded:
 
-“I would exhort you that ye would ask God, the Eternal Father, in the name of Christ, if these things are not true; and if ye shall ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost” (Moro. 10:4).
+“I would exhort you that ye would ask God, the Eternal Father, in the name of Christ, if these things are not true; and if ye shall ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost” ([[Moroni 10.4|Moro. 10:4]]).
 
 These were among his very last words. His pen had already inscribed this frightening but divine warning about America:
 
-“This is a land which is choice above all other lands; wherefore he that doth possess it shall serve God or shall be swept off” (Ether 2:10).
+“This is a land which is choice above all other lands; wherefore he that doth possess it shall serve God or shall be swept off” ([[Ether 2.10|Ether 2:10]]).
 
 He gave us the lesson of the annihilation of the Nephites as a case in point. He wrote similarly of the tragedy of the Jaredites. It was another case in point. Do we realize that this same kind of destruction can come upon us, and for the same reason?
 
@@ -121,11 +122,14 @@ So this is the message of Moroni. He came back from the dead to deliver it—in 
 
 His people were Americans, too. His words constituted a people-to-people message, ancient Americans speaking to modern Americans. Theirs was the voice of bitter experience seeking to persuade us to avoid the dreadful conditions which engulfed them.
 
-Moroni announced that he will face us on Judgment Day in defense of his words (see Moro. 10:27). This he will do, together with his book, for out of the books we shall be judged, and the Book of Mormon is one of those books.
+Moroni announced that he will face us on Judgment Day in defense of his words (see [[Moroni 10.27|Moro. 10:27]]). This he will do, together with his book, for out of the books we shall be judged, and the Book of Mormon is one of those books.
 
 We now have it in our hands. It is published to the world. It carries God’s message to all. It gives full and fair warning to this generation, and the warning is true!
 
 Read it! Believe it! Pray over it! Obey its counsels! It can lead us unerringly to Christ!
 
 The last words of Moroni! Dare we forget them? God grant that we never will, I pray in Jesus’ name. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # “I Love the Sisters of the Church”
-*By By Barbara W. Winder - Relief Society General President*
+
+By Barbara W. Winder - *Relief Society General President*
 
 *Given in the April session of the 1984 General Conference*
 
@@ -20,4 +21,7 @@ I want to express gratitude also to a husband with whom I have served for over t
 I love the sisters of the Church, and I think I would like to relate a little from that wonderful priesthood section of the eighty-fourth section of the Doctrine and Covenants. It also says the body has need of every member, that all may be edified together and that the system may be perfect. In a way similar to the words of Paul, the members of the Lord’s Church today have been asked to have the same care one for another that they have for themselves.
 
 And so it is that I feel for the sisters of the Church this love, and sense the worth of each individual. I want so, and desire so, that we be unified, one together with the priesthood, serving and building the kingdom of God here today and spreading the joy of the gospel to those who are so in need of it. This is His kingdom. We have a great responsibility to share it. I know that God lives, that he loves us. This is my testimony to you, and I pledge my service to you, in the name of Jesus Christ, amen.
+
+
+
 

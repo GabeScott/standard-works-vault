@@ -1,5 +1,6 @@
 # You Are a Child of God
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2003 General Conference*
 
@@ -11,7 +12,7 @@ I think there never was before a meeting such as this of boys and girls. I speak
 
 There was not always a Primary in the Church. During the first 48 years of its history, boys and girls did not have their own organization. Then a very dear woman whose name was Aurelia Spencer Rogers thought that the little boys ought to have their own organization where they could be “trained to make better men.”
 
-Her suggestion was taken to the President of the Church, who at that time was John Taylor. He thought that if an organization would be good for little boys, it would also be good for little girls because they would make the singing sound better. And so, way back 125 years ago, the first Primary met with 224 boys and girls “to be taught obedience, faith in God, prayer, punctuality, and good manners” (in Daniel H. Ludlow, ed., Encyclopedia of Mormonism, 5 vols. [1992], 3:1146).
+Her suggestion was taken to the President of the Church, who at that time was John Taylor. He thought that if an organization would be good for little boys, it would also be good for little girls because they would make the singing sound better. And so, way back 125 years ago, the first Primary met with 224 boys and girls “to be taught obedience, faith in God, prayer, punctuality, and good manners” (in Daniel H. Ludlow, ed., *Encyclopedia of Mormonism,* 5 vols. \[1992\], 3:1146).
 
 From that small beginning, Primary has grown until it is a part of the Church all across the world. Today there are almost a million of you children in Primary.
 
@@ -23,11 +24,11 @@ How fortunate you are, my dear young friends, to have wonderful teachers. They l
 
 Brother Artel Ricks tells an interesting story of an inspired Primary teacher. Artel was a little boy five or six years old. One night his family sat around the dinner table and talked about tithing. They told him “that tithing is one-tenth of all we earn and that it is paid to the Lord by those who love Him.”
 
-He loved the Lord, and so he wanted to give the Lord his tithing. He went and got his savings and took one-tenth of his small savings. He says: “I ... went to the only room in the house with a lock on the door—the bathroom—and there knelt by the bathtub. Holding the three or four coins in my upturned hands, I asked the Lord to accept them. [I was certain He would appear and take them from me.] I pleaded with the Lord for some time, but [nothing happened. Why would He not accept my tithing?]. As I rose from my knees, I felt so unworthy that I could not tell anyone what had happened. ...
+He loved the Lord, and so he wanted to give the Lord his tithing. He went and got his savings and took one-tenth of his small savings. He says: “I … went to the only room in the house with a lock on the door—the bathroom—and there knelt by the bathtub. Holding the three or four coins in my upturned hands, I asked the Lord to accept them. \[I was certain He would appear and take them from me.\] I pleaded with the Lord for some time, but \[nothing happened. Why would He not accept my tithing?\]. As I rose from my knees, I felt so unworthy that I could not tell anyone what had happened. …
 
-“A few days later at Primary, the teacher said she felt impressed to talk about something that was not in the lesson. I sat amazed as she then taught us how to pay tithing [to the bishop, the Lord’s servant]. But what I learned was far more important than how to pay tithing. I learned that the Lord had heard and answered my prayer, that He loved me, and that I was important to Him. In later years I came to appreciate still another lesson my Primary teacher had taught me that day—to teach as prompted by the Spirit.
+“A few days later at Primary, the teacher said she felt impressed to talk about something that was not in the lesson. I sat amazed as she then taught us how to pay tithing \[to the bishop, the Lord’s servant\]. But what I learned was far more important than how to pay tithing. I learned that the Lord had heard and answered my prayer, that He loved me, and that I was important to Him. In later years I came to appreciate still another lesson my Primary teacher had taught me that day—to teach as prompted by the Spirit.
 
-“So tender was the memory of that occasion that for more than thirty years I could not share it. Even today, after sixty years, I still find it difficult to tell about it without tears coming to my eyes. The pity is that a wonderful Primary teacher never knew that through her, the Lord spoke to a small boy” (“Coins for the Lord,” Ensign, Dec. 1990, 47; “An Answer to Prayer,” Tambuli, May 1988, 28).
+“So tender was the memory of that occasion that for more than thirty years I could not share it. Even today, after sixty years, I still find it difficult to tell about it without tears coming to my eyes. The pity is that a wonderful Primary teacher never knew that through her, the Lord spoke to a small boy” (“Coins for the Lord,” *Ensign,* Dec. 1990, 47; “An Answer to Prayer,” *Tambuli,* May 1988, 28).
 
 I went to Primary when I was a small boy. In those days we met on Tuesday afternoon after school. It seems to me we were always tired and hungry in the late afternoon after school. But our teachers were so very kind and good to us. They frequently brought us a cookie to eat, but more important, they taught us rich and wonderful lessons. Here we learned about Jesus and His great love for us. We learned about God our Eternal Father, to whom we could go in prayer.
 
@@ -37,45 +38,30 @@ Primary is now held on Sunday. In many ways this is a better time. We are not ti
 
 Here we sing together those wonderful Primary songs. One that we sang when I was young went like this:
 
-Father, let thy light divine
-
-Shine on us, we pray.
-
-Touch our eyes that we may see;
-
-Teach us to obey.
-
-Ours the sacred mission is
-
-To bear thy message far.
-
-The light of faith is in our hearts,
-
-Truth our guiding star.
-
-(“The Light Divine,” Hymns, no. 305)
+>Father, let thy light divine
+>Shine on us, we pray.
+>Touch our eyes that we may see;
+>Teach us to obey.
+>Ours the sacred mission is
+>To bear thy message far.
+>The light of faith is in our hearts,
+>Truth our guiding star.
+>
 
 The words of that beautiful song were written by Matilda W. Cahoon, who was my day schoolteacher when I was a boy.
 
-You now have this beautiful Children’s Songbook filled with many kinds of music written just for you. Some of these songs have been sung today. We have all joined in singing that wonderful song which was written for you Primary children but which has come to be sung by the entire Church. It is such a beautiful song. And it speaks of such a great and wonderful truth.
+You now have this beautiful *Children’s Songbook* filled with many kinds of music written just for you. Some of these songs have been sung today. We have all joined in singing that wonderful song which was written for you Primary children but which has come to be sung by the entire Church. It is such a beautiful song. And it speaks of such a great and wonderful truth.
 
-I am a child of God,
-
-And he has sent me here,
-
-Has given me an earthly home
-
-With parents kind and dear.
-
-Lead me, guide me, walk beside me,
-
-Help me find the way.
-
-Teach me all that I must do
-
-To live with him someday.
-
-(“I Am a Child of God,” Hymns, no. 301)
+>I am a child of God,
+>And he has sent me here,
+>Has given me an earthly home
+>With parents kind and dear.
+>
+>Lead me, guide me, walk beside me,
+>Help me find the way.
+>Teach me all that I must do
+>To live with him someday.
+>
 
 What a wonderful song that is. And what a great truth it teaches. You have an earthly father. He is your mother’s dear companion. I hope you love him and that you are obedient to him. But you have another father. That is your Father in Heaven. He is the Father of your spirit, just as your earthly father is the father of your body. And it is just as important to love and to obey your Father in Heaven as it is to love and obey your earthly father.
 
@@ -94,4 +80,7 @@ Every man or woman who ever walked the earth, even the Lord Jesus, was once a bo
 Never forget, my dear young friends, that you really are a child of God who has inherited something of His divine nature, one whom He loves and desires to help and bless. I pray that our Heavenly Father will bless you. May He smile with favor upon you. May you walk in His paths and follow His teachings. May you never speak the evil language that boys and girls are inclined to speak at school. May you ever be prayerful unto Him, praying always in the name of His Beloved Son, the Lord Jesus Christ. May each of us resolve to always follow Him in faith. May life be kind to you, for you are indeed a child of God, worthy and deserving of His love and blessing.
 
 Never forget that you are a member of The Church of Jesus Christ of Latter-day Saints. I pray that the Lord will bless you, and I give you my love, in the sacred name of Jesus Christ, amen.
+
+
+
 

@@ -1,29 +1,30 @@
 # Touching the Hearts of Less-Active Members
-*By Gardner H. Russell - Of the First Quorum of the Seventy*
+
+By Elder Gardner H. Russell - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1986/10/touching-the-hearts-of-less-active-members?lang=eng)
 
-I think it’s wonderful to have a calm exterior; I didn’t know my heart could beat quite this hard. I am thrilled to be a member of the Mexico/Central America Area Presidency. You’ve heard from all three of us today: Elder Gene R. Cook in the prayer, Elder H. Verlan Andersen, and myself.
+I think it’s wonderful to have a calm exterior; I didn’t know my heart could beat quite this hard. I am thrilled to be a member of the Mexico and Central America Area Presidency. You’ve heard from all three of us today: Elder Gene R. Cook in the prayer, Elder H. Verlan Andersen, and myself.
 
 Now, it is with humility that I stand before you as one of the Lord’s servants with a prayer in my heart that someone, somewhere, will be touched by the Spirit of the Lord which, hopefully, will speak through me, and his or her heart and life will be changed.
 
-What a wonderful experience of love came to me just a few weeks ago when, at my request, my 91-year-old father, Dr. Harry James Russell, gave me a father’s blessing as I prepared to leave for my assignment as Second Counselor in the Mexico/Central America Area.
+What a wonderful experience of love came to me just a few weeks ago when, at my request, my 91-year-old father, Dr. Harry James Russell, gave me a father’s blessing as I prepared to leave for my assignment as Second Counselor in the Mexico and Central America Area.
 
 Fathers everywhere, consider the gift of love you can give your children when you are worthy and you lay your hands upon their heads to pronounce inspired father’s blessings as the family patriarch. They will feel a continuing outpouring of your love, which will keep them close to you and to the Lord. You will not have to “seek them out” later.
 
-How impressed we were by the caring and outpouring of love evident in last December’s message from the First Presidency. This inspired invitation to return has reached tens of thousands of the Lord’s people. It is far more than a Christmas message; it is a clarion call for all to return to the Lord’s church (see Ensign, Mar. 1986, p. 88).
+How impressed we were by the caring and outpouring of love evident in last December’s message from the First Presidency. This inspired invitation to return has reached tens of thousands of the Lord’s people. It is far more than a Christmas message; it is a clarion call for all to return to the Lord’s church (see *Ensign,* Mar. 1986, p. 88).
 
-Then, in last April general conference, that wonderful message in a spirit of deep love, “Please come back!” rings in our ears and has reached many hearts (see Ensign, May 1986, p. 10).
+Then, in last April general conference, that wonderful message in a spirit of deep love, “Please come back!” rings in our ears and has reached many hearts (see *Ensign,* May 1986, p. 10).
 
 The Lord requires us—yes, you and me—to locate the less-active members and help them to return to the fold.
 
-“For thus saith the Lord God; Behold, I, even I, will both search my sheep, and seek them out” (Ezek. 34:11).
+“For thus saith the Lord God; Behold, I, even I, will both search my sheep, and seek them out” ([[Ezekiel 34.11|Ezek. 34:11]]).
 
 Yes, we are to both “search my sheep” (locate them) and then “seek out” (bring back) less-active members and families, with unending and unqualified love.
 
-And in the process, we and they shall learn the true meaning of “ye shall ... find me, when ye shall search for me” (Jer. 29:13).
+And in the process, we and they shall learn the true meaning of “ye shall … find me, when ye shall search for me” ([[Jeremiah 29.13|Jer. 29:13]]).
 
 Servants of the Lord prepare in humility, through study of the Book of Mormon, prayer, and calling on the Lord, to actually depend on the Lord so that the Spirit of the Lord is in them.
 
@@ -46,4 +47,7 @@ In these inspired visits, I do not know of a single instance where hearts of fam
 May we assure our sometimes missing friends in the Church of our Lord’s love for them and ask the Spirit of the Lord to testify through us to them of the Lord’s love for them, and our love as well, and bring them back to the fold in joy.
 
 I bear my humble witness that our leaders are inspired and receive revelation for us, that the Book of Mormon nurtures the true fountain of Christ’s Spirit, and that this is the true, restored church of Jesus Christ on the earth. And I do this in the name of Jesus Christ, amen.
+
+
+
 

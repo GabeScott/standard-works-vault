@@ -1,7 +1,10 @@
 # Blessings of the Temple
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2015 General Conference*
+
+>*As we attend the temple, there can come to us a dimension of spirituality and a feeling of peace.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/04/blessings-of-the-temple?lang=eng)
 
@@ -9,7 +12,7 @@ My beloved brothers and sisters, how grateful I am to be with you this beautiful
 
 This conference marks seven years since I was sustained as President of the Church. They have been busy years, filled not only with a few challenges but also with countless blessings. Among the most enjoyable and sacred of these blessings has been my opportunity to dedicate and rededicate temples.
 
-Most recently, this past November it was my privilege to dedicate the beautiful new Phoenix Arizona Temple. I was joined by President Dieter F. Uchtdorf, Elder Dallin H. Oaks, Elder Richard J. Maynes, Elder Lynn G. Robbins, and Elder Kent F. Richards. On the evening prior to the dedication, a marvelous cultural celebration was held where over 4,000 of our youth from the temple district performed beautifully. The following day the temple was dedicated in three sacred and inspiring sessions.
+Most recently, this past November it was my privilege to dedicate the beautiful new Phoenix Arizona Temple. I was joined by President Dieter F. Uchtdorf, Elder Dallin H. Oaks, Elder Richard J. Maynes, Elder Lynn G. Robbins, and Elder Kent F. Richards. On the evening prior to the dedication, a marvelous cultural celebration was held where over 4,000 of our youth from the temple district performed beautifully. The following day the temple was dedicated in three sacred and inspiring sessions.
 
 The building of temples is a very clear indication of the growth of the Church. We currently have 144 temples in operation worldwide, with 5 being renovated and 13 more under construction. In addition, 13 temples which were previously announced are in various stages of preparation before construction begins. This year we anticipate rededicating 2 temples and dedicating 5 new temples which are scheduled for completion.
 
@@ -19,7 +22,7 @@ The process of determining needs and finding locations for additional temples is
 
 As I think of temples, my thoughts turn to the many blessings we receive therein. As we enter through the doors of the temple, we leave behind us the distractions and confusion of the world. Inside this sacred sanctuary, we find beauty and order. There is rest for our souls and a respite from the cares of our lives.
 
-As we attend the temple, there can come to us a dimension of spirituality and a feeling of peace which will transcend any other feeling which could come into the human heart. We will grasp the true meaning of the words of the Savior when He said: “Peace I leave with you, my peace I give unto you. ... Let not your heart be troubled, neither let it be afraid.”1
+As we attend the temple, there can come to us a dimension of spirituality and a feeling of peace which will transcend any other feeling which could come into the human heart. We will grasp the true meaning of the words of the Savior when He said: “Peace I leave with you, my peace I give unto you. … Let not your heart be troubled, neither let it be afraid.”[^1]
 
 Such peace can permeate any heart—hearts that are troubled, hearts that are burdened down with grief, hearts that feel confusion, hearts that plead for help.
 
@@ -39,11 +42,18 @@ As they began to converse, the young man poured out his heart to Landon, explain
 
 The two young men prayed together, and then Landon prepared to leave, happy that he had listened to the inspiration which had come to him. As he stood to go, the young man asked Landon, “Where did you serve your mission?” To this point, neither of them had mentioned to the other the name of the mission in which he had served. When Landon replied with the name of his mission, tears welled up in the eyes of the young man. Landon had served in the very mission to which the young man would be returning!
 
-In a recent letter to me, Landon shared with me the young man’s parting words to him: “I had faith Heavenly Father would bless me, but I never could have imagined that He would send someone to help me who had served in my own mission. I know now that all will be well.”2 The humble prayer of a sincere heart had been heard and answered.
+In a recent letter to me, Landon shared with me the young man’s parting words to him: “I had faith Heavenly Father would bless me, but I never could have imagined that He would send someone to help me who had served in my own mission. I know now that all will be well.”[^2] The humble prayer of a sincere heart had been heard and answered.
 
 My brothers and sisters, in our lives we will have temptations; we will have trials and challenges. As we go to the temple, as we remember the covenants we make there, we will be better able to overcome those temptations and to bear our trials. In the temple we can find peace.
 
 The blessings of the temple are priceless. One for which I am grateful every day of my life is that which my beloved wife, Frances, and I received as we knelt at a sacred altar and made covenants binding us together for all eternity. There is no blessing more precious to me than the peace and comfort I receive from the knowledge I have that she and I will be together again.
 
 May our Heavenly Father bless us that we may have the spirit of temple worship, that we may be obedient to His commandments, and that we may follow carefully the steps of our Lord and Savior, Jesus Christ. I testify that He is our Redeemer. He is the Son of God. He it is who came forth from the grave that first Easter morning, bringing with Him the gift of everlasting life for all of God’s children. On this beautiful day, as we celebrate that momentous event, may we offer prayers of gratitude for His great and marvelous gifts to us. That this may be so, I pray humbly in His holy name, amen.
+
+
+
+
+[^1]: [[John 14.27|John 14:27]].
+
+[^2]: Correspondence in the possession of Thomas S. Monson.
 

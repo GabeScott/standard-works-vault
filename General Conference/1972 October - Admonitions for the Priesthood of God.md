@@ -1,5 +1,6 @@
 # Admonitions for the Priesthood of God
-*By Harold B. Lee - President of the Church*
+
+By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -25,11 +26,11 @@ Now, with that understanding of priesthood power, let me speak of a few other ma
 
 There are two scriptures I would have you think of as applicable today as they were in the period following the advent of the Savior in the meridian of time in the post-apostolic period. In the Acts of the Apostles, the apostle Paul gave these charges to the elders of Israel. He said:
 
-“Take heed therefore unto yourselves, and to all the flock, over which the Holy Ghost hath made you overseers, to feed the church of God. ...
+“Take heed therefore unto yourselves, and to all the flock, over which the Holy Ghost hath made you overseers, to feed the church of God. …
 
 “For I know this, that after my departing shall grievous wolves enter in among you, not sparing the flock.
 
-“Also of your own selves shall men arise, speaking perverse things, to draw away disciples after them.” (Acts 20:28–30.)
+“Also of your own selves shall men arise, speaking perverse things, to draw away disciples after them.” ([[Acts 20.28|Acts 20:28–30]][[Acts 20.29|]][[Acts 20.30|]].)
 
 And then the apostle Paul wrote to the Galatians:
 
@@ -41,13 +42,13 @@ And then the apostle Paul wrote to the Galatians:
 
 “As we said before, so say I now again, If any man preach any other gospel unto you than that ye have received, let him be accursed.
 
-“For ... I certify you, brethren, that the gospel which was preached of me is not after man.
+“For … I certify you, brethren, that the gospel which was preached of me is not after man.
 
-“For I neither received it of man, neither was I taught it, but by the revelation of Jesus Christ.” (Gal. 1:6–12.)
+“For I neither received it of man, neither was I taught it, but by the revelation of Jesus Christ.” ([[Galatians 1.6|Gal. 1:6–12]][[Galatians 1.7|]][[Galatians 1.8|]][[Galatians 1.9|]][[Galatians 1.10|]][[Galatians 1.11|]][[Galatians 1.12|]].)
 
 Today those warnings are just as applicable as they were in that day in which they were given.
 
-There are some as wolves among us. By that, I mean some who profess membership in this church who are not sparing the flock. And among our own membership, men are arising speaking perverse things. Now perverse means diverting from the right or correct, and being obstinate in the wrong, willfully, in order to draw the weak and unwary members of the Church away after them.
+There are some as wolves among us. By that, I mean some who profess membership in this church who are not sparing the flock. And among our own membership, men are arising speaking perverse things. Now *perverse* means diverting from the right or correct, and being obstinate in the wrong, willfully, in order to draw the weak and unwary members of the Church away after them.
 
 And as the apostle Paul said, it is likewise a marvel to us today, as it was in that day, that some members are so soon removed from those who taught them the gospel and are removed from the true teachings of the gospel of Christ to be led astray into something that corrupts the true doctrines of the gospel of Christ into vicious and wicked practices and performances.
 
@@ -67,7 +68,7 @@ The First Presidency in August 1913 issued a warning to the members of the Churc
 
 “To the officers and members of The Church of Jesus Christ of Latter-day Saints:
 
-“From the days of Hiram Page (Doc. and Cov., Sec. 28), at different periods there have been manifestations from delusive spirits to members of the Church. Sometimes these have come to men and women who because of transgression became easy prey to the Arch-Deceiver. At other times people who pride themselves on their strict observance of the rules and ordinances and ceremonies of the Church are led astray by false spirits, who exercise an influence so imitative of that which proceeds from a Divine source that even these persons, who think they are ‘the very elect,’ find it difficult to discern the essential difference. Satan himself has transformed himself to be apparently ‘an angel of light.’
+“From the days of Hiram Page ([[D&C 28.1|Doc. and Cov., Sec. 28]][[D&C 28.2|]][[D&C 28.3|]][[D&C 28.4|]][[D&C 28.5|]][[D&C 28.6|]][[D&C 28.7|]][[D&C 28.8|]][[D&C 28.9|]][[D&C 28.10|]][[D&C 28.11|]][[D&C 28.12|]][[D&C 28.13|]][[D&C 28.14|]][[D&C 28.15|]][[D&C 28.16|]]), at different periods there have been manifestations from delusive spirits to members of the Church. Sometimes these have come to men and women who because of transgression became easy prey to the Arch-Deceiver. At other times people who pride themselves on their strict observance of the rules and ordinances and ceremonies of the Church are led astray by false spirits, who exercise an influence so imitative of that which proceeds from a Divine source that even these persons, who think they are ‘the very elect,’ find it difficult to discern the essential difference. Satan himself has transformed himself to be apparently ‘an angel of light.’
 
 “When visions, dreams, tongues, prophecy, impressions or an extraordinary gift or inspiration convey something out of harmony with the accepted revelations of the Church or contrary to the decisions of its constituted authorities, Latter-day Saints may know that it is not of God, no matter how plausible it may appear. Also, they should understand that directions for the guidance of the Church will come, by revelation, through the head. All faithful members are entitled to the inspiration of the Holy Spirit for themselves, their families, and for those over whom they are appointed and ordained to preside. But anything at discord with that which comes from God through the head of the Church is not to be received as authoritative or reliable. In secular as well as spiritual affairs, Saints may receive Divine guidance and revelation affecting themselves, but this does not convey authority to direct others, and is not to be accepted when contrary to Church covenants, doctrine or discipline, or to known facts, demonstrated truths, or good common sense. No person has the right to induce his fellow members of the Church to engage in speculations or take stock in ventures of any kind on the specious claim of Divine revelation or vision or dream, especially when it is in opposition to the voice of recognized authority, local or general. The Lord’s Church ‘is a house of order.’ It is not governed by individual gifts or manifestations, but by the order and power of the Holy Priesthood as sustained by the voice and vote of the Church in its appointed conferences.
 
@@ -79,7 +80,7 @@ As I say, it never ceases to amaze me how gullible some of our Church members ar
 
 If our people want to be safely guided during these troublous times of deceit and false rumors, they must follow their leaders and seek for the guidance of the Spirit of the Lord in order to avoid falling prey to clever manipulators who, with cunning sophistry, seek to draw attention and gain a following to serve their own notions and sometimes sinister motives.
 
-The Lord has very plainly set forth a test by which anyone may challenge any and all who may come claiming, clandestinely, to have received some kind of priesthood authority. Now this is what the Lord said in the 42nd section of the Doctrine and Covenants, verse 11:
+The Lord has very plainly set forth a test by which anyone may challenge any and all who may come claiming, clandestinely, to have received some kind of priesthood authority. Now this is what the Lord said in the [[D&C 42.11|42nd section of the Doctrine and Covenants, verse 11]]:
 
 “Again, I say unto you, that it shall not be given to any one to go forth to preach my gospel, or to build up my church, except he be ordained by someone who has authority, and it is known to the church that he has authority and has been regularly ordained by the heads of the church.”
 
@@ -95,7 +96,7 @@ While we must stand solidly behind those who are trying to stamp out the filthy 
 
 “Let no man think he is ruler; but let God rule him that judgeth, according to the counsel of his own will, or, in other words, him that counseleth or sitteth upon the judgment seat.
 
-“Let no man break the laws of the land ... until he reigns whose right it is to reign, and subdues all enemies under his feet.” (D&C 58:20–22.)
+“Let no man break the laws of the land … until he reigns whose right it is to reign, and subdues all enemies under his feet.” ([[D&C 58.20|D&C 58:20–22]][[D&C 58.21|]][[D&C 58.22|]].)
 
 I want to warn this great body of priesthood against that great sin of Sodom and Gomorrah, which has been labeled as a sin second only in seriousness to the sin of murder. I speak of the sin of adultery, which, as you know, was the name used by the Master as he referred to unlicensed sexual sins of fornication as well as adultery; and besides this, the equally grievous sin of homosexuality, which seems to be gaining momentum with social acceptance in the Babylon of the world, of which Church members must not be a part.
 
@@ -109,13 +110,13 @@ Are you priesthood bearers aware of the fact that we need no such publications t
 
 Let me give you the sure word of prophecy on which you should rely for your guide instead of these strange sources which may have great political implications.
 
-Read the 24th chapter of Matthew—particularly that inspired version as contained in the Pearl of Great Price. (JS—M 1.)
+Read the 24th chapter of Matthew—particularly that inspired version as contained in the Pearl of Great Price. ([[Joseph Smith Matthew 1.1|JS—M 1]][[Joseph Smith Matthew 1.2|]][[Joseph Smith Matthew 1.3|]][[Joseph Smith Matthew 1.4|]][[Joseph Smith Matthew 1.5|]][[Joseph Smith Matthew 1.6|]][[Joseph Smith Matthew 1.7|]][[Joseph Smith Matthew 1.8|]][[Joseph Smith Matthew 1.9|]][[Joseph Smith Matthew 1.10|]][[Joseph Smith Matthew 1.11|]][[Joseph Smith Matthew 1.12|]][[Joseph Smith Matthew 1.13|]][[Joseph Smith Matthew 1.14|]][[Joseph Smith Matthew 1.15|]][[Joseph Smith Matthew 1.16|]][[Joseph Smith Matthew 1.17|]][[Joseph Smith Matthew 1.18|]][[Joseph Smith Matthew 1.19|]][[Joseph Smith Matthew 1.20|]][[Joseph Smith Matthew 1.21|]][[Joseph Smith Matthew 1.22|]][[Joseph Smith Matthew 1.23|]][[Joseph Smith Matthew 1.24|]][[Joseph Smith Matthew 1.25|]][[Joseph Smith Matthew 1.26|]][[Joseph Smith Matthew 1.27|]][[Joseph Smith Matthew 1.28|]][[Joseph Smith Matthew 1.29|]][[Joseph Smith Matthew 1.30|]][[Joseph Smith Matthew 1.31|]][[Joseph Smith Matthew 1.32|]][[Joseph Smith Matthew 1.33|]][[Joseph Smith Matthew 1.34|]][[Joseph Smith Matthew 1.35|]][[Joseph Smith Matthew 1.36|]][[Joseph Smith Matthew 1.37|]][[Joseph Smith Matthew 1.38|]][[Joseph Smith Matthew 1.39|]][[Joseph Smith Matthew 1.40|]][[Joseph Smith Matthew 1.41|]][[Joseph Smith Matthew 1.42|]][[Joseph Smith Matthew 1.43|]][[Joseph Smith Matthew 1.44|]][[Joseph Smith Matthew 1.45|]][[Joseph Smith Matthew 1.46|]][[Joseph Smith Matthew 1.47|]][[Joseph Smith Matthew 1.48|]][[Joseph Smith Matthew 1.49|]][[Joseph Smith Matthew 1.50|]][[Joseph Smith Matthew 1.51|]][[Joseph Smith Matthew 1.52|]][[Joseph Smith Matthew 1.53|]][[Joseph Smith Matthew 1.54|]][[Joseph Smith Matthew 1.55|]].)
 
-Then read the 45th section of the Doctrine and Covenants where the Lord, not man, has documented the signs of the times.
+Then read the [[D&C 45.1|45th section of the Doctrine and Covenants]][[D&C 45.2|]][[D&C 45.3|]][[D&C 45.4|]][[D&C 45.5|]][[D&C 45.6|]][[D&C 45.7|]][[D&C 45.8|]][[D&C 45.9|]][[D&C 45.10|]][[D&C 45.11|]][[D&C 45.12|]][[D&C 45.13|]][[D&C 45.14|]][[D&C 45.15|]][[D&C 45.16|]][[D&C 45.17|]][[D&C 45.18|]][[D&C 45.19|]][[D&C 45.20|]][[D&C 45.21|]][[D&C 45.22|]][[D&C 45.23|]][[D&C 45.24|]][[D&C 45.25|]][[D&C 45.26|]][[D&C 45.27|]][[D&C 45.28|]][[D&C 45.29|]][[D&C 45.30|]][[D&C 45.31|]][[D&C 45.32|]][[D&C 45.33|]][[D&C 45.34|]][[D&C 45.35|]][[D&C 45.36|]][[D&C 45.37|]][[D&C 45.38|]][[D&C 45.39|]][[D&C 45.40|]][[D&C 45.41|]][[D&C 45.42|]][[D&C 45.43|]][[D&C 45.44|]][[D&C 45.45|]][[D&C 45.46|]][[D&C 45.47|]][[D&C 45.48|]][[D&C 45.49|]][[D&C 45.50|]][[D&C 45.51|]][[D&C 45.52|]][[D&C 45.53|]][[D&C 45.54|]][[D&C 45.55|]][[D&C 45.56|]][[D&C 45.57|]][[D&C 45.58|]][[D&C 45.59|]][[D&C 45.60|]][[D&C 45.61|]][[D&C 45.62|]][[D&C 45.63|]][[D&C 45.64|]][[D&C 45.65|]][[D&C 45.66|]][[D&C 45.67|]][[D&C 45.68|]][[D&C 45.69|]][[D&C 45.70|]][[D&C 45.71|]][[D&C 45.72|]][[D&C 45.73|]][[D&C 45.74|]][[D&C 45.75|]] where the Lord, not man, has documented the signs of the times.
 
-Now turn to section 101 and section 133 of the Doctrine and Covenants and hear the step-by-step recounting of events leading up to the coming of the Savior.
+Now turn to [[D&C 101.1|section 101]][[D&C 101.2|]][[D&C 101.3|]][[D&C 101.4|]][[D&C 101.5|]][[D&C 101.6|]][[D&C 101.7|]][[D&C 101.8|]][[D&C 101.9|]][[D&C 101.10|]][[D&C 101.11|]][[D&C 101.12|]][[D&C 101.13|]][[D&C 101.14|]][[D&C 101.15|]][[D&C 101.16|]][[D&C 101.17|]][[D&C 101.18|]][[D&C 101.19|]][[D&C 101.20|]][[D&C 101.21|]][[D&C 101.22|]][[D&C 101.23|]][[D&C 101.24|]][[D&C 101.25|]][[D&C 101.26|]][[D&C 101.27|]][[D&C 101.28|]][[D&C 101.29|]][[D&C 101.30|]][[D&C 101.31|]][[D&C 101.32|]][[D&C 101.33|]][[D&C 101.34|]][[D&C 101.35|]][[D&C 101.36|]][[D&C 101.37|]][[D&C 101.38|]][[D&C 101.39|]][[D&C 101.40|]][[D&C 101.41|]][[D&C 101.42|]][[D&C 101.43|]][[D&C 101.44|]][[D&C 101.45|]][[D&C 101.46|]][[D&C 101.47|]][[D&C 101.48|]][[D&C 101.49|]][[D&C 101.50|]][[D&C 101.51|]][[D&C 101.52|]][[D&C 101.53|]][[D&C 101.54|]][[D&C 101.55|]][[D&C 101.56|]][[D&C 101.57|]][[D&C 101.58|]][[D&C 101.59|]][[D&C 101.60|]][[D&C 101.61|]][[D&C 101.62|]][[D&C 101.63|]][[D&C 101.64|]][[D&C 101.65|]][[D&C 101.66|]][[D&C 101.67|]][[D&C 101.68|]][[D&C 101.69|]][[D&C 101.70|]][[D&C 101.71|]][[D&C 101.72|]][[D&C 101.73|]][[D&C 101.74|]][[D&C 101.75|]][[D&C 101.76|]][[D&C 101.77|]][[D&C 101.78|]][[D&C 101.79|]][[D&C 101.80|]][[D&C 101.81|]][[D&C 101.82|]][[D&C 101.83|]][[D&C 101.84|]][[D&C 101.85|]][[D&C 101.86|]][[D&C 101.87|]][[D&C 101.88|]][[D&C 101.89|]][[D&C 101.90|]][[D&C 101.91|]][[D&C 101.92|]][[D&C 101.93|]][[D&C 101.94|]][[D&C 101.95|]][[D&C 101.96|]][[D&C 101.97|]][[D&C 101.98|]][[D&C 101.99|]][[D&C 101.100|]][[D&C 101.101|]] and [[D&C 133.1|section 133 of the Doctrine and Covenants]][[D&C 133.2|]][[D&C 133.3|]][[D&C 133.4|]][[D&C 133.5|]][[D&C 133.6|]][[D&C 133.7|]][[D&C 133.8|]][[D&C 133.9|]][[D&C 133.10|]][[D&C 133.11|]][[D&C 133.12|]][[D&C 133.13|]][[D&C 133.14|]][[D&C 133.15|]][[D&C 133.16|]][[D&C 133.17|]][[D&C 133.18|]][[D&C 133.19|]][[D&C 133.20|]][[D&C 133.21|]][[D&C 133.22|]][[D&C 133.23|]][[D&C 133.24|]][[D&C 133.25|]][[D&C 133.26|]][[D&C 133.27|]][[D&C 133.28|]][[D&C 133.29|]][[D&C 133.30|]][[D&C 133.31|]][[D&C 133.32|]][[D&C 133.33|]][[D&C 133.34|]][[D&C 133.35|]][[D&C 133.36|]][[D&C 133.37|]][[D&C 133.38|]][[D&C 133.39|]][[D&C 133.40|]][[D&C 133.41|]][[D&C 133.42|]][[D&C 133.43|]][[D&C 133.44|]][[D&C 133.45|]][[D&C 133.46|]][[D&C 133.47|]][[D&C 133.48|]][[D&C 133.49|]][[D&C 133.50|]][[D&C 133.51|]][[D&C 133.52|]][[D&C 133.53|]][[D&C 133.54|]][[D&C 133.55|]][[D&C 133.56|]][[D&C 133.57|]][[D&C 133.58|]][[D&C 133.59|]][[D&C 133.60|]][[D&C 133.61|]][[D&C 133.62|]][[D&C 133.63|]][[D&C 133.64|]][[D&C 133.65|]][[D&C 133.66|]][[D&C 133.67|]][[D&C 133.68|]][[D&C 133.69|]][[D&C 133.70|]][[D&C 133.71|]][[D&C 133.72|]][[D&C 133.73|]][[D&C 133.74|]] and hear the step-by-step recounting of events leading up to the coming of the Savior.
 
-Finally, turn to the promises the Lord makes to those who keep the commandments when these judgments descend upon the wicked, as set forth in the Doctrine and Covenants, section 38.
+Finally, turn to the promises the Lord makes to those who keep the commandments when these judgments descend upon the wicked, as set forth in the [[D&C 38.1|Doctrine and Covenants, section 38]][[D&C 38.2|]][[D&C 38.3|]][[D&C 38.4|]][[D&C 38.5|]][[D&C 38.6|]][[D&C 38.7|]][[D&C 38.8|]][[D&C 38.9|]][[D&C 38.10|]][[D&C 38.11|]][[D&C 38.12|]][[D&C 38.13|]][[D&C 38.14|]][[D&C 38.15|]][[D&C 38.16|]][[D&C 38.17|]][[D&C 38.18|]][[D&C 38.19|]][[D&C 38.20|]][[D&C 38.21|]][[D&C 38.22|]][[D&C 38.23|]][[D&C 38.24|]][[D&C 38.25|]][[D&C 38.26|]][[D&C 38.27|]][[D&C 38.28|]][[D&C 38.29|]][[D&C 38.30|]][[D&C 38.31|]][[D&C 38.32|]][[D&C 38.33|]][[D&C 38.34|]][[D&C 38.35|]][[D&C 38.36|]][[D&C 38.37|]][[D&C 38.38|]][[D&C 38.39|]][[D&C 38.40|]][[D&C 38.41|]][[D&C 38.42|]].
 
 Brethren, these are some of the writings with which you should concern yourselves, rather than commentaries that may come from those whose information may not be the most reliable and whose motives may be subject to question. And may I say, parenthetically, most of such writers are not handicapped by having any authentic information on their writings.
 
@@ -125,15 +126,15 @@ As the Lord has admonished priesthood bearers from the beginning: “Wherefore, 
 
 “For all flesh is corrupted before me; and the powers of darkness prevail upon the earth, among the children of men, in the presence of all the hosts of heaven—
 
-“Which causeth silence to reign, and all eternity is pained. ...” (D&C 38:9–12.)
+“Which causeth silence to reign, and all eternity is pained. …” ([[D&C 38.9|D&C 38:9–12]][[D&C 38.10|]][[D&C 38.11|]][[D&C 38.12|]].)
 
-Now brethren, I have spoken plainly to you in this priesthood session. Let what has been said by all the brethren tonight, and in this conference, not fall on deaf ears. Let these admonitions be received as the Lord directed they should be received, in an early revelation, to which President Tanner has already made reference, “as if from mine own mouth, in all patience and faith.” (D&C 21:5.)
+Now brethren, I have spoken plainly to you in this priesthood session. Let what has been said by all the brethren tonight, and in this conference, not fall on deaf ears. Let these admonitions be received as the Lord directed they should be received, in an early revelation, to which President Tanner has already made reference, “as if from mine own mouth, in all patience and faith.” ([[D&C 21.5|D&C 21:5]].)
 
 Only by so doing can we be truly one as a body of priesthood, by following the leadership that the Lord has established in our day in order that we may be one. And he warns us if we are not one, we are not his, as he has declared in the Doctrine and Covenants.
 
 There are one or two things I should like to say about myself and this present responsibility. Never had I thought of myself as one day becoming the President of the Church. As a boy in my rural community, I used to hear the brethren talk about a “pillar” in the Church. I wondered what in the world it meant. It must be something great to be a pillar in the Church. Well, now, maybe I am beginning to realize something about what that means, but I know this: those who try to guess ahead of time as to who is going to be the next President of the Church are just gambling as they might be on a horse race, because only the Lord has the time table.
 
-I remember one time Elder Charles A. Callis in a Council of the Twelve meeting. There was a rather spirited discussion on some questions. One of the Brethren said, “You had better listen to Brother George Albert Smith, the President of the Twelve, because he may be the next President of the Church.”
+I remember one time Elder Charles A. Callis in a Council of the Twelve meeting. There was a rather spirited discussion on some questions. One of the Brethren said, “You had better listen to Brother George Albert Smith, the President of the Twelve, because he may be the next President of the Church.”
 
 Brother Callis smiled and said, “Oh, I wouldn’t be too sure. Three times in my life I have chosen the next President of the Church, and all three of them died before they came to the presidency.” The Lord only knows, and for us to speculate or to presume is not pleasing in the sight of the Lord.
 
@@ -159,7 +160,7 @@ And so, when you think of one President taking the place of another, he doesn’
 
 Now, just one final thought. I sat in a class in Sunday School in my own ward one day, and the teacher was the son of a patriarch. He said he used to take down the blessings of his father, and he noticed that his father gave what he called “iffy” blessings. He would give a blessing, but it was predicated on “if you will not do this” or “if you will cease doing that.” And he said, “I watched these men to whom my father gave the ‘iffy’ blessings, and I saw that many of them did not heed the warning that my father as a patriarch had given, and the blessings were never received because they did not comply.”
 
-You know, this started me thinking. I went back into the Doctrine and Covenants and began to read the “iffy” revelations that have been given to the various brethren in the Church. If you want to have an exercise in something that will startle you, read some of the warnings that were given through the Prophet Joseph Smith to Thomas B. Marsh, Martin Harris, some of the Whitmer brothers, William E. McLellin—warnings which, had they heeded, some would not have fallen by the wayside. But because they did not heed, and they didn’t clear up their lives, they fell by the wayside, and some had to be dropped from membership in the Church.
+You know, this started me thinking. I went back into the Doctrine and Covenants and began to read the “iffy” revelations that have been given to the various brethren in the Church. If you want to have an exercise in something that will startle you, read some of the warnings that were given through the Prophet Joseph Smith to Thomas B. Marsh, Martin Harris, some of the Whitmer brothers, William E. McLellin—warnings which, had they heeded, some would not have fallen by the wayside. But because they did not heed, and they didn’t clear up their lives, they fell by the wayside, and some had to be dropped from membership in the Church.
 
 Now, there is one thing that I think we should all be mindful of. I was with a group of missionaries in the temple one day. A question was asked by one of the sisters about the Word of Wisdom, concerning the promise made that if one would keep the Word of Wisdom he should run and not be weary and should walk and not faint. And she said, “How could that promise be realized if a person were crippled? How could he receive the blessing that he could run and not be weary, and walk and not faint, if he were crippled?”
 
@@ -169,7 +170,7 @@ The trouble with us today, there are too many of us who put question marks inste
 
 If you would teach our people to put periods and not question marks after what the Lord has declared, we would say, “It is enough for me to know that is what the Lord said.”
 
-Elder Gordon B. Hinckley told a story after going into Vietnam that to me was a great lesson. There was a young man, as I remember it, who was in the military service in Vietnam and who joined the Church and was now about to go back to his home country in Southeast Asia.
+Elder Gordon B. Hinckley told a story after going into Vietnam that to me was a great lesson. There was a young man, as I remember it, who was in the military service in Vietnam and who joined the Church and was now about to go back to his home country in Southeast Asia.
 
 Brother Hinckley said to him, “What is it going to do to you when you get back home now that you have joined the Church?”
 
@@ -186,4 +187,7 @@ And then this young man said, “Well, what else matters then?”
 Brethren of the priesthood, if the gospel of Jesus Christ is true—and it is true—what else matters? The Lord may bless us with that rock-bottom testimony that will guide us through all the perils of life if we will just continue to say to ourselves, “Because I know that the gospel is true, nothing else matters.”
 
 I bear you my solemn witness that it is true, that the Lord is in his heavens; he is closer to us than you have any idea. You ask when the Lord gave the last revelation to this church. The Lord is giving revelations day by day, and you will witness and look back on this period and see some of the mighty revelations the Lord has given in your day and time. To that I bear you my witness, and leave with you my testimony this night, in the name of the Lord Jesus Christ. Amen.
+
+
+
 

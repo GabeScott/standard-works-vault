@@ -1,5 +1,6 @@
 # The Power of the Priesthood
-*By W. Grant Bangerter - Assistant to the Council of the Twelve*
+
+By Elder W. Grant Bangerter - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -11,7 +12,7 @@ Without presuming to be an authority on the subject of the priesthood, I have ne
 
 In the Church, testimonies are often expressed in general terms. For example, we speak of our knowledge that God lives, that Jesus is the Christ, and that this is the true Church. There are times, however, when we do not always show the same faith in more specific parts of the gospel.
 
-I have heard some say that they believe in everything but the welfare plan or everything except tithing. Some people used to say they could follow the Prophet Joseph Smith or David O. McKay, but not Brigham Young or Heber J. Grant. Now such selectivity is simply not consistent.
+I have heard some say that they believe in everything but the welfare plan or everything except tithing. Some people used to say they could follow the Prophet Joseph Smith or David O. McKay, but not Brigham Young or Heber J. Grant. Now such selectivity is simply not consistent.
 
 I would like to ask tonight, “What kind of a testimony do you have concerning the power of the priesthood?”
 
@@ -23,7 +24,7 @@ Seriously, these expressions indicate either a lack of faith in or lack of under
 
 I went to a conference in President Rex Reeve’s stake. He took me through the building and showed me 2,000 chairs prepared for the people. I asked him how he knew there would be 2,000 people present, and he answered, “We sent the home teachers out to invite everyone to come, and they have given us their report. They have informed us that 2,000 people will be here tomorrow.” Evidently the word got out that I would be one of the speakers because seventy-five of those 2,000 didn’t show up. But they had an attendance of 49 percent and it has since grown much higher.
 
-For several years I had the privilege of sitting at the feet of President Marion G. Romney, who taught us about the “constitution of the Church”—meaning that revelation given on the occasion of the organization of the Church wherein the Lord outlined the procedures by which it should be governed. The elders, it says in section 20 of the Doctrine and Covenants, assisted by the lesser priesthood, are to “watch over the Church.” (D&C 20:42, 53.) A part of that “watching over” is done by visiting the houses of the members and in instructing them to do their duty. In another revelation the elders quorum is specifically mentioned as a body of “standing ministers.” (D&C 124:137.) Those who hold the Aaronic Priesthood are also called “standing ministers.” (D&C 84:111.)
+For several years I had the privilege of sitting at the feet of President Marion G. Romney, who taught us about the “constitution of the Church”—meaning that revelation given on the occasion of the organization of the Church wherein the Lord outlined the procedures by which it should be governed. The elders, it says in section 20 of the Doctrine and Covenants, assisted by the lesser priesthood, are to “watch over the Church.” ([[D&C 20.42|D&C 20:42, 53]][[D&C 20.53|]].) A part of that “watching over” is done by visiting the houses of the members and in instructing them to do their duty. In another revelation the elders quorum is specifically mentioned as a body of “standing ministers.” ([[D&C 124.137|D&C 124:137]].) Those who hold the Aaronic Priesthood are also called “standing ministers.” ([[D&C 84.111|D&C 84:111]].)
 
 Five years ago if you had asked, “Who’s the ‘minister’ of your Church?” most of us would have answered, “Oh, the bishop.” Today we can’t give that simple answer because we know that many of the duties have now been shifted over to the elders, where the revelations say they rightfully belong. Now a ward should have at least fifty “ministers” in place of the one we thought of a few years ago.
 
@@ -39,13 +40,13 @@ Now this is an appropriate time to think in terms of an expanded power in the pr
 
 Now you can see why I have a testimony of the power of the priesthood. I was told to go out and get one. And I really do have one.
 
-“Which priesthood,” saith the Lord, “continueth in the church of God in all generations.” (D&C 84:17.) No one else on earth has it. “And this greater priesthood administereth the gospel and holdeth the key of the mysteries of the kingdom.” (D&C 84:19.)
+“Which priesthood,” saith the Lord, “continueth in the church of God in all generations.” ([[D&C 84.17|D&C 84:17]].) No one else on earth has it. “And this greater priesthood administereth the gospel and holdeth the key of the mysteries of the kingdom.” ([[D&C 84.19|D&C 84:19]].)
 
 Our missionaries are out every day teaching people who don’t even believe in God. But because of the “great power” which has been given to them, and through their great faith, the Holy Ghost draws near to them. Its influence is felt, and people respond, repent, and obey. When these elders administer baptism to such a person, the teaching and the ordinance combine to be a powerful administration of the priesthood. Children of God are reborn into eternal life. And when this army of missionaries is increased from 10,000 to 20,000, the power of the priesthood is vastly increased.
 
 In the quorums the same thing ought to be true. If we expand from one “minister” to fifty, we should multiply the power of the priesthood by fifty. And the miracles they can perform should multiply vastly beyond those performed on the physically sick. When you have the great joy of hearing someone say, “There’s the man who brought me the gospel,” or “There is the man who changed my whole life,” you can bear your testimony to a great miracle.
 
-Now the priesthood president of deacons, teachers, and priests is the bishop and their quorum presidents. The priesthood president of fathers in the Church is the elders quorum president or, of course, in some cases the high priests and seventies presidents. All fathers must, says the scripture, “come unto this priesthood.” (D&C 84:42.) If not, their families will be subject to the judgment predicted by the prophet Malachi—wasted, not bound to fathers. (See D&C 2.) This is why the gospel was restored, so that the earth would not be wasted at His coming.
+Now the priesthood president of deacons, teachers, and priests is the bishop and their quorum presidents. The priesthood president of fathers in the Church is the elders quorum president or, of course, in some cases the high priests and seventies presidents. All fathers must, says the scripture, “come unto this priesthood.” ([[D&C 84.42|D&C 84:42]].) If not, their families will be subject to the judgment predicted by the prophet Malachi—wasted, not bound to fathers. (See [[D&C 2.1|D&C 2]][[D&C 2.2|]][[D&C 2.3|]][[D&C 2.4|]][[D&C 2.5|]][[D&C 2.6|]][[D&C 2.7|]][[D&C 2.8|]][[D&C 2.9|]][[D&C 2.10|]][[D&C 2.11|]][[D&C 2.12|]][[D&C 2.13|]][[D&C 2.14|]][[D&C 2.15|]][[D&C 2.16|]][[D&C 2.17|]][[D&C 2.18|]][[D&C 2.19|]][[D&C 2.20|]][[D&C 2.21|]][[D&C 2.22|]][[D&C 2.23|]][[D&C 2.24|]][[D&C 2.25|]][[D&C 2.26|]][[D&C 2.27|]][[D&C 2.28|]][[D&C 2.29|]][[D&C 2.30|]][[D&C 2.31|]][[D&C 2.32|]][[D&C 2.33|]][[D&C 2.34|]][[D&C 2.35|]][[D&C 2.36|]][[D&C 2.37|]][[D&C 2.38|]][[D&C 2.39|]][[D&C 2.40|]][[D&C 2.41|]][[D&C 2.42|]][[D&C 2.43|]][[D&C 2.44|]][[D&C 2.45|]][[D&C 2.46|]][[D&C 2.47|]][[D&C 2.48|]][[D&C 2.49|]][[D&C 2.50|]][[D&C 2.51|]][[D&C 2.52|]][[D&C 2.53|]][[D&C 2.54|]][[D&C 2.55|]][[D&C 2.56|]][[D&C 2.57|]][[D&C 2.58|]][[D&C 2.59|]][[D&C 2.60|]][[D&C 2.61|]][[D&C 2.62|]][[D&C 2.63|]][[D&C 2.64|]][[D&C 2.65|]][[D&C 2.66|]][[D&C 2.67|]][[D&C 2.68|]][[D&C 2.69|]][[D&C 2.70|]][[D&C 2.71|]][[D&C 2.72|]][[D&C 2.73|]][[D&C 2.74|]][[D&C 2.75|]][[D&C 2.76|]][[D&C 2.77|]][[D&C 2.78|]][[D&C 2.79|]][[D&C 2.80|]][[D&C 2.81|]][[D&C 2.82|]][[D&C 2.83|]][[D&C 2.84|]].) This is why the gospel was restored, so that the earth would not be wasted at His coming.
 
 The Melchizedek Priesthood president, who is in most cases the elders quorum president, must see that the fulness of the gospel is administered to every member of the Church. That is the function of this priesthood. He should administer the gospel personally and through the “standing ministers” in his quorum, now called the home teachers. If you don’t believe in that system and if you don’t use it, you don’t have a true testimony of the power of the priesthood, and you cannot succeed. If you use this system and are faithful, your success is guaranteed.
 
@@ -58,4 +59,7 @@ The stake president continued: “Brother Pedersen has committed himself to qual
 Think of the potential if all who bear the priesthood were deeply involved in the work of the Lord. Compared to what is available, we have been running on only one or two cylinders.
 
 In missionary work some stakes have raised their sights so much that each ward is going to bring in as many new members as the entire stake used to. In temple work I have seen stakes, who worked through priesthood power, make yearly increases that were greater than the total performance of average stakes nearby. In every activity in which the priesthood is involved, I become excited when I see how far we can go if we have faith enough to mobilize the great army of men of the priesthood. Not a testimony like Laman and Lemuel. And I know some say, “He doesn’t understand how tough it is in our quorum.” Well, Nephi didn’t either; but Nephi had a testimony. In the name of Jesus Christ. Amen.
+
+
+
 

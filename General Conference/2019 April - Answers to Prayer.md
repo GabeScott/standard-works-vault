@@ -1,17 +1,20 @@
 # Answers to Prayer
-*By Brook P. Hales - Of the Seventy*
+
+By Elder Brook P. Hales - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
 
+>*The Father is aware of us, knows our needs, and will help us perfectly.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/04/13hales?lang=eng)
 
-An important and comforting doctrine of the gospel of Jesus Christ is that our Heavenly Father has perfect love for His children. Because of that perfect love, He blesses us not only according to our desires and needs but also according to His infinite wisdom. As simply stated by the prophet Nephi, “I know that [God] loveth his children.”
+An important and comforting doctrine of the gospel of Jesus Christ is that our Heavenly Father has perfect love for His children. Because of that perfect love, He blesses us not only according to our desires and needs but also according to His infinite wisdom. As simply stated by the prophet Nephi, “I know that \[God\] loveth his children.”[^1]
 
-One aspect of that perfect love is our Heavenly Father’s involvement in the details of our lives, even when we may not be aware of it or understand it. We seek the Father’s divine guidance and help through heartfelt, earnest prayer. When we honor our covenants and strive to be more like our Savior, we are entitled to a constant stream of divine guidance through the influence and inspiration of the Holy Ghost.
+One aspect of that perfect love is our Heavenly Father’s involvement in the details of our lives, even when we may not be aware of it or understand it. We seek the Father’s divine guidance and help through heartfelt, earnest prayer. When we honor our covenants and strive to be more like our Savior, we are entitled to a constant[^2] stream of divine guidance through the influence and inspiration of the Holy Ghost.
 
-The scriptures teach us, “For your Father knoweth what things ye have need of, before ye ask him,” and He “knoweth all things, for all things are present before [His] eyes.”
+The scriptures teach us, “For your Father knoweth what things ye have need of, before ye ask him,”[^3] and He “knoweth all things, for all things are present before \[His\] eyes.”[^4]
 
-The prophet Mormon is an example of this. He did not live to see the results of his work. Yet he understood that the Lord was carefully leading him along. When he felt inspired to include the small plates of Nephi with his record, Mormon wrote: “And I do this for a wise purpose; for thus it whispereth me, according to the workings of the Spirit of the Lord which is in me. And now, I do not know all things; but the Lord knoweth all things which are to come; wherefore, he worketh in me to do according to his will.” Although Mormon did not know of the future loss of the 116 manuscript pages, the Lord did and prepared a way to overcome that obstacle long before it occurred.
+The prophet Mormon is an example of this. He did not live to see the results of his work. Yet he understood that the Lord was carefully leading him along. When he felt inspired to include the small plates of Nephi with his record, Mormon wrote: “And I do this for a wise purpose; for thus it whispereth me, according to the workings of the Spirit of the Lord which is in me. And now, I do not know all things; but the Lord knoweth all things which are to come; wherefore, he worketh in me to do according to his will.”[^5] Although Mormon did not know of the future loss of the 116 manuscript pages, the Lord did and prepared a way to overcome that obstacle long before it occurred.
 
 The Father is aware of us, knows our needs, and will help us perfectly. Sometimes that help is given in the very moment or at least soon after we ask for divine help. Sometimes our most earnest and worthy desires are not answered in the way we hope, but we find that God has greater blessings in store. And sometimes our righteous desires are not granted in this life. I will illustrate, through three different accounts, the ways our Father in Heaven may answer our earnest petitions to Him.
 
@@ -21,7 +24,7 @@ Our son entered the missionary training center in June, and the overcoat was del
 
 As winter approached in Paris, where our son was serving, he wrote to us that he had pulled out the overcoat and tried it on but found that it was far too small. We therefore had to deposit extra funds in his bank account so that he could buy another coat in Paris, which he did. With some irritation, I wrote to him and told him to give the first coat away, inasmuch as he couldn’t use it.
 
-We later received this email from him: “It is very, very cold here. ... The wind seems to go right through us, although my new coat is great and quite heavy. ... I gave my old one to [another missionary in our apartment] who said that he had been praying for a way to get a better coat. He is a convert of several years and he has only his mom ... and the missionary who baptized him who are supporting him on his mission and so the coat was an answer to a prayer, so I felt very happy about that.”
+We later received this email from him: “It is very, very cold here. … The wind seems to go right through us, although my new coat is great and quite heavy. … I gave my old one to \[another missionary in our apartment\] who said that he had been praying for a way to get a better coat. He is a convert of several years and he has only his mom … and the missionary who baptized him who are supporting him on his mission and so the coat was an answer to a prayer, so I felt very happy about that.”[^6]
 
 Heavenly Father knew that this missionary, who was serving in France some 6,200 miles (10,000 km) away from home, would urgently need a new overcoat for a cold winter in Paris but that this missionary would not have the means to buy one. Heavenly Father also knew that our son would receive from the clothing store in Provo, Utah, an overcoat that would be far too small. He knew that these two missionaries would be serving together in Paris and that the coat would be an answer to the humble and earnest prayer of a missionary who had an immediate need.
 
@@ -31,9 +34,9 @@ The Savior taught:
 
 “But the very hairs of your head are all numbered.
 
-“Fear ye not therefore, ye are of more value than many sparrows.”
+“Fear ye not therefore, ye are of more value than many sparrows.”[^7]
 
-In other situations, when our worthy desires are not granted in the way we had hoped, it may actually be for our ultimate benefit. For example, Joseph the son of Jacob was envied and hated by his brothers to the point that they plotted Joseph’s murder. Instead, they sold him as a slave into Egypt. If ever a person might have felt that his prayers were not answered in the way he had hoped, it could have been Joseph. In reality, his apparent misfortune resulted in great blessings to him and saved his family from starvation. Later, after having become a trusted leader in Egypt, with great faith and wisdom he said to his brothers:
+In other situations, when our worthy desires are not granted in the way we had hoped, it may actually be for our ultimate benefit. For example, Joseph the son of Jacob was envied and hated by his brothers to the point that they plotted Joseph’s murder. Instead, they sold him as a slave into Egypt.[^8] If ever a person might have felt that his prayers were not answered in the way he had hoped, it could have been Joseph. In reality, his apparent misfortune resulted in great blessings to him and saved his family from starvation. Later, after having become a trusted leader in Egypt, with great faith and wisdom he said to his brothers:
 
 “Now therefore be not grieved, nor angry with yourselves, that ye sold me hither: for God did send me before you to preserve life.
 
@@ -41,7 +44,7 @@ In other situations, when our worthy desires are not granted in the way we had h
 
 “And God sent me before you to preserve you a posterity in the earth, and to save your lives by a great deliverance.
 
-“So now it was not you that sent me hither, but God.”
+“So now it was not you that sent me hither, but God.”[^9]
 
 While in college, our oldest son was hired into a very desirable part-time student job that had the potential to lead to a wonderful, permanent job after graduation. He worked hard at this student job for four years, became highly qualified, and was well respected by his coworkers and supervisors. At the end of his senior year, almost as if orchestrated by heaven (at least to our son’s way of thinking), the permanent position did open up, and he was the leading candidate, with every indication and expectation that, indeed, he would get the job.
 
@@ -63,15 +66,48 @@ Pat said she was taken aback by the question but responded, “Well, sometimes H
 
 I’ve known Pat for many years and recently told her that I admired the fact that she is always positive and happy. She responded, “Well, you have not been at home with me, have you? I have my moments. I’ve had rather severe bouts of depression, and I’ve cried a lot.” However, she added, “From the time I started losing my sight, it was strange, but I knew that Heavenly Father and the Savior were with my family and me. We handled it the best way we could, and in my opinion, we handled it the right way. I have ended up being a successful enough person, and generally I have been a happy person. I remember His hand being in everything. To those who ask me if I am angry because I am blind, I respond, ‘Who would I be angry with? Heavenly Father is in this with me; I am not alone. He is with me all the time.’”
 
-In this case, Pat’s desire to regain her sight will not be granted in this life. But her motto, learned from her father, is “This too shall pass.”
+In this case, Pat’s desire to regain her sight will not be granted in this life. But her motto, learned from her father, is “This too shall pass.”[^10]
 
-President Henry B. Eyring stated, “The Father is at this moment aware of you, your feelings, and the spiritual and temporal needs of everyone around you.” This great and comforting truth can be found in the three experiences I have recounted.
+President Henry B. Eyring stated, “The Father is at this moment aware of you, your feelings, and the spiritual and temporal needs of everyone around you.”[^11] This great and comforting truth can be found in the three experiences I have recounted.
 
-Brothers and sisters, sometimes our prayers are answered quickly with the outcome we hope for. Sometimes our prayers are not answered in the way we hope for, yet with time we learn that God had greater blessings prepared for us than we initially anticipated. And sometimes our righteous petitions to God will not be granted in this life. As Elder Neal A. Maxwell said, “Faith also includes trust in God’s timing.”
+Brothers and sisters, sometimes our prayers are answered quickly with the outcome we hope for. Sometimes our prayers are not answered in the way we hope for, yet with time we learn that God had greater blessings prepared for us than we initially anticipated. And sometimes our righteous petitions to God will not be granted in this life.[^12] As Elder Neal A. Maxwell said, “Faith also includes trust in God’s timing.”[^13]
 
 We have the assurance that in His own way and in His own time, Heavenly Father will bless us and resolve all of our concerns, injustices, and disappointments.
 
-To quote King Benjamin: “And moreover, I would desire that ye should consider on the blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, both temporal and spiritual; and if they hold out faithful to the end they are received into heaven, that thereby they may dwell with God in a state of never-ending happiness. O remember, remember that these things are true; for the Lord God hath spoken it.”
+To quote King Benjamin: “And moreover, I would desire that ye should consider on the blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, both temporal and spiritual; and if they hold out faithful to the end they are received into heaven, that thereby they may dwell with God in a state of never-ending happiness. O remember, remember that these things are true; for the Lord God hath spoken it.”[^14]
 
-I know that God hears our prayers. I know that as an all-knowing, loving Father, He answers our prayers perfectly, according to His infinite wisdom, and in ways that will be to our ultimate benefit and blessing. I so testify in the name of Jesus Christ, amen.
+I know that God hears our prayers.[^15] I know that as an all-knowing, loving Father, He answers our prayers perfectly, according to His infinite wisdom, and in ways that will be to our ultimate benefit and blessing. I so testify in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[1 Nephi 11.17|1 Nephi 11:17]]; see also [[1 John 4.8|1 John 4:8]].
+
+[^2]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 93–96.
+
+[^3]: [[Matthew 6.8|Matthew 6:8]].
+
+[^4]: [[D&C 38.2|Doctrine and Covenants 38:2]].
+
+[^5]: [[Words of Mormon 1.7|Words of Mormon 1:7]].
+
+[^6]: Personal correspondence.
+
+[^7]: [[Matthew 10.29|Matthew 10:29–31]][[Matthew 10.30|]][[Matthew 10.31|]].
+
+[^8]: See [[Genesis 37.20|Genesis 37:20, 26–28]][[Genesis 37.26|]][[Genesis 37.27|]][[Genesis 37.28|]].
+
+[^9]: [[Genesis 45.5|Genesis 45:5–8]][[Genesis 45.6|]][[Genesis 45.7|]][[Genesis 45.8|]].
+
+[^10]: From a personal interview with Patricia Parkinson, Dec. 10, 2018.
+
+[^11]: Henry B. Eyring, “[[2018 April - His Spirit to Be with You.md|His Spirit to Be with You]],” *Ensign* or *Liahona,* May 2018, 88.
+
+[^12]: See Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign,* Nov. 1999, 36–38; *Liahona,* Jan. 2000, 42–45.
+
+[^13]: Neal A. Maxwell, “[[1991 April - “Lest Ye Be Wearied and Faint in Your Minds”.md|Lest Ye Be Wearied and Faint in Your Minds]],” *Ensign,* May 1991, 90.
+
+[^14]: [[Mosiah 2.41|Mosiah 2:41]].
+
+[^15]: See “[Power of Prayer](https://www.mormon.org/site/god/power-of-prayer),” mormon.org/beliefs/power-of-prayer.
 

@@ -1,5 +1,6 @@
 # The Temple of the Lord
-*By Thomas S. Monson - Second Counselor in the First Presidency*
+
+By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1993 General Conference*
 
@@ -19,15 +20,22 @@ President Benson has always loved temples and temple work. When he felt better, 
 
 President Benson’s own expressions indicate this love for temples. He reflected:
 
-“I remember ... as a ... boy, coming in from the field and approaching the old farm home. ... I could hear my mother singing, ‘Have I Done Any Good in the World Today?’ (Hymns, 1950, no. 58.) I can ... see her in my mind’s eye bending over the ironing board ... with beads of perspiration on her forehead.” She was ironing long strips of white cloth, with newspapers on the floor to keep them clean. “When I asked her what she was doing, she said, ‘These are temple robes, my son. Your father and I are going to the Logan Temple.’
+“I remember so well, as a little boy, coming in from the field and approaching the old farm house. … I could hear my mother singing, ‘Have I Done Any Good in the World Today?’ … I can still see her in my mind’s eye bending over the ironing board … with beads of perspiration on her forehead.” She was ironing long strips of white cloth, with newspapers on the floor to keep them clean. “When I asked her what she was doing, she said, ‘These are temple robes, my son. Your father and I are going to the temple at Logan.’
 
-“Then she put the old flatiron on the stove, drew a chair close to mine, and told me about temple work—how important it [was] to be able to go to the temple and participate in the sacred ordinances performed there. She also expressed her fervent hope that some day her children ... grandchildren and great-grandchildren would have the opportunity to enjoy those priceless blessings.” He continued: “I am happy to say that her fondest hopes in large measure have been realized.”1
+“Then she put the old flatiron on the stove, drew a chair close to mine, and told me about temple work—how important it is to be able to go to the temple and participate in the sacred ordinances performed there. She also expressed her fervent hope that some day her children and grandchildren and great-grandchildren would have the opportunity to enjoy those priceless blessings.”[^1] He continued, “I am happy to say that her fondest hopes in large measure have been realized.”
 
-On another occasion, President Benson instructed us: “Sometimes in the peace of lovely temples, the serious problems of life find their solutions. [At times] pure knowledge flows to us there under the influence of the Spirit.” Said he: “I am grateful to the Lord for temples. The blessings of the House of the Lord are eternal. They are of the highest importance to us because it is in the temples that we obtain God’s greatest blessings pertaining to eternal life. Temples really are the gateways to heaven.”
+On another occasion, President Benson instructed us: “Sometimes in the peace of lovely temples, the serious problems of life find their solutions. \[At times\] pure knowledge flows to us there under the influence of the Spirit.” Said he: “I am grateful to the Lord for temples. The blessings of the House of the Lord are eternal. They are of the highest importance to us because it is in the temples that we obtain God’s greatest blessings pertaining to eternal life. Temples really are the gateways to heaven.”
 
-He said: “May we remember always, as we [visit and work in these glorious temples], that the veil may become very thin between this world and the spirit world. I know this is true.” He declared, “It is well also that we keep in mind that it is all one great program on both sides of the veil and it is not too important whether we serve here or over there, as long as we serve with all our heart, might, mind, and strength.”2
+He said: “May we remember always, as we \[visit and work in these glorious temples\], that the veil may become very thin between this world and the spirit world. I know this is true.” He declared, “It is well also that we keep in mind that it is all one great program on both sides of the veil and it is not too important whether we serve here or over there, as long as we serve with all our heart, might, mind, and strength.”[^2]
 
 President Benson, your words are welcomed. We have heard them. We shall follow them. They, like the temples you so much love, are as a refuge from life’s storms—even a never-failing beacon guiding us to safety.
 
 I echo the feelings of one and all, President Benson, in saying we love you and ever pray for you. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: “What I Hope You Will Teach Your Children about the Temple,” *Ensign,* Aug. 1985, p. 8.
+
+[^2]: “Temple Memories” (address given at the Denver Colorado Temple dedication, 25 Oct. 1986).
 

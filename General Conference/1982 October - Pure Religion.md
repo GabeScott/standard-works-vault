@@ -1,5 +1,6 @@
 # Pure Religion
-*By Marvin J. Ashton - Of the Quorum of the Twelve Apostles*
+
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -21,15 +22,15 @@ I will be forever grateful for the wise counsel my mission president gave me as 
 
 The longer I stayed in England, the more I appreciated his advice. Day by day I grew to love and appreciate that great country and its people. For example, instead of freezing in the raw winter weather, I did as the English did—I put on another sweater rather than wasting time murmuring and complaining.
 
-Robert West wrote, “Nothing is easier than fault-finding; no talent, no self-denial, no brains ... are required to set up in the grumbling business.” (Richard Evans’ Quote Book, Salt Lake City: Publishers Press, 1971, p. 221.)
+Robert West wrote, “Nothing is easier than fault-finding; no talent, no self-denial, no brains … are required to set up in the grumbling business.” (*Richard Evans’ Quote Book,* Salt Lake City: Publishers Press, 1971, p. 221.)
 
 Whether accusations, innuendos, aspersions, or falsehoods are whispered or blatantly shouted, the gospel of Jesus Christ reminds us that we are not to retaliate nor contend. “Wherefore, my beloved brethren, let every man be swift to hear, slow to speak, slow to wrath:
 
-“For the wrath of man worketh not the righteousness to God.” (James 1:19–20.)
+“For the wrath of man worketh not the righteousness to God.” ([[James 1.19|James 1:19–20]][[James 1.20|]].)
 
-No religion, group, or individual can prosper over an extended period of time with fault-finding as their foundation. To the world, and especially to members of The Church of Jesus Christ of Latter-day Saints, we declare there is no time for contention. “If any man among you seem to be religious, and bridleth not his tongue, but deceiveth his own heart, this man’s religion is vain.” (James 1:26.)
+No religion, group, or individual can prosper over an extended period of time with fault-finding as their foundation. To the world, and especially to members of The Church of Jesus Christ of Latter-day Saints, we declare there is no time for contention. “If any man among you seem to be religious, and bridleth not his tongue, but deceiveth his own heart, this man’s religion is vain.” ([[James 1.26|James 1:26]].)
 
-The poet Robert Frost once defined education as “the ability to listen to almost anything without losing your temper or your self-confidence.” Probably we will never be free of those who are openly anti-Mormon. Therefore, we encourage all our members to refuse to become anti-anti-Mormon. In the wise words of old, can we “live and let live”? (Johann Schiller, in The Home Book of Quotations, New York: Dodd, Mead and Company, 1935, p. 1119.)
+The poet Robert Frost once defined education as “the ability to listen to almost anything without losing your temper or your self-confidence.” Probably we will never be free of those who are openly anti-Mormon. Therefore, we encourage all our members to refuse to become anti-anti-Mormon. In the wise words of old, can we “live and let live”? (Johann Schiller, in *The Home Book of Quotations,* New York: Dodd, Mead and Company, 1935, p. 1119.)
 
 Certainly one of our God-given privileges is the right to choose what our attitude will be in any given set of circumstances. We can let the events that surround us determine our actions—or we can personally take charge and rule our lives, using as guidelines the principles of pure religion. Pure religion is learning the gospel of Jesus Christ and then putting it into action. Nothing will ever be of real benefit to us until it is incorporated into our own lives.
 
@@ -41,15 +42,15 @@ The discerning realize that it is not realistic to expect perfection in others w
 
 “Or how wilt thou say to thy brother, let me pull the mote out of thine eye; and behold, a beam is in thine own eye?
 
-“Thou hypocrite, first cast out the beam out of thine own eye; and then shalt thou see clearly to cast out the mote out of thy brother’s eye.” (Matt. 7:3–5.)
+“Thou hypocrite, first cast out the beam out of thine own eye; and then shalt thou see clearly to cast out the mote out of thy brother’s eye.” ([[Matthew 7.3|Matt. 7:3–5]][[Matthew 7.4|]][[Matthew 7.5|]].)
 
 Meaningful progress can be made only when all of us can cast the motes out of our own eyes, leave judgment to our Father in Heaven, and lose ourselves in righteous living.
 
-As we reflect upon actions that do not fit the definition of pure religion, perhaps we should contemplate the nature of this term: “Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep ... unspotted from the world.” (James 1:27.)
+As we reflect upon actions that do not fit the definition of pure religion, perhaps we should contemplate the nature of this term: “Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep … unspotted from the world.” ([[James 1.27|James 1:27]].)
 
 The words are simple, but a basic formula is revealed—namely, help those who are in need, build your life around the gospel of Jesus Christ, and avoid yielding to worldly temptations.
 
-As with most simple formulas, all of us must analyze our own lives and use wisdom and free agency as we apply the basic principles. Jesus said, “Verily, verily, I say unto you, this is my gospel; and ye know the things that ye must do in my church; for the works which ye have seen me do that shall ye also do; for that which ye have seen me do even that shall ye do.” (3 Ne. 27:21.) The doing is always more difficult than the knowing.
+As with most simple formulas, all of us must analyze our own lives and use wisdom and free agency as we apply the basic principles. Jesus said, “Verily, verily, I say unto you, this is my gospel; and ye know the things that ye must do in my church; for the works which ye have seen me do that shall ye also do; for that which ye have seen me do even that shall ye do.” ([[3 Nephi 27.21|3 Ne. 27:21]].) The doing is always more difficult than the knowing.
 
 We were visiting some friends this past summer. A very young son with a new tricycle was disturbed because his parents were giving us their attention and all of us were ignoring him. He rode his trike as fast as his little legs could pedal, calling, “Look at me!” The inevitable happened as he looked at us instead of where he was going. He rode directly into a lawn chair. To try to stem the tears and take his mind off the hurt, his mother said, “That naughty chair hurt you. Let’s spank the chair.”
 
@@ -90,4 +91,7 @@ From the simple scripture that defines pure religion come great guidelines. To b
 Empathy is sincere love for self and our fellowmen. Henry David Thoreau said, “Could a greater miracle take place than for us to look through each other’s eyes for an instant?” If this were possible, I’m sure we could visit and help the widowed and fatherless and all who need our help with the pure love of Christ and thus be responsive to the needs of those around us.
 
 May God help us to learn and live the principles of pure religion. The business of lifting each other is a full-time occupation. Pure religion can never be taught or lived by those who are petty, prejudiced, contentious, or unresponsive to the needs of their fellowmen. Pure religion is following the teachings of our Savior. Jesus Christ does live. This is his Church. To this I bear witness in the name of Jesus Christ, amen.
+
+
+
 

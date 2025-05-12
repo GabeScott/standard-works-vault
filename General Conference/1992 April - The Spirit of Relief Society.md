@@ -1,5 +1,6 @@
 # The Spirit of Relief Society
-*By Thomas S. Monson - Second Counselor in the First Presidency*
+
+By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1992 General Conference*
 
@@ -13,21 +14,19 @@ President Elaine Jack, Chieko Okazaki, Aileen Clyde—thank heaven for your dear
 
 To paraphrase a thought:
 
-You never know what a girl is worth,
+>You never know what a girl is worth,
+>You’ll just have to wait and see;
+>But every woman in a noble place,
+>A girl once used to be.
+>
 
-You’ll just have to wait and see;
+Years ago I saw a photograph of a Sunday School class in the Sixth Ward of the Pioneer Stake in Salt Lake City. The photograph was taken in 1905. A sweet girl, her hair in pigtails, was shown on the front row. Her name was Belle Smith. Later, as Belle Smith Spafford, general president of the Relief Society, she wrote: “Never have women had greater influence than in today’s world. Never have the doors of opportunity opened wider for them. This is an inviting, exciting, challenging and demanding period of time for women. It is a time rich in rewards if we keep our balance, learn the true values of life, and wisely determine priorities.”[^1]
 
-But every woman in a noble place,
+The Apostle Paul gave us this caution: “The letter \[of the law\] killeth, but the spirit giveth life.” ([[2 Corinthians 3.6|2 Cor. 3:6]].) The spirit of Relief Society is being made manifest today, in our time. We see stirrings of strength, we hear the rustling of a resurrection, we observe the dawning of a new day.
 
-A girl once used to be.
+In the *Church News,* Sister Irene Maximova, Relief Society president in the St. Petersburg (Russia) Ward, reported some changes she sees in the lives of women after they join the Church: “They have more compassion for other people. I see increased consideration and respect. They are more occupied with scriptures and spiritual matters. … As Church members in Russia, we must always remember the Lord’s commandments to love God and to love our neighbors. … For 70 years our society lost those good qualities.”[^2]
 
-Years ago I saw a photograph of a Sunday School class in the Sixth Ward of the Pioneer Stake in Salt Lake City. The photograph was taken in 1905. A sweet girl, her hair in pigtails, was shown on the front row. Her name was Belle Smith. Later, as Belle Smith Spafford, general president of the Relief Society, she wrote: “Never have women had greater influence than in today’s world. Never have the doors of opportunity opened wider for them. This is an inviting, exciting, challenging and demanding period of time for women. It is a time rich in rewards if we keep our balance, learn the true values of life, and wisely determine priorities.”1
-
-The Apostle Paul gave us this caution: “The letter [of the law] killeth, but the spirit giveth life.” (2 Cor. 3:6.) The spirit of Relief Society is being made manifest today, in our time. We see stirrings of strength, we hear the rustling of a resurrection, we observe the dawning of a new day.
-
-In the Church News, Sister Irene Maximova, Relief Society president in the St. Petersburg (Russia) Ward, reported some changes she sees in the lives of women after they join the Church: “They have more compassion for other people. I see increased consideration and respect. They are more occupied with scriptures and spiritual matters. ... As Church members in Russia, we must always remember the Lord’s commandments to love God and to love our neighbors. ... For 70 years our society lost those good qualities.”2
-
-In that same issue of the Church News was the dramatic announcement that three new missions would soon be opened in what was the Soviet Union. This has now been accomplished. Branches of the Church will be organized, the waters of baptism will welcome those who are prepared, Relief Society membership will soar, and souls will be saved.
+In that same issue of the *Church News* was the dramatic announcement that three new missions would soon be opened in what was the Soviet Union. This has now been accomplished. Branches of the Church will be organized, the waters of baptism will welcome those who are prepared, Relief Society membership will soar, and souls will be saved.
 
 In this, your sesquicentennial year, I compliment you on your carefully chosen theme to eliminate illiteracy. Those of us who can read and write do not appreciate the deprivation of those who cannot read, who cannot write. They are shrouded by a dark cloud which stifles their progress, dulls their intellect, and dims their hopes. Sisters of the Relief Society, you can lift this cloud of despair and welcome heaven’s divine light as it shines upon your sisters.
 
@@ -37,19 +36,19 @@ Several months ago I was in Monroe, Louisiana, attending a regional conference. 
 
 “Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls.
 
-“For my yoke is easy, and my burden is light.” (Matt. 11:28–30.)
+“For my yoke is easy, and my burden is light.” ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].)
 
 That day in Monroe, Louisiana, I received a confirmation by the Spirit of your exalted objective.
 
 In planning the women’s curriculum, these guidelines have been followed with resolute care:
 
-Every woman has been endowed by God with distinctive characteristics, gifts, and talents in order that she may fulfill a specific mission in the eternal plan.
+A. Every woman has been endowed by God with distinctive characteristics, gifts, and talents in order that she may fulfill a specific mission in the eternal plan.
 
-The priesthood is for the benefit of all members of the Church. While women do not hold the priesthood, men have no greater claim than women upon the blessings that issue from it.
+B. The priesthood is for the benefit of all members of the Church. While women do not hold the priesthood, men have no greater claim than women upon the blessings that issue from it.
 
-The home is the basic organization to teach an individual to walk uprightly before the Lord.
+C. The home is the basic organization to teach an individual to walk uprightly before the Lord.
 
-Compassionate service and a sensitivity to the needs of others are the principal purposes for which a woman’s program was organized.
+D. Compassionate service and a sensitivity to the needs of others are the principal purposes for which a woman’s program was organized.
 
 In keeping with this statement, may I today issue to you sisters of the Relief Society four challenges for our times:
 
@@ -61,29 +60,27 @@ Third: Strengthen your home.
 
 Fourth: Serve your God.
 
-Share your talents. Each of you, single or married, regardless of age, has the opportunity to learn and grow. Expand your knowledge, both intellectual and spiritual, to the full stature of your divine potential. There is no limit to your influence for good. Share your talents, for that which we willingly share, we keep. But that which we selfishly keep, we lose.
+**Share your talents.** Each of you, single or married, regardless of age, has the opportunity to learn and grow. Expand your knowledge, both intellectual and spiritual, to the full stature of your divine potential. There is no limit to your influence for good. Share your talents, for that which we willingly share, we keep. But that which we selfishly keep, we lose.
 
-Sustain your husband. Both husband and wife should appreciate that “woman was taken out of man; not out of his feet to be trampled underfoot, but out of his side to be equal to him, under his arm to be protected, and near his heart to be loved” [see Matthew Henry’s Commentary on the Whole Bible (1991), 1:16]. Be patient, be tender, be loving, be considerate, be understanding. Be your best self as you sustain your husband, remembering that children often outgrow their need for affection, but husbands never do.
+**Sustain your husband.** Both husband and wife should appreciate that “woman was taken out of man; not out of his feet to be trampled underfoot, but out of his side to be equal to him, under his arm to be protected, and near his heart to be loved” \[see *Matthew Henry’s Commentary on the Whole Bible* (1991), 1:16\]. Be patient, be tender, be loving, be considerate, be understanding. Be your best self as you sustain your husband, remembering that children often outgrow their need for affection, but husbands never do.
 
 Many members of Relief Society do not have husbands. Death, divorce, and indeed lack of opportunity to marry have, in many instances, made it necessary for a woman to stand alone. In reality, she need not stand alone, for a loving Heavenly Father will be by her side to give direction to her life and provide peace and assurance in those quiet moments when loneliness is found and when compassion is needed.
 
-Strengthen your home. Home, that marvelous place, was meant to be a haven called heaven where the Spirit of the Lord might dwell.
+**Strengthen your home.** Home, that marvelous place, was meant to be a haven called heaven where the Spirit of the Lord might dwell.
 
-Too frequently, women underestimate their influence for good. Well could you follow the formula given by the Lord: “Establish a house, even a house of prayer, a house of fasting, a house of faith, a house of learning, a house of glory, a house of order, a house of God.” (D&C 88:119.)
+Too frequently, women underestimate their influence for good. Well could you follow the formula given by the Lord: “Establish a house, even a house of prayer, a house of fasting, a house of faith, a house of learning, a house of glory, a house of order, a house of God.” ([[D&C 88.119|D&C 88:119]].)
 
 In such a house will be found happy, smiling children who have been taught, by precept and example, the truth. In a Latter-day Saint home, children are not simply tolerated, but welcomed; not commanded, but encouraged; not driven, but guided; not neglected, but loved.
 
-Serve your God. You cannot serve your neighbor without demonstrating your love for God. Service is a product of love. So long as we love, we serve. As James Russell Lowell stated so beautifully in his classic poem, The Vision of Sir Launfal, “Not what we give, but what we share. For the gift without the giver is bare.”3 “All the beautiful sentiments in the world weigh less than a single lovely action.”4
+**Serve your God.** You cannot serve your neighbor without demonstrating your love for God. Service is a product of love. So long as we love, we serve. As James Russell Lowell stated so beautifully in his classic poem, *The Vision of Sir Launfal, “*Not what we give, but what we share. For the gift without the giver is bare.”[^3] “All the beautiful sentiments in the world weigh less than a single lovely action.”[^4]
 
-Go gladden the lonely, the dreary;
+>Go gladden the lonely, the dreary;
+>Go comfort the weeping, the weary;
+>Go scatter kind deeds on your way.
+>Oh, make the world brighter today.[^5]
+>
 
-Go comfort the weeping, the weary;
-
-Go scatter kind deeds on your way.
-
-Oh, make the world brighter today.5
-
-The heart of compassionate service, one of the hallmark creeds of Relief Society, is the gift of oneself. Emerson explained, “Rings and ... jewels are not gifts, but apologies for gifts. The only [true] gift is a portion of thyself.”6
+The heart of compassionate service, one of the hallmark creeds of Relief Society, is the gift of oneself. Emerson explained, “Rings and … jewels are not gifts, but apologies for gifts. The only \[true\] gift is a portion of thyself.”[^6]
 
 Sisters, will you accept these four challenges to (1) share your talents; (2) sustain your husband; (3) strengthen your home; and (4) serve your God. As you do, the blessings of heaven will attend.
 
@@ -101,7 +98,22 @@ I never think of the Lost River Stake but what I see again in my memory that mod
 
 Dear sisters of Relief Society, move with vision, fueled by faith, into your next 150 years. To all of you I repeat that old, but ever welcome wish: Happy 150th birthday!
 
-May “the Lord bless [you], and keep [you]: The Lord make his face shine upon [you], and be gracious unto [you]: The Lord lift up his countenance upon [you], and give [you] peace.” (Num. 6:24–26.)
+May “the Lord bless \[you\], and keep \[you\]: The Lord make his face shine upon \[you\], and be gracious unto \[you\]: The Lord lift up his countenance upon \[you\], and give \[you\] peace.” ([[Numbers 6.24|Num. 6:24–26]][[Numbers 6.25|]][[Numbers 6.26|]].)
 
 In the name of the Prince of Peace, Jesus Christ the Lord, amen.
+
+
+
+
+[^1]: *A Woman’s Reach* (Salt Lake City: Deseret Book Co., 1974), p. 21.
+
+[^2]: *Church News,* 15 Feb. 1992, p. 7.
+
+[^3]: *The Complete Poetical Works of James Russell Lowell* (Boston: Houghton, Mifflin Co., 1925), p. 110.
+
+[^4]: *Rousseau and the Sentimentalists,* quoted in John Bartlett, *Familiar Quotations,* 14th ed. (Boston: Little, Brown and Co., 1968), p. 695.
+
+[^5]: *Deseret Sunday School Songs* (Salt Lake City: Deseret Sunday School Union, 1909), no. 197.
+
+[^6]: “Gifts,” in *The Complete Writings of Ralph Waldo Emerson* (New York: Wm. H. Wise and Co., 1929), p. 286.
 

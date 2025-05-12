@@ -1,17 +1,18 @@
 # “The Gospel of Jesus Christ Is the Golden Door”
-*By By Bishop Vaughn J. Featherstone - Second Counselor in the Presiding Bishopric*
+
+By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1973 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1973/10/the-gospel-of-jesus-christ-is-the-golden-door?lang=eng)
 
-At a news conference in Mexico City after the area conference, President Marion G. Romney was invited by a newsman to answer a question. The question was this: Do you have a welfare program in your church? And President Romney responded, “Yes, and if you join the Church, you can contribute to it also.”
+At a news conference in Mexico City after the area conference, President Marion G. Romney was invited by a newsman to answer a question. The question was this: Do you have a welfare program in your church? And President Romney responded, “Yes, and if you join the Church, you can contribute to it also.”
 
 That is a true principle of welfare and one that we should understand. Welfare is literally giving and not receiving in the Church of Jesus Christ.
 
-In the 107th section of the Doctrine and Covenants, we read: “The office of a bishop is in administering all temporal things;” and also to be a judge in Israel, “to do the business of the church, to sit in judgment upon transgressors. ...” (D&C 107:68, 72.)
+In the 107th section of the Doctrine and Covenants, we read: “The office of a bishop is in administering all temporal things;” and also to be a judge in Israel, “to do the business of the church, to sit in judgment upon transgressors. …” ([[D&C 107.68|D&C 107:68, 72]][[D&C 107.72|]].)
 
-And then in the 72nd section, we read that he is to keep the bishops storehouse. (D&C 72:10.)
+And then in the 72nd section, we read that he is to keep the bishops storehouse. ([[D&C 72.10|D&C 72:10]].)
 
 Now in the Church in order to fill the bishops storehouse we have a commodity budget, and we assign this out to the regions; they in turn assign it to the stakes and the wards. In some cases it is in commodities and in some cases it is in money, cash in lieu. And as these funds come into the Church, then we use them to take care of the needs of the poor throughout the regions of the Church.
 
@@ -19,7 +20,7 @@ Now, brethren, during the past year we have not taken sufficient into the bishop
 
 The storehouse is to furnish the food for approximately 3 percent of the Church. Around 96,000 people receive commodities from the storehouse. We have a one-year inventory to supply needs for this 3 percent drawing from the storehouse. Brethren, bishops, those who administer these great funds and commodities, would you recall with me some principles that I think are urgent?
 
-For example, in the bishops storehouse we have foods that are going to the homes of our less fortunate Saints. We feel possibly as you deal with these commodities you may need to make some slight adjustments. We feel the best commodities that are produced on our projects should be brought into the storehouses, not the culls from the farm or from the flocks or from the herds of cattle. We think it ought to be the very best, for do we not recall the scripture, “Inasmuch as ye have done it unto ... the least of these my brethren, ye have done it unto me.” (Matt. 25:40.) I believe that is a two-edged sword, and if we give to the Lord, or give to these fine Saints who receive from the bishops storehouse the culls, I believe then that we might be dealt with justly by the Lord in a like manner.
+For example, in the bishops storehouse we have foods that are going to the homes of our less fortunate Saints. We feel possibly as you deal with these commodities you may need to make some slight adjustments. We feel the best commodities that are produced on our projects should be brought into the storehouses, not the culls from the farm or from the flocks or from the herds of cattle. We think it ought to be the very best, for do we not recall the scripture, “Inasmuch as ye have done it unto … the least of these my brethren, ye have done it unto me.” ([[Matthew 25.40|Matt. 25:40]].) I believe that is a two-edged sword, and if we give to the Lord, or give to these fine Saints who receive from the bishops storehouse the culls, I believe then that we might be dealt with justly by the Lord in a like manner.
 
 Now there are some principles we also need to understand. One is this: when stake presidents and bishops contribute to the general committee from your projects, would you consider that we must have the very best. For example, we had one stake president in a nearby stake who the central storehouse called and said, “We need a few head of cattle.” The wholesale index that the Church was working on was a little under that which represented the present market. He said, “No, we won’t furnish you the cattle. We will sell them and then we will give you the cash in lieu,” which he did. They gave us the cash in lieu, brethren. We had to go out on the wholesale market and buy dressed beef at an up price. Now you think about that. It is all the Lord’s money. I don’t believe he would be pleased with that kind of a transaction. I wouldn’t want to offend anyone. I just think we ought to give the best we have to the Lord’s storehouse.
 
@@ -37,7 +38,7 @@ In Isaiah, the 58th chapter, the 6th verse, the Lord gives a great promise to th
 
 “Is it not to deal thy bread to the hungry, and that thou bring the poor that are cast out to thy house? when thou seest the naked, that thou cover him; and that thou hide not thyself from thine own flesh?”
 
-Then if you do this, he promises this: “Then shall thy light break forth as the morning, and thine health shall spring forth speedily: and thy righteousness shall go before thee; the glory of the Lord shall answer; thou shalt cry, and he shall say, Here I am.” (Isa. 58:6–9.)
+Then if you do this, he promises this: “Then shall thy light break forth as the morning, and thine health shall spring forth speedily: and thy righteousness shall go before thee; the glory of the Lord shall answer; thou shalt cry, and he shall say, Here I am.” ([[Isaiah 58.6|Isa. 58:6–9]][[Isaiah 58.7|]][[Isaiah 58.8|]][[Isaiah 58.9|]].)
 
 Now brethren, if I gave to a fast offering fund or contributed to a welfare production project, I want to tell you that if I did it for no other reason than to know that when I would cry the Lord would say, “Here I am,” that would be motivation enough.
 
@@ -47,71 +48,50 @@ Now a great, pure-in-heart King Benjamin said: “And ye will not suffer that th
 
 “But I say unto you, O man, whosoever doeth this the same hath great cause to repent; and except he repenteth of that which he hath done he perisheth forever, and hath no interest in the Kingdom of God.
 
-“For behold, are we not all beggars?” (Mosiah 4:16–19.)
+“For behold, are we not all beggars?” ([[Mosiah 4.16|Mosiah 4:16–19]][[Mosiah 4.17|]][[Mosiah 4.18|]][[Mosiah 4.19|]].)
 
 I believe King Benjamin laid it on the line with us, brethren. Now think about that principle. I believe if we would use wisdom as we deal with the bishops storehouse, I think the Lord would be pleased. Let’s use wisdom in distributing those sacred funds, those sacred commodities, and change the mix if necessary, but let’s do it righteously and with the best wisdom with which the Lord has blessed us.
 
-Now I would like to switch to a subject that I feel is welfare service-oriented. As President Lee discussed in his talk the great compromise in many different areas, I want to tell you what is going on in the area of work. The subject I would like to address myself to the young men of the Church is work. Brethren, there is no substitute for work. You cannot be lazy. Businesses who say, “Come with us and work for us; the wages are high and the labor is easy; the work week has been reduced considerably,” have only shame to offer. You are destroying your soul and character when you accept such an offer. The Lord expects us to be industrious; he expects us to be mentally and physically ambitious with all our hearts and souls. And I promise you this—that this compromise work attitude never was what the Lord intended.
+Now I would like to switch to a subject that I feel is welfare service-oriented. As President Lee discussed in his talk the great compromise in many different areas, I want to tell you what is going on in the area of work. The subject I would like to address myself to the young men of the Church is *work.* Brethren, there is no substitute for work. You cannot be lazy. Businesses who say, “Come with us and work for us; the wages are high and the labor is easy; the work week has been reduced considerably,” have only shame to offer. You are destroying your soul and character when you accept such an offer. The Lord expects us to be industrious; he expects us to be mentally and physically ambitious with all our hearts and souls. And I promise you this—that this compromise work attitude never was what the Lord intended.
 
-President J. Reuben Clark said: “We must purge our hearts of the love of ease; we must put from our lives the curse of idleness.” And then President Lee has said, “The greatest poverty is the poverty of desire.” President Kimball said, “Only the mediocre person is always at his best.” And Brother Thomas S. Monson has said in his W formula: “Work will win when wishy-washy wishing won’t.” Dorothea Brande in her book Wake Up and Live (Cornerstone Library, Inc., New York, 1968), says that we ought to “act as though it were impossible to fail.” That is true, brethren, in the Church. The Lord wants us to be successful, and it is especially true here.
+President J. Reuben Clark said: “We must purge our hearts of the love of ease; we must put from our lives the curse of idleness.” And then President Lee has said, “The greatest poverty is the poverty of desire.” President Kimball said, “Only the mediocre person is always at his best.” And Brother Thomas S. Monson has said in his W formula: “Work will win when wishy-washy wishing won’t.” Dorothea Brande in her book *Wake Up and Live* (Cornerstone Library, Inc., New York, 1968), says that we ought to “act as though it were impossible to fail.” That is true, brethren, in the Church. The Lord wants us to be successful, and it is especially true here.
 
 There is a modern-day version of “The Little Red Hen” that I would like to leave with you. I think it is very impressive. It is simply this:
 
-“Said the big white rooster, ‘Gosh all hemlock; things are really tough,
-
-Seems that worms are getting scarcer and I cannot find enough;
-
-What’s become of all those fat ones is a mystery to me;
-
-There were thousands through the rosy spell but now where can they be?’
-
-“The little red hen who heard him didn’t grumble or complain,
-
-She had gone through lots of dry spells, she had lived through floods of rain;
-
-So she flew up on the grindstone and she gave her claws a whet,
-
-As she said: ‘I’ve never seen the time there were no worms to get.’
-
-She picked a new and undug spot—the earth was hard and firm,
-
-The big white rooster jeered, ‘New ground! That’s no place for a worm.’
-
-“The little red hen just spread her feet, she dug both fast and free,
-
-‘I must go to the worms,’ she said, ‘the worms won’t come to me.’
-
-“The rooster vainly spent his day, through habit, by the ways
-
-Where fat worms have passed in squads, back in the rainy days.
-
-When nightfall found him supperless, he growled in accents rough,
-
-‘I’m hungry as a fowl can be—conditions sure are tough.’
-
-He turned then to the little red hen and said, ‘It’s worse with you,
-
-‘For you’re not only hungry but you must be tired, too.
-
-‘I rested while I watched for worms so I feel fairly perk,
-
-‘But how are you? Without worms, too? And after all that work.’
-
-“The little red hen hopped to her perch and dropped her eyes to sleep,
-
-And murmured in a drowsy tone, ‘Young man, hear this and weep,
-
-I’m full of worms and happy, for I’ve dined both long and well,
-
-The worms are there as always—but I had to dig like heck.’
-
-“Oh, here and there, white roosters still are holding sales positions,
-
-They cannot do much business now, because of poor conditions,
-
-But soon as things get right again, they’ll sell a hundred firms—
-
-Meanwhile the little red hens are out a-gobbling up the worms.”
+>“Said the big white rooster, ‘Gosh all hemlock; things are really tough,
+>Seems that worms are getting scarcer and I cannot find enough;
+>What’s become of all those fat ones is a mystery to me;
+>There were thousands through the rosy spell but now where can they be?’
+>
+>“The little red hen who heard him didn’t grumble or complain,
+>She had gone through lots of dry spells, she had lived through floods of rain;
+>So she flew up on the grindstone and she gave her claws a whet,
+>As she said: ‘I’ve never seen the time there were no worms to get.’
+>She picked a new and undug spot—the earth was hard and firm,
+>The big white rooster jeered, ‘New ground! That’s no place for a worm.’
+>
+>“The little red hen just spread her feet, she dug both fast and free,
+>‘I must go to the worms,’ she said, ‘the worms won’t come to me.’
+>
+>“The rooster vainly spent his day, through habit, by the ways
+>Where fat worms have passed in squads, back in the rainy days.
+>When nightfall found him supperless, he growled in accents rough,
+>‘I’m hungry as a fowl can be—conditions sure are tough.’
+>He turned then to the little red hen and said, ‘It’s worse with you,
+>‘For you’re not only hungry but you must be tired, too.
+>‘I rested while I watched for worms so I feel fairly perk,
+>‘But how are you? Without worms, too? And after all that work.’
+>
+>“The little red hen hopped to her perch and dropped her eyes to sleep,
+>And murmured in a drowsy tone, ‘Young man, hear this and weep,
+>I’m full of worms and happy, for I’ve dined both long and well,
+>The worms are there as always—but I had to dig like heck.’
+>
+>“Oh, here and there, white roosters still are holding sales positions,
+>They cannot do much business now, because of poor conditions,
+>But soon as things get right again, they’ll sell a hundred firms—
+>Meanwhile the little red hens are out a-gobbling up the worms.”
+>
 
 I am indebted to a good friend of mine, Aldin Porter, for a story and I would like to share it with you. He shared it with me about two years ago.
 
@@ -125,7 +105,7 @@ I am indebted to a good friend of mine, Aldin Porter, for a story and I would li
 
 “‘Don’t you live in that green house with the willow trees in the next block?’
 
-“‘Yes, ma’am.’ ...
+“‘Yes, ma’am.’ …
 
 “‘Good. I’ve lost my gardener. Be at my house Thursday morning at seven, and don’t tell me you have something else to do; I’ve seen you slouching around on Thursdays.’
 
@@ -157,9 +137,9 @@ I am indebted to a good friend of mine, Aldin Porter, for a story and I would li
 
 “‘Well, don’t feel too bad,’ she would comfort me. ‘After all, there are only a handful of people in the world who could do a four-dollar job.’
 
-“And her words were a comfort at first, but then, without my noticing what was happening, her comfort became an irritant that made me resolve to do that four-dollar job, even if it killed me. In the fever of my resolve, I could see myself expiring on her lawn, with the Countess leaning over me, handing me the four dollars with a tear in her eye, begging my forgiveness for having thought I couldn’t do it.
+“And her words *were* a comfort at first, but then, without my noticing what was happening, her comfort became an irritant that made me resolve to do that four-dollar job, even if it killed me. In the fever of my resolve, I could see myself expiring on her lawn, with the Countess leaning over me, handing me the four dollars with a tear in her eye, begging my forgiveness for having thought I couldn’t do it.
 
-“It was in the middle of such a fever, one Thursday night when I was trying to forget the day’s defeat and get some sleep, that the truth hit me so hard that I sat upright, half choking in my excitement. It was the five-dollar job I had to do, not the four-dollar one! I had to do the job that no one could do because it was impossible.
+“It was in the middle of such a fever, one Thursday night when I was trying to forget the day’s defeat and get some sleep, that the truth hit me so hard that I sat upright, half choking in my excitement. It was the *five-dollar* job I had to do, not the four-dollar one! I had to do the job that no one could do because it was impossible.
 
 “I was well acquainted with the difficulties ahead. I had the problem, for example, of doing something about the worm mounds in the lawn. The Countess might not even have noticed them yet, they were so small; but in my bare feet I knew about them and I had to do something about them. And I could go on trimming the garden edges with shears, but I knew that a five-dollar lawn demanded that I line up each edge exactly with a yard stick and then trim it precisely with the edger. And there were other problems that only I and my bare feet knew about.
 
@@ -167,7 +147,7 @@ I am indebted to a good friend of mine, Aldin Porter, for a story and I would li
 
 “I followed this secret for the rest of the day, dozing for a few minutes every hour to regain my perspective and replenish my strength. Between naps, I mowed four times, two times lengthwise, two times across, until the lawn looked like a green velvet checkerboard. Then I dug around every tree, crumbling the big clods and smoothing the soil with my hands, then finished with the edger, meticulously lining up each stroke so that the effect would be perfectly symmetrical. And I carefully trimmed the grass between the flagstones of the front walk. The shears wore my fingers raw, but the walk never looked better.
 
-“Finally about eight o’clock that evening ... it was all completed. I was so proud I didn’t even feel tired when I went up to her door.
+“Finally about eight o’clock that evening … it was all completed. I was so proud I didn’t even feel tired when I went up to her door.
 
 “‘Well, what is it today?’ she asked.
 
@@ -189,23 +169,23 @@ I am indebted to a good friend of mine, Aldin Porter, for a story and I would li
 
 “She could see she was right by the startled look on my face.
 
-“‘I know how you felt, because the same thing happens to almost everyone. They feel this sudden burst in them of wanting to do some great thing. They feel a wonderful happiness, but then it passes because they have said, “No, I can’t do that. It’s impossible.” Whenever something in you says, “It’s impossible,” remember to take a careful look and see if it isn’t really God asking you to grow an inch, or a foot, or a mile, that you may come to a fuller life.’ ...
+“‘I know how you felt, because the same thing happens to almost everyone. They feel this sudden burst in them of wanting to do some great thing. They feel a wonderful happiness, but then it passes because they have said, “No, I can’t do that. It’s impossible.” Whenever something in you says, “It’s impossible,” remember to take a careful look and see if it isn’t really God asking you to grow an inch, or a foot, or a mile, that you may come to a fuller life.’ …
 
-“Since that time, some 25 years ago, when I have felt myself at an end with nothing before me, suddenly, with the appearance of that word, ‘impossible,’ I have experienced the unexpected lift, the leap inside me, and known that the only possible way lay through the very middle of impossible.” (Richard Thurman, “The Countess and the Impossible,” Reader’s Digest, June 1958.)
+“Since that time, some 25 years ago, when I have felt myself at an end with nothing before me, suddenly, with the appearance of that word, ‘impossible,’ I have experienced the unexpected lift, the leap inside me, and known that the only possible way lay through the very middle of impossible.” (Richard Thurman, “The Countess and the Impossible,” *Reader’s Digest,* June 1958.)
 
 Now, my brethren in the Church, all things are possible in the Church. We can accomplish anything. This is the Lord’s work. I want to testify to you that we must be wise. Don’t be a sluggard. Do a day’s work. Give it your heart and soul, and the Lord will bless you with success and prosper you. This is his kingdom.
 
 Emma Lazarus has written words which describe the great Statue of Liberty. These words have special meaning to us in the Church, for truly these same words entreating all to come to America may well apply to the Church. I will just quote the last few lines. She said:
 
-“Give me your tired, your poor,
-
-Your huddled masses yearning to breathe free;
-
-The wretched refuse of your teeming shore,
-
-Send these, the homeless, tempest-tossed to me,
-
-I lift my lamp beside the golden door.”
+>“Give me your tired, your poor,
+>Your huddled masses yearning to breathe free;
+>The wretched refuse of your teeming shore,
+>Send these, the homeless, tempest-tossed to me,
+>I lift my lamp beside the golden door.”
+>
 
 The gospel of Jesus Christ is the golden door, in the name of Jesus Christ, Amen.
+
+
+
 

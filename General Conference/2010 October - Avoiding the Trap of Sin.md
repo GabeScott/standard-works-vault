@@ -1,7 +1,10 @@
 # Avoiding the Trap of Sin
-*By Jairo Mazzagardi - Of the Seventy*
+
+By Elder Jairo Mazzagardi - *Of the Seventy*
 
 *Given in the October session of the 2010 General Conference*
+
+>*Stay strong and make good choices that will allow you to eat the fruit of the tree of life.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/10/avoiding-the-trap-of-sin?lang=eng)
 
@@ -33,7 +36,7 @@ I then explained to her that it was only a symbol, or an example, of how sin get
 
 I don’t know what the effect of our conversation will be on her, but it made me think of the many faces of sin and of how it sneaks into our lives if we allow it to.
 
-We must be alert because small choices can bring great consequences, just as going to bed early and waking up early have great consequences. Doctrine and Covenants 88:124 teaches us, “Arise early, that your bodies and your minds may be invigorated.” Those who go to bed early wake up rested, with the body and mind invigorated and blessed by the Lord because of obedience.
+We must be alert because small choices can bring great consequences, just as going to bed early and waking up early have great consequences. [[D&C 88.124|Doctrine and Covenants 88:124]] teaches us, “Arise early, that your bodies and your minds may be invigorated.” Those who go to bed early wake up rested, with the body and mind invigorated and blessed by the Lord because of obedience.
 
 What may appear to be of little importance, such as going to bed late, not praying for a day, skipping fasting, or breaking the Sabbath—such little slips—will make us lose sensitivity little by little, allowing us to do worse things.
 
@@ -47,9 +50,9 @@ This terrible monster causes pain and suffering both to the user and to his or h
 
 Decisions about standards to follow must be made in advance, not when temptation appears. Our parameters must be:
 
-This I will do because it is right, it comes from the Lord, and it will bring me happiness.
+- This I will do because it is right, it comes from the Lord, and it will bring me happiness.
 
-This I will not do because it will drag me away from truth, from the Lord, and from the eternal happiness He promises to the faithful and obedient.
+- This I will not do because it will drag me away from truth, from the Lord, and from the eternal happiness He promises to the faithful and obedient.
 
 Since the Father knew we would make wrong choices, He, in His wonderful plan of love, provided a Savior of the world to atone for the sins of all those who repent; who come to Him looking for help, consolation, and forgiveness; and who are willing to take upon them His name, Jesus Christ.
 
@@ -57,7 +60,7 @@ If we sin, we must look for help quickly because alone we cannot escape sin’s 
 
 Parents can help, and the bishop is called by God to help us. It is to him that we must go and open our hearts.
 
-Doctrine and Covenants 58:42–43 explains:
+[[D&C 58.42|Doctrine and Covenants 58:42–43]][[D&C 58.43|]] explains:
 
 “Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.
 
@@ -67,7 +70,7 @@ A few months after our walk near the lake, my granddaughter was interviewed by h
 
 Bishops, I hope you take that response seriously. It seems to me that my granddaughter grew a lot in understanding in a very short time.
 
-Just as the tree I have described brought sadness, pain, suffering, and entrapment, another tree can bring the opposite. It is mentioned in 1 Nephi 8:10–12:
+Just as the tree I have described brought sadness, pain, suffering, and entrapment, another tree can bring the opposite. It is mentioned in [[1 Nephi 8.10|1 Nephi 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]]:
 
 “And it came to pass that I beheld a tree, whose fruit was desirable to make one happy.
 
@@ -84,4 +87,7 @@ Jesus Christ loves us so much that He gave His life in atonement for our sins!
 What are we willing to give to be clean and receive that joy?
 
 Of these truths I bear my testimony in the holy name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # A New Health Missionary Program
-*By By James O. Mason - Commissioner, Health Services Corporation*
+
+By James O. Mason - *Commissioner, Health Services Corporation*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -38,4 +39,7 @@ Even though we may have the ability to prevent their deaths from illness, this f
 Oh, brethren, I challenge you to prepare for missionary calls, not only to go out and preach the gospel of Jesus Christ at home and abroad, but to go forth in love and brotherhood, using your professional and vocational skills to reach out and lift up. Physicians, dentists, and nurses, social workers, agricultural specialists, people with knowledge in marketing and home industry—all of your skills and talents are required if we are going to be a blessing to those whose needs are so great.
 
 I pray that we might have the vision of this great program, that we might prepare ourselves, that many might receive such a calling and go forth to provide a great service. This is my prayer as I bear testimony to the divinity of this great latter-day work in the name of our Savior, Jesus Christ. Amen.
+
+
+
 

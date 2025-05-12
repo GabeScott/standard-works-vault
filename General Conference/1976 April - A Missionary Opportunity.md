@@ -1,5 +1,6 @@
 # A Missionary Opportunity
-*By Carlos E. Asay - Of the First Quorum of the Seventy*
+
+By Elder Carlos E. Asay - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -21,7 +22,10 @@ And fourth, we succeed because we do what we do on the strength and power of per
 
 It’s true. And, oh, how happy I am that I have been given an opportunity to take an active role again in missionary work.
 
-Perhaps I can conclude by making reference to something that Nephi said. He said: “My soul delighteth in the scriptures.” (2 Ne. 4:15.) Mine does. He said: “My soul delighteth in proving unto my people the truth of the coming of Christ.” My soul delights in that also. He said: “My soul delighteth in the covenants of the Lord which he hath made to our fathers; yea, my soul delighteth in his grace, and in his justice, and power, and mercy in the great and eternal plan of deliverance from death.” My soul delights in that too. And he said: “My soul delighteth in proving unto my people that save Christ should come all men must perish.” (2 Ne. 11:4–6.) I know this to be fact.
+Perhaps I can conclude by making reference to something that Nephi said. He said: “My soul delighteth in the scriptures.” ([[2 Nephi 4.15|2 Ne. 4:15]].) Mine does. He said: “My soul delighteth in proving unto my people the truth of the coming of Christ.” My soul delights in that also. He said: “My soul delighteth in the covenants of the Lord which he hath made to our fathers; yea, my soul delighteth in his grace, and in his justice, and power, and mercy in the great and eternal plan of deliverance from death.” My soul delights in that too. And he said: “My soul delighteth in proving unto my people that save Christ should come all men must perish.” ([[2 Nephi 11.4|2 Ne. 11:4–6]][[2 Nephi 11.5|]][[2 Nephi 11.6|]].) I know this to be fact.
 
 I pray the Lord will bless me and make me capable and equal to the task ahead, that he will be patient with me and forgiving of all my sins and shortcomings. I sustain the prophet; I sustain the Brethren. I am humbled with the prospects of working with them. In the name of Jesus Christ. Amen.
+
+
+
 

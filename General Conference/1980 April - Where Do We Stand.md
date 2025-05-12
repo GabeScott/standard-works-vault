@@ -1,5 +1,6 @@
 # Where Do We Stand?
-*By Mark E. Petersen - Of the Quorum of the Twelve Apostles*
+
+By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -21,21 +22,21 @@ We have a welfare program which is the envy of nations. We make an earnest effor
 
 Our temple work moves forward magnificently. We are building additional temples in various parts of the world as we take the ordinances of salvation to more and more people. The service rendered in those holy structures exceeds anything ever known in the past.
 
-We take humble pride in the rapid growth, the marvelous accomplishments, and the stability of our people. “By their fruits ye shall know them,” the Savior taught (Matt. 7:20). Our fruits bear testimony of our devotion to Almighty God, of our firm commitment to carry on his modern ministry, and of the validity of the message which we bear.
+We take humble pride in the rapid growth, the marvelous accomplishments, and the stability of our people. “By their fruits ye shall know them,” the Savior taught ([[Matthew 7.20|Matt. 7:20]]). Our fruits bear testimony of our devotion to Almighty God, of our firm commitment to carry on his modern ministry, and of the validity of the message which we bear.
 
 And what is our message?
 
-First and foremost, it is that God does live, that he is our Eternal Father and our Creator. All human beings are his offspring. Knowing this, we accept the commandment of the Savior to perfect ourselves so that we may be like him.
+First and foremost, it is that God *does* live, that he is our Eternal Father and our Creator. All human beings are his offspring. Knowing this, we accept the commandment of the Savior to perfect ourselves so that we may be like him.
 
 Next we affirm that Jesus of Nazareth is indeed the Christ—he who was born in Bethlehem on the first Christmas; he who answered the questions of the doctors in the temple when but twelve years old; he who was baptized of John; he who walked the plains of Palestine preaching his gospel, healing many who were sick, and raising some of the dead; he who was persecuted by the religious cults of the day, was condemned to the cross, but who conquered death and the grave in a glorious resurrection on the third day afterward.
 
-He is the Savior of mankind! He is the Redeemer of all flesh! He did arise from the grave. He is risen, as the angel said, in physical, corporeal reality. And he lives today! Our modern prophets have seen him face to face and have talked with him. We know that he lives and by his resurrection he will also give to each of us a victory over death, for we too shall be resurrected—physically and literally. We too shall live again. That is our testimony on this Easter day.
+He *is* the Savior of mankind! He *is* the Redeemer of all flesh! He *did* arise from the grave. He *is* risen, as the angel said, in physical, corporeal reality. And he lives today! Our modern prophets have seen him face to face and have talked with him. We know that he lives and by his resurrection he will also give to each of us a victory over death, for we too shall be resurrected—physically and literally. We too shall live again. That is our testimony on this Easter day.
 
 We testify also that Christ has spoken again in our day, that he has raised up new prophets and through them has reestablished his Church on earth as it was originally when he called Peter, James, and John, Thomas, Judas, and others into the ministry.
 
-The divine gospel was lost over the centuries, human philosophies displaced revealed doctrine, and the holy priesthood was taken away. But now it is all restored! We testify that it is restored! Revelation again comes from heaven. Prophets once more walk among us, and the truth is offered freely to all who will listen. God’s modern dispensation now shines as a brilliant ensign to the nations, just as the prophets foretold.
+The divine gospel was lost over the centuries, human philosophies displaced revealed doctrine, and the holy priesthood was taken away. But now it is all restored! We testify that it *is* restored! Revelation again comes from heaven. Prophets once more walk among us, and the truth is offered freely to all who will listen. God’s modern dispensation now shines as a brilliant ensign to the nations, just as the prophets foretold.
 
-But as it shines, opposition grows. As truth is spread abroad, deceit and dishonesty arise to oppose it. As virtue is taught by the servants of God, unchastity increases among the ungodly. Indeed, as the Prophet Lehi said, “There is an opposition in all things” (2 Ne. 2:11); and as truth manifests itself, the adversary seeks to strike it down.
+But as it shines, opposition grows. As truth is spread abroad, deceit and dishonesty arise to oppose it. As virtue is taught by the servants of God, unchastity increases among the ungodly. Indeed, as the Prophet Lehi said, “There is an opposition in all things” ([[2 Nephi 2.11|2 Ne. 2:11]]); and as truth manifests itself, the adversary seeks to strike it down.
 
 In a very real sense it is a war—a hot war—a war between right and wrong, between the powers of heaven and the forces of Lucifer.
 
@@ -45,7 +46,7 @@ This is not a war for territory or wealth; it is a contest for the eternal souls
 
 Our forces are strong. We have had many glorious victories and will yet have more. Our task is to save all who will listen.
 
-God’s work and glory are the same: “To bring to pass the immortality and eternal life of man” (Moses 1:39). We work together in partnership with him.
+God’s work and glory are the same: “To bring to pass the immortality and eternal life of man” ([[Moses 1.39|Moses 1:39]]). We work together in partnership with him.
 
 But how many of us realize how serious this conflict is? Do we measure its effect upon our own family circles? Do we understand what the devil is trying to do to us? Do we recognize his evil emissaries for what they are when they openly assail us or when they seek deceitfully to seduce us quietly?
 
@@ -55,7 +56,7 @@ Because he revels in filth, he would tell us that to be clean is some naive conc
 
 Do we recognize it when it is flung at us by our angry foes or when it comes with a soft voice and a disarming smile? Do we truly recognize evil when we see it? Do we really know right from wrong? If we do not, then let us hasten to learn from our Church leaders. They will tell us quickly and plainly.
 
-If we do know what is right, have we the courage to stand up for it, to defend virtue, to declare the validity of our faith, to oppose false teachings, and to fight the unpopular battle? Have we the moral stamina to confront any and all opportunities and thus preserve truth, uphold cleanliness, and defend the cause of God?
+If we *do* know what is right, have we the courage to stand up for it, to defend virtue, to declare the validity of our faith, to oppose false teachings, and to fight the unpopular battle? Have we the moral stamina to confront any and all opportunities and thus preserve truth, uphold cleanliness, and defend the cause of God?
 
 The time has come when we must take a far more firm and positive stand than ever before. We must identify illicit sex, pornography, filthy speech, and the use of liquor, tobacco, marijuana, and worse drugs as enemies of God and enemies to ourselves.
 
@@ -67,29 +68,17 @@ We must ask ourselves anew the potent question: Who’s on the Lord’s side? Wh
 
 And we must understand that:
 
-Now is the time to show;
-
-We ask it fearlessly;
-
-Who’s on the Lord’s side? Who?
-
-We wage no common war,
-
-Cope with no common foe;
-
-The enemy’s awake;
-
-Who’s on the Lord’s side? Who? ...
-
-Our ensign to the world
-
-Is floating proudly now;
-
-No coward bears our flag;
-
-Who’s on the Lord’s side? Who?
-
-(Hymns, no. 175.)
+>Now is the time to show;
+>We ask it fearlessly;
+>Who’s on the Lord’s side? Who?
+>We wage no common war,
+>Cope with no common foe;
+>The enemy’s awake;
+>Who’s on the Lord’s side? Who? …
+>Our ensign to the world
+>Is floating proudly now;
+>No coward bears our flag;
+>
 
 Have you a precious child? Would you save his soul? Would you fight to protect him from immorality, pornography, liquor, tobacco, and drugs? Do you shield him from evil companions?
 
@@ -121,27 +110,30 @@ Is it too much to hold a home evening each Monday and there teach our family the
 
 Is it too much to believe sufficiently in the Lord so that we will accept his word and really obey him?
 
-Is it too much to remember that God has said that if we are not valiant in the testimony of Jesus we shall lose the crown over the kingdom (see D&C 76:78–79)?
+Is it too much to remember that God has said that if we are not valiant in the testimony of Jesus we shall lose the crown over the kingdom (see [[D&C 76.78|D&C 76:78–79]][[D&C 76.79|]])?
 
-Is it too much to keep in mind—and may we never forget—that if we receive the commandments with a doubtful heart and keep them with slothfulness, we shall be condemned (see D&C 58:26–29)?
+Is it too much to keep in mind—and may we never forget—that if we receive the commandments with a doubtful heart and keep them with slothfulness, we shall be condemned (see [[D&C 58.26|D&C 58:26–29]][[D&C 58.27|]][[D&C 58.28|]][[D&C 58.29|]])?
 
-There is no reward for half-hearted obedience. We must become vigorous and enthusiastic about living our religion, for God commands that we serve him with all our heart, with all our might, with all our strength, and with the very best of our intelligence.
+There is no reward for half-hearted obedience. We must become vigorous and enthusiastic about living our religion, for God commands that we serve him with *all* our heart, with *all* our might, with *all* our strength, and with the very best of our intelligence.
 
-With him there can be no halfway measures. We must be fully for him or we may be classed with those who are against him.
+With him there can be no halfway measures. We must be fully *for* him or we may be classed with those who are *against* him.
 
 Then what shall we do? Put on the whole armour of God—that is what we are to do:
 
 “Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
 
-“... Take unto you the whole armour of God, that ye may be able to withstand in the evil day. ...
+“… Take unto you the whole armour of God, that ye may be able to withstand in the evil day. …
 
 “Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
 
 “Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
 
-“And take the helmet of salvation, and the sword of the Spirit, which is the word of God” (Eph. 6:11, 13, 14, 16–17).
+“And take the helmet of salvation, and the sword of the Spirit, which is the word of God” ([[Ephesians 6.11|Eph. 6:11, 13, 14, 16–17]][[Ephesians 6.13|]][[Ephesians 6.14|]][[Ephesians 6.16|]][[Ephesians 6.17|]]).
 
-As Paul further said, let us not be “men-pleasers,” but be true servants of God, doing his will from the heart (see Eph. 6:6).
+As Paul further said, let us not be “men-pleasers,” but be true servants of God, doing his will from the heart (see [[Ephesians 6.6|Eph. 6:6]]).
 
 For this I humbly pray in the sacred name of the Lord, Jesus Christ, amen.
+
+
+
 

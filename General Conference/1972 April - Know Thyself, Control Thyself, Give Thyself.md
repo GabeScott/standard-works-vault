@@ -1,5 +1,6 @@
 # Know Thyself, Control Thyself, Give Thyself
-*By Paul H. Dunn - Of the Seventy*
+
+By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -25,11 +26,11 @@ Now you young priesthood bearers, I have repented; and I am grateful for bishops
 
 I have been impressed here tonight with a number of things. I have reflected upon the great talks of this conference, wonderful sermons, good counsel and advice. Tonight I would like to summarize my feelings, directed to you, the Aaronic Priesthood, for what value it might have in your lives.
 
-I think if I could give a whole sermon in just six words it would be these: Socrates said many years ago, “Know thyself,” Cicero said, “Control thyself,” and the Savior said, “Give thyself.” Now will you write that down, young brethren; contemplate the meaning while I just share a thought concerning each one.
+I think if I could give a whole sermon in just six words it would be these: Socrates said many years ago, *“Know thyself,”* Cicero said, *“Control thyself,”* and the Savior said, *“Give thyself.”* Now will you write that down, young brethren; contemplate the meaning while I just share a thought concerning each one.
 
 To know thyself is to come to know that you and I as priesthood bearers are literally the offspring of Deity; and that means, young men, that you and I were born to succeed; that in the preexistence you and I earned a right by our faithfulness and by our commitment to worthy principles to come into mortality in order that we might learn through the priesthood how to become like our Father.
 
-That means, if I understand the gospel correctly, that there isn’t one single failure among us. The word can’t is false doctrine in the Mormon Church. When a young man says to me, “I can’t do it,” I become concerned because in a sense he is saying, “I don’t understand the gospel.” He may not be motivated; he may have discouragements; there may be barriers in his life; but you can succeed.
+That means, if I understand the gospel correctly, that there isn’t one single failure among us. The word *can’t* is false doctrine in the Mormon Church. When a young man says to me, “I can’t do it,” I become concerned because in a sense he is saying, “I don’t understand the gospel.” He may not be motivated; he may have discouragements; there may be barriers in his life; but you *can* succeed.
 
 I promise you young priesthood bearers that if you really come to know who you are through the scriptures and through the revealed doctrine of this church, you can accomplish anything you want in this life.
 
@@ -73,11 +74,11 @@ Cicero said, “Control thyself.” I had the opportunity in World War II to bat
 
 Now that may not impress you, but you go to bat and you’re very impressed. To those of you who may not understand that velocity, a 9-inch baseball is the size of an aspirin tablet at 60 feet 6 inches, at 100 miles per hour. I submit to you, it makes a difference which side of the plate he throws it.
 
-Bob Feller at age sixteen had a problem. He lacked control. He was a great athlete. He had tremendous capacity. He was born to succeed. He knew himself, but he hadn’t disciplined his great talent of speed, so that it was questionable as to whether he would stick in the majors.
+Bob Feller at age sixteen had a problem. *He lacked control.* He was a great athlete. He had tremendous capacity. He was born to succeed. He knew himself, but he hadn’t disciplined his great talent of speed, so that it was questionable as to whether he would stick in the majors.
 
 But Bob Feller became the great athlete he was because he listened to wise counsel. He had great coaches, and one of them took him aside one day and said, “Bob, it really doesn’t matter whether you throw 105 miles an hour or 95. If you will take a little speed off your pitch and put the ball where it belongs, you will succeed!”
 
-We call that control in baseball, and you little leaguers know how important control is to a pitcher. Bob listened and became the strike-out artist of his era.
+We call that *control* in baseball, and you little leaguers know how important control is to a pitcher. Bob listened and became the strike-out artist of his era.
 
 You don’t know Jim Rusick, I think, unless you are related to him. I played ball with Jim. Jim Rusick was a sixteen-year-old boy on the Hollywood High School baseball team. He could throw a 9 1/2-inch baseball 105 miles an hour, but he wouldn’t listen to counsel. He didn’t learn to control the talent that he had, and Jim has never been heard of since.
 
@@ -130,4 +131,7 @@ We baptized him, and he is doing a fine work for the Church and is a great asset
 And I learned as President Tanner has taught us. Don’t judge! “Within the oyster shell uncouth, the purest pearl may hide, but oft you’ll find a heart of truth within a rough outside.”
 
 The Lord bless us, young brethren, to remember who we are, to control ourselves, and to give it to the Lord, to which I testify, in the name of Jesus Christ. Amen.
+
+
+
 

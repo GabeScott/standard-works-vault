@@ -1,7 +1,10 @@
 # Rise to Your Call
-*By Henry B. Eyring - Of the Quorum of the Twelve Apostles*
+
+By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
+
+>*The Lord will guide you by revelation just as He called you. You must ask in faith for revelation to know what you are to do.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2002/10/rise-to-your-call?lang=eng)
 
@@ -27,11 +30,11 @@ Your call has eternal consequences for others and for you. In the world to come,
 
 One of those promises is the second thing you need to know. It is that the Lord will guide you by revelation just as He called you. You must ask in faith for revelation to know what you are to do. With your call comes the promise that answers will come. But that guidance will come only when the Lord is sure you will obey. To know His will you must be committed to do it. The words “Thy will be done,” written in the heart, are the window to revelation.
 
-The answer comes by the Holy Spirit. You will need that guidance often. To have the Holy Ghost as your companion you must be worthy, cleansed by the Atonement of Jesus Christ. So, your obedience to the commandments, your desire to do His will, and your asking in faith will determine how clearly the Master can guide you by answers to your prayers.
+The answer comes by the Holy Spirit. You will need that guidance often. To have the Holy Ghost as your companion, you must be worthy, cleansed by the Atonement of Jesus Christ. So, your obedience to the commandments, your desire to do His will, and your asking in faith will determine how clearly the Master can guide you by answers to your prayers.
 
 Often the answers will come as you study the scriptures. They contain accounts of what the Lord did in His mortal ministry and the guidance He has given His servants. They have doctrine in them which will apply in every time and every situation. Pondering the scriptures will lead you to ask the right questions in prayer. And just as surely as the heavens were opened to Joseph Smith after he pondered the scriptures in faith, God will answer your prayers and He will lead you by the hand.
 
-There is a third thing you need to know: Just as God called you and will guide you, He will magnify you. You will need that magnification. Your calling will surely bring opposition. You are in the Master’s service. You are His representative. Eternal lives depend on you. He faced opposition, and He said that facing opposition would be the lot of those He called. The forces arrayed against you will try not only to frustrate your work but to bring you down. The Apostle Paul described it this way: “For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world.”1
+There is a third thing you need to know: just as God called you and will guide you, He will magnify you. You will need that magnification. Your calling will surely bring opposition. You are in the Master’s service. You are His representative. Eternal lives depend on you. He faced opposition, and He said that facing opposition would be the lot of those He called. The forces arrayed against you will try not only to frustrate your work but to bring you down. The Apostle Paul described it this way: “For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world.”[^1]
 
 There will be times when you will feel overwhelmed. One of the ways you will be attacked is with the feeling that you are inadequate. Well, you are inadequate to answer a call to represent God with only your own powers. But you have access to more than your natural capacities, and you do not work alone.
 
@@ -45,15 +48,15 @@ Nothing came. In my heart and mind there was only silence. After a few moments, 
 
 When you are released from your calling, you will learn what I learned then. God magnifies those He calls, even in what may seem to you a small or inconspicuous service. You will have the gift of seeing your service magnified. Give thanks while that gift is yours. You will appreciate its worth more than you can imagine when it is gone.
 
-The Lord will not only magnify the power of your efforts. He will work with you Himself. His voice to four missionaries, called through the Prophet Joseph Smith to a difficult task, gives courage to everyone He calls in His kingdom: “And I myself will go with them and be in their midst; and I am their advocate with the Father, and nothing shall prevail against them.”2
+The Lord will not only magnify the power of your efforts. He will work with you Himself. His voice to four missionaries, called through the Prophet Joseph Smith to a difficult task, gives courage to everyone He calls in His kingdom: “And I myself will go with them and be in their midst; and I am their advocate with the Father, and nothing shall prevail against them.”[^2]
 
-Because the Savior is a resurrected and glorified being, He is not physically with every one of His servants at every moment. But He is perfectly aware of them and their circumstance and able to intervene with His power. That is why He can promise you: “Whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.”3
+Because the Savior is a resurrected and glorified being, He is not physically with every one of His servants at every moment. But He is perfectly aware of them and their circumstance and able to intervene with His power. That is why He can promise you: “Whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.”[^3]
 
 There is yet another way the Lord will magnify you in your call to His service. You will feel at some time, perhaps at many times, that you cannot do all you feel you must. The heavy weight of your responsibilities will seem too great. You will worry that you can’t spend more time with your family. You will wonder how you can find the time and the energy to meet your responsibilities beyond your family and your calling. You may feel discouragement and even guilt after you have done all you could to meet all your obligations. I have had such days and such nights. Let me tell you what I have learned.
 
 It is this: If I only think of my own performance, my sadness deepens. But when I remember that the Lord promised that His power would go with me, I begin to look for evidence of what He has done in the lives of the people I am to serve. I pray to see with spiritual eyes the effects of His power.
 
-Then, invariably, the faces of people flood back into my memory. I remember the shine in the eyes of my child whose heart was softened, the tears of happiness on the face of a girl on the back row of a Sunday School class I was teaching, or a problem that was resolved before I had time to get to it. I know then that I have done enough for the promise made by Joseph Smith to be fulfilled once again: “Let us cheerfully do all things that lie in our power; and then may we stand still, with the utmost assurance, to see the salvation of God, and for his arm to be revealed.”4
+Then, invariably, the faces of people flood back into my memory. I remember the shine in the eyes of my child whose heart was softened, the tears of happiness on the face of a girl on the back row of a Sunday School class I was teaching, or a problem that was resolved before I had time to get to it. I know then that I have done enough for the promise made by Joseph Smith to be fulfilled once again: “Let us cheerfully do all things that lie in our power; and then may we stand still, with the utmost assurance, to see the salvation of God, and for his arm to be revealed.”[^4]
 
 You can have the utmost assurance that your power will be multiplied many times by the Lord. All He asks is that you give your best effort and your whole heart. Do it cheerfully and with the prayer of faith. The Father and His Beloved Son will send the Holy Ghost as your companion to guide you. Your efforts will be magnified in the lives of the people you serve. And when you look back on what may now seem trying times of service and sacrifice, the sacrifice will have become a blessing, and you will know that you have seen the arm of God lifting those you served for Him, and lifting you.
 
@@ -62,4 +65,15 @@ I know that God the Father lives. He hears and answers our prayers. Those we ser
 I testify that the Savior lives and leads His living Church. I know that. I am a witness for Him and of Him. He sees and appreciates your faithful service in the work to which He called you.
 
 In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Ephesians 6.12|Ephesians 6:12]].
+
+[^2]: [[D&C 32.3|D&C 32:3]].
+
+[^3]: [[D&C 84.88|D&C 84:88]].
+
+[^4]: [[D&C 123.17|D&C 123:17]].
 

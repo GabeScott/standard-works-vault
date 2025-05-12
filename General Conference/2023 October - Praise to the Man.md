@@ -1,7 +1,10 @@
 # Praise to the Man
-*By M. Russell Ballard - Acting President of the Quorum of the Twelve Apostles*
+
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
+
+>*How abundantly blessed we are to know all that we know because we have Joseph Smith, the prophet of this last dispensation of time.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/10/41ballard?lang=eng)
 
@@ -15,11 +18,11 @@ So, I’ll do the best I can.
 
 I’d like to share with you some things that have been in my mind. I have seemed to have the Prophet Joseph in my mind the last few months. I’ve sat and contemplated his glorious responsibility in becoming the prophet of this, the dispensation of the fulness of times.
 
-I think how grateful we are as members of The Church of Jesus Christ of Latter-day Saints that Joseph Smith, a boy who desired to know what he needed to do to have his sins forgiven, found the courage to go into a grove of trees near his home in Palmyra, New York, and there kneel in prayer and—by his own statement—pray out loud for the first time (see Joseph Smith—History 1:14).
+I think how grateful we are as members of The Church of Jesus Christ of Latter-day Saints that Joseph Smith, a boy who desired to know what he needed to do to have his sins forgiven, found the courage to go into a grove of trees near his home in Palmyra, New York, and there kneel in prayer and—by his own statement—pray out loud for the first time (see [[Joseph Smith History 1.14|Joseph Smith—History 1:14]]).
 
-On that occasion, as Joseph got on his knees in what we call the Sacred Grove, the heavens opened. Two personages, brighter than the noonday sun, appeared before him. One spoke to him and said, “[Joseph,] this is My Beloved Son. Hear Him!” (Joseph Smith—History 1:17). Thus began the Restoration of the fulness of the everlasting gospel of Jesus Christ.
+On that occasion, as Joseph got on his knees in what we call the Sacred Grove, the heavens opened. Two personages, brighter than the noonday sun, appeared before him. One spoke to him and said, “\[Joseph,\] this is My Beloved Son. Hear Him!” ([[Joseph Smith History 1.17|Joseph Smith—History 1:17]]). Thus began the Restoration of the fulness of the everlasting gospel of Jesus Christ.
 
-Because Jesus, our Savior and our Redeemer, spoke to the boy Joseph and opened up this dispensation of time that we now live in, we sing, “Praise to the man who communed with Jehovah!” (“Praise to the Man,” Hymns, no. 27). We thank the Lord for Joseph Smith and for his courage to go into that grove of trees in 1820, near his home in Palmyra, New York.
+Because Jesus, our Savior and our Redeemer, spoke to the boy Joseph and opened up this dispensation of time that we now live in, we sing, “Praise to the man who communed with Jehovah!” (“Praise to the Man,” *Hymns*, no. 27). We thank the Lord for Joseph Smith and for his courage to go into that grove of trees in 1820, near his home in Palmyra, New York.
 
 I’ve been thinking about all of the marvelous things that we know and all of the things that we have. My beloved brothers and sisters, my testimony to you this morning is how abundantly blessed we are to know all that we know because we have Joseph Smith, the prophet of this last dispensation of time.
 
@@ -43,11 +46,14 @@ I marvel, and I’m sure that many of you do too, at how blessed we are to know 
 
 That’s getting a little closer for me. I’ll soon be 95. My children tell me they think I’m a lot older than that some days, but that’s OK. I’m doing the best I can.
 
-But for nearly 50 years, brothers and sisters, I’ve had the privilege to cover the world in my assignment as a General Authority of the Church. It’s been a wonderful blessing. I think I’ve gotten pretty close to almost all parts of the world. I’ve met with members of the Church all over the world.
+But for nearly 50 years, brothers and sisters, I’ve had the privilege to cover the world in my assignment as a General Authority of the Church. It’s been a wonderful blessing. I think I’ve gotten pretty close to almost all parts of the world. I’ve met with members of the Church all over the world.
 
 Oh, how I love you. What a glorious experience that’s been—to look into your faces, be in your presence, and feel your love that you have for the Lord and for the Restoration of the gospel of Jesus Christ.
 
 May our Heavenly Father watch over us now and bless all the proceedings of the conference. And may we have the Spirit of the Lord well up in our hearts, and may our love for the gospel of Jesus Christ—our beloved Savior, the Lord Jesus Christ—increase as we strive to serve Him and keep His commandments and be more like Him as a result of our attending general conference. Wherever you are in this world, may God bless you. May the Spirit of the Lord be with us. May we feel the power of heaven as we worship together in this session of conference.
 
 I leave you my witness and testimony that I know that Jesus is the Christ. He is our Savior, our Redeemer. He is our best friend. In the sacred name of Jesus Christ, amen.
+
+
+
 

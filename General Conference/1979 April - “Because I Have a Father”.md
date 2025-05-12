@@ -1,11 +1,12 @@
 # “Because I Have a Father”
-*By Paul H. Dunn - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder Paul H. Dunn - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/04/because-i-have-a-father?lang=eng)
 
-Millions throughout the world sustain President Kimball as a prophet of the Lord. We in the Church sing a very important hymn that says, “We thank thee, O God, for a prophet / To guide us in these latter days” (Hymns, no. 196). Prophets have done that throughout all of history. I testify to you that Spencer Kimball really is a prophet.
+Millions throughout the world sustain President Kimball as a prophet of the Lord. We in the Church sing a very important hymn that says, “We thank thee, O God, for a prophet / To guide us in these latter days” (*Hymns,* no. 196). Prophets have done that throughout all of history. I testify to you that Spencer Kimball really is a prophet.
 
 For many years I have been a people-watcher. I love to watch people. They are interesting, fascinating. There is a sermon in every face. Faces! Smiling faces, frowning, angry, calm, unhappy, content. Faces! Round, square, oval, dimpled, beautiful, plain, striking, ordinary. Faces! Old and young.
 
@@ -41,13 +42,9 @@ By now I was out of questions, so I said, “Do you know how to sing?”
 
 “Would you sing for me?”
 
-“Uh-huh.”
-
 Without any prompting she commenced to sing a medley of Primary songs, ending with “I Am a Child of God.” I don’t know what that does to you, but I’m kind of tender. I looked through the window, and the engineer was even pushing back a tear or two himself.
 
 Then I said, “Well, Cory, you sing like you know God.”
-
-“Uh-huh.”
 
 I said, “How would a three-year-old know God?”
 
@@ -59,15 +56,11 @@ And I thought, “Oh, the power of a father in the home!”
 
 I said, “Do you know Jesus?”
 
-“Uh-huh.”
-
 I said, “Who’s Jesus?”
 
 She said, “Our Elder Brother.”
 
 I said, “Do you love Jesus?”
-
-“Uh-huh.”
 
 “Why do you love Jesus?”
 
@@ -95,7 +88,7 @@ We are all the same way no matter who we are or where we live, no matter what ou
 
 And for each of us there may be times when we have to cope with real tragedy, real opposition. There are those who lose a loved one who was the very light of their life. Health may deteriorate. There may be some in this very listening audience who cannot make ends meet or get enough food to fill an aching stomach. I remember reading of a man who was a prisoner of war in Vietnam who did not sleep for months because he was in such pain from beriberi. The only rest he got was when the pain became so intense his body could not stand it any longer and he would lose consciousness. How do you cope with that?
 
-Well, whether it’s for small reasons or big ones, there are sometimes questions that enter our hearts: Could I have been more? Could I have done more? Is there some evasive, elusive happiness I’ve missed along the way? How do I cope?
+Well, whether it’s for small reasons or big ones, there are sometimes questions that enter our hearts: Could I have been more? Could I have done more? Is there some evasive, elusive happiness I’ve missed along the way? *How do I cope?*
 
 And you know, the answer that men and women have found to those questions has given mankind its greatest moments because the message of the century is: God really lives. Jesus is the Christ. He has revealed himself in latter days, and he speaks to us through a prophet, such a one as we’ve heard this morning. Through modern prophets we can come to know the truth, the divine principles which help us live and adjust, which give meaning and direction to our lives. When these divine principles are applied, nothing can defeat us.
 
@@ -115,11 +108,14 @@ You and I cannot give up, no matter what the size of our struggles. We were not 
 
 We must remember too that our struggles here are not too trivial to interest the Lord. Those of you who follow the developments of astronomy know that lately there has been a big stir in the scientific community about a galaxy prosaically called NGC 1961. It seems this galaxy has ten times the mass of our own Milky Way and billions of young, hot stars. When we think that our Lord created all that and understands the immensities of space that only boggle our minds, we have difficulty believing that his interest could ever devolve on something as minute as our little pain or concerns.
 
-But the record of Christ’s life on earth certainly shows that he was not above caring for the human-size needs or fears of his earthly companions. Do you remember when Lazarus, the brother of Mary and Martha, died? Both sisters rushed to meet Christ to tell him of their sorrow and find comfort. And as they met him, they said in turn, “Lord, if thou hadst been here, my brother had not died” (John 11:21, 32). Now, who would know better than Jesus Christ that there was to be a resurrection so that Lazarus would live again? He didn’t just say to them, “Chin up, ladies. It’s only a few years before you see your brother again.” Instead the scriptures tell us, “Jesus wept” (John 11:35), wept in pure compassion for the pain and lack of understanding of his two friends. Then he hurried to the tomb and raised Lazarus from the dead.
+But the record of Christ’s life on earth certainly shows that he was not above caring for the human-size needs or fears of his earthly companions. Do you remember when Lazarus, the brother of Mary and Martha, died? Both sisters rushed to meet Christ to tell him of their sorrow and find comfort. And as they met him, they said in turn, “Lord, if thou hadst been here, my brother had not died” ([[John 11.21|John 11:21, 32]][[John 11.32|]]). Now, who would know better than Jesus Christ that there was to be a resurrection so that Lazarus would live again? He didn’t just say to them, “Chin up, ladies. It’s only a few years before you see your brother again.” Instead the scriptures tell us, “Jesus wept” ([[John 11.35|John 11:35]]), wept in pure compassion for the pain and lack of understanding of his two friends. Then he hurried to the tomb and raised Lazarus from the dead.
 
 Think, too, when Christ was preaching to the multitude and then performed the miracle of the fish and the loaves to feed the hungry masses. He wasn’t responding then to something earthshaking or lofty. He saw the human need to be fed and he used his divine powers to meet that need.
 
 Well, our frustrations and disappointments may be just pinpricks in the eternal scheme of things, but since they do not seem that way to us, they do not seem that way to the Lord. Quit thinking that tomorrow your problems will go away and life will begin in earnest. The Lord is waiting to help you cope today if you will lay your human-size needs at his divine feet. Pray in specifics about the problems, little or big, that impede your progress and dull your best dreams. Knock, seek, and you shall find the answer to your prayers. That I promise you because you really are his child. He will give you the comfort and the counsel that you need, the courage to lift up your head and face your todays with faith and hope.
 
-You see, my bright-eyed, three-year-old friend was right all along. Why will you make it in today’s world? Why will you be able to cope? Cory’s answer was right: “Because you have a Father,” to which I testify, in the holy name of Jesus Christ, amen.
+You see, my bright-eyed, three-year-old friend was right all along. Why will you make it in today’s world? Why will you be able to cope? Cory’s answer was right: *“Because you have a Father,”* to which I testify, in the holy name of Jesus Christ, amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # Opening Remarks
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2005 General Conference*
+
+>*The growth of the Church from its infancy to its present stature is phenomenal, and we have only scratched the surface.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2005/10/opening-remarks?lang=eng)
 
@@ -13,15 +16,11 @@ Great good came of that empire in many areas. But there was also tremendous suff
 
 Now it is all gone. Rudyard Kipling wrote of its demise in his “Recessional”:
 
-Far-called, our navies melt away;
-
-On dune and headland sinks the fire.
-
-Lo, all our pomp of yesterday
-
-Is one with Nineveh and Tyre!
-
-(“God of Our Fathers, Known of Old,” Hymns, no. 80)
+>Far-called, our navies melt away;
+>On dune and headland sinks the fire.
+>Lo, all our pomp of yesterday
+>Is one with Nineveh and Tyre!
+>
 
 There is now another empire. It is the empire of Christ the Lord. It is the empire of the restored gospel. It is the kingdom of God. And the sun never sets on this kingdom. It has not come of conquest, of conflict, or war. It has come of peaceful persuasion, of testimony, of teaching, one here and another there.
 
@@ -37,13 +36,16 @@ We have previously announced a new temple in the southeast quadrant of the Salt 
 
 We are grateful for the consecrations of our people which make all of this possible.
 
-One of the most troublesome aspects of our temple activity is that as we get more and more temples scattered across the earth there is duplication of effort in proxy work. People in various nations simultaneously work on the same family lines and come up with the same names. They do not know that those in other areas are doing the same thing. We, therefore, have been engaged for some time in a very difficult undertaking. To avoid such duplication, the solution lies in complex computer technology. Preliminary indications are that it will work, and if this is so, it will be a truly remarkable thing with worldwide implications.
+One of the most troublesome aspects of our temple activity is that as we get more and more temples scattered across the earth, there is duplication of effort in proxy work. People in various nations simultaneously work on the same family lines and come up with the same names. They do not know that those in other areas are doing the same thing. We therefore have been engaged for some time in a very difficult undertaking. To avoid such duplication, the solution lies in complex computer technology. Preliminary indications are that it will work, and if this is so, it will be a truly remarkable thing with worldwide implications.
 
 Now, as many of you know, we have been conducting stake conferences through the use of satellite transmission. The Church has grown so large that it is no longer possible for members of the First Presidency, the Quorum of the Twelve, and other General Authorities to visit individual stakes, except for reorganizations and divisions. Satellite transmission has made it possible for us to speak in Salt Lake City and be heard and seen in stake centers and other facilities around the globe. It is a miraculous and wonderful thing.
 
 It is in this same way that many of you are participating in our conference today. We are joined together as a vast international family in music and prayer and in the instruction and testimony of our Brethren.
 
-Thank you for all you do, you wonderful Latter-day Saints. Thank you for the tremendous efforts of Area Seventies, of bishoprics and stake presidencies, of auxiliary leaders, of temple and mission presidencies, and the many, many, many more who give so generously of time, effort, and means, to advance the kingdom of God on the earth.
+Thank you for all you do, you wonderful Latter-day Saints. Thank you for the tremendous efforts of Area Seventies, of bishoprics and stake presidencies, of auxiliary leaders, of temple and mission presidencies, and the many, many, many more who give so generously of time, effort, and means to advance the kingdom of God on the earth.
 
 I pray, my brethren and sisters, that the choicest blessings of heaven may rest upon you, in the sacred name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # The Mystery of Life
-*By Boyd K. Packer - Of the Quorum of the Twelve Apostles*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -7,11 +8,11 @@
 
 I want to tell you of an incident that happened many years ago. Two of our sons, then little boys, were wrestling on the rug, and they had reached that line which separates laughter from tears. So I worked my foot carefully between them and lifted the older one back to a sitting position on the rug. As I did so, I said, “Hey there, you little monkeys. You’d better settle down.”
 
-To my surprise he folded his little arms, his eyes swimming with deep hurt, and protested, “I not a monkey, Daddy, I a person!”
+To my surprise he folded his little arms, his eyes swimming with deep hurt, and protested, “I *not* a monkey, Daddy, I a *person!*”
 
-The years have not erased the overwhelming feeling of love I felt for my little sons. I was taught a profound lesson by my little boys. Many times over the years his words have slipped back into my mind, “I not a monkey, Daddy, I a person!” I was taught a profound lesson by my little boy.
+The years have not erased the overwhelming feeling of love I felt for my little sons. I was taught a profound lesson by my little boys. Many times over the years his words have slipped back into my mind, “I *not* a monkey, Daddy, I a *person!*” I was taught a profound lesson by my little boy.
 
-Now the cycle of life has moved swiftly on, and both of those sons have little boys of their own, who teach their fathers lessons. They now watch their children grow as we watched them. They are coming to know something as fathers that they could not be taught as sons. Perhaps now they know how much their father loves them. Hopefully, they know as well why prayers begin “Our Father who art in heaven.”
+Now the cycle of life has moved swiftly on, and both of those sons have little boys of their own, who teach their fathers lessons. They now watch their children grow as we watched them. They are coming to know something as fathers that they could not be taught as sons. Perhaps now they know how much their father loves them. Hopefully, they know as well why prayers begin “Our *Father* who art in heaven.”
 
 All too soon their children will be grown with little “persons” of their own, repeating the endless cycle of life.
 
@@ -19,7 +20,7 @@ There is on the West Coast a statue by Ernesto Gazzeri which depicts in marble t
 
 Persons enter life through mortal birth and, in due time, disappear through the veil of death. Most of them never sense why we are here.
 
-Nothing is more obvious than what the statue represents, but the sculptor entitled it The Mystery of Life.
+Nothing is more obvious than what the statue represents, but the sculptor entitled it *The Mystery of Life.*
 
 Occasionally, as at the time of birth, we pause in awe of what nature has to say. We see patterns of creation, so ordered and so beautiful as to sponsor deep feelings of reverence and humility. Then, just when we might discover the meaning of life, we are jerked back by the wild, uncontrolled things that humanity is doing to itself.
 
@@ -47,7 +48,7 @@ I know a man who studied for the ministry. Then just before his ordination he dr
 
 He made a very superficial study of the doctrines of the Church and found them tolerable enough. The fundamentals of Christianity were visible. But he was most interested in programs and activities that would benefit his family.
 
-It was after he was baptized that he made the discovery of his life. To his surprise he found, underlying the programs of the Church, a solid foundation of doctrine. He had no idea of the depth and breadth and height of our theology. When once he moved from interest in the programs to a study of the gospel of Jesus Christ, he found answers which explained to his full satisfaction the deep questions that had left him unable to accept ordination as a clergyman.
+It was *after* he was baptized that he made the discovery of his life. To his surprise he found, underlying the programs of the Church, a solid foundation of doctrine. He had no idea of the depth and breadth and height of our theology. When once he moved from interest in the programs to a study of the gospel of Jesus Christ, he found answers which explained to his full satisfaction the deep questions that had left him unable to accept ordination as a clergyman.
 
 One doctrine was completely new to him. Although he was a student of the Bible, he had not found it there until he read the other revelations. Then the Bible was clear to him and he understood.
 
@@ -63,11 +64,11 @@ Why is it so strange a thought that we lived as spirits before entering mortalit
 
 The Christian world in general accepts the idea that our condition in the Resurrection will be determined by our actions in this life. Why can they not believe that some circumstances in this life were determined by our actions before coming into mortality?
 
-The scriptures teach this doctrine, the doctrine of premortal life. For His own reasons, the Lord provides answers to some questions, with pieces placed here and there throughout the scriptures. We are to find them; we are to earn them. In that way sacred things are hidden from the insincere.
+The scriptures teach this doctrine, the doctrine of premortal life. For His own reasons, the Lord provides answers to some questions, with pieces placed here and there throughout the scriptures. We are to find them; we are to *earn* them. In that way sacred things are hidden from the insincere.
 
-Of the many verses revealing this doctrine, I will quote two short phrases from the testimony of John in the ninety-third section of the Doctrine and Covenants. The first, speaking of Christ, says plainly, “He was in the beginning, before the world was.” (D&C 93:7.)
+Of the many verses revealing this doctrine, I will quote two short phrases from the testimony of John in the ninety-third section of the Doctrine and Covenants. The first, speaking of Christ, says plainly, “He was in the beginning, before the world was.” ([[D&C 93.7|D&C 93:7]].)
 
-And the other, referring to us, says with equal clarity, “Ye were also in the beginning with the Father.” (D&C 93:23.)
+And the other, referring to us, says with equal clarity, “Ye were also in the beginning with the Father.” ([[D&C 93.23|D&C 93:23]].)
 
 Essential facts about our premortal life have been revealed. Although they are sketchy, they unravel the mystery of life.
 
@@ -113,7 +114,7 @@ The same testing in troubled times can have quite opposite effects on individual
 
 “And there had been murders, and contentions, and dissensions, and all manner of iniquity among the people of Nephi; nevertheless for the righteous’ sake, yea, because of the prayers of the righteous, they were spared.
 
-“But behold, because of the exceedingly great length of the war between the Nephites and the Lamanites many had become hardened, because of the exceedingly great length of the war; and many were softened because of their afflictions, insomuch that they did humble themselves before God, even in the depth of humility.” (Alma 62:39–41; italics added.)
+“But behold, because of the exceedingly great length of the war between the Nephites and the Lamanites many had become *hardened,* because of the exceedingly great length of the war; and many were *softened* because of their afflictions, insomuch that they did humble themselves before God, even in the depth of humility.” ([[Alma 62.39|Alma 62:39–41]][[Alma 62.40|]][[Alma 62.41|]]; italics added.)
 
 Surely you know some whose lives have been filled with adversity who have been mellowed and strengthened and refined by it, while others have come away from the same test bitter and blistered and unhappy.
 
@@ -145,11 +146,14 @@ I have but touched upon the doctrine of premortal life. We cannot, in these brie
 
 I assure you there is, underlying the programs and activities of this church, a depth and breadth and height of doctrine that answers the questions of life.
 
-When one knows the gospel of Jesus Christ, there is cause to rejoice. The words joy and rejoice appear through the scriptures repetitively. Latter-day Saints are happy people. When one knows the doctrine, parenthood becomes a sacred obligation, the begetting of life a sacred privilege. Abortion would be unthinkable. No one would think of suicide. And all the frailties and problems of men would fade away.
+When one knows the gospel of Jesus Christ, there is cause to rejoice. The words *joy* and *rejoice* appear through the scriptures repetitively. Latter-day Saints are happy people. When one knows the doctrine, parenthood becomes a sacred obligation, the begetting of life a sacred privilege. Abortion would be unthinkable. No one would think of suicide. And all the frailties and problems of men would fade away.
 
 We have cause to rejoice and we do rejoice, even celebrate.
 
-“The glory of God is intelligence, or, in other words, light and truth.” (D&C 93:36.)
+“The glory of God is intelligence, or, in other words, light and truth.” ([[D&C 93.36|D&C 93:36]].)
 
 God bless us that we and all who will hear His message can celebrate the Light! Of him I bear witness, in the name of Jesus Christ, amen.
+
+
+
 

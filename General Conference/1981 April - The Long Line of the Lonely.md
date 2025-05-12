@@ -1,19 +1,20 @@
 # The Long Line of the Lonely
-*By Thomas S. Monson - Of the Quorum of the Twelve Apostles*
+
+By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1981/04/the-long-line-of-the-lonely?lang=eng)
 
-Today I desire to preach no sermon nor deliver a formal message. Rather, may I simply share with you my innermost thoughts. President David O. McKay referred to such as “heart petals.” I open to your view a window to my soul.
+Today I desire to preach no sermon nor deliver a formal message. Rather, may I simply share with you my innermost thoughts. President David O. McKay referred to such as “heart petals.” I open to your view a window to my soul.
 
-The Epistle of James has long been a favorite book of the Holy Bible. I find his brief message heart-warming and filled with life. Each of us can quote that well-known passage, “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.” (James 1:5.) How many of us, however, remember his definition of religion? “Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.” (James 1:27.)
+The Epistle of James has long been a favorite book of the Holy Bible. I find his brief message heart-warming and filled with life. Each of us can quote that well-known passage, “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.” ([[James 1.5|James 1:5]].) How many of us, however, remember his definition of religion? “Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.” ([[James 1.27|James 1:27]].)
 
-The word widow appears to have had a most significant meaning to our Lord. He cautioned His disciples to beware the example of the scribes, who feigned righteousness by their long apparel and their lengthy prayers, but who devoured the houses of widows. (See Mark 12:38, 40.)
+The word *widow* appears to have had a most significant meaning to our Lord. He cautioned His disciples to beware the example of the scribes, who feigned righteousness by their long apparel and their lengthy prayers, but who devoured the houses of widows. (See [[Mark 12.38|Mark 12:38, 40]][[Mark 12.40|]].)
 
-To the Nephites came the direct warning, “I will come near to you to judgment; and I will be a swift witness against ... those that oppress the ... widow.” (3 Ne. 24:5.)
+To the Nephites came the direct warning, “I will come near to you to judgment; and I will be a swift witness against … those that oppress the … widow.” ([[3 Nephi 24.5|3 Ne. 24:5]].)
 
-To the Prophet Joseph Smith He directed, “The storehouse shall be kept by the consecrations of the church; and widows and orphans shall be provided for, as also the poor.” (D&C 83:6.)
+To the Prophet Joseph Smith He directed, “The storehouse shall be kept by the consecrations of the church; and widows and orphans shall be provided for, as also the poor.” ([[D&C 83.6|D&C 83:6]].)
 
 Such teachings were not new then. They are not new now. Consistently the Master has taught, by example, His concern for the widow. To the grieving widow at Nain, bereft of her only son, He came personally and to the dead son restored the breath of life—and to the astonished widow her son. To the widow at Zarephath, who with her son faced imminent starvation, He sent the prophet Elijah with the power to teach faith as well as provide food.
 
@@ -23,19 +24,17 @@ The widow’s home is generally not large or ornate. Frequently it is modest in 
 
 There may exist an actual need for food, clothing—even shelter. Such can be supplied. Almost always there remains the hope for that special hyacinth to feed the soul.
 
-Go visit the lonely, the dreary;
-
-Go comfort the weeping, the weary.
-
-Oh, scatter kind deeds on your way
-
-And make the world brighter today.
+>Go visit the lonely, the dreary;
+>Go comfort the weeping, the weary.
+>Oh, scatter kind deeds on your way
+>And make the world brighter today.
+>
 
 The ranks of those in special need grow larger day by day. Note the obituary page of your newspaper. Here the drama of life unfolds to our view. Death comes to all mankind. It comes to the aged as they walk on faltering feet. Its summons are heard by those who have scarcely reached midway in life’s journey, and it often hushes the laughter of little children.
 
 After the funeral flowers fade, the well wishes of friends become memories, the prayers offered and words spoken dim in the corridors of the mind. Those who grieve frequently join that vast throng I shall entitle “The Long Line of the Lonely.” Missed is the laughter of children, the commotion of teenagers, and the tender, loving concern of a departed companion. The clock ticks more loudly, time passes more slowly, and four walls do indeed a prison make.
 
-Hopefully, all of us may again hear the echo of words spoken by the Master: “Inasmuch as ye have done it unto one of the least of these ... , ye have done it unto me.” (Matt. 25:40.)
+Hopefully, all of us may again hear the echo of words spoken by the Master: “Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.” ([[Matthew 25.40|Matt. 25:40]].)
 
 As we resolve to minister more diligently to those in need, let us remember to include our children in these learning lessons of life.
 
@@ -53,31 +52,21 @@ Each of us has his own way of remembering. At Christmas time I take delight in v
 
 Come with me, and we’ll together make a call or two. There’s the nursing home on West Temple where four widows reside. You never walk up the pathway but what you notice the parted curtain, as one inside waits hour after hour for the approaching step of a friend. What a welcome! Good times are remembered, perhaps a gift given, a blessing provided; but then it is time to leave. Never could I depart without first responding to the request of a widow almost one hundred years of age. Though she was blind, she would say, “Bishop, you’re to speak at my funeral and recite from memory Tennyson’s poem, ‘Crossing the Bar.’ Let’s hear you do it right now!” I would proceed:
 
-Sunset and evening star,
-
-And one clear call for me!
-
-And may there be no moaning of the bar,
-
-When I put out to sea, ...
-
-Twilight and evening bell,
-
-And after that the dark!
-
-And may there be no sadness of farewell,
-
-When I embark;
-
-For tho’ from out our bourne of Time and Place
-
-The flood may bear me far,
-
-I hope to see my Pilot face to face
-
-When I have crost the bar.
-
-(In Major British Writers, ed. G. B. Harrison, enl. ed., New York: Harcourt, Brace & World, 1959, 2:466.)
+>Sunset and evening star,
+>And one clear call for me!
+>And may there be no moaning of the bar,
+>When I put out to sea, …
+>
+>Twilight and evening bell,
+>And after that the dark!
+>And may there be no sadness of farewell,
+>When I embark;
+>
+>For tho’ from out our bourne of Time and Place
+>The flood may bear me far,
+>I hope to see my Pilot face to face
+>When I have crost the bar.
+>
 
 Tears came easily, and then, with a smile, she would say, “Tommy, that was pretty good, but see that you do it a wee bit better at the funeral!” I later honored her request.
 
@@ -85,7 +74,7 @@ At another nursing home on First South, we might interrupt, as I did a few years
 
 Let’s hurry along to Redwood Road. There is a much larger home here where many widows reside. Most are seated in the well-lighted living room. But in her bedroom, alone, is one on whom I must call. She hasn’t spoken a word since a devastating stroke some years ago. But then, who knows what she hears?—so I speak of good times together. There isn’t a flicker of recognition, not a word spoken. In fact, an attendant asks if I am aware that this patient hasn’t uttered a word for years. It made no difference. Not only had I enjoyed my one-sided conversation with her—I had communed with God.
 
-When our beloved President Spencer W. Kimball met recently with those from a country where want is present, he asked not regarding statistics, but rather inquired: “Do our people have enough to eat? Are the widows cared for?” He was concerned.
+When our beloved President Spencer W. Kimball met recently with those from a country where want is present, he asked not regarding statistics, but rather inquired: “Do our people have enough to eat? Are the widows cared for?” He was concerned.
 
 During the administration of President George Albert Smith, there lived in our ward an impoverished widow who cared for her three mature daughters, each of whom was an invalid. They were large in size and almost totally helpless. To this dear woman fell the task to bathe, to feed, to dress, and to care for her girls. Means were limited. Outside help was nonexistent. Then came the blow that the house she rented was to be sold. What was she to do? Where would she go? The bishop came to the Church Office Building to inquire if there were some way the house could be purchased. It was so small, the price so reasonable. The request was considered, then denied.
 
@@ -99,7 +88,10 @@ The leadership of this Church is mindful of the widow, the widower, the lonely. 
 
 We remember that during the meridian of time a bright, particular star shone in the heavens. Wise men followed it and found the Christ child. Today wise men still look heavenward and again see a bright, particular star. It will guide you and me to our opportunities. The burden of the downtrodden will be lifted, the cry of the hungry stilled, the lonely heart comforted. And souls will be saved—yours, theirs, and mine.
 
-If we truly listen, we may hear that voice from far away say to us, as it spoke to another, “Well done, thou good and faithful servant.” (Matt. 25:21.)
+If we truly listen, we may hear that voice from far away say to us, as it spoke to another, “Well done, thou good and faithful servant.” ([[Matthew 25.21|Matt. 25:21]].)
 
 May we see that special star, may we hear that same salutation, is my humble prayer, in the name of Jesus Christ, amen.
+
+
+
 

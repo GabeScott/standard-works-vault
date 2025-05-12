@@ -1,5 +1,6 @@
 # What Think Ye of the Book of Mormon?
-*By Bruce R. McConkie - Of the Quorum of the Twelve Apostles*
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -55,11 +56,11 @@ This account dramatizes another of our problems in teaching those who read the B
 
 The pattern for this was set in the experience of Oliver Cowdery. He desired not alone to act as a scribe to Joseph Smith but also to translate directly from the plates. After much importuning, the Lord permitted Brother Cowdery to try.
 
-The divine authorization contained these provisos: “Remember that without faith you can do nothing; therefore ask in faith. Trifle not with these things; do not ask for that which you ought not. ... And according to your faith shall it be done unto you.” (D&C 8:10–11.)
+The divine authorization contained these provisos: “Remember that without faith you can do nothing; therefore ask in faith. Trifle not with these things; do not ask for that which you ought not. … And according to your faith shall it be done unto you.” ([[D&C 8.10|D&C 8:10–11]][[D&C 8.11|]].)
 
 Oliver tried to translate and failed. Then came the divine word: “Behold, you have not understood; you have supposed that I would give it unto you, when you took no thought save it was to ask me.” That is, he had not done all that in his power lay; he had expected the Lord to do it all merely because he asked.
 
-“But, behold, I say unto you,” the divine word continued, “that you must study it out in your mind; then you must ask me if it be right, and if it is right I will cause that your bosom shall burn within you; therefore, you shall feel that it is right.” (D&C 9:7–8.)
+“But, behold, I say unto you,” the divine word continued, “that you must study it out in your mind; then you must ask me if it be right, and if it is right I will cause that your bosom shall burn within you; therefore, you shall feel that it is right.” ([[D&C 9.7|D&C 9:7–8]][[D&C 9.8|]].)
 
 Now, if the Book of Mormon is true, our acceptance of it will lead to salvation in the highest heaven. On the other hand, if we say it is true when in fact it is not, we are thereby leading men astray and surely deserve to drop down to the deepest hell.
 
@@ -69,7 +70,7 @@ Either the Book of Mormon is true, or it is false; either it came from God, or i
 
 May I be so bold as to propose a test and issue a challenge. It is hoped that all who take this test will have a knowledge of the Holy Bible, because the more people know about the Bible, the greater their appreciation will be of the Book of Mormon.
 
-This test is for saint and sinner alike; it is for Jew and Gentile, for bond and free, for black and white, for all of our Father’s children. We have all been commanded to search the scriptures, to treasure up the Lord’s word, to live by every word that proceedeth forth from the mouth of God. (See D&C 84:44.) This, then, is the test:
+This test is for saint and sinner alike; it is for Jew and Gentile, for bond and free, for black and white, for all of our Father’s children. We have all been commanded to search the scriptures, to treasure up the Lord’s word, to live by every word that proceedeth forth from the mouth of God. (See [[D&C 84.44|D&C 84:44]].) This, then, is the test:
 
 Let every person make a list of from one hundred to two hundred doctrinal subjects, making a conscious effort to cover the whole field of gospel knowledge. The number of subjects chosen will depend on personal inclination and upon how broad the spectrum will be under each subject.
 
@@ -98,4 +99,7 @@ It came forth in our day proving to the world that the Bible is true; that Jesus
 It is the book that will save the world and prepare the sons of men for joy and peace here and now and everlasting life in eternity.
 
 As it happens, I am one of the many who have come to know, by the revelations of the Holy Ghost to my soul, that the Book of Mormon is true. And, knowing that I will be accountable for that witness before the bar of the great Jehovah when he judges all men, I testify that as he lives the Book of Mormon is true, in the name of Jesus Christ, amen.
+
+
+
 

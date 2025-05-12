@@ -1,5 +1,6 @@
 # Gratitude for the Goodness of God
-*By By Bishop Robert D. Hales - Presiding Bishop*
+
+By Bishop Robert D. Hales - *Presiding Bishop*
 
 *Given in the April session of the 1992 General Conference*
 
@@ -15,23 +16,23 @@ The Savior tells us:
 
 “I came into the world to do the will of my Father, because my Father sent me.
 
-“And my Father sent me that I might be lifted up upon the cross.” (3 Ne. 27:13–14.)
+“And my Father sent me that I might be lifted up upon the cross” ([[3 Nephi 27.13|3 Ne. 27:13–14]][[3 Nephi 27.14|]]).
 
 The Prophet Joseph Smith recorded:
 
 “That he came into the world, even Jesus, to be crucified for the world, and to bear the sins of the world, and to sanctify the world, and to cleanse it from all unrighteousness;
 
-“That through him all might be saved.” (D&C 76:41–42.)
+“That through him all might be saved” ([[D&C 76.41|D&C 76:41–42]][[D&C 76.42|]]).
 
 I bear my testimony in all gratitude for the knowledge that our Savior lives, that he was resurrected, that there is a redemption and a salvation through the Atonement for all mankind—that all will be resurrected. I am thankful for that knowledge.
 
-The Lord said, “If ye love me, keep my commandments.” (John 14:15.) Our obedience to the laws, ordinances, and commandments is the greatest expression of love and gratitude that we can bestow upon him.
+The Lord said, “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]). Our obedience to the laws, ordinances, and commandments is the greatest expression of love and gratitude that we can bestow upon him.
 
 Gratitude is also the foundation upon which repentance is built.
 
 The Atonement brought mercy through repentance to balance justice. How thankful I am for the doctrine of repentance. Repentance is essential to salvation. We are mortal—we are not perfect—we will make mistakes. When we make mistakes and do not repent, we suffer.
 
-The prophet Mormon taught us that he saw people sorrowing, thinking it was repentance; but then he taught us, “Behold this my joy was vain, for their sorrowing was not unto repentance, because of the goodness of God; but it was rather the sorrowing of the damned, because the Lord would not always suffer them to take happiness in sin.” (Morm. 2:13; italics added.)
+The prophet Mormon taught us that he saw people sorrowing, thinking it was repentance; but then he taught us, “Behold this my joy was vain, for their sorrowing was not unto repentance, *because of the goodness of God;* but it was rather the sorrowing of the damned, because the Lord would not always suffer them to take happiness in sin” ([[Mormon 2.13|Morm. 2:13]]; italics added).
 
 Mormon teaches us that there will always be suffering and sorrow in sin, but to repent only because we feel bad or because we have suffered or because we are sorrowful does not show that we understand the goodness of God.
 
@@ -39,41 +40,41 @@ The point I would like to make is that when we express thankfulness to God and t
 
 How grateful I am for the scriptures, which give examples of Jesus’ expressing thanks to his Heavenly Father.
 
-At the Last Supper, “the Lord Jesus the same night ... he was betrayed took bread:
+At the Last Supper, “the Lord Jesus the same night … he was betrayed took bread:
 
-“And when he had given thanks, he brake it, and said, Take, eat: this is my body, which is broken for you.” (1 Cor. 11:23–24; italics added.)
+“And *when he had given thanks,* he brake it, and said, Take, eat: this is my body, which is broken for you” ([[1 Corinthians 11.23|1 Cor. 11:23–24]][[1 Corinthians 11.24|]]; italics added).
 
-“And he took the cup, and when he had given thanks, he gave it to them: and they all drank of it.” (Mark 14:23; italics added.)
+“And he took the cup, *and when he had given thanks,* he gave it to them: and they all drank of it” ([[Mark 14.23|Mark 14:23]]; italics added).
 
 Like the Savior, it is important for each of us to prepare ourselves to give thanks for the atoning sacrifice each week as we partake of the sacrament.
 
 The story of Lazarus is of great significance to me as I have studied the goodness of Jesus.
 
-Mary greeted Jesus. Her brother, Lazarus, had died. Jesus saw her weeping, and the Jews who came with her were also weeping. Jesus, in great compassion, “groaned in the spirit, and was troubled.” (John 11:33.) Jesus asked, “Where have ye laid him?” (John 11:34.) “Jesus wept.” (John 11:35.)
+Mary greeted Jesus. Her brother, Lazarus, had died. Jesus saw her weeping, and the Jews who came with her were also weeping. Jesus, in great compassion, “groaned in the spirit, and was troubled” ([[John 11.33|John 11:33]]). Jesus asked, “Where have ye laid him?” ([[John 11.34|v. 34]]). “Jesus wept” ([[John 11.35|v. 35]]).
 
-“Then they took away the stone from the place where the dead was laid. And Jesus lifted up his eyes, and said, Father, I thank thee that thou hast heard me.” (John 11:41; italics added.)
+“Then they took away the stone from the place where the dead was laid. And Jesus lifted up his eyes, and said, Father, *I thank thee that thou hast heard me*” ([[John 11.41|John 11:41]]; italics added).
 
-And then Jesus asked Lazarus to come forth from the dead. (See John 11:43.)
+And then Jesus asked Lazarus to come forth from the dead (see [[John 11.43|v. 43]]).
 
 Might it be well for us to remember to give thanks to our Heavenly Father prior to asking for his help in solving our problems?
 
-John 6:5–14 beautifully tells the account of Jesus and the five loaves and two fishes:
+[[John 6.5|John 6:5–14]][[John 6.6|]][[John 6.7|]][[John 6.8|]][[John 6.9|]][[John 6.10|]][[John 6.11|]][[John 6.12|]][[John 6.13|]][[John 6.14|]] beautifully tells the account of Jesus and the five loaves and two fishes:
 
-“And Jesus took the loaves; and when he had given thanks, he distributed to the disciples.” (John 6:11; italics added.)
+“And Jesus took the loaves; *and when he had given thanks,* he distributed to the disciples” ([[John 6.11|John 6:11]]; italics added).
 
 On another occasion, the disciples of Jesus prayed earnestly for the Holy Ghost. And when they were filled with the Holy Ghost, Jesus “bowed himself to the earth, and he said:
 
-“Father, I thank thee that thou hast given the Holy Ghost unto these whom I have chosen; and it is because of their belief in me that I have chosen them out of the world.
+“Father, *I thank thee* that thou hast given the Holy Ghost unto these whom I have chosen; and it is because of their belief in me that I have chosen them out of the world.
 
-“Father, I pray thee that thou wilt give the Holy Ghost unto all them that shall believe in their words.” (3 Ne. 19:20–21; italics added.)
+“Father, I pray thee that thou wilt give the Holy Ghost unto all them that shall believe in their words” ([[3 Nephi 19.19|3 Ne. 19:19–21]][[3 Nephi 19.20|]][[3 Nephi 19.21|]]; italics added).
 
 Prayer is an essential part of conveying appreciation to our Heavenly Father. He awaits our expressions of gratefulness each morning and night in sincere, simple prayer from our hearts for our many blessings, gifts, and talents.
 
-Through expression of prayerful gratitude and thanksgiving, we show our dependence upon a higher source of wisdom and knowledge—God the Father and his Son, our Lord and Savior Jesus Christ. We are taught to “live in thanksgiving daily.” (Alma 34:38.)
+Through expression of prayerful gratitude and thanksgiving, we show our dependence upon a higher source of wisdom and knowledge—God the Father and his Son, our Lord and Savior Jesus Christ. We are taught to “live in thanksgiving daily” ([[Alma 34.38|Alma 34:38]]).
 
-“O how you ought to thank your heavenly King!” King Benjamin taught. (Mosiah 2:19.)
+“O how you ought to thank your heavenly King!” King Benjamin taught ([[Mosiah 2.19|Mosiah 2:19]]).
 
-As the years pass, I become more grateful for my parents. They lived the gospel, studied the scriptures, and bore testimony of God the Father and his Son Jesus Christ. They also bore testimony of the Prophet Joseph Smith.
+As the years pass, I become more grateful for my parents. They lived the gospel, studied the scriptures, and bore testimony of God the Father and his Son, Jesus Christ. They also bore testimony of the Prophet Joseph Smith.
 
 Even as a child, it was through their teachings and example that I received an absolute knowledge of the existence of eternal life with our goal to return with honor, as a family, into the presence of our Heavenly Father.
 
@@ -95,11 +96,11 @@ Those who are blessed to have their companions, their mothers and their fathers,
 
 We must remember to give thanks to our Heavenly Father for the blessings and gifts that have been given to us.
 
-“And ye must give thanks unto God in the Spirit for whatsoever blessing ye are blessed with.” (D&C 46:32.)
+“And ye must give thanks unto God in the Spirit for whatsoever blessing ye are blessed with” ([[D&C 46.32|D&C 46:32]]).
 
-“And all these gifts come from God, for the benefit of the children of God.” (D&C 46:26.)
+“And all these gifts come from God, for the benefit of the children of God” ([[D&C 46.26|D&C 46:26]]).
 
-As the Presiding Bishop, I am grateful for the members of this church who so willingly give of their time, their means, and their talents through tithes and offerings and through acts of compassionate service. What a wonderful example they set for their children and for their neighbors. It would be well to also give thanks for the youth of this church, for their faithfulness. They are indeed a royal generation, preparing as they and their children and grandchildren prepare for the second coming of Jesus Christ.
+As the Presiding Bishop, I am grateful for the members of this Church who so willingly give of their time, their means, and their talents through tithes and offerings and through acts of compassionate service. What a wonderful example they set for their children and for their neighbors. It would be well to also give thanks for the youth of this Church, for their faithfulness. They are indeed a royal generation, preparing as they and their children and grandchildren prepare for the second coming of Jesus Christ.
 
 Gratitude is a state of appreciation, an act of thanksgiving, which causes us to be humble because we recognize an act of kindness, service, or caring from someone else which lifts us and strengthens us.
 
@@ -111,11 +112,14 @@ Gratitude expressed to our Heavenly Father in prayer for what we have brings a c
 
 Gratitude is a divine principle:
 
-“Thou shalt thank the Lord thy God in all things.” (D&C 59:7.)
+“Thou shalt thank the Lord thy God in all things” ([[D&C 59.7|D&C 59:7]]).
 
-This scripture means that we express thankfulness for what happens, not only for the good things in life but also for the opposition and challenges of life that add to our experience and faith. We put our lives in His hands, realizing that all that transpires will be for our experience.
+This scripture means that we express thankfulness for what happens, not only for the good things in life but also for the opposition and challenges of life that add to our experience and faith. We put our lives in his hands, realizing that all that transpires will be for our experience.
 
 When in prayer we say, “Thy will be done,” we are really expressing faith and gratitude and acknowledging that we will accept whatever happens in our lives.
 
-That we may feel true gratitude for the goodness of God for all the blessings that have been given to us and express those feelings of thankfulness in prayer to our Heavenly Father is my prayer in the name of Jesus Christ, amen.
+That we may feel true gratitude for the goodness of God for all the blessings that have been given to us and express those feelings of thankfulness in prayer to our Heavenly Father, is my prayer in the name of Jesus Christ, amen.
+
+
+
 

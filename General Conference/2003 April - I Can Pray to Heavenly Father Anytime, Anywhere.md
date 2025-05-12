@@ -1,5 +1,6 @@
 # I Can Pray to Heavenly Father Anytime, Anywhere
-*By By Sydney S. Reynolds - First Counselor in the Primary General Presidency*
+
+By Sydney S. Reynolds - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2003 General Conference*
 
@@ -15,21 +16,24 @@ By the time they figured out it wasn’t their dad, they were lost. They couldn�
 
 In the scriptures there are many stories of answers to prayer. Do you remember these? Nephi was told how to build a ship and where to find food; Daniel prayed for protection from the lions; Enos prayed all day and into the night that his sins would be forgiven; Hannah prayed that she could have a baby. My favorite story of all about prayer is the story of a young boy who wanted to know something. He wanted to know which church he should join. His friends and his family were finding churches to join. He just didn’t know which church was right. He was only 14 years old.
 
-One day Joseph Smith was reading in the Bible, and this is what he read: “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him” (James 1:5). That scripture was so powerful to him! He’d never prayed out loud before, but he needed an answer and he believed the scripture. Humbly, he went to a wooded area close to his house, and he knelt down and began to pray. This was such an important prayer that the powers of darkness threatened to overwhelm this strong, young farm boy, but he cried out to God for help. As he did, a light descended and the darkness went away. Joseph saw two personages standing in the light. One of Them said to him, pointing to the other: “This is My Beloved Son. Hear Him!” (JS—H 1:17). It was God the Father and His Son, Jesus Christ.
+One day Joseph Smith was reading in the Bible, and this is what he read: “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him” ([[James 1.5|James 1:5]]). That scripture was so powerful to him! He’d never prayed out loud before, but he needed an answer and he believed the scripture. Humbly, he went to a wooded area close to his house, and he knelt down and began to pray. This was such an important prayer that the powers of darkness threatened to overwhelm this strong, young farm boy, but he cried out to God for help. As he did, a light descended and the darkness went away. Joseph saw two personages standing in the light. One of Them said to him, pointing to the other: “This is My Beloved Son. Hear Him!” ([[Joseph Smith History 1.17|Joseph Smith—History 1:17]]). It was God the Father and His Son, Jesus Christ.
 
-When I think of that story, I think of my children. All of them served in missions outside of the United States. They each needed to learn a new language. One of the things they learned to share in their new languages was the story of Joseph Smith’s prayer. Why did they learn that? Because the people they were teaching needed to know that Heavenly Father and Jesus chose Joseph Smith to be the prophet who would restore the gospel and the Church of Jesus Christ to the earth once more. And the people needed to know that just as Joseph Smith received an answer to his prayer, they could pray to Heavenly Father and receive answers to their prayers. He will answer your prayers, too. I know we can pray to Heavenly Father anytime, anywhere, and I’m so grateful that we can.
+When I think of that story, I think of my children. All of them served in missions outside of the United States. They each needed to learn a new language. One of the things they learned to share in their new languages was the story of Joseph Smith’s prayer. Why did they learn that? Because the people they were teaching needed to know that Heavenly Father and Jesus chose Joseph Smith to be the prophet who would restore the gospel and the Church of Jesus Christ to the earth once more. *And* the people needed to know that just as Joseph Smith received an answer to his prayer, they could pray to Heavenly Father and receive answers to their prayers. He will answer your prayers, too. I know we can pray to Heavenly Father anytime, anywhere, and I’m so grateful that we can.
 
 Here is my testimony on the fingers of one hand:
 
-I know that God is our Father in Heaven and that He loves us.
+1. I know that God is our Father in Heaven and that He loves us.
 
-Jesus Christ is His Son, our Savior and Redeemer.
+2. Jesus Christ is His Son, our Savior and Redeemer.
 
-Joseph Smith is a prophet of God. He translated the Book of Mormon by the gift and power of God.
+3. Joseph Smith is a prophet of God. He translated the Book of Mormon by the gift and power of God.
 
-The Church of Jesus Christ of Latter-day Saints is the Lord’s Church on the earth today.
+4. The Church of Jesus Christ of Latter-day Saints is the Lord’s Church on the earth today.
 
-The living prophet is President Gordon B. Hinckley.
+5. The living prophet is President Gordon B. Hinckley.
 
 In the name of Jesus Christ, amen.
+
+
+
 

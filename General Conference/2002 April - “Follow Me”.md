@@ -1,13 +1,16 @@
 # “Follow Me”
-*By Joseph B. Wirthlin - Of the Quorum of the Twelve Apostles*
+
+By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
+
+>*Those who, in faith, leave their nets and follow the Savior will experience happiness beyond their ability to comprehend.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2002/04/follow-me?lang=eng)
 
 They were fishermen before they heard the call. Casting their nets into the Sea of Galilee, Peter and Andrew stopped as Jesus of Nazareth approached, looked into their eyes, and spoke the simple words, “Follow me.” Matthew writes that the two fishermen “straightway left their nets, and followed him.”
 
-Then the Son of Man approached two other fishermen who were in a ship with their father, mending their nets. Jesus called to them, “and [James and John] immediately left the ship and their father, and followed [the Lord].”1
+Then the Son of Man approached two other fishermen who were in a ship with their father, mending their nets. Jesus called to them, “and \[James and John\] immediately left the ship and their father, and followed \[the Lord\].”[^1]
 
 Have you ever wondered what it must have been like to have lived in the days of the Savior? If you had been there, would you have heeded His call “Follow me”?
 
@@ -17,9 +20,9 @@ But for some, it may not be such an easy decision. Some have discovered that net
 
 Nets come in many sizes and shapes. The nets that Peter, Andrew, James, and John left were tangible objects—tools that helped them earn a living.
 
-We sometimes think of these four men as modest fishermen who did not sacrifice much when they left their nets to follow the Savior. To the contrary, as Elder James E. Talmage, in Jesus the Christ, points out, Peter, Andrew, James, and John were partners in a prosperous business. They “owned their boats and gave employment to other men.” According to Elder Talmage, Simon Peter “was well to do in a material way; and when he once spoke of having left all to follow Jesus, the Lord did not deny that Peter’s sacrifice of temporal possessions was ... great.”2
+We sometimes think of these four men as modest fishermen who did not sacrifice much when they left their nets to follow the Savior. To the contrary, as Elder James E. Talmage, in *Jesus the Christ,* points out, Peter, Andrew, James, and John were partners in a prosperous business. They “owned their boats and gave employment to other men.” According to Elder Talmage, Simon Peter “was well to do in a material way; and when he once spoke of having left all to follow Jesus, the Lord did not deny that Peter’s sacrifice of temporal possessions was … great.”[^2]
 
-Later, the net of wealth entrapped a rich young man who claimed that he had obeyed all the commandments from his youth. When he asked the Savior what else he should do to have eternal life, the Master said, “If thou wilt be perfect, go and sell that thou hast, and give to the poor, and thou shalt have treasure in heaven: and come and follow me.” When the young man heard that, “he went away sorrowful: for he had great possessions.”3
+Later, the net of wealth entrapped a rich young man who claimed that he had obeyed all the commandments from his youth. When he asked the Savior what else he should do to have eternal life, the Master said, “If thou wilt be perfect, go and sell that thou hast, and give to the poor, and thou shalt have treasure in heaven: and come and follow me.” When the young man heard that, “he went away sorrowful: for he had great possessions.”[^3]
 
 Nets are generally defined as devices for capturing something. In a more narrow but more important sense, we might define a net as anything that entices or prevents us from following the call of Jesus Christ, the Son of the living God.
 
@@ -49,15 +52,15 @@ There was simply too much to do in the time available. Instead of sacrificing th
 
 Nevertheless, the Lord was merciful and helped me to find the energy and time to do all I had committed to do. Although it was difficult, I have never regretted making the choice to heed the Savior’s call and follow Him.
 
-Think of the debt we owe to Him. Jesus is “the resurrection, and the life: he that believeth in [Him], though he were dead, yet shall he live.”4 There are those who have great wealth, yet they would give their all to add just a few additional years, months, or even days to their mortal lives. What should we be willing to give for eternal life?
+Think of the debt we owe to Him. Jesus is “the resurrection, and the life: he that believeth in \[Him\], though he were dead, yet shall he live.”[^4] There are those who have great wealth, yet they would give their all to add just a few additional years, months, or even days to their mortal lives. What should we be willing to give for eternal life?
 
-There are those who would give all they have to experience peace. “Come unto me, all ye that labour and are heavy laden,” the Savior taught, “and I will give you rest.”5 But it is not merely peace that the Savior promises to those who keep His commandments and endure to the end, but eternal life, “which gift is the greatest of all the gifts of God.”6
+There are those who would give all they have to experience peace. “Come unto me, all ye that labour and are heavy laden,” the Savior taught, “and I will give you rest.”[^5] But it is not merely peace that the Savior promises to those who keep His commandments and endure to the end, but eternal life, “which gift is the greatest of all the gifts of God.”[^6]
 
 Because of the Savior, we will live forever. Immortality means that we will never die. But eternal life means to live forever in exalted spheres in companionship with those we cherish, encompassed about by profound love, exquisite joy, and glory.
 
 No amount of money can purchase this exalted state. Eternal life is a gift from a loving Heavenly Father, offered freely and liberally to all who heed the call of the Man of Galilee.
 
-Unfortunately, many are too entangled in their nets to heed the call. The Savior explained that, “Ye believe not, because ye are not of my sheep. ... My sheep hear my voice, and I know them, and they follow me.”7
+Unfortunately, many are too entangled in their nets to heed the call. The Savior explained that “ye believe not, because ye are not of my sheep. … My sheep hear my voice, and I know them, and they follow me.”[^7]
 
 How do we follow the Savior? By exercising faith. By believing in Him. By believing in our Heavenly Father. By believing that God speaks to man on earth today.
 
@@ -67,11 +70,11 @@ We follow the Savior by entering the waters of baptism and receiving a remission
 
 How do we follow the Savior? By obeying Him. He and our Heavenly Father have given us commandments—not to punish or torment us, but to help us come to a fulness of joy, both in this life and for the eternities to come, worlds without end.
 
-In contrast, when we cling to our sins, our pleasures, and sometimes even our perceived obligations; resist the influence of the Holy Ghost; and put aside the words of the prophets; we then stand at the shore of our own Galilee, nets tightly entangling us. We find ourselves unable to leave them behind and follow the living Christ.
+In contrast, when we cling to our sins, our pleasures, and sometimes even our perceived obligations; resist the influence of the Holy Ghost; and put aside the words of the prophets, we then stand at the shore of our *own* Galilee, nets tightly entangling us. We find ourselves unable to leave them behind and follow the living Christ.
 
 But the Shepherd calls to each of us today. Will we recognize the voice of the Son of God? Will we follow Him?
 
-May I extend a word of caution? There are those who feel that if we follow the Savior, our lives will be free from worry, pain, and fear. This is not so! The Savior Himself was described as a man of sorrows.8 Those early disciples who followed the Christ experienced great persecution and trials. The Prophet Joseph Smith was no exception. Nor were the other early Saints of this last dispensation. And it is no different today.
+May I extend a word of caution? There are those who feel that if we follow the Savior, our lives will be free from worry, pain, and fear. This is not so! The Savior Himself was described as “a man of sorrows.”[^8] Those early disciples who followed the Christ experienced great persecution and trials. The Prophet Joseph Smith was no exception. Nor were the other early Saints of this last dispensation. And it is no different today.
 
 I have had the opportunity to speak with a woman who heard the call of the Savior when she was 18. Her father, who was a high official in another church, became angry with her and forbade her from being baptized. He let her know that if she became a member of The Church of Jesus Christ of Latter-day Saints, she would be ostracized from the family.
 
@@ -91,7 +94,7 @@ Yes, I do not suggest that the road will be easy. But I will give you my witness
 
 As I meet the wonderful members of this Church—both young and old—I am encouraged and filled with gratitude for the faithfulness of those who have heard the call of the Savior and have followed Him.
 
-For example, a steelworker follows the Savior. Day after day, over a period of more than three decades, he pulled out his scriptures to read during lunch break as his coworkers chided him. The 70-year-old widow confined to her wheelchair—who, to everyone who visits, cheers their spirits and never fails to tell them of how fortunate she is—follows the Savior. The child who seeks through prayer to commune with the Master of the universe follows the Savior. The wealthy member who gives so generously to the Church and his fellowmen follows the Savior.
+For example, a steelworker follows the Savior. Day after day, over a period of more than three decades, he pulls out his scriptures to read during lunch break as his coworkers chide him. The 70-year-old widow who is confined to her wheelchair and who, to everyone who visits, cheers their spirits and never fails to tell them of how fortunate she is, follows the Savior. The child who seeks through prayer to commune with the Master of the universe follows the Savior. The wealthy member who gives so generously to the Church and his fellowmen follows the Savior.
 
 As Jesus the Christ stood on the shores of the Sea of Galilee 2,000 years ago, so stands He today, issuing the same call He gave to those faithful fishermen and now to all who will hear His voice: “Follow me!”
 
@@ -101,7 +104,28 @@ My brothers and sisters, I proclaim with joyful voice that the gospel is restore
 
 In our day another great prophet lives, who daily adds his witness to these hallowed truths. President Gordon B. Hinckley stands in his sacred office as the mouthpiece of our Lord and Savior Jesus Christ. At his side stand his noble counselors. In addition, he has the sustaining support of the Quorum of the Twelve Apostles, the Quorums of the Seventy, and the millions of members throughout the world who assist him, each adding his voice to proclaim the glorious Restoration of the gospel that is once again restored unto man!
 
-Jesus the Christ is “the way, the truth, and the life: no [one] cometh unto the Father, but by [Him].”9 As a special witness of Him, I testify to you this day that the time will come when every man, woman, and child will look into the Savior’s loving eyes. On that day, we will know with a surety the worth of our decision to straightway follow Him.
+Jesus the Christ is “the way, the truth, and the life: no \[one\] cometh unto the Father, but by \[Him\].”[^9] As a special witness of Him, I testify to you this day that the time will come when every man, woman, and child will look into the Savior’s loving eyes. On that day, we will know with a surety the worth of our decision to straightway follow Him.
 
 That each of us may hear the call of the Master and straightway leave our entangling nets and joyfully follow Him is my earnest prayer in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See [[Matthew 4.18|Matt. 4:18–22]][[Matthew 4.19|]][[Matthew 4.20|]][[Matthew 4.21|]][[Matthew 4.22|]].
+
+[^2]: *Jesus the Christ* (1916), 218.
+
+[^3]: [[Matthew 19.21|Matt. 19:21–22]][[Matthew 19.22|]].
+
+[^4]: [[John 11.25|John 11:25]].
+
+[^5]: [[Matthew 11.28|Matt. 11:28]].
+
+[^6]: [[D&C 14.7|D&C 14:7]].
+
+[^7]: [[John 10.26|John 10:26–27]][[John 10.27|]].
+
+[^8]: [[Isaiah 53.3|Isa. 53:3]]; [[Mosiah 14.3|Mosiah 14:3]].
+
+[^9]: [[John 14.6|John 14:6]].
 

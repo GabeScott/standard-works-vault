@@ -1,5 +1,6 @@
 # Go and Do the Work
-*By N. Eldon Tanner - First Counselor in the First Presidency*
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -18,4 +19,7 @@ Two or three things that were mentioned here today appealed to me particularly. 
 There’s one thing that hasn’t been emphasized but has been mentioned here this morning, and that is the great importance of maintaining self-respect. That’s so important. Help these people in such a way that they’ll feel that they’re helping themselves and contributing to the welfare program.
 
 Now that we have had this meeting, my advice to you is to go and do what you’ve been instructed to do. You’re responsible. The work of the Lord in this area, and in all areas in fact, is upon your shoulders. May the Lord give you strength and courage and understanding and the realization that you’re members of The Church of Jesus Christ of Latter-day Saints with a proper program for those who need help, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

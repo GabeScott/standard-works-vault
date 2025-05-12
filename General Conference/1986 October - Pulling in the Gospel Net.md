@@ -1,5 +1,6 @@
 # Pulling in the Gospel Net
-*By Joseph B. Wirthlin - Of the Quorum of the Twelve Apostles*
+
+By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
 
@@ -29,7 +30,7 @@ Whether we live in Eastern Europe or not, this truth, like a towering mountain, 
 
 This eternal truth was demonstrated many times during our two-year sojourn in the Europe Area. This area stretches from the far north of Finland, Sweden, and Norway to the southernmost tip of Africa and includes about 230,000 members of the Church. I would like to share a few of the experiences that have kept our faith burning brightly.
 
-In Portugal, in the city of Funchal, on the Madeira Island, lived a lady named Asencão Frango who had been a nun for twenty years. As a matter of fact, she was a Mother Superior at a home for poor children and orphans. Toward the end of a four-year teaching assignment early in her life as a nun, doctors discovered a cancer in her throat. Her mother had died of this same disease. Although she knew that her deteriorating health might lead to certain death, she had a strong feeling that she had not finished her work on earth. She prayed with great faith for the restoration of her health and was healed, with no further problems or need for medical care.
+In Portugal, in the city of Funchal, on the Madeira Island, lived a lady named Asencão Frango who had been a nun for twenty years. As a matter of fact, she was a Mother Superior at a home for poor children and orphans. Toward the end of a four-year teaching assignment early in her life as a nun, doctors discovered a cancer in her throat. Her mother had died of this same disease. Although she knew that her deteriorating health might lead to certain death, she had a strong feeling that she had not finished her work on earth. She prayed with great faith for the restoration of her health and was healed, with no further problems or need for medical care.
 
 When her church decided to close the children’s home where she was assigned, she maintained it herself for four years, using an inheritance she had received from her deceased parents, until the children living there were raised and on their own or were adopted.
 
@@ -39,21 +40,21 @@ She read the Book of Mormon and gained a strong testimony of its divinity. Later
 
 In Sweden, Bishop Krister Stendahl of the Lutheran church visited the Stockholm Temple a few days prior to its dedication. He had this inspiring description of his experience, as published in a prominent Swedish newspaper:
 
-“Imagine that a new, gleaming white temple with slender pinnacles and towers has been erected to the glory of God. Not a church, not a chapel, but a temple for sacred ordinances, performed quietly and in solemn dignity.
+“Imagine that a new, gleaming white temple with slender pinnacles and towers has been erected to the glory of God. Not a church, not a chapel, but a *temple* for sacred ordinances, performed quietly and in solemn dignity.
 
-“A temple where the innermost room is named ‘the celestial.’ A temple where the faithful perform vicarious work according to Paul’s statement on baptism for the dead (1 Cor. 15:29).
+“A temple where the innermost room is named ‘the celestial.’ A temple where the faithful perform vicarious work according to Paul’s statement on baptism for the dead ([[1 Corinthians 15.29|1 Cor. 15:29]]).
 
-“All in consequence of the wisdom and calling of Joseph Smith. ...
+“All in consequence of the wisdom and calling of Joseph Smith. …
 
 “What shall we think and say about this? To pretend that it does not concern us that the Mormons—The Church of Jesus Christ of Latter-day Saints—have built a temple in our midst would be conceited or condescending.
 
-“Therefore I will rejoice with them over this temple that they have erected with much sacrifice to the glory of God. To experience their joy and pride over the beauty of the temple warms one’s heart in a special way” (Svenska Kyrkans Tidning, 11 July 1985, p. 1).
+“Therefore I will rejoice with them over this temple that they have erected with much sacrifice to the glory of God. To experience their joy and pride over the beauty of the temple warms one’s heart in a special way” (*Svenska Kyrkans Tidning,* 11 July 1985, p. 1).
 
 President Thomas S. Monson has given me permission to share with you his impressions when he rededicated the German Democratic Republic for the advancement of the work of the Church:
 
-“At 7:30 a.m. [April 27, 1975, we traveled to] the location which had been selected for the special prayer which I felt prompted to offer in this land. ... We walked through the woods ... into a clearing overlooking the Elbe River, with Meissen on the right and Dresden on the left, Meissen being the birthplace of Karl G. Maeser, the founder of Brigham Young University. ... During the prayer, I said, ‘Today marks the dawning of a new beginning for this beautiful land.’ As I used these words, we heard the unmistakable sound of a rooster crowing, followed by the pealing of a cathedral bell in the distance. The day had been overcast, but during the prayer the sun shone brilliantly upon us, warming our bodies and giving us the assurance that our Heavenly Father was pleased with the prayer which was being offered. ... As we returned to our automobiles, the sun disappeared from the sky and the overcast condition which previously existed once again prevailed” (personal journal of Thomas S. Monson).
+“At 7:30 a.m. \[April 27, 1975, we traveled to\] the location which had been selected for the special prayer which I felt prompted to offer in this land. … We walked through the woods … into a clearing overlooking the Elbe River, with Meissen on the right and Dresden on the left, Meissen being the birthplace of Karl G. Maeser, the founder of Brigham Young University. … During the prayer, I said, ‘Today marks the dawning of a new beginning for this beautiful land.’ As I used these words, we heard the unmistakable sound of a rooster crowing, followed by the pealing of a cathedral bell in the distance. The day had been overcast, but during the prayer the sun shone brilliantly upon us, warming our bodies and giving us the assurance that our Heavenly Father was pleased with the prayer which was being offered. … As we returned to our automobiles, the sun disappeared from the sky and the overcast condition which previously existed once again prevailed” (personal journal of Thomas S. Monson).
 
-In his prayer of rededication, President Monson said: “Heavenly Father, wilt Thou open up the way that the faithful may be accorded the privilege of going to Thy holy temple, there to receive their holy endowments and to be sealed as families for time and all eternity” (journal of Thomas S. Monson).
+In his prayer of rededication, President Monson said, “Heavenly Father, wilt Thou open up the way that the faithful may be accorded the privilege of going to Thy holy temple, there to receive their holy endowments and to be sealed as families for time and all eternity” (journal of Thomas S. Monson).
 
 This prayer was offered on Sunday, April 27, 1975, at a time when any thought of a temple was beyond the realm of possibility. It was fulfilled on June 29, 1985, with the dedication of the beautiful temple in Freiberg, GDR.
 
@@ -61,7 +62,7 @@ As you know, temples are now or soon will be within the reach of many members in
 
 We traveled to Ghana in West Africa. There the Church is growing rapidly and is on very solid footing. We traveled along the beautiful coast to a chapel that recently had been completed. After holding a meeting there, we traveled through the village of Cape Coast with President and Sister Ernest J. Miller.
 
-As the sun was setting, we saw a large crowd of villagers. Young, old, and middle-aged all were pulling on a huge net and drawing it out of the water. We stopped and inquired about what they were doing. They were pulling in the fish caught that day. In the net were large and small fish of many kinds. Each villager put his hands to the net to help bring in the catch. The thought ran through my mind of the gathering of Israel in the last days as referred to in Jeremiah. The Lord said, “I will send for many fishers ... and they shall fish them” (Jer. 16:16).
+As the sun was setting, we saw a large crowd of villagers. Young, old, and middle-aged all were pulling on a huge net and drawing it out of the water. We stopped and inquired about what they were doing. They were pulling in the fish caught that day. In the net were large and small fish of many kinds. Each villager put his hands to the net to help bring in the catch. The thought ran through my mind of the gathering of Israel in the last days as referred to in Jeremiah. The Lord said, “I will send for many fishers, … and they shall fish them” ([[Jeremiah 16.16|Jer. 16:16]]).
 
 That, brethren and sisters, is the mission of all of us as members of the Church: to put our hands on the net and pull in thousands of fine men and women who are searching for the truth. With this kind of effort, the Europe Area has pulled in these nets of converts, with a 33 percent increase in the number of convert baptisms in two years.
 
@@ -72,4 +73,7 @@ Our Heavenly Father has endowed us with hearts of courage and faith, with strong
 And so, even though the tasks of life become heavy, and although sorrow thrusts a drooping burden upon us, the light that emanates from our Savior beckons us on, undismayed. A righteous self-discipline can and will rule our lives.
 
 In closing, brothers and sisters, I want to say that this is the way we tried to represent the Church in Europe. I testify that God lives, that Jesus is the Christ, that President Ezra Taft Benson is our prophet, seer, and revelator, and that he bears the keys of the kingdom. I love this church with all my heart and will do my best to serve, in the name of Jesus Christ, amen.
+
+
+
 

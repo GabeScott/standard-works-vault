@@ -1,5 +1,6 @@
 # The Coming Tests and Trials and Glory
-*By Bruce R. McConkie - Of the Quorum of the Twelve Apostles*
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -19,23 +20,23 @@ As we trudge forward, sharp rocks will cut our feet; rivers of lava will melt th
 
 But far in the distance—its heights hidden in the clouds, the divine Shechinah resting upon its summit—far in the distance stands Mount Zion, the grandest peak of all.
 
-Through the morning mists we see Mount Zion, whereon is built “the city of the living God, the heavenly Jerusalem,” where there is assembled “an innumerable company of angels,” on whose height is congregated “the general assembly and church of the firstborn” (Heb. 12:22–23).
+Through the morning mists we see Mount Zion, whereon is built “the city of the living God, the heavenly Jerusalem,” where there is assembled “an innumerable company of angels,” on whose height is congregated “the general assembly and church of the firstborn” ([[Hebrews 12.22|Heb. 12:22–23]][[Hebrews 12.23|]]).
 
 From where we stand, on the peak of 150 years of progress, the view is glorious indeed.
 
-Looking back with pride, we see the spring of 1820 when the Gods of heaven, the supreme rulers of the universe, rent the heavens, appeared to Joseph Smith, and ushered in the dispensation of the fulness of times (see D&C 112:30).
+Looking back with pride, we see the spring of 1820 when the Gods of heaven, the supreme rulers of the universe, rent the heavens, appeared to Joseph Smith, and ushered in the dispensation of the fulness of times (see [[D&C 112.30|D&C 112:30]]).
 
-We see Moroni flying through the midst of heaven, sounding the trump of God, and revealing the book which whispers from the dust with a familiar spirit (see Rev. 14:6).
+We see Moroni flying through the midst of heaven, sounding the trump of God, and revealing the book which whispers from the dust with a familiar spirit (see [[Revelation 14.6|Rev. 14:6]]).
 
 We see other angelic ministrants come, bringing keys and powers and authorities until all of the keys of the kingdom of God are committed unto man on the earth.
 
-We see the little stone cut from the mountain without hands beginning to roll forth toward that coming day when it shall smite the Babylonian image, break in pieces the kingdoms of men, and fill the whole earth (see Dan. 2:34–35).
+We see the little stone cut from the mountain without hands beginning to roll forth toward that coming day when it shall smite the Babylonian image, break in pieces the kingdoms of men, and fill the whole earth (see [[Daniel 2.34|Dan. 2:34–35]][[Daniel 2.35|]]).
 
-We see the elders of the kingdom going forth to many nations, crying repentance, gathering Israel, and assembling the faithful in the tops of the mountains where stands the house of the Lord (see 2 Ne. 12:2).
+We see the elders of the kingdom going forth to many nations, crying repentance, gathering Israel, and assembling the faithful in the tops of the mountains where stands the house of the Lord (see [[2 Nephi 12.2|2 Ne. 12:2]]).
 
 We see converts and stakes and temples. Gifts and signs and miracles abound. The sick are healed and the dead are raised by the power of God, and the work of the Lord goes forward.
 
-But amid it all there is sorrow and toil and testing. The Saints are tried to the full to see if they will abide in the Lord’s covenant even unto death (see D&C 98:14).
+But amid it all there is sorrow and toil and testing. The Saints are tried to the full to see if they will abide in the Lord’s covenant even unto death (see [[D&C 98.14|D&C 98:14]]).
 
 Our gaze falls upon Carthage, where murderous devils in human guise shed the best blood of the nineteenth century.
 
@@ -43,7 +44,7 @@ We see Nauvoo in flames and the holy temple of God desecrated by depraved and cu
 
 We see snow and cold and death and graves, as a weary people follow a new leader to their promised land.
 
-We see a people cursed and smitten and driven as they lay their all on the altar, and we hear them sing with their might, “All is well, all is well” (Hymns, no. 13).
+We see a people cursed and smitten and driven as they lay their all on the altar, and we hear them sing with their might, “All is well, all is well” (*Hymns,* no. 13).
 
 We see prophet follow prophet as the faithful seek to prepare a people for the Second Coming of him whose witnesses they are.
 
@@ -53,7 +54,7 @@ Nor are the days of our greatest sorrows and our deepest sufferings all behind u
 
 We honor our forebears and reverence our prophets. We rejoice in the goodness of God to them and thank him and them for the heritage that is ours.
 
-As we ponder these things and count our blessings, we seem to hear a voice acclaim, “Put off thy shoes from off thy feet for the place whereon thou standest is holy ground” (Ex. 3:5).
+As we ponder these things and count our blessings, we seem to hear a voice acclaim, “Put off thy shoes from off thy feet for the place whereon thou standest is holy ground” ([[Exodus 3.5|Ex. 3:5]]).
 
 But we know that our work is in the living present and our glorious destiny lies ahead.
 
@@ -61,7 +62,7 @@ From the top of the peak where the soles of our feet now tread, we can look forw
 
 But what we can see causes us to rejoice and to tremble. We tremble because of the sorrows and wars and plagues that shall cover the earth. We weep for those in the true Church who are weak and wayward and worldly and who fall by the wayside as the caravan of the kingdom rolls forward.
 
-We rejoice because of the glory and honor that awaits those who come forth out of all this tribulation with clean hands and pure hearts (see Ps. 24:4).
+We rejoice because of the glory and honor that awaits those who come forth out of all this tribulation with clean hands and pure hearts (see [[Psalms 24.4|Ps. 24:4]]).
 
 Looking ahead, we see the gospel preached in all nations and to every people with success attending.
 
@@ -111,25 +112,22 @@ And so, as we view the endless course ahead, the glory and wonder on each succee
 
 With our souls attuned to the infinite, we seem to hear a heavenly choir whose celestial strains resound through the mountains of Israel. The music purifies our souls and the words become a psalm of worship—the Psalm of the Restoration. From peak to peak the echoing strains acclaim:
 
-Glory and honor unto the Lord our God. Let heaven and earth acclaim his name, for he hath wrought wondrous works in all the earth.
-
-Sing unto him, for he sendeth his holy angel and restoreth his pure word. He calleth truth from the earth and raineth righteousness from heaven.
-
-Blessed be his great and holy name. He restoreth the kingdom to Israel; he gathereth his elect out of all nations; he inviteth the Gentiles to join with his people.
-
-All glory to the Lord our King, for he cometh to reign gloriously among his Saints. He cometh with fire, and the wicked are as stubble. He cometh with loving kindness, and his redeemed inherit the earth.
-
-Glory and honor unto the Lord our God.
-
-Sing unto him for his wondrous works.
-
-Blessed be his great and holy name.
-
-All glory to the Lord our King.
+>Glory and honor unto the Lord our God. Let heaven and earth acclaim his name, for he hath wrought wondrous works in all the earth.
+>Sing unto him, for he sendeth his holy angel and restoreth his pure word. He calleth truth from the earth and raineth righteousness from heaven.
+>Blessed be his great and holy name. He restoreth the kingdom to Israel; he gathereth his elect out of all nations; he inviteth the Gentiles to join with his people.
+>All glory to the Lord our King, for he cometh to reign gloriously among his Saints. He cometh with fire, and the wicked are as stubble. He cometh with loving kindness, and his redeemed inherit the earth.
+>Glory and honor unto the Lord our God.
+>Sing unto him for his wondrous works.
+>Blessed be his great and holy name.
+>All glory to the Lord our King.
+>
 
 And as these psalmic words echo and reecho in our hearts, we hear other things that it is not lawful for us to utter; and there comes into our hearts that sure witness that he who called his ancient covenant people, he who guides and preserves us at this hour, even he will be with us and ours everlastingly.
 
 Our souls are at rest.
 
 In the name of the Lord Jesus Christ, amen.
+
+
+
 

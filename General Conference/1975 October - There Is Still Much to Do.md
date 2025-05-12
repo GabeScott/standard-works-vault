@@ -1,5 +1,6 @@
 # There Is Still Much to Do
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -12,4 +13,7 @@ There are just two or three things I wish to say. One is the great, great gratit
 God bless all of you who are deeply engaged in this program. And if it isn’t quite up to par, bring it there, will you?—in every ward and branch and stake and mission. And let us come nearer to the accomplishment of what the Lord has given us to do.
 
 I leave my blessings, the blessings of the Lord, upon you as you go back to your areas and carry forward this great work, in the name of Jesus Christ. Amen.
+
+
+
 

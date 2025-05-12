@@ -1,5 +1,6 @@
 # Stand True and Faithful
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1996 General Conference*
 
@@ -15,25 +16,16 @@ You constantly are faced with difficult choices. Your problems are not new, but 
 
 We have a hymn that I love to hear the youth of the Church sing:
 
-Shall the youth of Zion falter
-
-In defending truth and right?
-
-While the enemy assaileth,
-
-Shall we shrink or shun the fight?
-
-No! True to the faith that our parents have cherished,
-
-True to the truth for which martyrs have perished,
-
-To God’s command,
-
-Soul, heart, and hand,
-
-Faithful and true we will ever stand.
-
-(“True to the Faith,” Hymns, no. 254)
+>Shall the youth of Zion falter
+>In defending truth and right?
+>While the enemy assaileth,
+>Shall we shrink or shun the fight?
+>No! True to the faith that our parents have cherished,
+>True to the truth for which martyrs have perished,
+>To God’s command,
+>Soul, heart, and hand,
+>Faithful and true we will ever stand.
+>
 
 I wish to talk with you about being true to the faith, about being true to yourselves and your associates, about being true to your parents and your heritage, about being true to the Church and to our Heavenly Father and His Son, the Lord Jesus Christ.
 
@@ -45,27 +37,27 @@ Being true to ourselves means being honest. It means being honest in school. We 
 
 I urge each of you young women to get all of the schooling you can get. You will need it for the world into which you will move. Life is becoming so exceedingly competitive. Experts say that the average man or woman, during his or her working career, can expect to have at least five different jobs. The world is changing, and it is so very important that we equip ourselves to move with that change. But there is a bright side to all of this. No other generation in all of history has offered women so many opportunities. Your first objective should be a happy marriage, sealed in the temple of the Lord, and followed by the rearing of a good family. Education can better equip you for the realization of those ideals.
 
-Be honest in your lives. As a Latter-day Saint you cannot do shoplifting or anything of the kind. It was said a long time ago that honesty is the best policy. The finger of the Lord wrote on tablets of stone: “Thou shalt not steal. ... Thou shalt not covet” (Ex. 20:15, 17).
+Be honest in your lives. As a Latter-day Saint you cannot do shoplifting or anything of the kind. It was said a long time ago that honesty is the best policy. The finger of the Lord wrote on tablets of stone: “Thou shalt not steal. … Thou shalt not covet” ([[Exodus 20.15|Ex. 20:15, 17]][[Exodus 20.17|]]).
 
-We must be true to ourselves in matters of personal virtue. You and I as members of this Church cannot become involved in immorality. The Lord has said by way of commandment, “Let virtue garnish thy thoughts unceasingly” (D&C 121:45). He is saying to us that we cannot even think about immoral matters. Why? Because evil thoughts lead to evil deeds. Then He has said that if we will let virtue garnish our thoughts, we shall stand with confidence in the presence of God. Think of that. He goes on to say the Holy Ghost shall be our constant companion. Our dominion shall be an everlasting dominion. (See D&C 121:45–46.) What marvelous and remarkable promises these are, and they are given to those who walk in virtue.
+We must be true to ourselves in matters of personal virtue. You and I as members of this Church cannot become involved in immorality. The Lord has said by way of commandment, “Let virtue garnish thy thoughts unceasingly” ([[D&C 121.45|D&C 121:45]]). He is saying to us that we cannot even think about immoral matters. Why? Because evil thoughts lead to evil deeds. Then He has said that if we will let virtue garnish our thoughts, we shall stand with confidence in the presence of God. Think of that. He goes on to say the Holy Ghost shall be our constant companion. Our dominion shall be an everlasting dominion. (See [[D&C 121.45|D&C 121:45–46]][[D&C 121.46|]].) What marvelous and remarkable promises these are, and they are given to those who walk in virtue.
 
 We cannot afford to be tainted by moral sin. We live in a world where temptation is constantly being thrown at us, particularly at you young people. It is on television. It is in magazines. It is in books. It is on videos which are readily available. Stay away from these things. They will only hurt you. When it comes to the moral law, you know what is expected of you. If you find yourself slipping under the pressure of circumstances, discipline yourselves. Stop before it is too late. You will be forever grateful that you did.
 
-Be true to yourselves and the best you have within you. That best is very good. Shakespeare said, “To thine own self be true, / And it must follow, as the night the day, / Thou canst not then be false to any man” (Hamlet, act 1, scene 3, lines 78–80).
+Be true to yourselves and the best you have within you. That best is very good. Shakespeare said, “To thine own self be true, / And it must follow, as the night the day, / Thou canst not then be false to any man” (*Hamlet,* act 1, scene 3, lines 78–80).
 
 Many young women at your age suffer from lack of self-esteem. Contrary to what you may think, an immoral act of any kind will only lower your self-esteem. Be true to yourselves, and your respect for yourself will increase. Know that yours is a divine birthright. Cultivate a good opinion of yourselves. Others may make cutting remarks concerning you. This is only a sign of their ignorance and not of your qualities. Walk with that dignity which is becoming a young woman who is a daughter of God.
 
 Do not become involved in illegal drugs. Do not touch them. Never experiment with them. I plead with you, with every one of you, to shun them as you would poison. You are young women. A great future is ahead of you. Your lives are radiant with promise. Most of you will someday wish to be married and have children. The use of illegal drugs could place a terrible handicap not only upon you, but also upon your children. I do not hesitate to say that if you tamper with these things, you will regret it. If you discipline yourselves to avoid them, you will have reason to rejoice.
 
-Be true to yourselves, my dear friends. Be true to one another, your friends and associates. Look for the good in those about you, and emphasize that good. Never go around gossiping about your associates or speaking unkind words concerning them. Such words will only backfire to hurt you. Jehovah has commanded, “Thou shalt not bear false witness” (Ex. 20:16).
+Be true to yourselves, my dear friends. Be true to one another, your friends and associates. Look for the good in those about you, and emphasize that good. Never go around gossiping about your associates or speaking unkind words concerning them. Such words will only backfire to hurt you. Jehovah has commanded, “Thou shalt not bear false witness” ([[Exodus 20.16|Ex. 20:16]]).
 
 Reach out to help one another. All of us need help from time to time. We need encouragement. We need friends who will stand by us through thick and thin. I ask each of you to be that kind of a friend.
 
-Some of you may have read in the March issue of the New Era the story of a handicapped girl named Jenni. She was lonely and not very attractive. One day she said to her classmates, “I need a friend. I need someone who will eat lunch with me. Who will be my friend?” One girl stood and said, “I will be your friend,” and then another did likewise. They ate lunch with her. They encouraged her. They helped her. They brought new life into the dark world of this handicapped girl. And in the process they brought new happiness into their own lives. (See Victor W. Harris, “The Miracle of Jenni,” New Era, Mar. 1996, 12–14.)
+Some of you may have read in the March issue of the *New Era* the story of a handicapped girl named Jenni. She was lonely and not very attractive. One day she said to her classmates, “I need a friend. I need someone who will eat lunch with me. Who will be my friend?” One girl stood and said, “I will be your friend,” and then another did likewise. They ate lunch with her. They encouraged her. They helped her. They brought new life into the dark world of this handicapped girl. And in the process they brought new happiness into their own lives. (See Victor W. Harris, “The Miracle of Jenni,” *New Era,* Mar. 1996, 12–14.)
 
 Be true to your parents and your heritage. Regrettably there are a few parents who act in a way that does serious injustice to their children. But these cases are relatively few. No one has a greater interest in your welfare, in your happiness, in your future than do your mothers and fathers. They are of a prior generation. That is true. But they were once the age that you are now. Your problems are not substantially different from what theirs were. If they occasionally place restrictions on you, it is because they see danger down the road. Listen to them. What they ask you to do may not be to your liking. But you will be much happier if you do it. Your mother is your best friend. Never forget that. She gave you life. She cared for you, nurtured you, nursed you when you were sick, and looked after your every need. Listen to her now. Talk with her candidly and confidentially. You will find that she will keep your confidence and that her wisdom will prove to be wonderful.
 
-Many of you are descended from pioneers in this Church. They struggled so hard; they paid such a terrible price for their faith. Be true to them and true always to the Church they loved so much. I wish that each of you would remember that tonight you heard me say that this Church is true. Other churches also do much good, but this is the “true and living church” of the Lord Jesus Christ, whose name it bears (see D&C 1:30). Be true to it. Cling to it. If you will do so it will become as an anchor in the midst of a stormy sea. It will be a light to your lives and a foundation upon which to build them. I give you my solemn testimony that this Church will never be led astray. It is in the hands of God, and should any of its leaders ever attempt to lead it astray, His is the power to remove them. He has said that He has restored His work for the last time, “never again to be destroyed nor given to other people” (D&C 138:44; see also Dan. 2:44–45).
+Many of you are descended from pioneers in this Church. They struggled so hard; they paid such a terrible price for their faith. Be true to them and true always to the Church they loved so much. I wish that each of you would remember that tonight you heard me say that this Church is true. Other churches also do much good, but this is the “true and living church” of the Lord Jesus Christ, whose name it bears (see [[D&C 1.30|D&C 1:30]]). Be true to it. Cling to it. If you will do so it will become as an anchor in the midst of a stormy sea. It will be a light to your lives and a foundation upon which to build them. I give you my solemn testimony that this Church will never be led astray. It is in the hands of God, and should any of its leaders ever attempt to lead it astray, His is the power to remove them. He has said that He has restored His work for the last time, “never again to be destroyed nor given to other people” ([[D&C 138.44|D&C 138:44]]; see also [[Daniel 2.44|Dan. 2:44–45]][[Daniel 2.45|]]).
 
 I hope all of you who are eligible are attending seminary. This organization provides wonderful opportunities to learn the doctrines that will make you happy. It provides wonderful opportunities for socializing with those of your own kind.
 
@@ -81,7 +73,7 @@ Never forget who you are, as you have sung tonight. You are in very deed a child
 
 He wants His sons and daughters to be happy. Sin never was happiness. Transgression never was happiness. Disobedience never was happiness. The way of happiness is found in the plan of our Father in Heaven and in obedience to the commandments of His Beloved Son, the Lord Jesus Christ.
 
-Now let me mention a related matter. I refer to the habit—yes, it has become a habit—of many young people, including young women, in junior high and high school to profane the name of Deity in their conversations. Jehovah wrote on the tablets of stone, “Thou shalt not take the name of the Lord thy God in vain; for [he] will not hold him guiltless that taketh his name in vain” (Ex. 20:7).
+Now let me mention a related matter. I refer to the habit—yes, it has become a habit—of many young people, including young women, in junior high and high school to profane the name of Deity in their conversations. Jehovah wrote on the tablets of stone, “Thou shalt not take the name of the Lord thy God in vain; for \[he\] will not hold him guiltless that taketh his name in vain” ([[Exodus 20.7|Ex. 20:7]]).
 
 Let me tell you of an experience I had when I was a little boy in the first or second grade. I came home from school one day, threw my books on the table, and took the name of the Lord in vain in expressing my relief that school was out for the day.
 
@@ -91,15 +83,15 @@ The taste was terrible. The reprimand was worse. I have never forgotten it, and 
 
 When President Spencer W. Kimball underwent surgery years ago, he was wheeled from the operating room to the intensive care room. The attendant who pushed the gurney which carried him stumbled and let out an oath using the name of the Lord. President Kimball, who was barely conscious, said weakly, “Please! Please! That is my Lord whose names you revile.”
 
-There was a deathly silence; then the young man whispered with a subdued voice, “I am sorry.” (See The Teachings of Spencer W. Kimball, ed. Edward L. Kimball [1982], 198.)
+There was a deathly silence; then the young man whispered with a subdued voice, “I am sorry.” (See *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[1982\], 198.)
 
 And while I am speaking of language, may I plead with you young women never to indulge in dirty, sleazy talk of any kind. There is so much of it and it is so common. There is no need to use such language. It only advertises to others that your vocabulary is so deficient that you cannot express yourself without picking words up out of the gutter. Do not do it. Please do not do it. Do not use such filthy language, and do not profane the name of the Lord.
 
-Be true to our Eternal Father and His Beloved Son. When all else fails, our Lord is there to help us. He has said, “Come unto me, all ye that labour and are heavy laden, and I will give you rest” (Matt. 11:28). Each of you has burdens. Let the Lord help you in carrying those burdens. Again He has said, “Take my yoke upon you, ... for my yoke is easy, and my burden is light” (Matt. 11:29–30). He stands ready to help—to help each of us—with every burden. He loves us so much that He shed drops of blood in Gethsemane, then permitted evil and wicked men to take Him, to compel Him to carry the cross to Golgotha, to suffer beyond any power of description terrible pain when He was nailed to the cross, to be lifted up on the cross, and to die for each of us.
+Be true to our Eternal Father and His Beloved Son. When all else fails, our Lord is there to help us. He has said, “Come unto me, all ye that labour and are heavy laden, and I will give you rest” ([[Matthew 11.28|Matt. 11:28]]). Each of you has burdens. Let the Lord help you in carrying those burdens. Again He has said, “Take my yoke upon you, … for my yoke is easy, and my burden is light” ([[Matthew 11.29|Matt. 11:29–30]][[Matthew 11.30|]]). He stands ready to help—to help each of us—with every burden. He loves us so much that He shed drops of blood in Gethsemane, then permitted evil and wicked men to take Him, to compel Him to carry the cross to Golgotha, to suffer beyond any power of description terrible pain when He was nailed to the cross, to be lifted up on the cross, and to die for each of us.
 
 He was the one perfect man, without blemish, to walk the earth. He was the Savior and Redeemer of mankind. Because of His sacrifice, because of His Atonement, all of us will at some time arise in the Resurrection, and beyond that there will be marvelous opportunities to go forward on the road of immortality and eternal life.
 
-He invites us to come unto Him. He has said to each of us, “Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you” (Matt. 7:7).
+He invites us to come unto Him. He has said to each of us, “Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you” ([[Matthew 7.7|Matt. 7:7]]).
 
 Pray to the Father in His name. None of us can really make it alone. We need help, the kind of help that can come in answer to prayer.
 
@@ -113,13 +105,16 @@ Repentance is one of the first principles of the gospel. Forgiveness is a mark o
 
 The Prophet Isaiah declared:
 
-“Wash you, make you clean; put away the evil of your doings from before mine eyes; cease to do evil. ...
+“Wash you, make you clean; put away the evil of your doings from before mine eyes; cease to do evil. …
 
-“Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool” (Isa. 1:16, 18).
+“Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool” ([[Isaiah 1.16|Isa. 1:16, 18]][[Isaiah 1.18|]]).
 
 This is the time, this is the very hour, to repent of any evil in the past, to ask for forgiveness, to stand a little taller and then to go forward with confidence and faith.
 
 And finally, in all of living have much of fun and laughter. Life is to be enjoyed, not just endured.
 
 I leave my blessing upon you. Please know that we do love you. Please know that we have confidence in you. Live the gospel, be true to the faith, cling to the Church, honor your parents, love the Lord, and walk as a child of God. That you may do so, and taste much of happiness, is my prayer in your behalf, with love in my heart, in the name of Jesus Christ, amen.
+
+
+
 

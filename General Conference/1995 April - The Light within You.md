@@ -1,5 +1,6 @@
 # The Light within You
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1995 General Conference*
 
@@ -15,11 +16,9 @@ When Sister Hinckley and I were much younger and less stiff and brittle, we woul
 
 Back in those days there was a popular song, the opening lines of which were:
 
-Somebody loves you, I want you to know,
-
-Longs to be near you, wherever you go.
-
-(Charlie Tobias and Peter De Rose, “Somebody Loves You,” Edwin H. Morris & Co., Inc., 1932)
+>Somebody loves you, I want you to know,
+>Longs to be near you, wherever you go.
+>
 
 I have interpreted those words differently from the meaning given by the author. I wish you—each of you, wherever you are—to know that you are loved. You are loved by your Father in Heaven, of whose divine nature you have partaken. And He desires that His Holy Spirit will be near you wherever you go if you will invite it and cultivate it.
 
@@ -29,7 +28,10 @@ Some of you may feel that you are not as attractive and beautiful and glamorous 
 
 You need never feel inferior. You need never feel that you were born without talents or without opportunities to give them expression. Cultivate whatever talents you have, and they will grow and refine and become an expression of your true self appreciated by others.
 
-In summary, try a little harder to measure up to the divine within each of you. As Alma said, “Awake and arouse your faculties” (Alma 32:27).
+In summary, try a little harder to measure up to the divine within each of you. As Alma said, “Awake and arouse your faculties” ([[Alma 32.27|Alma 32:27]]).
 
 I thank you for the goodness of your lives, for the desire within your hearts to do the right thing, for the fact that you are prayerful and kind and good. We have every confidence in you. We love you. We pray for you. We leave our blessing with you in the name of Jesus Christ, amen.
+
+
+
 

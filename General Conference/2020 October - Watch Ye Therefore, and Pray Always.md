@@ -1,15 +1,18 @@
 # Watch Ye Therefore, and Pray Always
-*By M. Russell Ballard - Acting President of the Quorum of the Twelve Apostles*
+
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
 
+>*Today I expand my call for prayer to all people from every country around the world.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/10/41ballard?lang=eng)
 
-My dear brothers and sisters, during the last week of His mortal ministry, Jesus taught His disciples to “watch ye therefore, and pray always, that ye may be accounted worthy to escape all these things that shall come to pass, and to stand before the Son of man.”1
+My dear brothers and sisters, during the last week of His mortal ministry, Jesus taught His disciples to “*watch ye therefore, and pray always,* that ye may be accounted worthy to escape all these things that shall come to pass, and to stand before the Son of man.”[^1]
 
-Among the “things that shall come to pass” before His Second Coming are “wars and rumours of wars[,] ... famines, and pestilences, and earthquakes, in divers places.”2
+Among the “things that shall come to pass” before His Second Coming are “wars and rumours of wars\[,\] … famines, and pestilences, and earthquakes, in divers places.”[^2]
 
-In the Doctrine and Covenants, the Savior said, “And all things shall be in commotion; ... for fear shall come upon all people.”3
+In the Doctrine and Covenants, the Savior said, *“And all things shall be in commotion; … for fear shall come upon all people.”*[^3]
 
 Certainly, we live in a time during which things are in commotion. Many people fear the future, and many hearts have turned away from their faith in God and His Son, Jesus Christ.
 
@@ -29,9 +32,9 @@ Each night when I pray, I ask the Lord to bless all who are burdened with grief,
 
 I spent several days last year in the northeastern part of the United States visiting American and Church history sites, attending meetings with our missionaries and our members, and visiting government and business leaders.
 
-On Sunday, October 20, I spoke to a large gathering near Boston, Massachusetts. As I was speaking, I was prompted to say, “I plead with you ... to pray for this country, for our leaders, for our people, and for the families that live in this great nation founded by God.”4
+On Sunday, October 20, I spoke to a large gathering near Boston, Massachusetts. As I was speaking, I was prompted to say, “I plead with you … to pray for this country, for our leaders, for our people, and for the families that live in this great nation founded by God.”[^4]
 
-I also said that America and many of the nations of the earth, as in times past, are at another critical crossroads and need our prayers.5
+I also said that America and many of the nations of the earth, as in times past, are at another critical crossroads and need our prayers.[^5]
 
 My plea was not in my prepared remarks. Those words came to me as I felt the Spirit prompt me to invite those present to pray for their country and their leaders.
 
@@ -49,23 +52,23 @@ The scriptures highlight prayers offered by Jesus as well as His teachings about
 
 “And forgive us our debts, as we forgive our debtors.
 
-“And lead us not into temptation, but deliver us from evil: For thine is the kingdom, and the power, and the glory, for ever. Amen.”6
+“And lead us not into temptation, but deliver us from evil: For thine is the kingdom, and the power, and the glory, for ever. Amen.”[^6]
 
 This focused, beautiful prayer, repeated often throughout Christianity, makes it clear that it is appropriate to directly petition “Our Father which art in heaven” for answers to what is troubling us. Therefore, let us pray for divine guidance.
 
-I invite you to pray always.7 Pray for your family. Pray for the leaders of nations. Pray for the courageous people who are on the front lines in the current battles against social, environmental, political, and biological plagues that impact all people throughout the world: the rich and the poor, the young and the old.
+I invite you to pray always.[^7] Pray for your family. Pray for the leaders of nations. Pray for the courageous people who are on the front lines in the current battles against social, environmental, political, and biological plagues that impact all people throughout the world: the rich and the poor, the young and the old.
 
-The Savior taught us to not limit who we pray for. He said, “Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you.”8
+The Savior taught us to not limit who we pray for. He said, “Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you.”[^8]
 
-On the cross of Calvary, where Jesus died for our sins, He practiced what He taught when He prayed, “Father, forgive them; for they know not what they do.”9
+On the cross of Calvary, where Jesus died for our sins, He practiced what He taught when He prayed, “Father, forgive them; for they know not what they do.”[^9]
 
 Sincerely praying for those who may be considered our enemies demonstrates our belief that God can change our hearts and the hearts of others. Such prayers should strengthen our resolve to make whatever changes are necessary in our own lives, families, and communities.
 
 No matter where you live, what language you speak, or the challenges you face, God hears and answers you in His own way and in His own time. Because we are His children, we can approach Him to seek help, solace, and a renewed desire to make a positive difference in the world.
 
-Praying for justice, peace, the poor, and the sick is often not enough. After we kneel in prayer, we need to get up from our knees and do what we can to help—to help both ourselves and others.10
+Praying for justice, peace, the poor, and the sick is often not enough. After we *kneel* in prayer, we need to get up from our knees and do what we can to help—to help both ourselves and others.[^10]
 
-The scriptures are full of examples of people of faith who combined prayer with action to make a difference in their own lives and in the lives of others. In the Book of Mormon, for example, we read about Enos. It has been observed that “about two-thirds of his short book describes a prayer or series of prayers, and the balance tells what he did in consequence of the answers he received.”11
+The scriptures are full of examples of people of faith who combined prayer with action to make a difference in their own lives and in the lives of others. In the Book of Mormon, for example, we read about Enos. It has been observed that “about two-thirds of his short book describes a prayer or series of prayers, and the balance tells what he did in consequence of the answers he received.”[^11]
 
 We have many examples of how prayer made a difference in our own Church history, beginning with Joseph Smith’s first vocal prayer in a wooded clearing near his parents’ log home in the spring of 1820. Seeking forgiveness and spiritual direction, Joseph’s prayer opened the heavens. Today we are the beneficiaries of Joseph the Prophet and other faithful Latter-day Saint men and women who prayed and acted to help establish The Church of Jesus Christ of Latter-day Saints.
 
@@ -73,7 +76,7 @@ I often think of the prayers of faithful women like Mary Fielding Smith who, wit
 
 Prayer will lift us and draw us together as individuals, as families, as a church, and as a world. Prayer will influence scientists and help them toward discoveries of vaccines and medications that will end this pandemic. Prayer will comfort those who have lost a loved one. It will guide us in knowing what to do for our own personal protection.
 
-Brothers and sisters, I urge you to redouble your commitment to prayer. I urge you to pray in your closets, in your daily walk, in your homes, in your wards, and always in your hearts.12
+Brothers and sisters, I urge you to redouble your commitment to prayer. I urge you to pray in your closets, in your daily walk, in your homes, in your wards, and always in your hearts.[^12]
 
 On behalf of the leaders of The Church of Jesus Christ of Latter-day Saints, I thank you for your prayers for us. I urge you to continue to pray that we may receive the inspiration and revelation to guide the Church through these difficult times.
 
@@ -85,9 +88,40 @@ I knelt in prayer and asked the Lord to help me focus so I could accomplish my w
 
 The world’s current chaotic situation may seem daunting as we consider the multitude of issues and challenges. But it is my fervent testimony that if we will pray and ask Heavenly Father for needed blessings and guidance, we will come to know how we can bless our families, neighbors, communities, and even the countries in which we live.
 
-The Savior prayed and then He “went about doing good”13 by feeding the poor, providing courage and support to those in need, and reaching out in love, forgiveness, peace, and rest to all who would come unto Him. He continues to reach out to us.
+The Savior prayed and then He “went about doing good”[^13] by feeding the poor, providing courage and support to those in need, and reaching out in love, forgiveness, peace, and rest to all who would come unto Him. He continues to reach out to us.
 
-I invite all Church members, as well as our neighbors and friends of other faith groups worldwide, to do as the Savior counseled His disciples: “Watch ye therefore, and pray always”14 for peace, for comfort, for safety, and for opportunities to serve one another.
+I invite all Church members, as well as our neighbors and friends of other faith groups worldwide, to do as the Savior counseled His disciples: “*Watch ye therefore, and pray always*”[^14] for peace, for comfort, for safety, and for opportunities to serve one another.
 
 How great is the power of prayer, and how needed are our prayers of faith in God and His Beloved Son in the world today! Let us remember and appreciate the power of prayer. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Luke 21.36|Luke 21:36]]; emphasis added.
+
+[^2]: [[Matthew 24.6|Matthew 24:6, 7]][[Matthew 24.7|]].
+
+[^3]: [[D&C 88.91|Doctrine and Covenants 88:91]]; emphasis added.
+
+[^4]: M. Russell Ballard, in Sarah Jane Weaver, “President Ballard Pleads with Latter-day Saints to ‘Pray for This Country’ as United States Is at ‘Another Crossroad,’” *Church News,* Oct. 21, 2019, thechurchnews.com.
+
+[^5]: See Weaver, “President Ballard Pleads with Latter-day Saints.”
+
+[^6]: [[Matthew 6.9|Matthew 6:9–13]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]]. Notice that the Joseph Smith Translation clarifies verse 13: “And *suffer* \[permit\] us not *to be led* into temptation, but deliver us from evil” (Joseph Smith Translation, Matthew 6:14 \[in Matthew 6:13, footnote *a*\]).
+
+[^7]: See [[Luke 18.1|Luke 18:1–8]][[Luke 18.2|]][[Luke 18.3|]][[Luke 18.4|]][[Luke 18.5|]][[Luke 18.6|]][[Luke 18.7|]][[Luke 18.8|]]; [[Luke 21.36|21:36]]; [[Ephesians 6.18|Ephesians 6:18]]; [[2 Nephi 32.9|2 Nephi 32:9]]; [[3 Nephi 18.15|3 Nephi 18:15, 18–21]][[3 Nephi 18.18|]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]]; [[D&C 10.5|Doctrine and Covenants 10:5]]; [[D&C 19.38|19:38]]; [[D&C 33.17|33:17]]; [[D&C 61.39|61:39]]; [[D&C 88.126|88:126]]; [[D&C 90.24|90:24]].
+
+[^8]: [[Matthew 5.44|Matthew 5:44]].
+
+[^9]: [[Luke 23.34|Luke 23:34]].
+
+[^10]: See [[Alma 34.27|Alma 34:27–29]][[Alma 34.28|]][[Alma 34.29|]].
+
+[^11]: Sharon J. Harris, *Enos, Jarom, Omni: A Brief Theological Introduction* (2020), 18.
+
+[^12]: See [[Alma 33.3|Alma 33:3–11]][[Alma 33.4|]][[Alma 33.5|]][[Alma 33.6|]][[Alma 33.7|]][[Alma 33.8|]][[Alma 33.9|]][[Alma 33.10|]][[Alma 33.11|]]; [[Alma 34.17|34:17–27]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]].
+
+[^13]: [[Acts 10.38|Acts 10:38]].
+
+[^14]: [[Luke 21.36|Luke 21:36]], emphasis added; see also [[3 Nephi 18.15|3 Nephi 18:15]].
 

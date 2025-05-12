@@ -1,15 +1,18 @@
 # Condition of the Church
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2004 General Conference*
 
+>*I believe the Church is in better condition than it has been at any time in its entire history.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2004/10/condition-of-the-church?lang=eng)
 
-As we open this great conference we note the absence of Elders David B. Haight and Neal A. Maxwell of the Quorum of the Twelve Apostles. Each of them served long and very effectively. We mourn their passing. We greatly miss them. We extend our love to their dear ones. We are confident that they are carrying on this great work on the other side of the veil.
+As we open this great conference, we note the absence of Elders David B. Haight and Neal A. Maxwell of the Quorum of the Twelve Apostles. Each of them served long and very effectively. We mourn their passing. We greatly miss them. We extend our love to their dear ones. We are confident that they are carrying on this great work on the other side of the veil.
 
 We recognize that in the natural course of events there are recurring vacancies which make necessary filling these as they are created.
 
-After fasting and prayer we have called Elder Dieter Friedrich Uchtdorf and Elder David Allan Bednar to fill these vacancies in the Quorum of the Twelve Apostles. We present their names to you this morning. You may not know them, but you will soon get acquainted with them. Those of you who feel you can sustain them in this sacred calling will please signify by the uplifted hand. Any who may be opposed?
+After fasting and prayer, we have called Elder Dieter Friedrich Uchtdorf and Elder David Allan Bednar to fill these vacancies in the Quorum of the Twelve Apostles. We present their names to you this morning. You may not know them, but you will soon get acquainted with them. Those of you who feel you can sustain them in this sacred calling will please signify by the uplifted hand. Any who may be opposed?
 
 Their names will be included in the sustaining of all of the authorities later in the conference. Now we ask these Brethren to take their places on the stand with members of the Twelve. They will speak to us Sunday morning, and you will get to know them better.
 
@@ -25,7 +28,7 @@ We are also pleased to announce that we will construct another temple in Idaho, 
 
 Temples are now under construction in Aba, Nigeria; Helsinki, Finland; Newport Beach and Sacramento, California; and San Antonio, Texas. We are replacing the temple which was destroyed by fire in Samoa.
 
-When those which have thus far been announced are dedicated we shall have 130 working temples. Others will be constructed as the Church continues to grow.
+When those which have thus far been announced are dedicated, we shall have 130 working temples. Others will be constructed as the Church continues to grow.
 
 We are now working on a major undertaking in Salt Lake City. It is imperative that we preserve the environment around Temple Square. This makes necessary a very large construction project. Tithing funds will not be used for this construction. The income from Church businesses, rents on the property, and other such sources make this possible.
 
@@ -40,4 +43,7 @@ Our educational program continues to grow, extending its influence wherever the 
 The Book of Mormon was recently included as one of the 20 most influential books ever published in America. We are now joining hands with a commercial publisher to enlarge the distribution of this sacred volume, this second witness of the Lord Jesus Christ.
 
 And so, brothers and sisters, I might continue. Suffice it to say that I believe the Church is in better condition than it has been at any time in its entire history. I have been around now for nearly 95 years of that history, and I have seen much of it firsthand. I am satisfied that there is greater faith, there is a broader measure of service, and there is a more general measure of integrity among our youth. There is greater vitality in all aspects of the work than we have ever seen before. Let us glory in this wonderful season of the work of the Lord. Let us not be proud or arrogant. Let us be humbly grateful. And let us, each one, resolve within himself or herself that we will add to the luster of this magnificent work of the Almighty, that it may shine across the earth as a beacon of strength and goodness for all the world to look upon, is my humble prayer, in the name of Jesus Christ, amen.
+
+
+
 

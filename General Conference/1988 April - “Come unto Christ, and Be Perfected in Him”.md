@@ -1,13 +1,16 @@
 # “Come unto Christ, and Be Perfected in Him”
-*By Ezra Taft Benson - President of the Church*
+
+By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1988 General Conference*
 
+>*(Read by President Gordon B. Hinckley, First Counselor in the First Presidency)*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1988/04/come-unto-christ-and-be-perfected-in-him?lang=eng)
 
-President Hinckley:
+*President Hinckley:*
 
-We heard President Benson’s strong voice yesterday morning and again last evening, and we were all encouraged by what he said. I am happy to respond to his request that I read the message which he prepared as the closing benediction of this conference.
+*We heard President Benson’s strong voice yesterday morning and again last evening, and we were all encouraged by what he said. I am happy to respond to his request that I read the message which he prepared as the closing benediction of this conference.*
 
 My dear brethren and sisters, this has been a wonderful general conference of the Church. We have felt a marvelous spirit in all of our meetings.
 
@@ -15,13 +18,13 @@ I commend my Brethren of the General Authorities for the excellent addresses the
 
 As we have felt the Spirit and made new and sacred resolves, may we now have the courage and fortitude to carry out those resolves.
 
-For the next six months, your conference edition of the Ensign should stand next to your standard works and be referred to frequently. As my dear friend and brother Harold B. Lee said, we should let these conference addresses “be the guide to [our] walk and talk during the next six months. These are the important matters the Lord sees fit to reveal to this people in this day” (in Conference Report, Apr. 1946, p. 68).
+For the next six months, your conference edition of the *Ensign* should stand next to your standard works and be referred to frequently. As my dear friend and brother Harold B. Lee said, we should let these conference addresses “be the guide to \[our\] walk and talk during the next six months. These are the important matters the Lord sees fit to reveal to this people in this day” (in Conference Report, Apr. 1946, p. 68).
 
-May we all go to our homes rededicated to the sacred mission of the Church as so beautifully set forth in these conference sessions—to “invite all to come unto Christ” (D&C 20:59), “yea, come unto Christ, and be perfected in him” (Moro. 10:32).
+May we all go to our homes rededicated to the sacred mission of the Church as so beautifully set forth in these conference sessions—to “invite all to come unto Christ” ([[D&C 20.59|D&C 20:59]]), “yea, come unto Christ, and be perfected in him” ([[Moroni 10.32|Moro. 10:32]]).
 
 This grand mission of the Church is accomplished by proclaiming the gospel, perfecting the Saints, and redeeming the dead.
 
-In the next few days, in each of our homes, may we prayerfully consider specific ways we as families and individuals can accomplish this mission. While we still feel the spirit of this great conference and while the words still ring in our ears, let us determine how each of us can be doers of the word and not hearers only (see James 1:22).
+In the next few days, in each of our homes, may we prayerfully consider specific ways we as families and individuals can accomplish this mission. While we still feel the spirit of this great conference and while the words still ring in our ears, let us determine how each of us can be doers of the word and not hearers only (see [[James 1.22|James 1:22]]).
 
 In proclaiming the gospel, would you prayerfully consider and ponder the following as it applies to you:
 
@@ -61,11 +64,11 @@ Now, as we conclude this general conference of the Church, I feel to say to you 
 
 “And see that ye have faith, hope, and charity, and then ye will always abound in good works.
 
-“And may the Lord bless you, and keep your garments spotless, that ye may at last be brought to sit down with Abraham, Isaac, and Jacob, and the holy prophets who have been ever since the world began. ...
+“And may the Lord bless you, and keep your garments spotless, that ye may at last be brought to sit down with Abraham, Isaac, and Jacob, and the holy prophets who have been ever since the world began. …
 
 “And now my beloved brethren, I have spoken these words unto you according to the Spirit which testifieth in me; and my soul doth exceedingly rejoice, because of the exceeding diligence and heed which ye have given unto my word.
 
-“And now, may the peace of God rest upon you, and upon your houses and lands, and upon your flocks and herds, and all that you possess, your women and your children, according to your faith and good works, from this time forth and forever” (Alma 7:23–27).
+“And now, may the peace of God rest upon you, and upon your houses and lands, and upon your flocks and herds, and all that you possess, your women and your children, according to your faith and good works, from this time forth and forever” ([[Alma 7.23|Alma 7:23–27]][[Alma 7.24|]][[Alma 7.25|]][[Alma 7.26|]][[Alma 7.27|]]).
 
 Now, may I express my love for the Latter-day Saints everywhere. There are no better people in all the world.
 
@@ -77,7 +80,8 @@ As your humble servant, I desire with all my heart to do God’s will and to fai
 
 Let us all come unto Christ and be perfected in Him, I humbly pray in the name of Jesus Christ, amen.
 
-President Hinckley:
+*To which I add my testimony that these are the words of the Lord’s anointed, the prophet of the living God, the President of The Church of Jesus Christ of Latter-day Saints, President Ezra Taft Benson.*
 
-To which I add my testimony that these are the words of the Lord’s anointed, the prophet of the living God, the President of The Church of Jesus Christ of Latter-day Saints, President Ezra Taft Benson.
+
+
 

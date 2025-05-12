@@ -1,11 +1,12 @@
 # Opportunities to Serve
-*By Franklin D. Richards - Of the First Quorum of the Seventy*
+
+By Elder Franklin D. Richards - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1987/10/opportunities-to-serve?lang=eng)
 
-My dear brothers and sisters, as I have listened to the words of the Brethren this afternoon, much has been said about sacrifice. I couldn’t help but think of the words of that great hymn, “Sacrifice brings forth the blessings of heaven” (“Praise to the Man,” Hymns, 1985, no. 25).
+My dear brothers and sisters, as I have listened to the words of the Brethren this afternoon, much has been said about sacrifice. I couldn’t help but think of the words of that great hymn, “Sacrifice brings forth the blessings of heaven” (“Praise to the Man,” *Hymns,* 1985, no. 25).
 
 I have always felt, however, that, really, it is impossible for us to sacrifice in building the kingdom of God. I would much rather consider it, instead of a sacrifice, a great opportunity to serve God.
 
@@ -42,4 +43,7 @@ Brothers and sisters, it is wonderful to have the opportunities we have in this 
 I’m grateful that I was reserved to be born at this particular time in the history of the world when the gospel has been restored in its fulness. I’m convinced that the Spirit of the Lord is being poured out upon the face of the earth more today than ever before in the history of the world through the restoration of the gospel in its fulness. Because of the Restoration, you and I can bear witness that God lives, that Jesus is the Christ, and that Joseph Smith was a great prophet of God. We’re told that Joseph Smith has done more for the salvation of mankind than any other man who has ever lived on the earth, save Jesus Christ himself. I bear that witness to you. The Church has been reestablished, the power to act in the name of God has been restored, and we have a great prophet standing at the head of this church today.
 
 May the Lord bless him. And may the choice blessings of our Father in Heaven go with you as you leave this conference, I pray, in the name of Jesus Christ, amen.
+
+
+
 

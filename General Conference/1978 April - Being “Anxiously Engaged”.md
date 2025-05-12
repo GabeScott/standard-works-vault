@@ -1,5 +1,6 @@
 # Being “Anxiously Engaged”
-*By Joseph Anderson - Of the First Quorum of the Seventy*
+
+By Elder Joseph Anderson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -7,17 +8,17 @@
 
 The Lord has told us that “men should be anxiously engaged in a good cause, and do many things of their own free will, and bring to pass much righteousness;
 
-“For the power is in them, wherein they are agents unto themselves. And inasmuch as men do good they shall in nowise lose their reward.” (D&C 58:27–28.)
+“For the power is in them, wherein they are agents unto themselves. And inasmuch as men do good they shall in nowise lose their reward.” ([[D&C 58.27|D&C 58:27–28]][[D&C 58.28|]].)
 
 This quotation refers to nonmembers as well as Church members; all men and women have the power to do good. It is of the utmost importance that they have the desire and determination to live righteously. We should not be employed at any time in service that is not a good cause. When members of the Church are engaged in doing something that is evil or contrary to a good cause, we are not living up to the obligations we took upon ourselves in the waters of baptism. Very many people in the world, not of our church, are engaged in a good cause and are trying to bring forth much righteousness. Those who are endeavoring to improve mankind, who teach faith in God and the living of a goodly life, are engaged in a good cause and shall not lose their reward therefore.
 
 If we would have the blessings that the Lord would like to bestow upon us, we must have faith in the Lord Jesus Christ; we must have a knowledge of the true and living God; we must repent of our past sins, overcome any incorrect understanding; we must humble ourselves before God, and make covenants with him, and be obedient to those covenants.
 
-President George Albert Smith, one of our former presidents and a man without guile, used to say in substance: We do not ask our nonmember friends to forsake anything that is true that they have in their churches or in their lives, but we would like them to add to the good they already have the eternal truths of the gospel. If they will do so, they will have a joy and happiness beyond anything they have heretofore had. (See Sharing the Gospel with Others, comp. Preston Nibley, Salt Lake City: Deseret Book Co., 1948, pp. 12–13.)
+President George Albert Smith, one of our former presidents and a man without guile, used to say in substance: We do not ask our nonmember friends to forsake anything that is true that they have in their churches or in their lives, but we would like them to add to the good they already have the eternal truths of the gospel. If they will do so, they will have a joy and happiness beyond anything they have heretofore had. (See *Sharing the Gospel with Others,* comp. Preston Nibley, Salt Lake City: Deseret Book Co., 1948, pp. 12–13.)
 
 The gospel of Christ includes all truth, visible or invisible to the naked eye. It is possible for all men to repent of their sins unless they commit the unpardonable sin. They may receive the blessings of a righteous life if they will only determine to keep the Lord’s commandments, if they will humble themselves and seek his help and guidance.
 
-I like to think that people generally want to do good; they feel happier when they are doing good. Sin never was happiness. It builds up an iron curtain between man and God. The Lord gave us the right pattern when he said, “Do unto others as you would that men should do unto you.” (See Matt. 7:12; Luke 6:31.) The Lord has given us no commandment that is not for our good and benefit and that does not bring satisfaction and happiness if we follow it. We need the help of the Lord, and he will give us that help if we seek it and follow the course that he has provided.
+I like to think that people generally want to do good; they feel happier when they are doing good. Sin never was happiness. It builds up an iron curtain between man and God. The Lord gave us the right pattern when he said, “Do unto others as you would that men should do unto you.” (See [[Matthew 7.12|Matt. 7:12]]; [[Luke 6.31|Luke 6:31]].) The Lord has given us no commandment that is not for our good and benefit and that does not bring satisfaction and happiness if we follow it. We need the help of the Lord, and he will give us that help if we seek it and follow the course that he has provided.
 
 Our young missionaries who go into the world to preach the gospel return home happy because they have been in the service of the Lord, trying to bless mankind. The Lord has been with them. His Spirit has guided them. They are clean-lived; they are not like the carnal world.
 
@@ -29,7 +30,7 @@ Men are crying, “peace, peace,” but there is no peace. We are living in time
 
 How can we be prepared for that day? We must keep the commandments of the Lord; we must be engaged in a good cause, endeavoring to bring forth much righteousness. We must warn our fellowmen. We must teach our children true doctrines and lead them in the paths of rectitude.
 
-The Lord has said to this people: “After your testimony cometh wrath and indignation upon the people.” (D&C 88:88.)
+The Lord has said to this people: “After your testimony cometh wrath and indignation upon the people.” ([[D&C 88.88|D&C 88:88]].)
 
 It is innate in human nature that when we have something interesting in life, something precious, something vital, we desire to share it with those whom we love. We have the gospel of the Lord Jesus Christ, which is the most precious thing, the most important thing in all the world. We love the gospel of our Lord, we love our Father’s children, and we want to share the gospel with them because it will bring joy and happiness to their souls. If accepted and lived, it will bring salvation and exaltation in his kingdom.
 
@@ -37,13 +38,13 @@ Our church, Christ’s church, is a sharing church. We have the responsibility o
 
 Why are we so greatly interested in influencing our fellowmen to serve God and keep his commandments? They are God’s children; they are our brothers and sisters.
 
-The late Dr. James E. Talmage, a member of the Quorum of the Twelve Apostles, has given us this inspirational thought:
+The late Dr. James E. Talmage, a member of the Quorum of the Twelve Apostles, has given us this inspirational thought:
 
 “What is man in this boundless setting of sublime splendor? I answer you: Potentially now, actually to be, he is greater and grander, more precious according to the arithmetic of God, than all the planets and suns of space. For him were they created; they are the handiwork of God; man is His son! In this world man is given dominion over a few things; it is his privilege to achieve supremacy over many things.
 
-“... Incomprehensibly grand as are the physical creations of the earth and space, they have been brought into existence as means to an end, necessary to the realization of the supreme purpose, which in the words of the Creator is thus declared:
+“… Incomprehensibly grand as are the physical creations of the earth and space, they have been brought into existence as means to an end, necessary to the realization of the supreme purpose, which in the words of the Creator is thus declared:
 
-“‘For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.’ (Moses 1:39.)” (“The Earth to Be Redeemed,” Sunday Night Talks by Radio, Salt Lake City: Deseret News Press, 1931, pp. 357–58.)
+“‘For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.’ ([[Moses 1.39|Moses 1:39]].)” (“The Earth to Be Redeemed,” *Sunday Night Talks by Radio,* Salt Lake City: Deseret News Press, 1931, pp. 357–58.)
 
 Think of the great tragedy, the terrible responsibility, that men take upon themselves when they treat so lightly, as is sometimes the case, the destruction of human life. The penalty is an eternal one.
 
@@ -56,4 +57,7 @@ But what about eternal life? One might take the view that immortality and eterna
 The reward for doing good is joy and happiness in this life and eternal life in the great hereafter. To do good is to keep the commandments the Lord has given us. The gospel is the true way of life, the teachings of our Lord and Savior, the light of the world. That which is contrary thereto is darkness and regret.
 
 I bear testimony that this is the Lord’s work, that the gospel of Jesus Christ has been restored to earth with its keys, powers, and authorities, that it is the Lord’s work and glory to bring to pass the immortality and eternal life of man. In the name of Jesus Christ, amen.
+
+
+
 

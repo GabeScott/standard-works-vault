@@ -1,5 +1,6 @@
 # Happiness
-*By Jack H. Goaslind - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder Jack H. Goaslind - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1986 General Conference*
 
@@ -13,21 +14,21 @@ As I have occasion to be with wonderful people throughout the world, I am often 
 
 Lehi’s words to his son Jacob include a profound truth: “All things have been done in the wisdom of him who knoweth all things.
 
-“Adam fell that men might be; and men are, that they might have joy.” (2 Ne. 2:24–25.)
+“Adam fell that men might be; and men are, that they might have joy.” ([[2 Nephi 2.24|2 Ne. 2:24–25]][[2 Nephi 2.25|]].)
 
-Our wise and loving Father in Heaven is concerned for the welfare of his children. He desires to see us happy. The very purpose of our lives can be defined in terms of happiness. The Prophet Joseph Smith said, “Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it.” (History of the Church, 5:134.)
+Our wise and loving Father in Heaven is concerned for the welfare of his children. He desires to see us happy. The very purpose of our lives can be defined in terms of happiness. The Prophet Joseph Smith said, “Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it.” (*History of the Church,* 5:134.)
 
-Our yearnings for happiness were implanted in our hearts by Deity. They represent a kind of homesickness, for we have a residual memory of our premortal existence. They are also a foretaste of the fulness of joy that is promised to the faithful. We can expect with perfect faith that our Father will fulfill our innermost longings for joy. In fact, the plan he has given to guide us is called “the plan of happiness.” (Alma 42:16.) In the meridian of time, it was heralded by angelic messengers as “good tidings of great joy, which shall be to all people.” (Luke 2:10.)
+Our yearnings for happiness were implanted in our hearts by Deity. They represent a kind of homesickness, for we have a residual memory of our premortal existence. They are also a foretaste of the fulness of joy that is promised to the faithful. We can expect with perfect faith that our Father will fulfill our innermost longings for joy. In fact, the plan he has given to guide us is called “the plan of happiness.” ([[Alma 42.16|Alma 42:16]].) In the meridian of time, it was heralded by angelic messengers as “good tidings of great joy, which shall be to all people.” ([[Luke 2.10|Luke 2:10]].)
 
-The Book of Mormon makes it clear that happiness is our destiny. It speaks of dwelling “with God in a state of never-ending happiness.” (Mosiah 2:41.) It is also made clear that “all things shall be restored to their proper order, every thing to its natural frame, ... raised to endless happiness to inherit the kingdom of God, or to endless misery to inherit the kingdom of the devil.” We also learn that we are “raised to happiness according to [our] desires of happiness.” (Alma 41:4–5.)
+The Book of Mormon makes it clear that happiness is our destiny. It speaks of dwelling “with God in a state of never-ending happiness.” ([[Mosiah 2.41|Mosiah 2:41]].) It is also made clear that “all things shall be restored to their proper order, every thing to its natural frame, … raised to endless happiness to inherit the kingdom of God, or to endless misery to inherit the kingdom of the devil.” We also learn that we are “raised to happiness according to \[our\] desires of happiness.” ([[Alma 41.4|Alma 41:4–5]][[Alma 41.5|]].)
 
-Words such as reap, restored, and desire imply that happiness is a consequence, not a reward. We are restored to a state of happiness when we have chosen to live according to the plan of happiness. Our joy in God’s kingdom will be a natural extension of the happiness we cultivate in this life.
+Words such as *reap, restored,* and *desire* imply that happiness is a consequence, not a reward. We are *restored* to a state of happiness when we have chosen to live according to the plan of happiness. Our joy in God’s kingdom will be a natural extension of the happiness we cultivate in this life.
 
 Our happiness is diminished by at least two things: sin and adversity. Of the two, sin is the most tragic. Sin is the most persistent cause of human suffering and of the two brings the deepest remorse. Sin and the temptation to do evil are part of our mortal test. We are being tried to see if we will choose good or evil. It is a hard test, and only those who have resisted temptation can know and gain the strength thereof. Sin is sin because it destroys instead of saves; it tears down instead of builds, it causes despair instead of hope.
 
-The Book of Mormon speaks of men that are in a “carnal state ... and in the bonds of iniquity; they are without God in the world, and they have gone contrary to the nature of God; therefore, they are in a state contrary to the nature of happiness.” (Alma 41:11.) It also records Samuel the Lamanite’s warning to the Nephites: “Ye have sought all the days of your lives for that which ye could not obtain; and ye have sought for happiness in doing iniquity, which thing is contrary to the nature of that righteousness which is in our great and Eternal Head.” (Hel. 13:38.)
+The Book of Mormon speaks of men that are in a “carnal state … and in the bonds of iniquity; they are without God in the world, and they have gone contrary to the nature of God; therefore, they are in a state contrary to the nature of happiness.” ([[Alma 41.11|Alma 41:11]].) It also records Samuel the Lamanite’s warning to the Nephites: “Ye have sought all the days of your lives for that which ye could not obtain; and ye have sought for happiness in doing iniquity, which thing is contrary to the nature of that righteousness which is in our great and Eternal Head.” ([[Helaman 13.38|Hel. 13:38]].)
 
-The doctrine is concisely summarized by Alma: “Behold, I say unto you, wickedness never was happiness.” (Alma 41:10; italics added.) If we are not pure, we would be miserable in the presence of God and Christ, who are by their very nature happy and joyful and cannot look upon sin with any allowance.
+The doctrine is concisely summarized by Alma: “Behold, I say unto you, *wickedness never was happiness*.” ([[Alma 41.10|Alma 41:10]]; italics added.) If we are not pure, we would be miserable in the presence of God and Christ, who are by their very nature happy and joyful and cannot look upon sin with any allowance.
 
 The suffering that results from sin is most tragic because through our own choices we can choose to avoid it. We have that power. We also have the capacity to repent of our sins and to experience the sweet joy of forgiveness. If we are unhappy, let us examine ourselves to see where we need to repent. If we have questions about what we need to do, or not do, we need only listen to our conscience and follow the promptings of the Spirit.
 
@@ -35,11 +36,11 @@ I am acquainted with a man who rebelled from the Church when he was a youth. He 
 
 “I am encompassed about, because of the temptations and the sins which do so easily beset me.
 
-“And when I desire to rejoice, my heart groaneth because of my sins.” (2 Ne. 4:18–19.)
+“And when I desire to rejoice, my heart groaneth because of my sins.” ([[2 Nephi 4.18|2 Ne. 4:18–19]][[2 Nephi 4.19|]].)
 
 Finally, in a night of spiritual turmoil, the man confessed to himself that he had never fully forsaken his sins. Although he had not committed sins worthy of Church court action, he still harbored attitudes and thoughts that robbed him of spirituality, and he went through cycles of guilt and despair that dampened his happiness. He made up his mind to change, and he kept his resolve. He broke the chain of sin and despair and, for the first time in memory, began to experience a real, true happiness. If someone had asked him, “Are we having fun, experiencing happiness, yet?” he could have answered, “Yes, more happiness, or joy, than I could have imagined.”
 
-Striving for happiness is a long, hard journey with many challenges. It requires eternal vigilance to win the victory. You cannot succeed with sporadic little flashes of effort. Constant and valiant living is necessary. That is why patience and faith are so often associated in the scriptures. You must “withstand every temptation of the devil, with [your] faith on the Lord Jesus Christ.” (Alma 37:33.) But remember, faith is not a magical formula. It requires that you make a deliberate decision to do good and then carry out your decision. Do it. Simply do it, and do it long enough that you experience success, no matter how hard it may seem. Your victory over self brings communion with God and results in happiness—lasting and eternal happiness.
+Striving for happiness is a long, hard journey with many challenges. It requires eternal vigilance to win the victory. You cannot succeed with sporadic little flashes of effort. Constant and valiant living is necessary. That is why patience and faith are so often associated in the scriptures. You must “withstand every temptation of the devil, with \[your\] faith on the Lord Jesus Christ.” ([[Alma 37.33|Alma 37:33]].) But remember, faith is not a magical formula. It requires that you make a deliberate decision to do good and then carry out your decision. Do it. Simply do it, and do it long enough that you experience success, no matter how hard it may seem. Your victory over self brings communion with God and results in happiness—lasting and eternal happiness.
 
 The other thing that may diminish our happiness is adversity. Adversity is also part of our mortal probation, experienced by everyone. It is different, however, from sin. While we can choose to avoid sin, we usually cannot choose whether we experience adversity. I am convinced if we are to have happiness in our hearts, we must learn how to preserve it, in our hearts, in the midst of trouble and trial. We can control our attitude toward adversity. Some people are defeated and embittered by it, while others triumph over it and cultivate godlike attributes in the midst of it.
 
@@ -49,19 +50,22 @@ The next morning the wagon master said they would hold a short funeral and bury 
 
 Now, both the mother and the father experienced the same trials, but the father became withdrawn, cantankerous, and bitter. He stopped going to church, found fault with Church leaders. He became caught up in his own miseries, and the light of Christ grew dimmer and dimmer in his life.
 
-On the other hand, the mother’s faith increased. Each new problem seemed to make her stronger. She became an angel of mercy—filled with empathy, compassion, and charity. She was a light to those around her. Her family gravitated toward her and looked to her as their leader. She was happy; he was miserable. (See Ensign, Feb. 1981, pp. 54–55.)
+On the other hand, the mother’s faith increased. Each new problem seemed to make her stronger. She became an angel of mercy—filled with empathy, compassion, and charity. She was a light to those around her. Her family gravitated toward her and looked to her as their leader. She was happy; he was miserable. (See Steve Dunn Hanson, *Ensign,* Feb. 1981, pp. 54–55.)
 
-I would offer one key to maintaining your happiness in spite of adversity. Christ said, “For whosoever will save his life shall lose it: but whosoever will lose his life for my sake, the same shall save it.” (Luke 9:24.) If you would find happiness and joy, lose your life in some noble cause. A worthy purpose must be at the center of every worthy life. President Stephen L. Richards noted that life is a mission, not a career. (See Where Is Wisdom, Salt Lake City: Deseret Book Co., 1955, p. 74.) As Church members, our mission should be the greatest, noblest mission in the universe—the salvation of souls. President David O. McKay was fond of quoting the poet Robert Browning, who said, “There is an answer to the passionate longings of the heart for fullness, and I knew it, and the answer is this: Live in all things outside yourself by love, and you will have joy. That is the life of God; it ought to be our life. In him it is accomplished and perfect; but in all created things it is a lesson learned slowly and through difficulty.” (Quoted in Stepping Stones to an Abundant Life, comp. Llewelyn R. McKay, Salt Lake City: Deseret Book Co., 1971, p. 119.)
+I would offer one key to maintaining your happiness in spite of adversity. Christ said, “For whosoever will save his life shall lose it: but whosoever will lose his life for my sake, the same shall save it.” ([[Luke 9.24|Luke 9:24]].) If you would find happiness and joy, lose your life in some noble cause. A worthy purpose must be at the center of every worthy life. President Stephen L. Richards noted that life is a mission, not a career. (See *Where Is Wisdom,* Salt Lake City: Deseret Book Co., 1955, p. 74.) As Church members, our mission should be the greatest, noblest mission in the universe—the salvation of souls. President David O. McKay was fond of quoting the poet Robert Browning, who said, “There is an answer to the passionate longings of the heart for fullness, and I knew it, and the answer is this: Live in all things outside yourself by love, and you will have joy. That is the life of God; it ought to be our life. In him it is accomplished and perfect; but in all created things it is a lesson learned slowly and through difficulty.” (Quoted in *Stepping Stones to an Abundant Life,* comp. Llewelyn R. McKay, Salt Lake City: Deseret Book Co., 1971, p. 119.)
 
 Service helps us forget our own travails; it enlarges our souls and gives us greater capacity to endure our own trials.
 
 Now, I have spoken of our Father’s plan of happiness by which he guides us into eternal joy. I have talked about overcoming sin through repentance and self-mastery, and I have spoken of taking the edge off adversity through selfless service. Self-mastery and service are keys to our Father’s plan. Christ told his disciples:
 
-“If ye keep my commandments, ye shall abide in my love. ...
+“If ye keep my commandments, ye shall abide in my love. …
 
-“These things I have spoken unto you, that my joy might remain in you, and that your joy might be full.” (John 15:10–11.)
+“These things I have spoken unto you, that my joy might remain in you, and that your joy might be full.” ([[John 15.10|John 15:10–11]][[John 15.11|]].)
 
 The commandments are guides to happiness. I implore you to follow them.
 
 “Are we having fun yet, experiencing true happiness?” I certainly am. I find great joy in life in obeying and serving. I pray that you may also discover the elusive treasure of true happiness through the means that were ordained by our Father, in the name of Jesus Christ, amen.
+
+
+
 

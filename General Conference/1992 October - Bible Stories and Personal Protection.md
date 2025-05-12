@@ -1,5 +1,6 @@
 # Bible Stories and Personal Protection
-*By Dallin H. Oaks - Of the Quorum of the Twelve Apostles*
+
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
 
@@ -9,53 +10,53 @@ My dear brethren, this is an important occasion, when holders of the holy priest
 
 Like many of the older men in this gathering, I have sons and grandsons listening in various locations. We want this meeting to be valuable and interesting to the young men of the priesthood. I am directing my talk primarily to them.
 
-When I was a boy, I spent most of my evenings reading books. One of my favorites was Hurlbut’s Story of the Bible. Published by a Protestant minister to help teach Bible truths to young people, this book tells 168 stories from the Bible.
+When I was a boy, I spent most of my evenings reading books. One of my favorites was *Hurlbut’s Story of the Bible.* Published by a Protestant minister to help teach Bible truths to young people, this book tells 168 stories from the Bible.
 
 I loved these stories and read them many times. I will share some of my favorites and comment on their teachings and their impact on my life.
 
 I begin with a story I thought I understood as a boy but did not begin to understand until later.
 
-The Lord spoke to Abraham and told him to take his only son, Isaac, and go to the top of a mountain in the land of Moriah “and offer him there for a burnt offering.” (Gen. 22:2.)
+The Lord spoke to Abraham and told him to take his son Isaac and go to the top of a mountain in the land of Moriah “and offer him there for a burnt offering” ([[Genesis 22.2|Gen. 22:2]]).
 
 The first time I read this story I didn’t know what a burnt offering was. But I lived on a farm with animals and mountains nearby, so I could easily understand the rest of the story.
 
 Abraham got up early in the morning and saddled one of his animals, and they started out. I thought that Isaac must have felt privileged to be with his father on such a trip.
 
-On the third day, Abraham and Isaac climbed the mountain to worship. Like most young men, Isaac was curious. He saw the fire and the wood and the knife they carried, “but,” he asked his father, “where is the lamb for a burnt offering?” (Gen. 22:7.) I did not realize until I had sons of my own how much pain Abraham must have felt when he answered simply, “My son, God will provide.” (Gen. 22:8.)
+On the third day, Abraham and Isaac climbed the mountain to worship. Like most young men, Isaac was curious. He saw the fire and the wood and the knife they carried, “but,” he asked his father, “where is the lamb for a burnt offering?” ([[Genesis 22.7|Gen. 22:7]]). I did not realize until I had sons of my own how much pain Abraham must have felt when he answered simply, “My son, God will provide” ([[Genesis 22.8|Gen. 22:8]]).
 
-When they came to the prescribed place, Abraham built an altar and laid wood upon it. Then, the Bible says, “Abraham ... bound Isaac his son, and laid him on the altar upon the wood.” (Gen. 22:9.) What did Isaac think when Abraham did such a strange thing? The Bible mentions no struggle or objection. Isaac’s silence can only be explained in terms of his trust in and obedience to his father.
+When they came to the prescribed place, Abraham built an altar and laid wood upon it. Then, the Bible says, “Abraham … bound Isaac his son, and laid him on the altar upon the wood” ([[Genesis 22.9|Gen. 22:9]]). What did Isaac think when Abraham did such a strange thing? The Bible mentions no struggle or objection. Isaac’s silence can only be explained in terms of his trust in and obedience to his father.
 
-And then the Bible says, “Abraham stretched forth his hand, and took the knife to slay his son.” (Gen. 22:10.)
+And then the Bible says, “Abraham stretched forth his hand, and took the knife to slay his son” ([[Genesis 22.10|Gen. 22:10]]).
 
-As you know, Abraham had passed his test, and the Lord saved young Isaac. “Lay not thine hand upon the lad,” an angel commanded Abraham. (Gen. 22:12.) A ram whose horns were caught in a thicket became the offering, instead of Isaac.
+As you know, Abraham had passed his test, and the Lord saved young Isaac. “Lay not thine hand upon the lad,” an angel commanded Abraham ([[Genesis 22.12|Gen. 22:12]]). A ram whose horns were caught in a thicket became the offering, instead of Isaac.
 
-As a young man, I saw mostly the adventure in that story, though I was surely impressed with Isaac’s obedience. When I was older, I learned that the experience of Abraham and Isaac was what the scriptures call a type, which is a likeness or reminder of something else. The Book of Mormon prophet Jacob said that the command for Abraham to sacrifice his son Isaac was “a similitude of God and his Only Begotten Son.” (Jacob 4:5.)
+As a young man, I saw mostly the adventure in that story, though I was surely impressed with Isaac’s obedience. When I was older, I learned that the experience of Abraham and Isaac was what the scriptures call a *type,* which is a likeness or reminder of something else. The Book of Mormon prophet Jacob said that the command for Abraham to sacrifice his son Isaac was “a similitude of God and his Only Begotten Son” ([[Jacob 4.5|Jacob 4:5]]).
 
 This story also shows the goodness of God in protecting Isaac and in providing a substitute so he would not have to die. Because of our sins and our mortality, we, like Isaac, are condemned to death. When all other hope is gone, our Father in Heaven provides the Lamb of God, and we are saved by his sacrifice.
 
-The Apostle Paul taught that the scriptures are “given by inspiration of God” and are “profitable ... for instruction in righteousness.” (2 Tim. 3:16.) We obtain instruction in righteousness from the experiences recorded in the scriptures. They provide what we might call case studies of the results of keeping or breaking the commandments of God.
+The Apostle Paul taught that the scriptures are “given by inspiration of God” and are “profitable … for instruction in righteousness” ([[2 Timothy 3.16|2 Tim. 3:16]]). We obtain instruction in righteousness from the experiences recorded in the scriptures. They provide what we might call case studies of the results of keeping or breaking the commandments of God.
 
-One example of special importance to young people involved young Joseph, who was sold into Egypt. Though only a slave, Joseph’s abilities were so impressive to his master that he was put in charge of all that his master had, in the house and in the field. (See Gen. 39:4–6.) Then, in that position of prominence and power, Joseph met a test.
+One example of special importance to young people involved young Joseph, who was sold into Egypt. Though only a slave, Joseph’s abilities were so impressive to his master that he was put in charge of all that his master had in the house and in the field (see [[Genesis 39.4|Gen. 39:4–6]][[Genesis 39.5|]][[Genesis 39.6|]]). Then, in that position of prominence and power, Joseph met a test.
 
-His master’s wife tempted him to commit adultery with her. Joseph rejected her advances, telling her he would not betray the trust of her husband, or the even greater trust he would violate by sinning against God in doing what Joseph called “this great wickedness.” (Gen. 39:9.) He rejected her again and again. Then one day, when no one else was in the house, she seized hold of his clothing. In a marvelously vivid description, the scripture says, “And he left his garment in her hand, and fled, and got him out.” (Gen. 39:12.)
+His master’s wife tempted him to commit adultery with her. Joseph rejected her advances, telling her he would not betray the trust of her husband or the even greater trust he would violate by sinning against God in doing what Joseph called “this great wickedness” ([[Genesis 39.9|Gen. 39:9]]). He rejected her again and again. Then one day, when no one else was in the house, she seized hold of his clothing. In a marvelously vivid description, the scripture says, “And he left his garment in her hand, and fled, and got him out” ([[Genesis 39.12|Gen. 39:12]]).
 
-What a persuasive instruction in righteousness! The same teaching was given in this modern revelation: “And go ye out from among the wicked. Save yourselves. Be ye clean that bear the vessels of the Lord.” (D&C 38:42.) Those words command all of us to follow the example of Joseph.
+What a persuasive instruction in righteousness! The same teaching was given in this modern revelation: “And go ye out from among the wicked. Save yourselves. Be ye clean that bear the vessels of the Lord” ([[D&C 38.42|D&C 38:42]]). Those words command all of us to follow the example of Joseph.
 
 A common element in many of my best-loved Bible stories was the way the Lord protected his righteous and faithful sons. When I was young, that was my favorite part of the story of Joseph.
 
-We all remember how the jealous older sons of Jacob plotted to kill their favored younger brother. After seizing Joseph and throwing him into a pit, they decided to sell him into slavery instead. Even as they told their father that Joseph had been killed by wild beasts, the traders who had purchased him on the plains of Canaan were leading him down into Egypt and slavery. (See Gen. 37.)
+We all remember how the jealous older sons of Jacob plotted to kill their favored younger brother. After seizing Joseph and throwing him into a pit, they decided to sell him into slavery instead. Even as they told their father that Joseph had been killed by wild beasts, the traders who had purchased him on the plains of Canaan were leading him down into Egypt and slavery. (See [[Genesis 37.1|Gen. 37]][[Genesis 37.2|]][[Genesis 37.3|]][[Genesis 37.4|]][[Genesis 37.5|]][[Genesis 37.6|]][[Genesis 37.7|]][[Genesis 37.8|]][[Genesis 37.9|]][[Genesis 37.10|]][[Genesis 37.11|]][[Genesis 37.12|]][[Genesis 37.13|]][[Genesis 37.14|]][[Genesis 37.15|]][[Genesis 37.16|]][[Genesis 37.17|]][[Genesis 37.18|]][[Genesis 37.19|]][[Genesis 37.20|]][[Genesis 37.21|]][[Genesis 37.22|]][[Genesis 37.23|]][[Genesis 37.24|]][[Genesis 37.25|]][[Genesis 37.26|]][[Genesis 37.27|]][[Genesis 37.28|]][[Genesis 37.29|]][[Genesis 37.30|]][[Genesis 37.31|]][[Genesis 37.32|]][[Genesis 37.33|]][[Genesis 37.34|]][[Genesis 37.35|]][[Genesis 37.36|]].)
 
-In Egypt, Joseph was unjustly sent to prison. But even there he excelled, and the Lord blessed him. In time he came forth to interpret Pharaoh’s dream, and he was made ruler of all Egypt. In that powerful position, he became the instrument to save his people from famine and to love and forgive the brothers who had wronged him. (See Gen. 40–45.)
+In Egypt, Joseph was unjustly sent to prison. But even there he excelled, and the Lord blessed him. In time he came forth to interpret Pharaoh’s dream, and he was made ruler of all Egypt. In that powerful position, he became the instrument to save his people from famine and to love and forgive the brothers who had wronged him. (See [[Genesis 40.1|Gen. 40–45]][[Genesis 40.2|]][[Genesis 40.3|]][[Genesis 40.4|]][[Genesis 40.5|]][[Genesis 40.6|]][[Genesis 40.7|]][[Genesis 40.8|]][[Genesis 40.9|]][[Genesis 40.10|]][[Genesis 40.11|]][[Genesis 40.12|]][[Genesis 40.13|]][[Genesis 40.14|]][[Genesis 40.15|]][[Genesis 40.16|]][[Genesis 40.17|]][[Genesis 40.18|]][[Genesis 40.19|]][[Genesis 40.20|]][[Genesis 40.21|]][[Genesis 40.22|]][[Genesis 40.23|]]).
 
-As a young boy, I was thrilled with Joseph’s adventures and impressed with how the Lord had rescued him from the perils of murder, slavery, and prison. The first time I read the Book of Mormon, I found the statement that “Joseph ... who was sold into Egypt ... was preserved by the hand of the Lord.” (1 Ne. 5:14.) In later readings in the scriptures, I found that this kind of protection is available to all. For example, the Bible states that “the Lord preserveth the faithful” (Ps. 31:23), and that God “is a shield unto them that put their trust in him” (Prov. 30:5).
+As a young boy, I was thrilled with Joseph’s adventures and impressed with how the Lord had rescued him from the perils of murder, slavery, and prison. The first time I read the Book of Mormon, I found the statement that “Joseph … who was sold into Egypt … was preserved by the hand of the Lord” ([[1 Nephi 5.14|1 Ne. 5:14]]). In later readings in the scriptures, I found that this kind of protection is available to all. For example, the Bible states that “the Lord preserveth the faithful” ([[Psalms 31.23|Ps. 31:23]]) and that God “is a shield unto them that put their trust in him” ([[Proverbs 30.5|Prov. 30:5]]).
 
 Another favorite example of God’s protecting care is the shepherd boy David. David had a firm faith in the God of Israel, and that faith gave him great courage.
 
-When the armies of the Philistines were gathered to battle against the Israelites, the mighty Goliath came forward and hurled his challenge to individual combat. King Saul and all Israel “were dismayed, and greatly afraid.” (1 Sam. 17:11.) Day after day he renewed his challenge, but no one would face him.
+When the armies of the Philistines were gathered to battle against the Israelites, the mighty Goliath came forward and hurled his challenge to individual combat. King Saul and all Israel “were dismayed, and greatly afraid” ([[1 Samuel 17.11|1 Sam. 17:11]]). Day after day he renewed his challenge, but no one would face him.
 
-When young David came to the camp of Israel to deliver provisions, he heard Goliath’s roar. In surprise David asked, “Who is this uncircumcised Philistine, that he should defy the armies of the living God?” (1 Sam. 17:26.) David asked if he could fight the man. The king refused, saying, “Thou art but a youth.” (1 Sam. 17:33.) David replied with courage and faith: “The Lord that delivered me out of the paw of the lion, ... he will deliver me out of the hand of this Philistine.” (1 Sam. 17:37.)
+When young David came to the camp of Israel to deliver provisions, he heard Goliath’s roar. In surprise David asked, “Who is this uncircumcised Philistine, that he should defy the armies of the living God?” ([[1 Samuel 17.26|1 Sam. 17:26]]). David asked if he could fight the man. The king refused, saying, “Thou art but a youth” ([[1 Samuel 17.33|1 Sam. 17:33]]). David replied with courage and faith: “The Lord that delivered me out of the paw of the lion, … he will deliver me out of the hand of this Philistine” ([[1 Samuel 17.37|1 Sam. 17:37]]).
 
-As David went onto the field of battle, Goliath mocked him for his youth, cursed him by his gods, and shouted that he would feed his flesh to the birds and beasts of the field. (See 1 Sam. 17:42–44.)
+As David went onto the field of battle, Goliath mocked him for his youth, cursed him by his gods, and shouted that he would feed his flesh to the birds and beasts of the field (see [[1 Samuel 17.42|1 Sam. 17:42–44]][[1 Samuel 17.43|]][[1 Samuel 17.44|]]).
 
 David’s reply is one of the great expressions of faith and courage in all our literature. It thrilled me as a boy, and it still thrills me.
 
@@ -63,25 +64,25 @@ David’s reply is one of the great expressions of faith and courage in all our 
 
 “This day will the Lord deliver thee into mine hand; and I will smite thee, and take thine head from thee; and I will give the carcases of the host of the Philistines this day unto the fowls of the air, and to the wild beasts of the earth; that all the earth may know that there is a God in Israel.
 
-“And all this assembly shall know that the Lord saveth not with sword and spear: for the battle is the Lord’s, and he will give you into our hands.” (1 Sam. 17:45–47.)
+“And all this assembly shall know that the Lord saveth not with sword and spear: for the battle is the Lord’s, and he will give you into our hands” ([[1 Samuel 17.45|1 Sam. 17:45–47]][[1 Samuel 17.46|]][[1 Samuel 17.47|]]).
 
 You all know what happened next. David stunned the Philistine with a sling-stone and cut off his head with his own sword. Frightened by the fall of their champion, the Philistines fled. Shouting in triumph, the armies of Israel pursued them and won a great victory.
 
 Countless young people have been inspired by this marvelous instruction in righteousness. At times all of us must stand against those who mock and revile. Some of us, sometime, will face some earthly power as mighty as Goliath. When that happens, we should emulate the courage of David, who was mighty because he had faith and he went forth in a righteous cause in the name of the Lord of Hosts.
 
-Our missionaries also seem weak and defenseless, powerless against the armaments of the adversary and those who serve him. But the Lord has promised them that he “will be their shield” (D&C 35:14), and that promise is fulfilled every day in many places around the world.
+Our missionaries also seem weak and defenseless, powerless against the armaments of the adversary and those who serve him. But the Lord has promised them that he “will be their shield” ([[D&C 35.14|D&C 35:14]]), and that promise is fulfilled every day in many places around the world.
 
-The shield the Lord gives to the faithful also protects us against our own harmful impulses. The revelation that commands modern Saints to refrain from alcohol, tobacco, hot drinks, and other harmful things promises the faithful that “the destroying angel shall pass by them, as the children of Israel, and not slay them.” (D&C 89:21.)
+The shield the Lord gives to the faithful also protects us against our own harmful impulses. The revelation that commands modern Saints to refrain from alcohol, tobacco, hot drinks, and other harmful things promises the faithful that “the destroying angel shall pass by them, as the children of Israel, and not slay them” ([[D&C 89.21|D&C 89:21]]).
 
 Another story of protection involved a prophet and his young servant. Because Elisha had helped the kingdom of Israel repel the Syrians, they sent a great army with horses and chariots to capture the prophet. When Elisha’s young servant saw the armies surrounding their city, he cried out in fear, but Elisha reassured him:
 
 “Fear not: for they that be with us are more than they that be with them.
 
-“And Elisha prayed, and said, Lord, I pray thee, open his eyes, that he may see. And the Lord opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha.” (2 Kgs. 6:16–17.)
+“And Elisha prayed, and said, Lord, I pray thee, open his eyes, that he may see. And the Lord opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha” ([[2 Kings 6.16|2 Kgs. 6:16–17]][[2 Kings 6.17|]]).
 
 The Lord intervened to confuse and blind the Syrians, and they were taken prisoners by the armies of Israel.
 
-When I read this wonderful story as a boy, I always identified with the young servant of Elisha. I thought, If I am ever surrounded by the forces of evil while I am in the Lord’s service, I hope the Lord will open my eyes and give me faith to understand that when we are in the work of the Lord, those that are with us are always more powerful than those that oppose us.
+When I read this wonderful story as a boy, I always identified with the young servant of Elisha. I thought, If I am ever surrounded by the forces of evil while I am in the Lord’s service, I hope the Lord will open my eyes and give me faith to understand that when we are in the work of the Lord, those who are with us are always more powerful than those who oppose us.
 
 Bible stories such as these do not mean that the servants of God are delivered from all hardship or that they are always saved from death. Some believers lose their lives in persecutions, and some suffer great hardships as a result of their faith. But the protection promised to the faithful servants of God is a reality today as it was in Bible times.
 
@@ -113,9 +114,9 @@ Inside the car June couldn’t hear the conversation, but she could see the acti
 
 Then, for the first time, I saw the possibility of help. From behind the robber, a city bus approached. It stopped about twenty feet away. A passenger stepped off and scurried away. The driver looked directly at me, but I could see that he was not going to offer any assistance.
 
-While this was happening behind the young robber, out of his view, he became nervous and distracted. His gun wavered from my stomach until its barrel pointed slightly to my left. My arm was already partly raised, and with a quick motion I could seize the gun and struggle with him without the likelihood of being shot. I was taller and heavier than this young man, and at that time of my life was somewhat athletic. I had no doubt that I could prevail in a quick wrestling match if I could get his gun out of the contest.
+While this was happening behind the young robber, out of his view, he became nervous and distracted. His gun wavered from my stomach until its barrel pointed slightly to my left. My arm was already partly raised, and with a quick motion I could seize the gun and struggle with him without the likelihood of being shot. I was taller and heavier than this young man and at that time of my life was somewhat athletic. I had no doubt that I could prevail in a quick wrestling match if I could get his gun out of the contest.
 
-Just as I was about to make my move, I had a unique experience. I did not see anything or hear anything, but I knew something. I knew what would happen if I grabbed that gun. We would struggle, and I would turn the gun into that young man’s chest. It would fire, and he would die. I also understood that I must not have the blood of that young man on my conscience for the rest of my life.
+Just as I was about to make my move, I had a unique experience. I did not see anything or hear anything, but I *knew* something. I knew what would happen if I grabbed that gun. We would struggle, and I would turn the gun into that young man’s chest. It would fire, and he would die. I also understood that I must not have the blood of that young man on my conscience for the rest of my life.
 
 I relaxed, and as the bus pulled away I followed an impulse to put my right hand on his shoulder and give him a lecture. June and I had some teenage children at that time, and giving lectures came naturally.
 
@@ -125,7 +126,10 @@ With the gun back in my stomach, the young robber replied to my lecture by going
 
 I have often pondered the significance of that event in relation to the responsibilities that came later in my life. Less than a year after that August night, I was chosen as president of Brigham Young University. Almost fourteen years after that experience, I received my present calling.
 
-I am grateful that the Lord gave me the vision and strength to refrain from trusting in the arm of flesh and to put my trust in the protecting care of our Heavenly Father. I am grateful for the Book of Mormon promise to us of the last days that “the righteous need not fear,” for the Lord “will preserve the righteous by his power.” (1 Ne. 22:17.) I am grateful for the protection promised to those who have kept their covenants and qualified for the blessings promised in sacred places.
+I am grateful that the Lord gave me the vision and strength to refrain from trusting in the arm of flesh and to put my trust in the protecting care of our Heavenly Father. I am grateful for the Book of Mormon promise to us of the last days that “the righteous need not fear,” for the Lord “will preserve the righteous by his power” ([[1 Nephi 22.17|1 Ne. 22:17]]). I am grateful for the protection promised to those who have kept their covenants and qualified for the blessings promised in sacred places.
 
 These and all promises to the faithful children of God are made by the voice and power of the Lord God of Israel. I testify of that God, our Savior Jesus Christ, whose resurrection and atonement have assured immortality and provided the opportunity and direction toward eternal life. In the name of Jesus Christ, amen.
+
+
+
 

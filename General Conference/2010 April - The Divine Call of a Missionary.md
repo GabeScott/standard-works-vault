@@ -1,21 +1,24 @@
 # The Divine Call of a Missionary
-*By Ronald A. Rasband - Of the Presidency of the Seventy*
+
+By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
+
+>*The Lord needs every able young man to prepare and recommit, starting tonight, to be worthy of a call from the prophet of God to serve a mission.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/04/the-divine-call-of-a-missionary?lang=eng)
 
 Good evening, my dear brethren of the priesthood. Tonight I would like to speak about missionary service. I direct my comments to the vast army of young men who hold the Aaronic Priesthood who are gathered throughout the entire world and to their fathers, grandfathers, and priesthood leaders who watch over them.
 
-Missionary work is a subject very close to my heart, as it is to every member of the eight Quorums of the Seventy, whom the Lord has appointed to go “before his face into every city and place, whither he himself would come.”1 Missionary work is the lifeblood of the Church and the lifesaving blessing to all who accept its message.
+Missionary work is a subject very close to my heart, as it is to every member of the eight Quorums of the Seventy, whom the Lord has appointed to go “before his face into every city and place, whither he himself would come.”[^1] Missionary work is the lifeblood of the Church and the lifesaving blessing to all who accept its message.
 
-When the Master ministered among men, He called fishermen at Galilee to leave their nets and follow Him, declaring, “I will make you fishers of men.”2 The Lord extended those calls to humble men so that through them others would hear the truths of His gospel and come unto Him.
+When the Master ministered among men, He called fishermen at Galilee to leave their nets and follow Him, declaring, “I will make you fishers of men.”[^2] The Lord extended those calls to humble men so that through them others would hear the truths of His gospel and come unto Him.
 
-In June of 1837, the Prophet Joseph Smith called Heber C. Kimball, an Apostle, to go on a mission to England. Elder Kimball’s call came as the two sat in the Kirtland Temple and Joseph spoke with divine authority: “Brother Heber, the Spirit of the Lord has whispered to me, ‘Let my servant Heber go to England and proclaim my gospel and open the door of salvation to that nation.’”3
+In June of 1837, the Prophet Joseph Smith called Heber C. Kimball, an Apostle, to go on a mission to England. Elder Kimball’s call came as the two sat in the Kirtland Temple and Joseph spoke with divine authority: “Brother Heber, the Spirit of the Lord has whispered to me, ‘Let my servant Heber go to England and proclaim my gospel and open the door of salvation to that nation.’”[^3]
 
 That whispering of the Spirit is an example of how the call comes to servants of the Lord to send missionaries to their fields of labor.
 
-Today missionaries go forth two by two as appointed by the Lord, carrying that same message, with the same divine call to serve from the prophet of God. Our prophet, President Thomas S. Monson, has said of those called to serve: “The missionary opportunity of a lifetime is yours. The blessings of eternity await you. Yours is the privilege to be not spectators but participants on the stage of priesthood service.”4
+Today missionaries go forth two by two as appointed by the Lord, carrying that same message, with the same divine call to serve from the prophet of God. Our prophet, President Thomas S. Monson, has said of those called to serve: “The missionary opportunity of a lifetime is yours. The blessings of eternity await you. Yours is the privilege to be not spectators but participants on the stage of priesthood service.”[^4]
 
 The stage is yours, my dear Aaronic Priesthood boys. Are you ready and willing to play your part? The Lord needs every able young man to prepare and recommit, starting tonight, to be worthy of a call from the prophet of God to serve a mission.
 
@@ -25,9 +28,9 @@ As Sister Rasband and I had the privilege of presiding over the New York New Yor
 
 As I interviewed them on their first day in the mission, I had a profound sense of gratitude for each missionary. I felt that their call to our mission was divinely designed for them and for me as their mission president.
 
-After finishing our mission assignment, I was called by President Gordon B. Hinckley to serve as a Seventy in the Church. Part of my early training as a new General Authority included an opportunity to sit with members of the Twelve as they assigned missionaries to serve in one of the 300-plus missions of this great Church.
+After finishing our mission assignment, I was called by President Gordon B. Hinckley to serve as a Seventy in the Church. Part of my early training as a new General Authority included an opportunity to sit with members of the Twelve as they assigned missionaries to serve in one of the 300-plus missions of this great Church.
 
-With the encouragement and permission of President Henry B. Eyring, I would like to relate to you an experience, very special to me, which I had with him several years ago when he was a member of the Quorum of the Twelve. Each Apostle holds the keys of the kingdom and exercises them at the direction and assignment of the President of the Church. Elder Eyring was assigning missionaries to their fields of labor, and as part of my training, I was invited to observe.
+With the encouragement and permission of President Henry B. Eyring, I would like to relate to you an experience, very special to me, which I had with him several years ago when he was a member of the Quorum of the Twelve. Each Apostle holds the keys of the kingdom and exercises them at the direction and assignment of the President of the Church. Elder Eyring was assigning missionaries to their fields of labor, and as part of my training, I was invited to observe.
 
 I joined Elder Eyring early one morning in a room where several large computer screens had been prepared for the session. There was also a staff member from the Missionary Department who had been assigned to assist us that day.
 
@@ -59,9 +62,26 @@ I conclude with the Lord’s words to the Whitmer brothers, who had a profound r
 
 In the preface to section 14 of the Doctrine and Covenants, it states, “Three of the Whitmer sons, each having received a testimony as to the genuineness of the work, became deeply concerned over the matter of their individual duty.”
 
-To John and Peter Whitmer Jr. the Lord said this: “For many times you have desired of me to know that which would be of the most worth unto you.”5
+To John and Peter Whitmer Jr. the Lord said this: “For many times you have desired of me to know that which would be of the most worth unto you.”[^5]
 
-I suppose many of you young men have asked yourselves that same question. Here is the Lord’s answer: “And now, behold, I say unto you, that the thing which will be of the most worth unto you will be to declare repentance unto this people, that you may bring souls unto me, that you may rest with them in the kingdom of my Father.”6
+I suppose many of you young men have asked yourselves that same question. Here is the Lord’s answer: “And now, behold, I say unto you, that the thing which will be of the most worth unto you will be to declare repentance unto this people, that you may bring souls unto me, that you may rest with them in the kingdom of my Father.”[^6]
 
-At this time in your life, a mission call from the Lord, my young friends, is the most important work that you can do. Prepare now, live righteously, learn from your family and Church leaders, and come join with us in building the kingdom of God on earth—accept your divine appointment in “so great a cause.”7 This is my humble prayer in the name of Jesus Christ, amen.
+At this time in your life, a mission call from the Lord, my young friends, is the most important work that you can do. Prepare now, live righteously, learn from your family and Church leaders, and come join with us in building the kingdom of God on earth—accept your divine appointment in “so great a cause.”[^7] This is my humble prayer in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Luke 10.1|Luke 10:1]].
+
+[^2]: [[Matthew 4.19|Matthew 4:19]].
+
+[^3]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 327.
+
+[^4]: Thomas S. Monson, in Conference Report, Apr. 1995, 67; or *Ensign,* May 1995, 49.
+
+[^5]: [[D&C 15.4|Doctrine and Covenants 15:4]]; [[D&C 16.4|16:4]].
+
+[^6]: [[D&C 15.6|Doctrine and Covenants 15:6]]; [[D&C 16.6|16:6]].
+
+[^7]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 

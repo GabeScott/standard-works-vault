@@ -1,5 +1,6 @@
 # Can There Any Good Thing Come Out of Nazareth?
-*By George P. Lee - Of the First Quorum of the Seventy*
+
+By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
 
@@ -13,27 +14,27 @@ If there is anyone listening who is deeply troubled by the apparent criticism th
 
 It is a source of consolation and encouragement that we do not stand alone in this respect. In former times, Saints of God have been challenged and scorned for no other cause than for preaching the truth in its fulness and purity, and for standing up in defense of holy and pure principles revealed from God. In fact, the trials they have been called upon to pass through, instead of being an evidence against, are evidence in favor of the truth of the work they were engaged in.
 
-The Lord Jesus said, “Woe unto you, when all men shall speak well of you!” (Luke 6:26.) He warned His disciples of the danger when their names were honored and when all men spoke well of them. In a real sense, we as Latter-day Saints are also being warned. When our names are being honored in connection with all men speaking well of us, we need to renew our humility, dedication, and commitment.
+The Lord Jesus said, “Woe unto you, when all men shall speak well of you!” ([[Luke 6.26|Luke 6:26]].) He warned His disciples of the danger when their names were honored and when all men spoke well of them. In a real sense, we as Latter-day Saints are also being warned. When our names are being honored in connection with all men speaking well of us, we need to renew our humility, dedication, and commitment.
 
-My beloved Saints of God, let us remember the warning from our prophets: “Others will he pacify and lull them away into carnal security, that they will say: All is well in Zion” (2 Ne. 28:21.) If anyone finds himself in that position, it is time for renewed humility, commitment, and dedication.
+My beloved Saints of God, let us remember the warning from our prophets: “Others will he pacify and lull them away into carnal security, that they will say: All is well in Zion.” ([[2 Nephi 28.21|2 Ne. 28:21]].) If anyone finds himself in that position, it is time for renewed humility, commitment, and dedication.
 
 When the Lord came to Jerusalem, He was rejected and despised by many from the day of His birth until His Golgothic death. He spoke and taught as none had ever done before. He worked as none had ever done. He performed miracles and wonderful works among men. But what kind of treatment did He receive? He was rejected by those who were supposed to have loved Him. He was buffeted, scourged, mobbed, and led like a lamb to the slaughter. Jesus, a being in whom there was no guile, bore a rough-hewn cross—that cruel instrument of death which tore at His back as He hung in agony. The scribes, Sadducees, and Pharisees did not welcome Him with open arms. Nor did the learned, the wise, and the noble hail Him. Then need we expect the world to embrace and welcome us with open arms?
 
 Joseph Smith knew and understood by the teachings given unto him of God and angels what he had to do. He was called of the Lord and raised up for this very purpose. He, too, was not popular among men, nor did the world clamor for his wisdom. Until the day of his death, he was persecuted and reviled for living and teaching the gospel. His blood sealed his testimony.
 
-In the Lord’s own day, the proclamation was, “Can there any good thing come out of Nazareth?” (See John 1:46.) Likewise, the life and teachings of Joseph Smith did not appeal to those with worldly thoughts. Joseph’s teachings came into conflict with man-made traditions and prejudices. The cry in Joseph Smith’s day was much the same as in the day of the Savior: “Can anything good come out of Palmyra? Can anything good come from Joseph Smith?”
+In the Lord’s own day, the proclamation was, “Can there any good thing come out of Nazareth?” (See [[John 1.46|John 1:46]].) Likewise, the life and teachings of Joseph Smith did not appeal to those with worldly thoughts. Joseph’s teachings came into conflict with man-made traditions and prejudices. The cry in Joseph Smith’s day was much the same as in the day of the Savior: “Can anything good come out of Palmyra? Can anything good come from Joseph Smith?”
 
 Today we hear a similar cry: “Can anything good come from the Mormon people? Can good be wrought by The Church of Jesus Christ of Latter-day Saints?” Falsehoods are spoken about the true Saints of God. These will continue to abound until the coming of the Son of God.
 
 Saints of God in all ages have passed through these tests of opposition. Those of today find themselves in no different position. Until evil is bound, this shall ever be the case. This is one of the legacies left to the elect Saints while here in mortality. Opposition may be our companion, and adversity our fate until the Lord comes in a cloud of glory. Latter-day Saints, this is our legacy. We may depend on it.
 
-Said Jesus, “I have chosen you out of the world, therefore the world hateth you.” (John 15:19.)
+Said Jesus, “I have chosen you out of the world, therefore the world hateth you.” ([[John 15.19|John 15:19]].)
 
 “If the world hate you, ye know that it hated me before it hated you.
 
 “If ye were of the world, the world would love his own.
 
-“If they have persecuted me, they will also persecute you.” (John 15:18–20.)
+“… If they have persecuted me, they will also persecute you.” ([[John 15.18|John 15:18–20]][[John 15.19|]][[John 15.20|]].)
 
 What if some of us have to sacrifice all that we have for the gospel and testimony of Christ? The Saints have done this in the past, and I am sure the Saints of today have the faith and courage to do whatever the Lord asks them to do. Should we complain or murmur if we are asked to sacrifice in defending the true gospel of the Son of God?
 
@@ -55,7 +56,7 @@ We ought to be a brother and a friend to all men everywhere. We ought not to ent
 
 If there are any in our own flock who err, let us try to reclaim them by kindness and long-suffering. If there are any among us who have a bad spirit, let us show them a better spirit. If there are any among us who do not do right, let us do right ourselves and say to them, “Come, follow me.”
 
-Amen to the priesthood or the authority of any man of God who exercises control, dominion, or compulsion upon a fellow being outside of the Church or upon a fellow member in the Church in any degree of unrighteousness. (See D&C 121:37.)
+Amen to the priesthood or the authority of any man of God who exercises control, dominion, or compulsion upon a fellow being outside of the Church or upon a fellow member in the Church in any degree of unrighteousness. (See [[D&C 121.37|D&C 121:37]].)
 
 I pray that our conduct day by day will be such that it will bear examination and scrutiny by our fellowmen, and also by our Heavenly Father. I pray that we will be willing to stand by this gospel, this testimony, and this work in life and death, in time and eternity.
 
@@ -68,4 +69,7 @@ I bear testimony that the destiny of every individual, every prince, every emper
 I bear testimony that this work will continue to roll forth in strength and power throughout all the earth until all things which have been predicted by the prophets are fulfilled.
 
 May the Lord bless all the Saints of God throughout the world. May He bless all the house of Israel, all of the dispersed of every tribe, all the righteous, the pure, the holy and good in every nation, is my humble prayer, in the name of Jesus Christ, amen.
+
+
+
 

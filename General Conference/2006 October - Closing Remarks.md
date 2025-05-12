@@ -1,7 +1,10 @@
 # Closing Remarks
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2006 General Conference*
+
+>*We leave with you our love and our blessing. May the Spirit of the Lord dwell in your homes.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/10/closing-remarks?lang=eng)
 
@@ -16,4 +19,7 @@ We wish that there were peace in the earth and constantly pray that it may come.
 Now, our beloved associates, we leave with you our love and our blessing. May the Spirit of the Lord dwell in your homes. May love govern your family relations.
 
 For this we pray as we bid you good-bye for another six months, in the sacred and holy name of our Redeemer, and leave our love and blessing with you, in His name, even the Lord Jesus Christ, amen.
+
+
+
 

@@ -1,0 +1,53 @@
+# Hymn of the Obedient: “All Is Well”
+
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
+
+*Given in the October session of the 1997 General Conference*
+
+>*What a wonderful future we have for the Church. All of these things are dependent upon how we accept the truth, how we live the principles of the gospel.*
+
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1997/10/hymn-of-the-obedient-all-is-well?lang=eng)
+
+I have prayed for the Spirit of the Lord and all the faith necessary that I might say a few words that are in my heart, that I might encourage you in some way in your believing and living the principles of the gospel.
+
+This morning we heard from President Hinckley one of the most stirring outlines for our future that I ever remember hearing. I was very moved by it. In just imagining and visualizing what lies ahead of us, I know all he is saying to be true. As I’ve had the opportunity to work with him for some years now and to feel of his spirit, his understanding, his desire, his deep faith, and the inspiration that comes to him in that office, I knew this morning that we were hearing words of the future from a prophet.
+
+As I now reflect upon the cycle of life and as that cycle moves forward and as I think of what lies ahead for the Church, I feel a little like a British friend who said, “Wouldn’t it be nice to roll the life cycle back 50 years and have another go at it.” And even though I’ve had the opportunity to declare and teach and preach and bear witness of the Savior worldwide, I cherish the time that I still have that’s yet allotted to me.
+
+You have just listened to the strains of “Come, Come, Ye Saints” (*Hymns,* no. 30). My first opportunity to really become acquainted with “Come, Come, Ye Saints” was in a little stone tabernacle in southern Idaho, where I grew up as a boy. Inside that little tabernacle built out of lava rock by the local members of the Church back in the late 1880s, there was a stand, a podium similar to what we have here, and then a pipe organ in the back, like this beautiful pipe organ we have here, but smaller. This was before electricity and motors, and it had a pump system. The way air got into the pipe organ was through a bellows system. Someone would sit on a stool and pump the lever at the back of the organ. It was always a great privilege to a young man to be selected to sit on that stool and pump the organ.
+
+In that little tabernacle, when we would sing “Come, Come, Ye Saints,” I felt the spirit and power of the music would raise the roof. You could feel it because of the power, the faith, and the testimony of the members. In that little tabernacle we would have Aaronic Priesthood choruses where we’d learn to sing. It was there we would sing “A Mormon Boy.” We don’t hear that song much anymore. I wish we would. “A Mormon boy, a Mormon boy, / I am a Mormon boy. / I might be envied by a king, / For I am a Mormon boy” (Evan Stephens, in Jack M. Lyon and others, eds., *Best-Loved Poems of the LDS People* \[1996\], 296).
+
+That made a great impression upon me. Just think of that for a moment. “I might be envied by a king.” Here’s a king with all the power, all the pomp, all the wealth the king would have. But I was beginning to learn that we held, as members of the Church, blessings, priesthood blessings, knowledge, information that the king wouldn’t know about and didn’t have. “I might be envied by a king, for I am a Mormon boy.”
+
+As you were listening to this beautiful rendition by the choir, I was thinking of William Clayton. His father was a teacher, and William had received a good education. He was a good penman, he was good with figures, and he was good at writing and keeping records. He was taught and baptized by the Heber C. Kimball missionary group in the early days of the Church in England. They understood and accepted him readily because of his education and his penmanship. He was just a bright young fellow, 23 years old. Soon he was being used as a secretary, a scribe, or as a bookkeeper by the little organization of the Church over there.
+
+By the time he was 24, he and his wife wanted to go to Nauvoo, so they sailed for America. In Nauvoo he met the Prophet and other leaders of the Church. They used him in interesting ways again because he wrote a beautiful hand and he was a good speller. They could use a young man of that kind. But after the martyrdom of the Prophet he sided with Brigham Young and the Twelve and became one of their scribes and the secretary.
+
+After the martyrdom of the Prophet, he left with the Brigham Young company and had the experience in Iowa that inspired the writing of this wonderful song that we have today. They left in February; it was now April. Slogging through the fields with the wagons and the horses and the teams and the rain and the mud in Iowa, they were discouraged. The going was difficult; people were dying, and babies were born. They were moving slowly, only traveling a few miles a day. In their discouragement, William Clayton wrote in his journal that he sat on a wagon tongue and wrote a song, hoping it would encourage and give some renewed hope and faith to the Saints.
+
+So he wrote “Come, come, ye Saints, no toil nor labor fear.” It was difficult. They were discouraged. “But with joy wend your way. / Though hard to you this journey may appear, / Grace shall be as your day.” He was giving them encouragement to keep going, that the situation would get better.
+
+Then he wrote those wonderful lines, “We’ll find the place which God for us prepared, / Far away in the West.” Even though we’re stuck here in the mud and discouraged, this will all change. If we have the courage and the faith, the Lord will answer our prayers; it will all come about. It gave them hope and encouragement. “We’ll find the place which God for us prepared, / Far away … / Where none shall come to hurt or make afraid”—stirring, inspirational words.
+
+And then the last verse that the choir sang so beautifully this morning, “And should we die before our journey’s through, / Happy day! All is well!” So if we die, we’ve done our best. We’re going to die sometime, as we all know. So “Happy day! All is well!”
+
+“But if our lives are spared again / To see the Saints their rest obtain.” We’ll see if the wagon wheels will stay on and if the rims will stay on the little handcarts and if we can keep up that courage and the strength through our prayers and we’ll get there. “If our lives are spared again / To see the Saints their rest obtain.” If we get there, then “All is well! All is well!”—if we get there and if we have the courage to make it work.
+
+And in his journal he wrote, “I’ve composed a new song—‘All is well’” (*William Clayton’s Journal* \[1921\], 19). I like that original title, “All is Well! All is Well!” which explains our lives if we live as we should. We have the outline, we have the procedures, we have the information, and if we can get there and if our lives are spared again, then we will be able to sing “All is well! All is well!” That hymn has become the Church’s “national anthem.”
+
+So on this 150th anniversary of that great event which President Hinckley alluded to this morning, I want to add my congratulations to the committee who, under the appointment of the First Presidency, were able to put together that marvelous celebration. Wards and stakes all over the world have produced wonderful and unusual ways to celebrate the Sesquicentennial.
+
+My grandfather Horton David Haight was 15 when the second company arrived in the valley, the company following the Brigham Young company, so he would have walked across the plains. So when we sing of walking with “Faith in Every Footstep,” I have a grandfather who did that. At 15 you were not riding in the wagon; you were out where the action was, hitting the horses and the oxen and doing whatever would need to be done. And the girl that he later married, Louisa Leavitt, turned 11 when her family arrived in the valley. So Grandmother would have walked across also.
+
+So with that great heritage, I am saying to all of you what a wonderful year this has been, and what a wonderful future we have for the Church, as has been outlined by our prophet this morning. But all of these things are dependent upon how we live, how we accept the truths that we know about, how we live the principles of the gospel, and what kind of examples we become to those people we work and associate with.
+
+When I was a young boy, about 12 years old, I loved to play baseball. The only piece of athletic equipment that we had around our house was an old baseball mitt. We didn’t have footballs in those days. We didn’t have a lot of other things. I thought the great moment in my life would be that I would be playing baseball for the New York Yankees, and this was back in the days when the Yankees were a great team. I would be playing for them in the World Series, the games tied 3 and 3. Now in the deciding game, guess who would get up to bat? As I stood at the plate, the pitcher would pitch the ball exactly where I’d want it, I’d knock it out of Yankee Stadium, and I would become the hero of the World Series. I thought that would be the great moment of my life. But I want you to know that that isn’t true.
+
+A few years ago I sat in the Los Angeles Temple in a little sealing room with my wife, Ruby. We had our sons there with their wives—they’d been married just for a short time—and our sweet daughter was kneeling at the altar, holding the hand of the young man she was to be sealed to. And as I looked around the room, I then realized that this was the great moment of my life because I had in that room everything that was precious to me—everything. My wife was there, my eternal sweetheart and companion. Our three children were there with their eternal companions. And I thought, David, in your youth you had things all wrong. You thought some worldly event of some kind might be the great event of your life. But now I was witnessing that great event. I was there, I was feeling it, I felt a part of it, and I knew in that little white sealing room—clean, sweet, pure in that room—with all of my family there, that this was the great moment of my life.
+
+I leave you my love, my witness, that this work is true. As Latter-day Saints we need to be true to the faith that we profess—true to it, true to the stirring testimonies that we have been given, true to Him whose name we have taken—and to so live and to declare and to help in the spreading of this work, in the name of Jesus Christ, amen.
+
+
+
+

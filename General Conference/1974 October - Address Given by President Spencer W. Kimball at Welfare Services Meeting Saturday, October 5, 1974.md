@@ -1,11 +1,12 @@
 # Address Given by President Spencer W. Kimball at Welfare Services Meeting Saturday, October 5, 1974
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1974 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1974/10/welfare-services-kimball?lang=eng)
 
-Beloved brethren and sisters: As I remember, the Lord said at one time, “For ye have the poor always with you ...” (Matt. 26:11). So I do not expect that this program of Welfare is going to be abandoned. I think we need make no apologies for considering this matter very seriously, constantly.
+Beloved brethren and sisters: As I remember, the Lord said at one time, “For ye have the poor always with you …” ([[Matthew 26.11|Matt. 26:11]]). So I do not expect that this program of Welfare is going to be abandoned. I think we need make no apologies for considering this matter very seriously, constantly.
 
 I think the program that has been mentioned and shown in the filmstrip of the projects has a tremendous effect upon peoples’ characters and souls; to see the brethren, banker and merchant, wealthy and poor, go into the fields, into the orchards, into the gardens and work together to produce. It is a wonderful program for the individual himself; it is a common leveler.
 
@@ -28,4 +29,7 @@ And that is true, brethren and sisters. In my feeling, the gospel is the answer 
 We are grateful for all that you do in carrying forward this work. We hope that the bishops will never forget that one of their very most important duties is to look after the people in their communities, in their wards, and see that they do not suffer. See that they do not have luxuries, but see that they do have the actual necessities.
 
 God bless you, brethren, in this great and holy cause, in the name of Jesus Christ. Amen.
+
+
+
 

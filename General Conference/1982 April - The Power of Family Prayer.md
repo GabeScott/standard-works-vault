@@ -1,5 +1,6 @@
 # The Power of Family Prayer
-*By John H. Groberg - Of the First Quorum of the Seventy*
+
+By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -13,13 +14,13 @@ All of us, single or married, are eternally part of some family—someway, somew
 
 We learn that friends and neighbors come and go but family is forever, and as we learn this, we find that we are eternally our brother’s keeper and we begin to realize how much help we need. How we should thank God for the opportunity of family prayer!
 
-Listen to the admonition of the Savior in Third Nephi: “Pray in your families unto the Father, always in my name, that your wives and your children may be blessed.” (3 Ne. 18:21.)
+Listen to the admonition of the Savior in Third Nephi: “Pray in your families unto the Father, always in my name, that your wives and your children may be blessed.” ([[3 Nephi 18.21|3 Ne. 18:21]].)
 
 Can you detect that if we do not pray in our families always they may not be blessed—or at least not so fully? If we truly love our families we will constantly pray for them and with them. I know of no single activity that has more potential for unifying our families and bringing more love and divine direction into our homes than consistent, fervent family prayer.
 
 Think of the power for good as you gather your family together and thank God for all of his blessings. Think of the eternal significance of daily thanking him for each member of your family and asking him to guide and bless and protect each one. Think of the strength that will come to your family as, daily, one member or another pours out his or her soul in love to God for other family members.
 
-Of course, our prayers must be more than words, for as President Marion G. Romney has so clearly stated, “The efficacy of our prayers depends on how we care for one another.” (Ensign, Nov. 1980, p. 93.) Family prayer is fully effective, then, only as we rise from our knees and, with increased love and understanding, take better care of each other.
+Of course, our prayers must be more than words, for as President Marion G. Romney has so clearly stated, “The efficacy of our prayers depends on how we care for one another.” (*Ensign,* Nov. 1980, p. 93.) Family prayer is fully effective, then, only as we rise from our knees and, with increased love and understanding, take better care of each other.
 
 We all want more love and unity in our families. We all need more help with some who may be wayward or in special need. We all desire more assurance of divine guidance and direction.
 
@@ -75,11 +76,11 @@ Finally, the whirring of winches, the groaning of blocks and cables, the banging
 
 I tried to lie down on the dirty, uneven cement floor. I prayed to know what to do. There seemed to be no answer. I watched the last rays of sunlight as they broke through the clouds and blazed across the ocean and through the holes of the metal customs shed.
 
-“How long will the light last?” I thought. Then I wondered, “What will happen when those last rays disappear and fold into the night?” (Have you ever wanted to just sort of close your eyes and disappear—or have things around you change?) “But, no, I must have hope. Things must turn out all right.”
+“How long will the light last?” I thought. Then I wondered, “What will happen when those last rays disappear and fold into the night?” (Have you ever wanted to just sort of close your eyes and disappear—or have things around you change?) “But, no, I must have hope. Things *must* turn out all right.”
 
 Once more, I closed my eyes in prayer, when suddenly I felt almost transported. I didn’t see anything or hear anything, in a physical sense; but, in a more real way, I saw a family in far-off Idaho kneeling together in prayer; and I heard my mother, acting as mouth, say as clearly as anything can be heard, “And bless John on his mission.”
 
-As that faithful family called down the powers of heaven to bless their missionary son in a way they could not physically do, I testify that the powers of heaven did come down, and they lifted me up and, in a spiritual way, allowed me, for a brief moment, to once again join that family circle in prayer. I was one with them. I was literally swallowed up in the love and concern of a faithful family and sensed for a moment what being taken into Abraham’s bosom may be like. (See Luke 16:22.) I was given to understand also that there are other circles of love and concern unbounded by time or space to which we all belong and from which we can draw strength. God does not leave us entirely alone—ever!
+As that faithful family called down the powers of heaven to bless their missionary son in a way they could not physically do, I testify that the powers of heaven did come down, and they lifted me up and, in a spiritual way, allowed me, for a brief moment, to once again join that family circle in prayer. I was one with them. I was literally swallowed up in the love and concern of a faithful family and sensed for a moment what being taken into Abraham’s bosom may be like. (See [[Luke 16.22|Luke 16:22]].) I was given to understand also that there are other circles of love and concern unbounded by time or space to which we all belong and from which we can draw strength. God does not leave us entirely alone—ever!
 
 Tears of joy flowed freely as I had restored to me the warmth of security, the light of love, and the strength of hope. And when I again felt the hard, uneven cement beneath me, there was no fear, no sorrow, no trepidation, only deep gratitude and certain assurance.
 
@@ -102,4 +103,7 @@ I testify that time and space are no barriers to these righteous influences, and
 I testify that God is our Father, that he lives and loves us, that he is the giver of all good things. I testify that Jesus lives and loves us, that he is the Son of God, the Christ, the Savior of the world, the head of this, his church. I testify that as we pray to the Father, in his name, all things are possible.
 
 May we all gather our families around us and consistently and fervently pray for one another and thus, in righteousness, feel the needs of others and then fill the needs of others, thereby fulfilling much of our mission in life, I do humbly pray in the name of Jesus Christ, amen.
+
+
+
 

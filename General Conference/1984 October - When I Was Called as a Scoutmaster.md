@@ -1,5 +1,6 @@
 # When I Was Called as a Scoutmaster
-*By Ezra Taft Benson - Of the Quorum of the Twelve Apostles*
+
+By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -11,7 +12,7 @@ I shall always be grateful that almost sixty-five years ago the good bishop of o
 
 In those days we had in the Mutual various cultural activities which were competitive. Among them were boys’ choruses. Each ward was expected to have a chorus, and ofttimes the bishop would invite the Scoutmaster to take the responsibility for getting the boys out to practice. So it was in our ward.
 
-As is often the case when a man is asked to do a job, I sought out the help of a good faithful woman who could play the piano and knew some musical technique. Under her direction we started our practices. The song to be sung in the competition was assigned by the general board and was the same throughout the Church—“The Morning Breaks; the Shadows Flee,” by Parley P. Pratt (Hymns, no. 269).
+As is often the case when a man is asked to do a job, I sought out the help of a good faithful woman who could play the piano and knew some musical technique. Under her direction we started our practices. The song to be sung in the competition was assigned by the general board and was the same throughout the Church—“The Morning Breaks; the Shadows Flee,” by Parley P. Pratt (*Hymns,* no. 269).
 
 For weeks before and after Scout meetings we prepared. Finally the time came when we would meet in competition with the ten other wards of the Franklin Stake. We were successful in winning in the stake, and then we were to meet the winners of the six other stakes in Cache Valley in the tabernacle in Logan.
 
@@ -82,4 +83,7 @@ I wished them well, and I wish you could have heard the reports of those two sis
 The most important thing in this life is a testimony of the truth, and there is no place on earth where you can have the opportunity to get a testimony like the mission field. I know—I have been there time and time again.
 
 God bless this great gathering of the priesthood, in the name of Jesus Christ, amen.
+
+
+
 

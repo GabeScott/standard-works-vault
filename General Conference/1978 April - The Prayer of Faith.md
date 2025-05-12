@@ -1,5 +1,6 @@
 # The Prayer of Faith
-*By Thomas S. Monson - Of the Council of the Twelve*
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -9,11 +10,11 @@ Our hearts are touched by the beautiful singing of these precious Primary boys a
 
 Some years ago while visiting the Australia Mission, I accompanied the mission president on a flight to Darwin to break ground for that city’s first Latter-day Saint chapel. We stopped for refueling at the small mining community of Mt. Isa. There we were met at the terminal by a mother and her two children of Primary age. She introduced herself as Judith Louden and mentioned that she and her two children were the only members of the Church in the town. Her husband, Richard, was not a member. We held a brief meeting, where I discussed the importance of holding a home Primary session each week. I promised to send from Church headquarters the home Primary materials to assist them. There was a commitment to pray, to meet, to persevere in faith.
 
-Upon returning to Salt Lake City, I enlisted the help of then-President LaVern Parmley, and the home Primary materials were sent, along with a subscription to the Children’s Friend.
+Upon returning to Salt Lake City, I enlisted the help of then-President LaVern Parmley, and the home Primary materials were sent, along with a subscription to the *Children’s Friend.*
 
 Years later, while attending the stake conference of the Brisbane Australia Stake, I happened to mention in a priesthood session the plight of this faithful woman and her children. I said, “Someday I hope to learn if that home Primary succeeded and meet the nonmember husband and father of that choice family.” One of the brethren in the meeting stood and said, “Brother Monson, I am Richard Louden, the husband of that good woman and the father of those precious children. Prayer and Primary brought me into the Church.”
 
-The power of prayer again came to mind this past winter. I was on assignment many thousands of miles to the south in the beautiful city of Buenos Aires, Argentina. I paused by the historic Palermo Park, which graces the downtown area, and realized that this was sacred ground, for here on Christmas Day in 1925 Elder Melvin J. Ballard, an apostle of the Lord, dedicated all of South America for the preaching of the gospel. What a fulfillment to an inspired prayer is evident today as the growth of the Church in that land exceeds all expectations.
+The power of prayer again came to mind this past winter. I was on assignment many thousands of miles to the south in the beautiful city of Buenos Aires, Argentina. I paused by the historic Palermo Park, which graces the downtown area, and realized that this was sacred ground, for here on Christmas Day in 1925 Elder Melvin J. Ballard, an apostle of the Lord, dedicated all of South America for the preaching of the gospel. What a fulfillment to an inspired prayer is evident today as the growth of the Church in that land exceeds all expectations.
 
 In that same park is a large statue of George Washington, the father of the United States and its first president. As I observed the statue, my thoughts returned to another historic place where prayer played a vital role—even Valley Forge. It was at Valley Forge that this same Washington led his badly battered, ill-fed, and scantily clad troops to winter quarters.
 
@@ -21,15 +22,15 @@ Today, in a quiet grove at Valley Forge, there is an heroic-sized monument to Wa
 
 Men and women of integrity, character, and purpose have ever recognized a power higher than themselves and have sought through prayer to be guided by that power. Such has it ever been. So shall it ever be.
 
-In the very beginning, Father Adam was commanded, “Call upon God in the name of the Son forevermore.” (Moses 5:8.) Adam prayed. Abraham prayed. Isaac prayed. Moses prayed, and so did every prophet pray to that God from whence came his strength. Like the sands slipping through an hourglass, generations of mankind were born, lived, and then died. At long last came that glorious event for which prophets prayed, psalmists sang, martyrs died, and all mankind hoped.
+In the very beginning, Father Adam was commanded, “Call upon God in the name of the Son forevermore.” ([[Moses 5.8|Moses 5:8]].) Adam prayed. Abraham prayed. Isaac prayed. Moses prayed, and so did every prophet pray to that God from whence came his strength. Like the sands slipping through an hourglass, generations of mankind were born, lived, and then died. At long last came that glorious event for which prophets prayed, psalmists sang, martyrs died, and all mankind hoped.
 
 The birth of the babe in Bethlehem was transcendent in its beauty and singular in its significance. Jesus of Nazareth brought prophecy to fulfillment. He cleansed lepers, He restored sight, He opened ears, He renewed life, He taught truth, He saved all. In so doing, He honored His Father and provided you and me with an example worthy of emulation.
 
-More than any prophet or leader, He showed us how to pray. Who can fail to remember His agony in Gethsemane and that fervent prayer: “O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt.” (Matt. 26:39.) And His injunction: “Watch and pray, that ye enter not into temptation.” (Matt. 26:41.)
+More than any prophet or leader, He showed us how to pray. Who can fail to remember His agony in Gethsemane and that fervent prayer: “O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt.” ([[Matthew 26.39|Matt. 26:39]].) And His injunction: “Watch and pray, that ye enter not into temptation.” ([[Matthew 26.41|Matt. 26:41]].)
 
-We remember His counsel: “When thou prayest, thou shalt not be as the hypocrites are: for they love to pray standing in the synagogues and in the corners of the streets, that they may be seen of men. ...
+We remember His counsel: “When thou prayest, thou shalt not be as the hypocrites are: for they love to pray standing in the synagogues and in the corners of the streets, that they may be seen of men. …
 
-“But thou, when thou prayest, ... pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly.” (Matt. 6:5–6.)
+“But thou, when thou prayest, … pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly.” ([[Matthew 6.5|Matt. 6:5–6]][[Matthew 6.6|]].)
 
 This guiding instruction has helped troubled souls discover the peace for which they fervently yearn and earnestly hope.
 
@@ -39,19 +40,13 @@ I suppose that during the holocaust of World War II more of the people living on
 
 Heartwarming is the example of the mother in America who prayed for her son’s well-being as the ship on which he served sailed into the bloody cauldron known as the Pacific theater of war. Each morning she would arise from kneeling in prayer and serve as a volunteer on those production lines which became lifelines to men in battle. Could it be that a mother’s own handiwork might somehow directly affect the life of a loved one? All who knew her and her family cherished the actual account of her sailor son, Elgin Staples, whose ship went down off Guadalcanal. Staples was swept over the side; but he survived, thanks to a life belt that proved, on later examination, to have been inspected, packed, and stamped back home in Akron, Ohio, by his own mother!
 
-I know not by what method rare,
-
-But this I know, God answers prayer.
-
-I know that He has given His Word,
-
-Which tells me prayer is always heard,
-
-And will be answered, soon or late.
-
-And so I pray and calmly wait.
-
-(Eliza M. Hickock, “Prayer,” in The Best Loved Religious Poems, ed. James Gilchrist Lawson, New York: Fleming H. Revell Co., 1933, p. 160.)
+>I know not by what method rare,
+>But this I know, God answers prayer.
+>I know that He has given His Word,
+>Which tells me prayer is always heard,
+>And will be answered, soon or late.
+>And so I pray and calmly wait.
+>
 
 Well might the younger generation ask the question: “But what about today? Does He still hear? Does He continue to answer?” To which I promptly reply: “There is no expiration date on the Lord’s injunction to pray. As we remember Him, He will remember us.”
 
@@ -75,7 +70,7 @@ Mother pleaded, father strived, children urged, all prayed. The result? Let me s
 
 “Dad,
 
-“I love you for what you are and not for what you aren’t. Why don’t you stop smoking? Millions of people have ... why can’t you? It’s harmful to your health, to your lungs, your heart. If you can’t keep the Word of Wisdom you can’t go to heaven with me, Skip, Brad, Marc, Jeff, Jeannie, Pam, and their families. Us kids keep the Word of Wisdom. Why can’t you? You are stronger and you are a man. Dad, I want to see you in heaven. We all do. We want to be a whole family in heaven ... not half of one.
+“I love you for what you are and not for what you aren’t. Why don’t you stop smoking? Millions of people have … why can’t you? It’s harmful to your health, to your lungs, your heart. If you can’t keep the Word of Wisdom you can’t go to heaven with me, Skip, Brad, Marc, Jeff, Jeannie, Pam, and their families. Us kids keep the Word of Wisdom. Why can’t you? You are stronger and you are a man. Dad, I want to see you in heaven. We all do. We want to be a whole family in heaven … not half of one.
 
 “Dad, you and Mom ought to get two old bikes and start riding around the park every night. You are probably laughing right now, but I wouldn’t be. You laugh at those old people, jogging around the park and riding bikes and walking, but they are going to outlive you. Because they are exercising their lungs, their hearts, their muscles. They are going to have the last laugh.
 
@@ -93,25 +88,21 @@ Todd
 
 That plea, that prayer of faith, was heard and answered. A night I shall ever treasure and long remember was when this entire family assembled in a sacred room in the beautiful temple which graces this square. Father was there. Mother was there. Every child was there. Ordinances eternal in their significance were performed. A humble prayer of gratitude brought to a close this long-awaited evening.
 
-May we ever remember ...
+May we ever remember …
 
-Prayer is the soul’s sincere desire,
-
-Uttered or unexpressed,
-
-The motion of a hidden fire
-
-That trembles in the breast.
-
-Oh thou by whom we come to God,
-
-The Life, the Truth, the Way!
-
-The path of prayer thyself hast trod;
-
-Lord, teach us how to pray.
-
-(Hymns, no. 220.)
+>Prayer is the soul’s sincere desire,
+>Uttered or unexpressed,
+>The motion of a hidden fire
+>That trembles in the breast.
+>
+>Oh thou by whom we come to God,
+>The Life, the Truth, the Way!
+>The path of prayer thyself hast trod;
+>Lord, teach us how to pray.
+>
 
 He has taught us how to pray. That each of us will learn and live this lesson is my earnest plea and sincere prayer, in the name of Jesus Christ. Amen.
+
+
+
 

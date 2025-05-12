@@ -1,5 +1,6 @@
 # These Are Your Days
-*By By Jayne B. Malan - First Counselor in the Young Women General Presidency*
+
+By Jayne B. Malan - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 1991 General Conference*
 
@@ -19,17 +20,17 @@ Standing on that hilltop, I thanked my Heavenly Father for what I knew. And I pr
 
 When I got back to camp, I didn’t wake them up. People don’t listen very well when they’re half asleep. I saved it for another time—for today.
 
-My young sisters, do you know that you are daughters of God? If each one of you could only have a sure knowledge of this for yourself, you would have a sweet peace in your heart and confidence to meet any challenges that life may bring. There would never be a question of what to do when temptations come your way.
+My young sisters, do *you* know that you are daughters of God? If each one of you could only have a sure knowledge of this for yourself, you would have a sweet peace in your heart and confidence to meet any challenges that life may bring. There would never be a question of what to do when temptations come your way.
 
-Many of you know what I’m saying is true. You know who you are. You have felt the Savior’s loving, guiding hand as you have followed the promptings of the Holy Ghost and have found the peace I speak of in your hearts. People around you can tell who you are; they can see it in your eyes and feel the spirit you radiate as they associate with you. We have met many of you as we have traveled throughout the world. We have heard you make your commitment to stand “as [a witness] of God at all times and in all things, and in all places” (Mosiah 18:9) as you have repeated the Young Women theme in many different languages. We have hugged a lot of you and talked to many of you. How thrilled we are to see how prayer, scriptures, and living the gospel in preparation for temple blessings have become part of your lives!
+Many of you know what I’m saying is true. You *know* who you are. You have felt the Savior’s loving, guiding hand as you have followed the promptings of the Holy Ghost and have found the peace I speak of in your hearts. People around you can tell who you are; they can see it in your eyes and feel the spirit you radiate as they associate with you. We have met many of you as we have traveled throughout the world. We have heard you make your commitment to stand “as \[a witness\] of God at all times and in all things, and in all places” ([[Mosiah 18.9|Mosiah 18:9]]) as you have repeated the Young Women theme in many different languages. We have hugged a lot of you and talked to many of you. How thrilled we are to see how prayer, scriptures, and living the gospel in preparation for temple blessings have become part of your lives!
 
-Janalyn is one. Each year, for the Days of ’47 celebration in the state of Utah, three young women are selected to represent the descendants of the Mormon pioneers. Jana had received national recognition for her outstanding community service and was among the finalists. As she waited on stage for the final selection, she found herself repeating the Young Women theme in her mind. She could feel that peace in her heart. She thought, “I can stand as a witness of God—even here, at this time and in this place.” Her only desire was “to be at the right place at the right time to be the most help for the Lord to build his kingdom.” When it was announced that she had been selected, they asked her to say a few words. She took the microphone and, even though she knew that many in the audience were not Mormons, she bore her testimony. The audience became very quiet as she said, “I fasted. And last night I prayed and told the Lord I would represent him if I received this honor. I’m grateful for this calling to represent my pioneer heritage.”
+Janalyn is one. Each year, for the Days of ’47 celebration in the state of Utah, three young women are selected to represent the descendants of the Mormon pioneers. Jana had received national recognition for her outstanding community service and was among the finalists. As she waited on stage for the final selection, she found herself repeating the Young Women theme in her mind. She could feel that peace in her heart. She thought, “I can stand as a witness of God—even here, at this time and in this place.” Her only desire was “to be at the right place at the right time to be the most help for the Lord to build his kingdom.” When it was announced that she had been selected, they asked her to say a few words. She took the microphone and, even though she knew that many in the audience were not Mormons, she bore her testimony. The audience became very quiet as she said, “I fasted. And last night I prayed and told the Lord I would represent him if I received this honor. I’m grateful for this *calling* to represent my pioneer heritage.”
 
-To you, like Janalyn, who know for yourselves you are daughters of God and are living your lives in harmony with that knowledge, we say, “Carry on. Continue on the paths you walk.” These are your days to lead out in righteousness so that others can safely follow and, along with you, prepare to “come unto Christ.” (Moro. 10:30.)
+To you, like Janalyn, who know for yourselves you are daughters of God and are living your lives in harmony with that knowledge, we say, “Carry on. Continue on the paths you walk.” These are your days to lead out in righteousness so that others can safely follow and, along with you, prepare to “come unto Christ.” ([[Moroni 10.30|Moro. 10:30]].)
 
 To you who may question your worth and wonder if God really loves you, these are your days to experiment upon the word of God by obeying his commandments and staying close to him. That feeling of love and acceptance cannot come without obedience.
 
-As it says in this little booklet, For the Strength of Youth, “You cannot do wrong and feel right! It is impossible.” (For the Strength of Youth, Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1990, p. 4.) In a spirit of love and concern for you, these standards were outlined by the First Presidency to help you know how to make wise choices and experience the Savior’s love.
+As it says in this little booklet, *For the Strength of Youth,* “You cannot do wrong and feel right! It is impossible.” (*For the Strength of Youth,* Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1990, p. 4.) In a spirit of love and concern for you, these standards were outlined by the First Presidency to help you know how to make wise choices and experience the Savior’s love.
 
 They’re summarized on this little card. Carry it with you all the time to remind you of the standards to live by.
 
@@ -43,7 +44,7 @@ She fasted and prayed about the decision. It seemed coincidental that they were 
 
 At the farewell, Dawn told her friends how much she loved them and would miss them, then said, “I realize that the greatest friend I have is Jesus Christ. I feel of his love every day.”
 
-These are your days to look to the scriptures for guidance and to build a closer relationship with the Savior through prayer. He can become your best friend. Through him you can know for yourself that you are a daughter of God. He is the Son of God, the Savior of the world. And you are his sister. Think of that!
+These are your days to look to the scriptures for guidance and to build a closer relationship with the Savior through prayer. He can become *your* best friend. Through him you can know for yourself that you are a daughter of God. He is the Son of God, the Savior of the world. And you are his sister. Think of that!
 
 What an exciting time to live—at this great moment in history when the gospel has been restored in its fulness and borders of nations are opening in dramatic ways to allow the gospel message to spread forth!
 
@@ -53,11 +54,14 @@ As the Young Women general presidency, we call on you to unite in your wards and
 
 Hear the words of President Ardeth G. Kapp.
 
-“I can hear a growing chorus of young women’s voices reaching out across the land and across the water and heavenward, responding to the call for righteous young women. I see you standing strong and firm in your faith ... filled with the joy of discovery and youth. Caught up in the excitement of doing good deeds and making wise choices. Learning, growing and feeling at home with the beauties of the world. Reaching out and gathering those who may be weaker. Rallying together, gathering strength as the Young Women Values become a part of your life ... gathering strength as young women like yourself come together from the mountains, the valleys, the islands of the sea, from arid deserts, and tropical rain forests ... wherever the seeds of the gospel have been sown.
+“I can hear a growing chorus of young women’s voices reaching out across the land and across the water and heavenward, responding to the call for righteous young women. I see you standing strong and firm in your faith … filled with the joy of discovery and youth. Caught up in the excitement of doing good deeds and making wise choices. Learning, growing and feeling at home with the beauties of the world. Reaching out and gathering those who may be weaker. Rallying together, gathering strength as the Young Women Values become a part of your life … gathering strength as young women like yourself come together from the mountains, the valleys, the islands of the sea, from arid deserts, and tropical rain forests … wherever the seeds of the gospel have been sown.
 
 “Reach out to others in a great bond of sisterhood. Unite in righteousness. Hold your banners high for all to see. Don’t be ashamed of the gospel of Christ, for you have a cause and the cause is glorious!” (Young Women fireside, 10 Nov. 1985.)
 
-“Look to this day. Arise in all your splendor, and bear the standards of the world-to-be.” (Maude Osmond Cook, cited in Ensign, Nov. 1977, p. 32.)
+“Look to this day. Arise in all your splendor, and bear the standards of the world-to-be.” (Maude Osmond Cook, cited in *Ensign,* Nov. 1977, p. 32.)
 
 We honor you, we pray for you, we love you. May God bless you. I say this in the name of Jesus Christ, amen.
+
+
+
 

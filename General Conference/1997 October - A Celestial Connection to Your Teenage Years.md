@@ -1,7 +1,10 @@
 # A Celestial Connection to Your Teenage Years
-*By Richard J. Maynes - Of the Seventy*
+
+By Elder Richard J. Maynes - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
+
+>*If you want to become the person the Lord wants you to be, you had better work on it today, because it is a true principle that we become what we do.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1997/10/a-celestial-connection-to-your-teenage-years?lang=eng)
 
@@ -17,7 +20,7 @@ One of the great purposes of the gospel of Jesus Christ is to teach us of our et
 
 It is important for you young people to recognize that the foundation of your future success, both temporally and spiritually, is being built while in your teenage years. If those years are fractured with sin and go unrepaired, then the structure of your life will be built upon a weakened foundation. Your future will be less secure and certainly more stressful.
 
-We all realize that in today’s society, the family, and particularly our youth, is under assault throughout the entire world. The prophet Isaiah saw our day and that it would be a day turned upside down. This prophecy and warning is found in Isaiah 5:20–21 [Isa. 5:20–21]:
+We all realize that in today’s society, the family, and particularly our youth, is under assault throughout the entire world. The prophet Isaiah saw our day and that it would be a day turned upside down. This prophecy and warning is found in [[Isaiah 5.20|Isaiah 5:20–21]][[Isaiah 5.21|]]:
 
 “Woe unto them that call evil good, and good evil; that put darkness for light, and light for darkness; that put bitter for sweet, and sweet for bitter!
 
@@ -46,4 +49,7 @@ How else can you protect yourself against the pressures and evils of the world? 
 And when the day comes to enter the classroom door of the temple, you will be at peace, your conscience will be clean, your self-confidence high, and you will know in your heart that you will receive an A in the most important of all your subjects: your celestial future.
 
 Young brothers and sisters, it will ultimately be your love of the Lord which will help you commit and then stay true to your celestial daily plan. I know the Lord lives and His desire and hope for us all is a celestial future. In the name of Jesus Christ, amen.
+
+
+
 

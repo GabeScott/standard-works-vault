@@ -1,5 +1,6 @@
 # How to Worship
-*By Bruce R. McConkie - Of the Seventy*
+
+By President Bruce R. McConkie - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -7,9 +8,9 @@
 
 I desire to give some rather plain and affirmative counsel as to how to worship the Lord. There is probably more misinformation and error in this field than in any other area in the entire world, and yet there is no other thing as important as knowing who and how we should worship.
 
-When the Lord created men and placed them on earth, he gave “them commandments that they should love and serve him, the only living and true God, and that he should be the only being whom they should worship.” (D&C 20:19.)
+When the Lord created men and placed them on earth, he gave “them commandments that they should love and serve him, the only living and true God, and that he should be the only being whom they should worship.” ([[D&C 20.19|D&C 20:19]].)
 
-Jesus confirmed this most basic of all commands when he said: “Thou shalt worship the Lord thy God, and him only shalt thou serve” (Luke 4:8); and the constant cry of all the prophets of all the ages is: “O come, let us worship and bow down: let us kneel before the Lord our maker. For he is our God; and we are the people of his pasture, and the sheep of his hand” (Ps. 95:6–7).
+Jesus confirmed this most basic of all commands when he said: “Thou shalt worship the Lord thy God, and him only shalt thou serve” ([[Luke 4.8|Luke 4:8]]); and the constant cry of all the prophets of all the ages is: “O come, let us worship and bow down: let us kneel before the Lord our maker. For he is our God; and we are the people of his pasture, and the sheep of his hand” ([[Psalms 95.6|Ps. 95:6–7]][[Psalms 95.7|]]).
 
 As the spirit children of the Eternal Father, we have been placed on earth to be tried and tested, to see if we will keep his commandments and do those things which will qualify us to return to his presence and be like him.
 
@@ -23,7 +24,7 @@ And so, at Jacob’s well, when the Samaritan woman said to Jesus, “Our father
 
 “And the hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth; for the Father seeketh such to worship him. For unto such hath God promised his Spirit.
 
-“And they who worship him, must worship in spirit and in truth.” (JST, John 4:22–26 [see John 4:20–24 and note 24a].)
+“And they who worship him, must worship in spirit and in truth.” (JST, John 4:22–26 \[see [[John 4.20|John 4:20–24 and note 24a]][[John 4.21|]][[John 4.22|]][[John 4.23|]][[John 4.24|]]\].)
 
 Thus our purpose is to worship the true and living God and to do it by the power of the Spirit and in the way he has ordained. The approved worship of the true God leads to salvation; devotions rendered to false gods and which are not founded on eternal truth carry no such assurance.
 
@@ -43,7 +44,7 @@ This record certifies that Christ was “in the beginning” with the Father; th
 
 Then the Lord said: “I give unto you these sayings that you may understand and know how to worship, and know what you worship, that you may come unto the Father in my name, and in due time receive of his fulness.
 
-“For if you keep my commandments you shall receive of his fulness, and be glorified in me as I am in the Father; therefore, I say unto you, you shall receive grace for grace.” (D&C 93:7–20.)
+“For if you keep my commandments you shall receive of his fulness, and be glorified in me as I am in the Father; therefore, I say unto you, you shall receive grace for grace.” ([[D&C 93.7|D&C 93:7–20]][[D&C 93.8|]][[D&C 93.9|]][[D&C 93.10|]][[D&C 93.11|]][[D&C 93.12|]][[D&C 93.13|]][[D&C 93.14|]][[D&C 93.15|]][[D&C 93.16|]][[D&C 93.17|]][[D&C 93.18|]][[D&C 93.19|]][[D&C 93.20|]].)
 
 In other words, true and perfect worship consists in following in the steps of the Son of God; it consists in keeping the commandments and obeying the will of the Father to that degree that we advance from grace to grace until we are glorified in Christ as he is in his Father. It is far more than prayer and sermon and song. It is living and doing and obeying. It is emulating the life of the great Exemplar.
 
@@ -87,7 +88,10 @@ To worship the Lord is to be like Christ until we receive from him the blessed a
 
 These are sound principles. As we ponder them in our hearts, I am sure we shall know increasingly of their verity.
 
-True and perfect worship is in fact the supreme labor and purpose of man. God grant that we may write in our souls with a pen of fire the command of the Lord Jesus: “Thou shalt worship the Lord thy God, and him only shalt thou serve” (Luke 4:8); and may we in fact and with living reality worship the Father in spirit and in truth, thereby gaining peace in this life and eternal life in the world to come.
+True and perfect worship is in fact the supreme labor and purpose of man. God grant that we may write in our souls with a pen of fire the command of the Lord Jesus: “Thou shalt worship the Lord thy God, and him only shalt thou serve” ([[Luke 4.8|Luke 4:8]]); and may we in fact and with living reality worship the Father in spirit and in truth, thereby gaining peace in this life and eternal life in the world to come.
 
 In the name of the Lord Jesus Christ. Amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # New Temples to Provide “Crowning Blessings” of the Gospel
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1998 General Conference*
+
+>*May the windows of heaven be opened and blessings be showered down upon us as a people as we walk with boldness and in faith before the Lord to accomplish His eternal work.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/04/new-temples-to-provide-crowning-blessings-of-the-gospel?lang=eng)
 
@@ -17,7 +20,7 @@ They need nearby temples—small, beautiful, serviceable temples.
 
 Accordingly, I take this opportunity to announce to the entire Church a program to construct some 30 smaller temples immediately. They will be in Europe, in Asia, in Australia and Fiji, in Mexico and Central and South America and Africa, as well as in the United States and Canada. They will have all the necessary facilities to provide the ordinances of the Lord’s house.
 
-This will be a tremendous undertaking. Nothing even approaching it has ever been tried before. These will be in addition to the 17 buildings now going forward in England; Spain; Ecuador; Bolivia; the Dominican Republic; Brazil; Colombia; Billings, Montana; Houston, Texas; Boston, Massachusetts; White Plains, New York; and Albuquerque, New Mexico; and the smaller temples in Anchorage, Alaska; Monticello, Utah; and Colonia Juárez, Mexico. This will make a total of 47 new temples in addition to the 51 now in operation. I think we had better add 2 more to make it an even 100 by the end of this century, being 2,000 years “since the coming of our Lord and Savior Jesus Christ in the flesh” (D&C 20:1). In this program we are moving on a scale the like of which we have never seen before.
+This will be a tremendous undertaking. Nothing even approaching it has ever been tried before. These will be in addition to the 17 buildings now going forward in England; Spain; Ecuador; Bolivia; the Dominican Republic; Brazil; Colombia; Billings, Montana; Houston, Texas; Boston, Massachusetts; White Plains, New York; and Albuquerque, New Mexico; and the smaller temples in Anchorage, Alaska; Monticello, Utah; and Colonia Juárez, Mexico. This will make a total of 47 new temples in addition to the 51 now in operation. I think we had better add 2 more to make it an even 100 by the end of this century, being 2,000 years “since the coming of our Lord and Savior Jesus Christ in the flesh” ([[D&C 20.1|D&C 20:1]]). In this program we are moving on a scale the like of which we have never seen before.
 
 I will not give you the specific cities at this time. Stake presidents will be advised as property is secured. I am confident the membership of the Church will do a lot of speculating as to whether one of these will be in their city.
 
@@ -32,4 +35,7 @@ I was deeply touched by Brother Ronald Poelman’s talk on tithing. He and I liv
 May there be peace and harmony and love in our homes and in our families. May the testimony of the living, hallowed truth of this great work be reflected in our lives. May we all rejoice together in praising Him from whom all blessings flow, our glorious leader and our great Redeemer.
 
 This is my humble prayer, my beloved brethren and sisters, as we come to the close of this great and significant and historic conference. God help us to be Latter-day Saints in the finest expression of that word is my humble prayer, in the name of Jesus Christ, amen.
+
+
+
 

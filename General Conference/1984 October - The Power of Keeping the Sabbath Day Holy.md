@@ -1,5 +1,6 @@
 # The Power of Keeping the Sabbath Day Holy
-*By John H. Groberg - Of the First Quorum of the Seventy*
+
+By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -7,13 +8,13 @@
 
 How I pray for the Spirit of the Lord to continue to be with all of us, as it has been thus far.
 
-The injunction from God to “Remember the sabbath day, to keep it holy” (Ex. 20:8) has been in force throughout human history. There is power in keeping the Sabbath day holy. I testify that God lives, that we are his children, that he loves us, and that he gives us commandments so he can bless us as we keep them and thereby have joy. As we keep the Sabbath day holy he will bless us, and we will achieve a quiet power for good as individuals, as families, and as nations, that we cannot obtain in any other way.
+The injunction from God to “Remember the sabbath day, to keep it holy” ([[Exodus 20.8|Ex. 20:8]]) has been in force throughout human history. There is power in keeping the Sabbath day holy. I testify that God lives, that we are his children, that he loves us, and that he gives us commandments so he can bless us as we keep them and thereby have joy. As we keep the Sabbath day holy he will bless us, and we will achieve a quiet power for good as individuals, as families, and as nations, that we cannot obtain in any other way.
 
 Let me give two examples:
 
 The small island kingdom of Tonga lies immediately next to the international dateline, so it is the first country in the world to greet the Sabbath day. It is a small country and, in the counting of the world, a poor country. But years ago a wise Tongan king decreed that the Sabbath would be kept holy in Tonga forever.
 
-Modern civilization has come in many ways to Tonga. If one goes to the capital of Nuku‘alofa on a weekday, he finds the usual heavy traffic of trucks and cars and the bustle of thousands of shoppers making their regular purchases from well-stocked stores and markets. One sees people line up to view the latest movies and to rent videos. One can watch modern buses whisk tourists off to catch their jet planes, or observe the speed and clarity of a satellite call to the United States. The streets are crowded and business is good. You might wonder, “What is so different about this town from hundreds of others like it throughout the world?”
+Modern civilization has come in many ways to Tonga. If one goes to the capital of Nukuʻalofa on a weekday, he finds the usual heavy traffic of trucks and cars and the bustle of thousands of shoppers making their regular purchases from well-stocked stores and markets. One sees people line up to view the latest movies and to rent videos. One can watch modern buses whisk tourists off to catch their jet planes, or observe the speed and clarity of a satellite call to the United States. The streets are crowded and business is good. You might wonder, “What is so different about this town from hundreds of others like it throughout the world?”
 
 But when Sunday dawns on the kingdom of Tonga, a transformation takes place. If one goes downtown, he sees deserted streets—no taxis or buses or crowds of people. All the stores, all the markets, all the movie theaters, all the offices are closed. No planes fly, no ships come in or out, no commerce takes place. No games are played. The people go to church. Tonga is remembering to keep the Sabbath day holy.
 
@@ -71,9 +72,9 @@ I let my imagination go and seemed to see a band of destroying angels loosed fro
 
 The leader looked me squarely in the eye and challenged, “By what right do you ask us to hold? Have you not seen the evil of the land?”
 
-I replied, “Yes, I know of the sordidness of the world. I see the constant mocking of God’s laws, the merchandising on his holy day, the constant breaking of his commandments. I see the evil that exists almost universally. Yes, yes, all these things are true, still ...” Then I became concerned. What right had I to ask them to hold?
+I replied, “Yes, I know of the sordidness of the world. I see the constant mocking of God’s laws, the merchandising on his holy day, the constant breaking of his commandments. I see the evil that exists almost universally. Yes, yes, all these things are true, still …” Then I became concerned. What right had I to ask them to hold?
 
-My eyes began to fall from his penetrating gaze, but something inside kept searching, searching, until finally a laserlike beam locked on to a misty memory made many months ago and faithfully filed away for such a time as this. A vista of a beautiful green valley passed before me and moved to the front of my consciousness.
+My eyes began to fall from his penetrating gaze, but something inside kept searching, searching, until finally a laserlike beam locked onto a misty memory made many months ago and faithfully filed away for such a time as this. A vista of a beautiful green valley passed before me and moved to the front of my consciousness.
 
 I raised my eyes and met his as he again said, “What right do you have to ask us to hold?”
 
@@ -84,4 +85,7 @@ There was no hesitation, no anger, no look of surprise, no disappointment, only 
 Oh, my dear brothers and sisters, there is power in keeping the Sabbath day holy—power to help others as well as ourselves. If we would have God’s blessings and protection as individuals, as families, as communities, and as nations, we must keep His Sabbath day holy.
 
 May we all live that someday, someway, somewhere, somehow, as we face that which is very serious, we may be able to say, “Hold, hold, hold”; and, when challenged as to why (even by ourselves), be able—through obedience and the confidence of the Spirit—to say in our own way, “For I have been through Cache Valley on a Sunday afternoon,” I do humbly pray in the name of our Savior, who lives. I know he lives, even Jesus Christ, amen.
+
+
+
 

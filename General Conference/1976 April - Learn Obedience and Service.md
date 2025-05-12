@@ -1,5 +1,6 @@
 # Learn Obedience and Service
-*By M. Russell Ballard, Jr. - Of the First Quorum of the Seventy*
+
+By Elder M. Russell Ballard, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -16,4 +17,7 @@ I would like to say, my brethren, that I have been sitting in a big red chair fo
 I thank my wife, my seven children, my mother and father, for making this calling possible. I pledge my full support and loyalty to my brethren and to the Lord and ask for his peace and blessing to be with me as I grow in my assignment.
 
 I have a great testimony of the gospel, for I know that it is true. I bring the greetings of the Saints in eastern Canada and all the missionaries there to all brethren of the priesthood around the world. I leave this testimony humbly, and in the worthy name of the Lord Jesus Christ. Amen.
+
+
+
 

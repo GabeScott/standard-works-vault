@@ -1,5 +1,6 @@
 # Strengthening the Family—the Basic Unit of the Church
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -23,21 +24,21 @@ Brethren, as patriarchs in your homes, be worthy watchmen. Be concerned about th
 
 There are magazines today publishing pictures and articles which likewise beckon to the baser instincts of men and women and young people. There are newspapers around the world which, seeking greater circulation, boldly flaunt sex. Some of our newspapers continue to publish illustrated advertisements which are basely provocative, inviting their readers to pornographic motion pictures. It is in such advertisements and motion pictures where seeds are sown for rape, unfaithfulness, and the most repulsive of deviant sexual transgressions.
 
-Brethren, be vigilant on what enters your home through the printed word as well as the electronic media. Guard against radio and TV programs that degrade. See that only good reading material enters your home. Subscribe to magazines which enrich the mind and uplift the soul. There are many good magazines, including our own Church periodicals, the Ensign, New Era, and Friend.
+Brethren, be vigilant on what enters your home through the printed word as well as the electronic media. Guard against radio and TV programs that degrade. See that only good reading material enters your home. Subscribe to magazines which enrich the mind and uplift the soul. There are many good magazines, including our own Church periodicals, the *Ensign,* *New Era,* and *Friend.*
 
 In some of the large cities of the world such as London, Paris, Tokyo, New York, and Sao Paulo, there are a number of daily newspapers from which to make a choice. Bring to your home that newspaper which is most compatible with the teachings and standards of the Church.
 
-Here in Salt Lake City, the world headquarters of the Church, we are also concerned. Certainly a powerful force in helping this city and state achieve its high standards has been the Deseret News. This newspaper has been a defender of our convictions relative to such moral issues as liquor, pornography, and abortion. It is vital to a safe, clean city and state, which are the heart of our growing, worldwide Church.
+Here in Salt Lake City, the world headquarters of the Church, we are also concerned. Certainly a powerful force in helping this city and state achieve its high standards has been the *Deseret News.* This newspaper has been a defender of our convictions relative to such moral issues as liquor, pornography, and abortion. It is vital to a safe, clean city and state, which are the heart of our growing, worldwide Church.
 
-As the Deseret News, with the Church News, strengthens our city and state, our newspaper can also strengthen the homes of you brethren residing in this area of the world headquarters of the Church.
+As the *Deseret News,* with the *Church News,* strengthens our city and state, our newspaper can also strengthen the homes of you brethren residing in this area of the world headquarters of the Church.
 
-Brethren, by being alert to what enters your home, you can do much in helping your family seek that which is “virtuous, lovely, or of good report or praiseworthy.” (A of F 1:13.)
+Brethren, by being alert to what enters your home, you can do much in helping your family seek that which is “virtuous, lovely, or of good report or praiseworthy.” ([[Articles of Faith 1.13|A of F 1:13]].)
 
 I had a note one day from a little boy who said, “I know a man who is such a wonderful man, and his name is The Bishop.” We always had a good bishop. We always loved him. There was Bishop Zundel and Bishop Moody and Bishop Tyler and Bishop Wilkins. I loved all my bishops. I hope all my young brethren love their bishops as I did.
 
 It is a real joy to meet with you priesthood members at this important time of the year, a time when we think of our Savior, Jesus Christ, and his accomplishments and his service and his example and his great program.
 
-He gave to Moses this: “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” (Moses 1:39.)
+He gave to Moses this: “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
 I take this opportunity to express our appreciation to the leaders of the organizations and all who serve in this great cause of priesthood activity, for their devotion and strength and power and influence which is worldwide and affects the lives of numerous people. I have been trying to think of the ways in which my life has been influenced by the youth organizations. I cannot remember when I began, but it seems to me like I can remember going to the old Robinson Hall in Thatcher, Arizona, almost as early as I could walk. It was only two blocks from our home, and we could walk to and from it, and we crossed the Union Canal time and again. This big Robinson Hall was a brick building of rectangular shape, and an all-purpose building for the community dances, for the Sunday School and Primary, for all Church services, for the funerals, for celebrations, and for everything that went on in our little rural town.
 
@@ -63,149 +64,123 @@ Then in 1902 we broke ground for a new stake and ward building in Thatcher, and 
 
 When the new stake building—which still stands and is being used for stake and ward purposes—was completed, it had just two large, rectangular areas, one for the meetinghouse on the top floor and one for recreation, the latter being the basement. I remember we had wires strung across the building and cloth curtains between the classes. We could hear something of nearly every class that was going on and even sometimes see, if the lights were just right. I remember some years later when we of the basketball team of the Gila Academy did our practicing here and played our games, and I always took more than my share of the credit for the fact that in this smaller building with some obstructions, we defeated some high school and college teams while we were but a high school team.
 
-I remember some of the teachers. We always went to priesthood meeting on Monday nights, and we deacons would congregate around the potbellied stove and there receive our instructions. I remember some excellent teachers in Orville Allen and LeRoi C. Snow and others in that place, and also formed some excellent friendships among other young men of my age. LeRoi C. Snow of Salt Lake City was there in the bank, and he intrigued us as we became deacons with his many stories of the Red Sea, and the crossing of the Red Sea by the children of Israel, and Jerusalem where he had been.
+I remember some of the teachers. We always went to priesthood meeting on Monday nights, and we deacons would congregate around the potbellied stove and there receive our instructions. I remember some excellent teachers in Orville Allen and LeRoi C. Snow and others in that place, and also formed some excellent friendships among other young men of my age. LeRoi C. Snow of Salt Lake City was there in the bank, and he intrigued us as we became deacons with his many stories of the Red Sea, and the crossing of the Red Sea by the children of Israel, and Jerusalem where he had been.
 
 I remember going to Sunday School, and I believe that I received a great deal of inspiration for the foundation of my life in this place. We had opening exercises in the chapel above and then went downstairs to our classwork.
 
 I remember some of the teachers who came so devotedly and consistently to give us “the word,” and they taught me many things which are basic to my acquaintance with the Church programs and the doctrines.
 
-My mother had a good voice and played the organ, and she and my oldest sister, Clare, sang duets. I inherited a little of the love for music from her, so I was always interested in the singing of the songs, and I generally raised my voice and sang lustily. I remember the song, “We Meet Again in Sabbath School.” (Hymns, no. 193.) And we did meet again and again and again, all my life. And I remember when my mother died up in Salt Lake City when I was eleven, there had been a goal set for us to attend Sunday School every Sunday of the year. She died in October. I had never missed a Sunday School since the first of January, I had been present every week, and I had a difficult time to square myself with myself to miss the Sunday that her body lay in state in our home.
+My mother had a good voice and played the organ, and she and my oldest sister, Clare, sang duets. I inherited a little of the love for music from her, so I was always interested in the singing of the songs, and I generally raised my voice and sang lustily. I remember the song, “We Meet Again in Sabbath School.” (*Hymns,* no. 193.) And we did meet again and again and again, all my life. And I remember when my mother died up in Salt Lake City when I was eleven, there had been a goal set for us to attend Sunday School every Sunday of the year. She died in October. I had never missed a Sunday School since the first of January, I had been present every week, and I had a difficult time to square myself with myself to miss the Sunday that her body lay in state in our home.
 
 I really didn’t understand then how hard these teachers labored to teach us, and how grateful I am for the great army of teachers in all the organizations of the Church who are so devoted and untiring to teach the children of Zion.
 
 And then, if sometimes we had forgotten the verses, we could all join lustily in singing the chorus of the songs:
 
-Join in the jubilee; mingle in song;
+>Join in the jubilee; mingle in song;
+>Join in the joy of the Sabbath School throng.
+>
 
-Join in the joy of the Sabbath School throng.
+The song “Love at Home” (*Hymns,* no. 169) we sang in our home evenings, which the Kimball family always held in the early days of this century.
 
-(Hymns, no. 177.)
+I remember the song “In Our Lovely Deseret,” which Sister Eliza R. Snow wrote. She composed many of our songs. I can remember how lustily we sang:
 
-The song “Love at Home” (Hymns, no. 169) we sang in our home evenings, which the Kimball family always held in the early days of this century.
-
-I remember the song “In Our Lovely Deseret,” which Sister Eliza R. Snow wrote. She composed many of our songs. I can remember how lustily we sang:
-
-Hark! Hark! Hark! ’tis children’s music,
-
-Children’s voices, O, how sweet,
-
-When in innocence and love,
-
-Like the angels up above,
-
-They with happy hearts and cheerful faces meet.
-
-(Sing With Me, no. B-24.)
+>Hark! Hark! Hark! ’tis children’s music,
+>Children’s voices, O, how sweet,
+>When in innocence and love,
+>Like the angels up above,
+>They with happy hearts and cheerful faces meet.
+>
 
 I am not sure how much innocence and love we had, but I remember we sang it, even straining our little voices to reach the high E which was pretty high for children’s voices. I remember we sang:
 
-That the children may live long,
-
-And be beautiful and strong.
+>That the children may live long,
+>And be beautiful and strong.
+>
 
 I wanted to live a long time and I wanted to be beautiful and strong—but never reached it.
 
-Tea and coffee and tobacco they despise.
+>Tea and coffee and tobacco they despise.
+>
 
 And I learned to despise them. There were people in our rural community who were members of the Church who sometimes used tea and coffee and sometimes tobacco. The song goes on:
 
-Drink no liquor, and they eat
+>Drink no liquor, and they eat
+>But a very little meat
+>
 
-But a very little meat
+\[I still don’t eat very much meat.\]
 
-[I still don’t eat very much meat.]
+>They are seeking to be great and good and wise.
+>
 
-They are seeking to be great and good and wise.
+And then we’d “Hark! Hark! Hark” again, “… When in innocence and love Like the angels up above.” And then the third verse went:
 
-And then we’d “Hark! Hark! Hark” again, “... When in innocence and love Like the angels up above.” And then the third verse went:
-
-They should be instructed young,
-
-How to watch and guard the tongue,
-
-And their tempers train, and evil passions bind;
-
-They should always be polite,
-
-And treat ev’rybody right
-
-And in ev’ry place be affable and kind.
+>They should be instructed young,
+>How to watch and guard the tongue,
+>And their tempers train, and evil passions bind;
+>They should always be polite,
+>And treat ev’rybody right
+>And in ev’ry place be affable and kind.
+>
 
 And then we’d “Hark! Hark! Hark” again.
 
-They must not forget to pray,
-
-Night and morning ev’ry day,
-
-For the Lord to keep them safe from ev’ry ill,
-
-And assist them to do right,
-
-That with all their mind and might
-
-They may love him and may learn to do his will.
+>They must not forget to pray,
+>Night and morning ev’ry day,
+>For the Lord to keep them safe from ev’ry ill,
+>And assist them to do right,
+>That with all their mind and might
+>They may love him and may learn to do his will.
+>
 
 And then we’d sing, “Hark! Hark! Hark” again. I was never quite sure whether the angels were limited in their voice culture as we were, but we were glad to take the credit.
 
 One of the songs that has disappeared was number 163, “Don’t Kill the Little Birds,” and I remember many times singing with a loud voice:
 
-Don’t kill the little birds,
-
-That sing on bush and tree,
-
-All thro’ the summer days,
-
-Their sweetest melody.
-
-Don’t shoot the little birds!
-
-The earth is God’s estate,
-
-And he provideth food
-
-For small as well as great.
-
-(Deseret Songs, 1909, no. 163.)
+>Don’t kill the little birds,
+>That sing on bush and tree,
+>All thro’ the summer days,
+>Their sweetest melody.
+>Don’t shoot the little birds!
+>The earth is God’s estate,
+>And he provideth food
+>For small as well as great.
+>
 
 I had a sling and I had a flipper. I made them myself, and they worked very well. It was my duty to walk the cows to the pasture a mile away from home. There were large cottonwood trees lining the road, and I remember that it was quite a temptation to shoot the little birds “that sing on bush and tree,” because I was a pretty good shot and I could hit a post at fifty yards’ distance or I could hit the trunk of a tree. But I think perhaps because I sang nearly every Sunday, “Don’t Kill the Little Birds,” I was restrained. The second verse goes:
 
-Don’t kill the little birds
-
-Their plumage wings the air,
-
-Their trill at early morn
-
-Makes music ev’ry-where.
-
-What tho’ the cherries fall
-
-Half eaten from the stem?
-
-And berries disappear,
-
-In garden, field, and glen?
+>Don’t kill the little birds
+>Their plumage wings the air,
+>Their trill at early morn
+>Makes music ev’ry-where.
+>What tho’ the cherries fall
+>Half eaten from the stem?
+>And berries disappear,
+>In garden, field, and glen?
+>
 
 This made a real impression on me, so I could see no great fun in having a beautiful little bird fall at my feet.
 
 And then there was the song that Evan Stephens wrote, “The Mormon Boy,” and how proud I was when we were to sing in the congregation:
 
-A ‘Mormon’ Boy, a ‘Mormon’ Boy
-
-I am a ‘Mormon’ Boy.
-
-I might be envied by a king,
-
-For I am a ‘Mormon’ Boy.
+>A ‘Mormon’ Boy, a ‘Mormon’ Boy
+>I am a ‘Mormon’ Boy.
+>I might be envied by a king,
+>For I am a ‘Mormon’ Boy.
+>
 
 I liked this song; I have always gloried in those words: “I might be envied by a king, For I am a ‘Mormon’ Boy.”
 
 I liked the song “What Shall the Harvest Be?” because it gave us a chance to sing in parts.
 
-My beloved brethren, as I close I bear testimony to you that I hold the priesthood. You hold the priesthood. This is the priesthood that Elijah held, and the prophets Peter, James, and John also. They and their associates held the priesthood. But without the sealing power we could do nothing, for there would be no validity to that which we do. That’s the thing that counts. That is why Elijah came. That is why Moses came, for he conferred upon the head of Peter, James, and John in that dispensation these privileges and these powers, these keys, that they might go forth and perform this labor. That is why they came to the Prophet Joseph Smith, and the Lord said, “I will send you Elijah the prophet before ... the great and dreadful day of the Lord.” (Mal. 4:5.)
+My beloved brethren, as I close I bear testimony to you that I hold the priesthood. *You* hold the priesthood. This is the priesthood that Elijah held, and the prophets Peter, James, and John also. They and their associates held the priesthood. But without the sealing power we could do nothing, for there would be no validity to that which we do. That’s the thing that counts. That is why Elijah came. That is why Moses came, for he conferred upon the head of Peter, James, and John in that dispensation these privileges and these powers, these keys, that they might go forth and perform this labor. That is why they came to the Prophet Joseph Smith, and the Lord said, “I will send you Elijah the prophet before … the great and dreadful day of the Lord.” ([[Malachi 4.5|Mal. 4:5]].)
 
 Why should he send Elijah? Because he held the keys of the authority to administer in all the ordinances of the priesthood, and without the authority that is given, the ordinances could not be administered in righteousness.
 
 Salvation could not come to this world without the mediation of Jesus Christ. How shall God come to the rescue of the generations? He will send Elijah the prophet. The law revealed to Moses in Horeb never was revealed to the children of Israel as a nation. Elijah shall reveal the covenants to seal the hearts of the fathers to the children and the children to the fathers. The anointing and sealing is to be called, elected, and the election made sure.
 
 “I know that God lives. I know that Jesus Christ lives,” said John Taylor, my predecessor, “for I have seen him.” I bear this testimony to you brethren in the name of Jesus Christ. Amen.
+
+
+
 

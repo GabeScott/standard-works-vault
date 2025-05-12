@@ -1,11 +1,14 @@
 # Remember What Matters Most
-*By M. Russell Ballard - Acting President of the Quorum of the Twelve Apostles*
+
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
 
+>*What matters most is our relationships with Heavenly Father and His Beloved Son, our families, and our neighbors, and allowing the Spirit to guide us.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/04/52ballard?lang=eng)
 
-As we remember this weekend the Savior’s triumphal entry into Jerusalem shortly before His atoning sacrifice, I recall His words of hope and comfort: “I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live.”1
+As we remember this weekend the Savior’s triumphal entry into Jerusalem shortly before His atoning sacrifice, I recall His words of hope and comfort: “I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live.”[^1]
 
 I love Him. I believe Him. I testify that He is the Resurrection and the Life.
 
@@ -37,15 +40,15 @@ I recognize some may not have the blessings of a close family, so I include exte
 
 These relationships can also offer love, joy, happiness, and a sense of belonging.
 
-Nurturing these important relationships is a choice. A choice to be part of a family requires commitment, love, patience, communication, and forgiveness.2 There may be times when we disagree with another person, but we can do so without being disagreeable. In courtship and marriage, we don’t fall in love or fall out of love as though we are objects being moved on a chessboard. We choose to love and sustain one another. We do the same in other family relationships and with friends who are like family to us.
+Nurturing these important relationships is a choice. A choice to be part of a family requires commitment, love, patience, communication, and forgiveness.[^2] There may be times when we disagree with another person, but we can do so without being disagreeable. In courtship and marriage, we don’t fall in love or fall out of love as though we are objects being moved on a chessboard. We choose to love and sustain one another. We do the same in other family relationships and with friends who are like family to us.
 
-The family proclamation states that “the divine plan of happiness enables family relationships to be perpetuated beyond the grave. Sacred ordinances and covenants available in holy temples make it possible for individuals to return to the presence of God and for families to be united eternally.”3
+The family proclamation states that “the divine plan of happiness enables family relationships to be perpetuated beyond the grave. Sacred ordinances and covenants available in holy temples make it possible for individuals to return to the presence of God and for families to be united eternally.”[^3]
 
 Another thing that matters most is following the promptings of the Spirit in our most important relationships and in our efforts to love our neighbors as ourselves, including in our private and public ministries. I learned this lesson early in my life while serving as a bishop.
 
 Late one cold, snowy winter evening, I was leaving my bishop’s office when I had a strong impression to visit an elderly widow in the ward. I glanced at my watch—it was 10:00 p.m. I reasoned that it was too late to make such a visit. And besides, it was snowing. I decided to visit this dear sister first thing in the morning rather than disturbing her at such a late hour. I drove home and went to bed but tossed and turned throughout the night because the Spirit was stirring me.
 
-Early the next morning, I drove straight to the widow’s home. Her daughter answered the door and tearfully said, “Oh, Bishop, thank you for coming. Mother passed away two hours ago”—I was devastated. I will never forget the feelings of my heart. I wept. Who more than this dear widow deserved to have her bishop hold her hand, comfort her, and perhaps give her a final blessing? I missed that opportunity because I reasoned away this strong prompting from the Spirit.4
+Early the next morning, I drove straight to the widow’s home. Her daughter answered the door and tearfully said, “Oh, Bishop, thank you for coming. Mother passed away two hours ago”—I was devastated. I will never forget the feelings of my heart. I wept. Who more than this dear widow deserved to have her bishop hold her hand, comfort her, and perhaps give her a final blessing? I missed that opportunity because I reasoned away this strong prompting from the Spirit.[^4]
 
 Brothers and sisters, young men and young women, and Primary children, I testify that following the promptings of the Spirit is one of the things that matter most in all our relationships.
 
@@ -57,17 +60,30 @@ Alma taught:
 
 “Behold, I testify unto you that I do know that these things whereof I have spoken are true. And how do ye suppose that I know of their surety?
 
-“Behold, I say unto you they are made known unto me by the Holy Spirit of God. Behold, I have fasted and prayed many days that I might know these things of myself. And now I do know of myself that they are true; for the Lord God hath made them manifest unto me by his Holy Spirit.”5
+“Behold, I say unto you they are made known unto me by the Holy Spirit of God. Behold, I have fasted and prayed many days that I might know these things of myself. And now I do know of myself that they are true; for the Lord God hath made them manifest unto me by his Holy Spirit.”[^5]
 
 Having a testimony alone is not enough. As our conversion to Jesus Christ grows, we naturally want to testify of Him—His goodness, love, and kindness.
 
 Often in our testimony meetings on fast Sundays, we hear the phrases “I am thankful” and “I love” more than we hear the phrases “I know” and “I believe.”
 
-I invite you to bear your testimony of Jesus Christ more often. Bear testimony of what you know and believe and what you feel, not just of what you are thankful for. Testify of your own experiences of coming to know and love the Savior, of living His teachings, and of His redemptive and enabling power in your life. As you bear testimony of what you know, believe, and feel, the Holy Ghost will confirm the truth to those who earnestly listen to your testimony. They will do so because they have watched you become a peaceful follower of Jesus Christ. They will see what it means to be His disciple. They will also feel something they may not have felt before. A pure testimony comes from a changed heart and can be carried by the power of the Holy Ghost into the hearts of others who are open to receive it.
+I invite you to bear your testimony of Jesus Christ more often. Bear testimony of what you *know* and *believe* and what you *feel*, not just of what you are thankful for. Testify of your own experiences of coming to know and love the Savior, of living His teachings, and of His redemptive and enabling power in your life. As you bear testimony of what you *know*, *believe*, and *feel*, the Holy Ghost will confirm the truth to those who earnestly listen to your testimony. They will do so because they have watched you become a peaceful follower of Jesus Christ. They will see what it means to be His disciple. They will also feel something they may not have felt before. A pure testimony comes from a changed heart and *can be carried by the power of the Holy Ghost* into the hearts of others who are open to receive it.
 
 Those who feel something as a result of your testimony may then ask the Lord in prayer to confirm the truth of your testimony. Then they can know for themselves.
 
 Brothers and sisters, I testify and witness to you that I know that Jesus Christ is the Savior and Redeemer of the world. He lives. He is the resurrected Son of God, and this is His Church, led by His prophet and apostles. I pray that someday when I pass to the next world, I may do so with my testimony burning brightly.
 
 In my ministry, I have learned what matters most is our relationships with Heavenly Father and His Beloved Son, our families, and our neighbors, and allowing the Spirit of the Lord to guide us in those relationships so we can testify of the things that matter most and last longest. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[John 11.25|John 11:25]].
+
+[^2]: See the articles “[Family](https://churchofjesuschrist.org/study/manual/gospel-topics/family?lang=eng),” “[Unity](https://churchofjesuschrist.org/study/manual/gospel-topics/unity?lang=eng),” and “[Love](https://churchofjesuschrist.org/study/manual/gospel-topics/love?lang=eng)” in Gospel Topics in the Gospel Library (at ChurchofJesusChrist.org or on the mobile app) to read scriptures and talks from prophets, apostles, and other Church leaders on this topic.
+
+[^3]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p3#p3),” ChurchofJesusChrist.org.
+
+[^4]: An account of this experience is in Susan Easton Black and Joseph Walker, *Anxiously Engaged: A Biography of M. Russell Ballard* (2021), 90–91.
+
+[^5]: [[Alma 5.45|Alma 5:45–46]][[Alma 5.46|]].
 

@@ -1,7 +1,10 @@
 # Holy Temples, Sacred Covenants
-*By By Silvia H. Allred - First Counselor in the Relief Society General Presidency*
+
+By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2008 General Conference*
+
+>*The temples are sacred, holy places. They are a source of spiritual power and strength. They are a place of revelation.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/10/holy-temples-sacred-covenants?lang=eng)
 
@@ -19,19 +22,19 @@ Why do members of the Church so willingly and happily make such great sacrifices
 
 I have never forgotten the great outpouring of the Spirit we experienced during the three days we spent at the Mesa Temple. I was deeply touched as I watched family members embrace each other with tears streaming down their faces after being sealed for the eternities.
 
-Twenty-four years later the temple in San José, Costa Rica, was dedicated. Among those present at the session I attended were many of the families who had gone on that first temple excursion. They had waited faithfully and worthily for this sacred moment. They all can now attend the temple often because a temple in Panama was recently dedicated, and a temple in Honduras has been announced.
+Twenty-four years later the temple in San José, Costa Rica, was dedicated. Among those present at the session I attended were many of the families who had gone on that first temple excursion. They had waited faithfully and worthily for this sacred moment. They all can now attend the temple often because a temple in Panama was recently dedicated, and a temple in Honduras has been announced.
 
-The Lord has always asked His people to build temples. The Lord commanded Moses: “Let them make me a sanctuary; that I may dwell among them.” The portable tabernacle they built served as the central place of Israel’s worship during their pilgrimage to the promised land. Its pattern and structure were revealed by the Lord to Moses. It was to be the Lord’s holy house.
+The Lord has always asked His people to build temples. The Lord commanded Moses: “Let them make me a sanctuary; that I may dwell among them.”[^1] The portable tabernacle they built served as the central place of Israel’s worship during their pilgrimage to the promised land. Its pattern and structure were revealed by the Lord to Moses. It was to be the Lord’s holy house.
 
-Later, King Solomon built the temple in Jerusalem using the finest building materials available.
+Later, King Solomon built the temple in Jerusalem using the finest building materials available.[^2]
 
 During His earthly ministry, the Lord regarded the temple as a sacred place and taught reverence for it.
 
-The Nephites also built temples to the Lord in the Americas. They were gathered around the temple when Christ appeared to them after His Resurrection.
+The Nephites also built temples to the Lord in the Americas. They were gathered around the temple when Christ appeared to them after His Resurrection.[^3]
 
-Soon after the Church was restored in this dispensation, the Lord commanded the Saints to build a temple: “Organize yourselves; prepare every needful thing; and establish a house, even a house of prayer, a house of fasting, a house of faith, a house of learning, a house of glory, a house of order, a house of God.”
+Soon after the Church was restored in this dispensation, the Lord commanded the Saints to build a temple: “Organize yourselves; prepare every needful thing; and establish a house, even a house of prayer, a house of fasting, a house of faith, a house of learning, a house of glory, a house of order, a house of God.”[^4]
 
-In response, the Saints built the Kirtland Temple at considerable sacrifice. In this holy temple, important priesthood keys were restored and the Savior Himself appeared.
+In response, the Saints built the Kirtland Temple at considerable sacrifice. In this holy temple, important priesthood keys were restored and the Savior Himself appeared.[^5]
 
 At present, there are 128 temples in operation throughout the world, and many more are being built.
 
@@ -43,7 +46,7 @@ The endowment embodies sacred covenants. It includes receiving instruction, powe
 
 President Brigham Young defined the endowment the following way:
 
-“Your endowment is, to receive all those ordinances in the house of the Lord, which are necessary for you, after you have departed this life, to enable you to walk back to the presence of the Father ... and gain your eternal exaltation.”
+“Your endowment is, to receive all those ordinances in the house of the Lord, which are necessary for you, after you have departed this life, to enable you to walk back to the presence of the Father … and gain your eternal exaltation.”[^6]
 
 The sealing ordinances, such as temple marriage, bind families eternally.
 
@@ -55,9 +58,9 @@ Temple worship provides opportunities to serve the dead by performing vicarious 
 
 The temple is the house of the Lord. He directs the conditions under which it may be used, the ordinances that should be administered, and the standards that qualify us to enter and participate in temple worship.
 
-The Lord told Moses, “Put off thy shoes from off thy feet, for the place whereon thou standest is holy ground.” In Psalms we read: “Who shall ascend into the hill of the Lord? or who shall stand in his holy place?
+The Lord told Moses, “Put off thy shoes from off thy feet, for the place whereon thou standest is holy ground.”[^7] In Psalms we read: “Who shall ascend into the hill of the Lord? or who shall stand in his holy place?
 
-“He that hath clean hands, and a pure heart; who hath not lifted up his soul unto vanity, nor sworn deceitfully.” His house is holy, and no unclean thing may enter it.
+“He that hath clean hands, and a pure heart; who hath not lifted up his soul unto vanity, nor sworn deceitfully.”[^8] His house is holy, and no unclean thing may enter it.[^9]
 
 The Lord has designated the bishop and stake president to be responsible for determining the worthiness of individuals to receive a recommend to enter His holy house. We have to be completely honest with our bishop and stake president when they interview us before issuing a temple recommend. The gift we bring to the altar is a pure heart and a contrite spirit. Personal worthiness is an essential requirement to enjoy the blessings of the temple.
 
@@ -72,4 +75,25 @@ Through His prophets, the Lord invites those who have not yet received the bless
 Let us be worthy to have a current temple recommend. Let us go to the temple to seal our families eternally. Let us return to the temple as often as our circumstances will permit. Let us give our kindred dead the opportunity to receive the ordinances of exaltation. Let us enjoy the spiritual strength and the revelation we receive as we attend the temple regularly. Let us be faithful and make and keep temple covenants to receive the full blessings of the Atonement.
 
 I testify to you that the temples are sacred, holy places. They are a source of spiritual power and strength. They are a place of revelation. They are the house of the Lord. In the sacred name of our Savior and Redeemer, Jesus Christ, amen.
+
+
+
+
+[^1]: [[Exodus 25.8|Exodus 25:8]].
+
+[^2]: See [[1 Kings 5.5|1 Kings 5:5–18]][[1 Kings 5.6|]][[1 Kings 5.7|]][[1 Kings 5.8|]][[1 Kings 5.9|]][[1 Kings 5.10|]][[1 Kings 5.11|]][[1 Kings 5.12|]][[1 Kings 5.13|]][[1 Kings 5.14|]][[1 Kings 5.15|]][[1 Kings 5.16|]][[1 Kings 5.17|]][[1 Kings 5.18|]]; [[1 Kings 6.1|6]][[1 Kings 6.2|]][[1 Kings 6.3|]][[1 Kings 6.4|]][[1 Kings 6.5|]][[1 Kings 6.6|]][[1 Kings 6.7|]][[1 Kings 6.8|]][[1 Kings 6.9|]][[1 Kings 6.10|]][[1 Kings 6.11|]][[1 Kings 6.12|]][[1 Kings 6.13|]][[1 Kings 6.14|]][[1 Kings 6.15|]][[1 Kings 6.16|]][[1 Kings 6.17|]][[1 Kings 6.18|]][[1 Kings 6.19|]][[1 Kings 6.20|]][[1 Kings 6.21|]][[1 Kings 6.22|]][[1 Kings 6.23|]][[1 Kings 6.24|]][[1 Kings 6.25|]][[1 Kings 6.26|]][[1 Kings 6.27|]][[1 Kings 6.28|]][[1 Kings 6.29|]][[1 Kings 6.30|]][[1 Kings 6.31|]][[1 Kings 6.32|]][[1 Kings 6.33|]][[1 Kings 6.34|]][[1 Kings 6.35|]][[1 Kings 6.36|]][[1 Kings 6.37|]][[1 Kings 6.38|]].
+
+[^3]: See [[3 Nephi 11.1|3 Nephi 11:1]].
+
+[^4]: [[D&C 88.119|D&C 88:119]].
+
+[^5]: See [[D&C 110.1|D&C 110]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
+
+[^6]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1971), 416.
+
+[^7]: [[Exodus 3.5|Exodus 3:5]].
+
+[^8]: [[Psalms 24.3|Psalm 24:3–4]][[Psalms 24.4|]].
+
+[^9]: See [[D&C 109.20|D&C 109:20]].
 

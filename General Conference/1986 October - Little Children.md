@@ -1,5 +1,6 @@
 # Little Children
-*By Boyd K. Packer - Of the Quorum of the Twelve Apostles*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
 
@@ -23,27 +24,27 @@ I might well conclude with that lesson on the trust of a little child. Neverthel
 
 There is much in the scriptures about little children.
 
-The Psalmist wrote, “Children are an heritage of the Lord” (Ps. 127:3).
+The Psalmist wrote, “Children are an heritage of the Lord” ([[Psalms 127.3|Ps. 127:3]]).
 
-The Savior gave the ever-familiar plea, “Suffer the little children to come unto me, and forbid them not: for of such is the kingdom of heaven” (Mark 10:14).
+The Savior gave the ever-familiar plea, “Suffer the little children to come unto me, and forbid them not: for of such is the kingdom of heaven” ([[Mark 10.14|Mark 10:14]]).
 
-When His disciples asked, “Who is the greatest in the kingdom of heaven? ... Jesus called a little child unto him, and set him in the midst of them, and said, ... Whosoever ... shall humble himself as this little child, the same is greatest in the kingdom of heaven. And whoso shall receive one such little child in my name receiveth me” (Matt. 18:1–5).
+When His disciples asked, “Who is the greatest in the kingdom of heaven? … Jesus called a little child unto him, and set him in the midst of them, and said, … Whosoever … shall humble himself as this little child, the same is greatest in the kingdom of heaven. And whoso shall receive one such little child in my name receiveth me” ([[Matthew 18.1|Matt. 18:1–5]][[Matthew 18.2|]][[Matthew 18.3|]][[Matthew 18.4|]][[Matthew 18.5|]]).
 
-Then came this warning: “But whoso shall offend one of these little ones which believe in me, it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea” (Matt. 18:6).
+Then came this warning: “But whoso shall offend one of these little ones which believe in me, it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea” ([[Matthew 18.6|v. 6]]).
 
 To me, the most impressive lesson is in the Book of Mormon.
 
 Jesus “commanded that their little children should be brought.
 
-“So they brought their little children and set them down upon the ground round about him, and Jesus stood in the midst; ...
+“So they brought their little children and set them down upon the ground round about him, and Jesus stood in the midst; …
 
 “He commanded the multitude that they should kneel down upon the ground.
 
-“And it came to pass that when they had knelt upon the ground, Jesus groaned within himself, and said: Father, I am troubled because of the wickedness of the people of the house of Israel. ...
+“And it came to pass that when they had knelt upon the ground, Jesus groaned within himself, and said: Father, I am troubled because of the wickedness of the people of the house of Israel. …
 
-“He himself also knelt upon the earth; and behold he prayed unto the Father, and the things which he prayed cannot be written, ...
+“He himself also knelt upon the earth; and behold he prayed unto the Father, and the things which he prayed cannot be written, …
 
-“And no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things as [they] both saw and heard Jesus speak; ...
+“And no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things as \[they\] both saw and heard Jesus speak; …
 
 “And they arose from the earth, and he said unto them: Blessed are ye because of your faith. And now behold, my joy is full.
 
@@ -51,21 +52,21 @@ Jesus “commanded that their little children should be brought.
 
 “And when he had done this he wept again;
 
-“And he ... said unto them: Behold your little ones. ...
+“And he … said unto them: Behold your little ones. …
 
-“And they saw the heavens open, and they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, and they were encircled about with fire; and the angels did minister unto them” (3 Ne. 17:11–15, 17, 20–24).
+“And they saw the heavens open, and they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, and they were encircled about with fire; and the angels did minister unto them” ([[3 Nephi 17.11|3 Ne. 17:11–15, 17, 20–24]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.17|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]]).
 
 There is more, much more, in the scriptures about little children.
 
 There is a sorry side to this subject as well. I wish not to dwell on that beyond listing four transgressions which plague mankind, all of which inflict suffering upon little children.
 
-First, that consummate physical union of man and woman belonging to the marriage covenant is now falsely proclaimed an acceptable indulgence for any two adults.
+*First,* that consummate physical union of man and woman belonging to the marriage covenant is now falsely proclaimed an acceptable indulgence for any two adults.
 
-Second, the misuse of that procreative power in degraded acts of perversion is widely promoted as the right of consenting adults. This selfish behavior carries neither the responsibility nor the rewards of parenthood.
+*Second,* the misuse of that procreative power in degraded acts of perversion is widely promoted as the right of consenting adults. This selfish behavior carries neither the responsibility nor the rewards of parenthood.
 
-Third, the deliberate destruction of the innocent and helpless by abortion is now widely fostered—even publicly funded.
+*Third,* the deliberate destruction of the innocent and helpless by abortion is now widely fostered—even publicly funded.
 
-Fourth, the bodies and minds and morals of increasing numbers of little children are brutalized and abused by those who should protect them.
+*Fourth,* the bodies and minds and morals of increasing numbers of little children are brutalized and abused by those who should protect them.
 
 In it all, mankind has sown a bitter wind and reaps heartbreak, guilt, abandonment, divorce, addiction, disease, and death; and little children suffer.
 
@@ -85,25 +86,25 @@ The revelations teach us that “the glory of God is intelligence, or, in other 
 
 “Light and truth forsake that evil one.
 
-“Every spirit of man was innocent in the beginning; and God having redeemed man from the fall, men became again, in their infant state, innocent before God.
+“Every spirit of man was *innocent* in the beginning; and God having redeemed man from the fall, men became again, in their infant state, *innocent* before God.
 
 “And that wicked one cometh and taketh away light and truth, through disobedience, from the children of men, and because of the tradition of their fathers.
 
-“But I have commanded you to bring up your children in light and truth” (D&C 93:36–40; italics added).
+“But I have commanded you to bring up your children in light and truth” ([[D&C 93.36|D&C 93:36–40]][[D&C 93.37|]][[D&C 93.38|]][[D&C 93.39|]][[D&C 93.40|]]; italics added).
 
 Mormon taught this doctrine to his son Moroni and hence to us. I can present only a few sentences from his letter.
 
-“If I have learned the truth,” Mormon wrote, “there have been disputations among you concerning the baptism of your little children” (Moro. 8:5).
+“If I have learned the truth,” Mormon wrote, “there have been disputations among you concerning the baptism of your little children” ([[Moroni 8.5|Moro. 8:5]]).
 
 He called their disputation “gross error” and wrote: “Immediately after I had learned these things of you I inquired of the Lord concerning the matter. And the word of the Lord came to me by the power of the Holy Ghost, saying:
 
-“Listen to the words of Christ, your Redeemer, your Lord and your God. Behold, I came into the world not to call the righteous but sinners to repentance; the whole need no physician, but they that are sick; wherefore, little children are whole, for they are not capable of committing sin; wherefore the curse of Adam is taken from them in me, that it hath no power over them; ...
+“Listen to the words of Christ, your Redeemer, your Lord and your God. Behold, I came into the world not to call the righteous but sinners to repentance; the whole need no physician, but they that are sick; wherefore, little children are whole, for they are not capable of committing sin; wherefore the curse of Adam is taken from them in me, that it hath no power over them; …
 
-“And after this manner did the Holy Ghost manifest the word of God unto me; wherefore, my beloved son, I know that it is solemn mockery before God, that ye should baptize little children” (Moro. 8:7–9).
+“And after this manner did the Holy Ghost manifest the word of God unto me; wherefore, my beloved son, I know that it is solemn mockery before God, that ye should baptize little children” ([[Moroni 8.7|Moro. 8:7–9]][[Moroni 8.8|]][[Moroni 8.9|]]).
 
-Mormon told Moroni to teach repentance and baptism to “those who are accountable and capable of committing sin” (Moro. 8:10).
+Mormon told Moroni to teach repentance and baptism to “those who are accountable and capable of committing sin” ([[Moroni 8.10|Moro. 8:10]]).
 
-Eight is established by revelation as the age of accountability (see D&C 68:27).
+Eight is established by revelation as the age of accountability (see [[D&C 68.27|D&C 68:27]]).
 
 Then, in sternness unsurpassed in scripture, Mormon warned:
 
@@ -111,7 +112,7 @@ Then, in sternness unsurpassed in scripture, Mormon warned:
 
 “For awful is the wickedness to suppose that God saveth one child because of baptism, and the other must perish because he hath no baptism.
 
-“Wo be unto them that shall pervert the ways of the Lord after this manner, for they shall perish except they repent. Behold, I speak with boldness, having authority from God” (Moro. 8:14–16).
+“Wo be unto them that shall pervert the ways of the Lord after this manner, for they shall perish except they repent. Behold, I speak with boldness, having authority from God” ([[Moroni 8.14|Moro. 8:14–16]][[Moroni 8.15|]][[Moroni 8.16|]]).
 
 Read his entire epistle. It is true doctrine. It will inspire a reverence for little children. Thereafter, who could even think to neglect, much less to abuse one of them?
 
@@ -129,9 +130,9 @@ Another doctrine, equally false and widely accepted, also misrepresents the stat
 
 Years ago, two of our sons, then little fellows, were wrestling on the rug. They reached that line which separates laughter from tears, so I worked my foot carefully between them and lifted the older one back to a sitting position on the rug. As I did so, I said, “Hey there, you little monkeys. You’d better settle down.”
 
-To my surprise, he folded his little arms, his eyes swimming with deep hurt, and protested, “I not a monkey, Daddy; I a person!”
+To my surprise, he folded his little arms, his eyes swimming with deep hurt, and protested, “I not a monkey, Daddy; I a *person!*”
 
-The years have not erased the overwhelming feeling of love I felt for my little boys. Many times over the years his words have slipped back into my mind, “I not a monkey, Daddy; I a person!” I was taught a profound lesson by my little son.
+The years have not erased the overwhelming feeling of love I felt for my little boys. Many times over the years his words have slipped back into my mind, “I not a monkey, Daddy; I a *person!*” I was taught a profound lesson by my little son.
 
 He is not just a person, nor just my little boy. He is a child of God.
 
@@ -143,7 +144,7 @@ Perhaps now they understand what it means to begin our prayers, as the Lord inst
 
 This secular doctrine holds that man is not a child of God, but basically an animal, his behavior inescapably controlled by natural impulse, exempt from moral judgments and unaccountable for moral conduct.
 
-While many claim that this philosophy could not, in the end, lead mankind to relaxed moral behavior, something causes it! Is it accidental that the more widely such secular doctrines are believed, the more prevalent immoral behavior becomes?
+While many claim that this philosophy could not, in the end, lead mankind to relaxed moral behavior, *something* causes it! Is it accidental that the more widely such secular doctrines are believed, the more prevalent immoral behavior becomes?
 
 They defend their philosophy with collected data and say, “It is now proven to be true. Look at all the evidence on our side.”
 
@@ -151,7 +152,7 @@ We in turn point to the sorry way in which mankind degrades procreation and the 
 
 Secular doctrines have the advantage of convincing, tangible evidence. We seem to do better in gathering data on things that can be counted and measured.
 
-Doctrines which originate in the light, on the other hand, are more often supported by intangible impressions upon the spirit. We are left for the most part to rely on faith.
+Doctrines which originate in the light, on the other hand, are more often supported by intangible impressions upon the spirit. We are left for the most part to rely on *faith.*
 
 But, in time, the consequences of following either will become visible enough.
 
@@ -159,13 +160,13 @@ To you adults who repeat the pattern of neglect and abuse you endured as little 
 
 It is contrary to the order of heaven for any soul to be locked into compulsive, immoral behavior with no way out!
 
-It is consistent with the workings of the adversary to deceive you into believing that you are.
+It *is* consistent with the workings of the adversary to deceive you into believing that you *are.*
 
 I gratefully acknowledge that transgressions, even those which affect little children, yield to sincere repentance. I testify with all my soul that the doctrine of repentance is true and has a miraculous, liberating effect upon behavior.
 
-To you innocent ones who have not transgressed, but were abused as little children and still carry an undeserved burden of guilt, I say:
+To you *innocent* ones who have not transgressed, but were abused as little children and still carry an undeserved burden of guilt, I say:
 
-Learn true doctrine—repentance and forgiveness; lay that burden of guilt down!
+Learn true doctrine—repentance *and* forgiveness; lay that burden of guilt down!
 
 For we are all children of the same Heavenly Father. May not each of His children, of any age, claim the redeeming sacrifice of Jesus Christ, and in so doing, through complete repentance, be cleansed and renewed to childlike innocence?
 
@@ -173,13 +174,10 @@ I said at the beginning that I might well conclude with the account of that trus
 
 “You’re not my daddy.”
 
-“No, I’m not your daddy.”
-
-“Did my daddy say you could sleep here?”
-
-“Yes, your daddy said I could sleep here.”
-
 With that, the little boy was soon safely asleep in his arms.
 
 God grant that all little children will be safe with every one of us because their Father and their God and our Father and our God said we could be here. In the name of Jesus Christ, amen.
+
+
+
 

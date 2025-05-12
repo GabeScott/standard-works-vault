@@ -1,5 +1,6 @@
 # The Question of a Mission
-*By Gordon B. Hinckley - First Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1986 General Conference*
 
@@ -7,7 +8,7 @@
 
 I have a duty to speak to you. Beyond that, it’s a great privilege and a tremendous opportunity, and I seek the direction of the Holy Spirit.
 
-I have been so appreciative of this returned missionary chorus who has sung to us this night. I have heard them and their kind sing all across this world. I wish that there were time for them to sing to us “Ye elders of Israel, come join now with me.” (Hymns, 1985, no. 319.) They could do it in English English, American English, Australian English, New Zealand English, French, German, Italian, Portuguese, Spanish, Japanese, Korean, Mandarin, Cantonese, and other languages. Thank you, brethren, for the music with which you have blessed us.
+I have been so appreciative of this returned missionary chorus who has sung to us this night. I have heard them and their kind sing all across this world. I wish that there were time for them to sing to us “Ye elders of Israel, come join now with me.” (*Hymns,* 1985, no. 319.) They could do it in English English, American English, Australian English, New Zealand English, French, German, Italian, Portuguese, Spanish, Japanese, Korean, Mandarin, Cantonese, and other languages. Thank you, brethren, for the music with which you have blessed us.
 
 What Brother Monson said and the presence of this chorus have set a theme for me.
 
@@ -45,11 +46,11 @@ I was going to tell you the story of a friend who recently joined the Church. Ra
 
 May I introduce Brother William Sheffield, who was baptized last November. Brother Sheffield, come and tell us of your experience.
 
-William Sheffield: My dear brothers, following law school at Berkeley, I developed a successful private practice, particularly with international clients, including Indira Ghandi, former prime minister of India.
+**William Sheffield:** My dear brothers, following law school at Berkeley, I developed a successful private practice, particularly with international clients, including Indira Ghandi, former prime minister of India.
 
 For years as a lawyer I had sought a judicial appointment. The day the governor of California called to say I had been appointed to the Superior Court was exhilarating and filled with visions of perhaps, someday, even the Supreme Court. But then, after less than two years as a judge and after just purchasing a new home, we decided to leave this nearly idyllic life. I had heard the Lord call me to the seminary. In response, my wife and I agreed that from then on we would always trust in the Lord, agreeing to be as leaves in a stream—two leaves in His stream, obeying His call, wanting more than anything else to follow Him.
 
-But I had not always followed Christ. For many years, I was uncertain who He was or how I could get close to Him. Almost daily I silently asked myself: Is there a purpose to life? Why am I here? Where am I going? Is the meaning of life found in chasing after the most pleasurable way to get through it—or is there something more? My Christian friends told me all I had to do was “knock and the door will be opened unto you, seek and ye shall find.” (See Matt. 7:7.)
+But I had not always followed Christ. For many years, I was uncertain who He was or how I could get close to Him. Almost daily I silently asked myself: Is there a purpose to life? Why am I here? Where am I going? Is the meaning of life found in chasing after the most pleasurable way to get through it—or is there something more? My Christian friends told me all I had to do was “knock and the door will be opened unto you, seek and ye shall find.” (See [[Matthew 7.7|Matt. 7:7]].)
 
 I began knocking. And as I knocked, the Lord answered. Like a seed growing within me, the gospel began taking over my life. I felt the Spirit calling me. I applied at the Yale Divinity School and was accepted. I resigned my judgeship, we rented out our home in southern California, and headed to New Haven, Connecticut. I was in the divinity school though not yet a member of any church.
 
@@ -63,7 +64,7 @@ During the entire time that I was working through, struggling with, and fighting
 
 For months I examined, cross-examined, reflected, pondered, and prayed about the Joseph Smith story and the Book of Mormon. I found the book complex, sophisticated, doctrinally profound, and beautiful. The more I studied the text, the more profound and beautiful it became.
 
-Much happened over the months. I told my friends and my wife, who was an inactive Mormon and who was beginning to feel some interest in the faith of her forebears, that I would not join the Church to please them, as much as I loved them. I would join only when I had a testimony—when I could say, as a direct witness, that I know Joseph Smith was a prophet, that the Book of Mormon is gospel, and the Latter-day Saint church is His church.
+Much happened over the months. I told my friends and my wife, who was an inactive Mormon and who was beginning to feel some interest in the faith of her forebears, that I would not join the Church to please them, as much as I loved them. I would join only when I had a testimony—when I could say, as a direct witness, that I *know* Joseph Smith was a prophet, that the Book of Mormon is gospel, and the Latter-day Saint church is His church.
 
 In September of last year, the Lord blessed me with that testimony. I now know, without any doubt or uncertainty, without even the ability to conjure up an imaginary doubt, that in the premortal life the Lord selected Joseph Smith as His prophet in the latter days, that the Book of Mormon was preserved by Christ Himself and delivered to Joseph Smith for translation, and that The Church of Jesus Christ of Latter-day Saints is His church.
 
@@ -77,7 +78,10 @@ Thank you, Brother Sheffield. I am convinced that there are many, many thousands
 
 The world is our responsibility. We cannot evade it. I think of the words of Jacob in the Book of Mormon, who with his brother Joseph had been consecrated a priest and teacher unto the people:
 
-“And we did magnify our office unto the Lord, taking upon us the responsibility, answering the sins of the people upon our own heads if we did not teach them the word of God with all diligence.” (Jacob 1:19.)
+“And we did magnify our office unto the Lord, taking upon us the responsibility, answering the sins of the people upon our own heads if we did not teach them the word of God with all diligence.” ([[Jacob 1.19|Jacob 1:19]].)
 
 God bless you, my beloved brethren, young and old, to be faithful to the great responsibility placed upon us to share with others this most precious of all things, I humbly ask, in the name of Jesus Christ, amen.
+
+
+
 

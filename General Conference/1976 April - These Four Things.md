@@ -1,5 +1,6 @@
 # These Four Things
-*By Robert L. Simpson - Assistant to the Council of the Twelve*
+
+By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -15,41 +16,41 @@ The fifth chapter of Ecclesiastes, verses four and five, states:
 
 “When thou vowest a vow unto God, defer not to pay it; for he hath no pleasure in fools: pay that which thou hast vowed.
 
-“Better is it that thou shouldest not vow, than that thou shouldest vow and not pay.” (Eccl. 5:4–5.)
+“Better is it that thou shouldest not vow, than that thou shouldest vow and not pay.” ([[Ecclesiastes 5.4|Eccl. 5:4–5]][[Ecclesiastes 5.5|]].)
 
 Every member of this Church takes upon himself a sacred vow as he submits himself to the waters of baptism. One day in seven, each Sabbath day, we assemble to renew that sacred vow and commitment as we partake of the sacrament.
 
-I would like to suggest that as Church members we keep four prime objectives uppermost in our minds. All four of these objectives involve people, for his church is a people-oriented church. Just as people were the main concern of the Savior, so it should be with each of us, if we are to assist the Master in achieving his end result: to “bring to pass the immortality and eternal life of man.” (Moses 1:39.)
+I would like to suggest that as Church members we keep four prime objectives uppermost in our minds. All four of these objectives involve people, for his church is a people-oriented church. Just as people were the main concern of the Savior, so it should be with each of us, if we are to assist the Master in achieving his end result: to “bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
 Eternal life for the individual requires priesthood. It requires priesthood action; it requires conformity to priesthood principles. The four people-oriented objectives in the life of those who profess to call themselves members of his church are these:
 
-First, the obligation to prepare one’s self and one’s immediate family for the presence of the Lord;
+*First,* the obligation to prepare one’s self and one’s immediate family for the presence of the Lord;
 
-Second, the obligation to be our brother’s keeper and to lift other Church members;
+*Second,* the obligation to be our brother’s keeper and to lift other Church members;
 
-Third, the obligation to share the most precious gift we have, the gospel, with those who have not yet caught the vision; and
+*Third,* the obligation to share the most precious gift we have, the gospel, with those who have not yet caught the vision; and
 
-Fourth, the obligation to provide an opportunity of eternal blessings for our kindred dead.
+*Fourth,* the obligation to provide an opportunity of eternal blessings for our kindred dead.
 
 Please note that your own personal welfare was first on the list, because the last three great obligations can only be accomplished from a source of strength and confidence. The world has too many cases already of “the blind leading the blind.” Our source of knowledge is light and truth. It is the word of God in the beautiful framework of continuing revelation. Truth and light must indeed be received before there can be a dissemination of it. The Savior provided living water to the spiritually deprived. We should strive for that capability also. Ours is not the role of the book vendor who merely carries out an exchange. As we convey properly, we must give of ourselves. Truth travels best on the wings of personal testimony and individual worthiness.
 
-The Lord said to Peter, “When thou art converted, strengthen thy brethren.” (Luke 22:32.) And just as important is the response given the Lord by Peter on that occasion, when he vowed: “Lord, I am ready to go with thee, both into prison, and to death.” (Luke 22:33.)
+The Lord said to Peter, “When thou art converted, strengthen thy brethren.” ([[Luke 22.32|Luke 22:32]].) And just as important is the response given the Lord by Peter on that occasion, when he vowed: “Lord, I am ready to go with thee, both into prison, and to death.” ([[Luke 22.33|Luke 22:33]].)
 
-God’s work and glory starts with our preparedness. He counsels: “Let every man learn his duty.” (D&C 107:99.) It requires dedication: “Seek ye first the kingdom of God.” (Matt. 6:33.) It demands conformity, the singular way: “Come ... follow me.” (Matt. 19:21.)
+God’s work and glory starts with our preparedness. He counsels: “Let every man learn his duty.” ([[D&C 107.99|D&C 107:99]].) It requires dedication: “Seek ye first the kingdom of God.” ([[Matthew 6.33|Matt. 6:33]].) It demands conformity, the singular way: “Come … follow me.” ([[Matthew 19.21|Matt. 19:21]].)
 
 Only after true conversion, exemplified by a demonstrated willingness to improve our lives, can we be counted on as one standing on solid ground, as one ready to respond to the call, as one prepared to lift others.
 
 Our second obligation is to be our brother’s keeper, to be our sister’s keeper, to seek after the lost sheep, to teach one another the doctrines of the kingdom.
 
-I bear testimony to you that home teaching is the divinely inspired method by which we can best touch lives within this Church. Right beside this tremendous priesthood process is Relief Society visiting teaching. Paul had the spirit of home teaching and visiting teaching when he wrote to Timothy: “And the things that thou has heard of me among many witnesses, the same commit thou to faithful men, who shall be able to teach others also.” (2 Tim. 2:2.)
+I bear testimony to you that home teaching is the divinely inspired method by which we can best touch lives within this Church. Right beside this tremendous priesthood process is Relief Society visiting teaching. Paul had the spirit of home teaching and visiting teaching when he wrote to Timothy: “And the things that thou has heard of me among many witnesses, the same commit thou to faithful men, who shall be able to teach others also.” ([[2 Timothy 2.2|2 Tim. 2:2]].)
 
-And now, listen to this, directly from the Lord: “And I give unto you a commandment that you shall teach one another the doctrine of the kingdom.” (D&C 88:77.) This is not a mere suggestion, but listen: “I give unto you a commandment that you shall teach one another.”
+And now, listen to this, directly from the Lord: “And I give unto you a commandment that you shall teach one another the doctrine of the kingdom.” ([[D&C 88.77|D&C 88:77]].) This is not a mere suggestion, but listen: “I give unto you a *commandment* that you shall teach one another.”
 
 I like the analogy I once heard about home teaching. The speaker held up a piece of Scottish plaid and suggested that in our minds we think of each color in the plaid as a separate program of the Church. Then he asked the question: “Which color is home teaching?” The answer: “Home teaching is not a single color; it is the total fabric.” Home teaching, properly carried out, could well involve every facet of the Church according to the varying needs of each family. I like that! Too often we think of home teaching as “just another program.” It can, and should, be as long and as broad as the entire Church spectrum.
 
 Now, all four billion souls now living on the earth are very dear indeed to our Heavenly Father. They, also, need what you and I have. To see that they have an opportunity to hear, and hopefully accept, is another of our important responsibilities. Thus we help Heavenly Father to further accomplish his work and his glory—to assist in bringing all of his children into the circle.
 
-So, the third great objective and vow that we have taken upon ourselves involves these four billion souls. It means continually seeking out and teaching those who might be ready now. This teaching is best done in an appropriate, orderly, and sincere way that will lead to their unqualified acceptance of gospel truth. The Savior said: “Go ye into all the world” (Mark 16:15), and we are going, some 23,000 strong. We are now carrying the truth of the gospel to some fifty nations. But even today’s effort is not enough, says the prophet. Every single person in the Church twenty-five years and younger should be considered as a prospective missionary and the rest of us should become involved in training them, in encouraging them, and in helping them to save funds that they may be self-financed as far as possible.
+So, the third great objective and vow that we have taken upon ourselves involves these four billion souls. It means continually seeking out and teaching those who might be ready now. This teaching is best done in an appropriate, orderly, and sincere way that will lead to their unqualified acceptance of gospel truth. The Savior said: “Go ye into all the world” ([[Mark 16.15|Mark 16:15]]), and we *are* going, some 23,000 strong. We are now carrying the truth of the gospel to some fifty nations. But even today’s effort is not enough, says the prophet. Every single person in the Church twenty-five years and younger should be considered as a prospective missionary and the rest of us should become involved in training them, in encouraging them, and in helping them to save funds that they may be self-financed as far as possible.
 
 During the recent tour of area conferences in the South Pacific, President Kimball was obviously impressed as we met dozens of Indian converts in Fiji. He recognized these pioneers of their race as the possibility for a future thrust into the masses of India when the time is right.
 
@@ -75,7 +76,7 @@ The whole world is crying for help! Isn’t it thrilling to be a part of this si
 
 The largest segment of Heavenly Father’s family that needs our help is our kindred dead. To suppose that we as baptized members of the Church can turn away from our forebears is the surest way I know of becoming ineligible for the ultimate blessings we all seek so earnestly. The Prophet Joseph Smith recorded this in the 128th section of the Doctrine and Covenants as he wrote to the Church members in 1842 under the spirit and direction of the Lord:
 
-“And now, my dearly beloved brethren and sisters, let me assure you that these are principles in relation to the dead and the living that cannot be lightly passed over, as pertaining to our salvation. For their salvation is necessary and essential to our salvation, as Paul says concerning the fathers—that they without us cannot be made perfect—neither can we without our dead be made perfect.” (D&C 128:15.)
+“And now, my dearly beloved brethren and sisters, let me assure you that these are principles in relation to the dead and the living that cannot be lightly passed over, as pertaining to our salvation. For their salvation is necessary and essential to our salvation, as Paul says concerning the fathers—that they without us cannot be made perfect—neither can we without our dead be made perfect.” ([[D&C 128.15|D&C 128:15]].)
 
 We seek exaltation. To achieve that means perfection, and the direction is clear. We cannot be made perfect without our dead. We must seek them out; we must do for them that which they cannot do for themselves.
 
@@ -85,7 +86,10 @@ Brothers and sisters, save our dead? we must—such is our commitment. Carry the
 
 Yes, it all starts right here with you and me and the commitment or vow that we have made with our Heavenly Father, for he said:
 
-“When thou vowest a vow unto God, defer not to pay it; for he hath no pleasure in fools: pay that which thou hast vowed.” (Eccl. 5:4.)
+“When thou vowest a vow unto God, defer not to pay it; for he hath no pleasure in fools: pay that which thou hast vowed.” ([[Ecclesiastes 5.4|Eccl. 5:4]].)
 
 And this is my hope and prayer for all of us, in the name of Jesus Christ. Amen.
+
+
+
 

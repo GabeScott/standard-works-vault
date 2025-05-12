@@ -1,5 +1,6 @@
 # Keeping the Covenants We Make at Baptism
-*By By Dwan J. Young - Primary General President*
+
+By Dwan J. Young - *Primary General President*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -17,13 +18,13 @@ After Jeremy had changed his clothes, he stood in the clearing while his father 
 
 With the sunlight on his wet hair and a radiance on his face, Jeremy felt a reverent calm, and he confided in me with wonder and excitement, “I was baptized in a river just like Jesus!”
 
-The spot in the River Jordan where Jesus was baptized by John the Baptist must have looked something like this beautiful place where we stood. I could almost hear John protesting, “I have need to be baptized of thee, and comest thou to me?” Then the quiet, calm reply of the Savior, “Suffer it to be so now: for thus it becometh us to fulfil all righteousness.” (Matt. 3:14–15.)
+The spot in the River Jordan where Jesus was baptized by John the Baptist must have looked something like this beautiful place where we stood. I could almost hear John protesting, “I have need to be baptized of thee, and comest thou to me?” Then the quiet, calm reply of the Savior, “Suffer it to be so now: for thus it becometh us to fulfil all righteousness.” ([[Matthew 3.14|Matt. 3:14–15]][[Matthew 3.15|]].)
 
 And Jesus was baptized to fulfill the law and to give us the pattern to follow.
 
 When Jeremy’s father said amen to the words of his son’s confirmation prayer, I looked at that young boy and wondered if he was ready for the responsibility of the covenant he had just made. Would he follow the teachings of Jesus by living a new and renewed life? Did he understand his commitment to bear witness to the world of Jesus Christ?
 
-I think a great deal about these things because children are my special concern. I tell you that they can and do honor their commitments made in the waters of baptism.
+I think a great deal about these things because children are my special concern. I tell you that they *can* and *do* honor their commitments made in the waters of baptism.
 
 You will find examples of them around the world—like Lisa. Lisa, age eleven, lives in England. She came home from school one day feeling very excited. She had been asked to read a part in the school devotional assembly the following morning. She said to her mother, “But some of the words are wrong.” Her mother discovered that one paragraph referred to God and the Holy Ghost as being one and the same person. Lisa and her mother decided to write a letter to Lisa’s teacher explaining that this paragraph was contrary to Lisa’s belief, and that she would feel much happier leaving it out.
 
@@ -35,13 +36,13 @@ The Book of Mormon records that Alma was one who heard the teachings of Abinadi 
 
 From this place of refuge in the wilderness, Alma began to teach the words of Abinadi. Those who believed came out of the city to the pure waters of Mormon, and there Alma preached unto them repentance, redemption, and faith on the Lord.
 
-Then Alma said to them: “As ye are desirous to come into the fold of God, and to be called his people, ... what have you against being baptized in the name of the Lord, as a witness before him that ye have entered into a covenant with him, That ye will serve him and keep his commandments, that he may pour out his Spirit more abundantly upon you?” (Mosiah 18:8–10.) Then one by one Alma took them into the waters and baptized them.
+Then Alma said to them: “As ye are desirous to come into the fold of God, and to be called his people, … what have you against being baptized in the name of the Lord, as a witness before him that ye have entered into a covenant with him, That ye will serve him and keep his commandments, that he may pour out his Spirit more abundantly upon you?” ([[Mosiah 18.8|Mosiah 18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]].) Then one by one Alma took them into the waters and baptized them.
 
 Baptism is the beginning of a new life for each one of us, a life of purpose. The Lord is very clear as to what it means to keep his commandments, come into his fold, and be called his people. His people are “willing to bear one another’s burdens, that they may be light;
 
-“Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort.” (Mosiah 18:8–9.)
+“Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort.” ([[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].)
 
-And, like Lisa, the eleven-year-old girl from England, his people are willing “to stand as witnesses of God at all times and in all things, and in all places.” (Mosiah 18:9.) It is the Lord’s will that children at the age of eight begin to be responsible for the kind of lives they lead. You girls who are ten and eleven, and all of us, must assume this same responsibility. In so doing we are becoming a Zion people, which the Doctrine and Covenants says are people who are “pure in heart.” (D&C 97:21.) After baptism we can live a new, more thoughtful life as described by the Christ.
+And, like Lisa, the eleven-year-old girl from England, his people are willing “to stand as witnesses of God at all times and in all things, and in all places.” ([[Mosiah 18.9|Mosiah 18:9]].) It is the Lord’s will that children at the age of eight *begin* to be responsible for the kind of lives they lead. You girls who are ten and eleven, and all of us, must assume this same responsibility. In so doing we are becoming a Zion people, which the Doctrine and Covenants says are people who are “pure in heart.” ([[D&C 97.21|D&C 97:21]].) After baptism we can live a new, more thoughtful life as described by the Christ.
 
 Into our office come countless stories of the faithfulness of children who are keeping the promises they have made at baptism.
 
@@ -51,7 +52,7 @@ From Idaho comes a story of Jonathan, who went to school in the cold weather wea
 
 Ellen was a young girl who really gained an understanding of repentance. While at the store, she took an item without paying for it. But when she got home, she felt miserable. She confided in her mother: “I’m so sorry I took it; will you take it back for me?”
 
-Her mother said, “I can’t repent for you, Ellen. You must repent yourself. You will have to take it back and say you are sorry.”
+Her mother said, “I can’t repent for you, Ellen. You must repent yourself. *You* will have to take it back and say you are sorry.”
 
 It was hard, but she did it. “This is my first repentance,” Ellen said. “I’m glad I know how to make things right.”
 
@@ -59,35 +60,29 @@ Repentance makes it possible to return to the straight and narrow path and becom
 
 We can all do what Christ asks us to do. He has a plan that will bring us happiness. As he whispers through the Spirit, he tells us how to follow his plan.
 
-I Can Follow God’s Plan for Me
+>*I Can Follow God’s Plan for Me*
+>
+>My life is a gift; my life has a plan.
+>My life has a purpose; in heav’n it began.
+>My choice was to come to this lovely home on earth,
+>And seek for God’s light to direct me from birth.
+>
+>I can follow God’s plan for me,
+>Holding fast to his word and his love.
+>I will work and I will pray;
+>I will always walk in his way.
+>Then I will be happy on earth,
+>And in my home above.
+>
 
-My life is a gift; my life has a plan.
+In this song the ten- and eleven-year-old girls have told us we can be happy now and forever if we follow God’s plan, which begins with baptism. It is the gate to the celestial kingdom. (See [[2 Nephi 31.18|2 Ne. 31:18]].)
 
-My life has a purpose; in heav’n it began.
-
-My choice was to come to this lovely home on earth,
-
-And seek for God’s light to direct me from birth.
-
-I can follow God’s plan for me,
-
-Holding fast to his word and his love.
-
-I will work and I will pray;
-
-I will always walk in his way.
-
-Then I will be happy on earth,
-
-And in my home above.
-
-(Supplement to More Songs for Children, pp. 10–11.)
-
-In this song the ten- and eleven-year-old girls have told us we can be happy now and forever if we follow God’s plan, which begins with baptism. It is the gate to the celestial kingdom. (See 2 Ne. 31:18.)
-
-As followers of Christ, we should “look forward with one eye, having one faith and one baptism, having ... hearts knit together in unity and in love one towards another.” (Mosiah 18:21.)
+As followers of Christ, we should “look forward with one eye, having one faith and one baptism, having … hearts knit together in unity and in love one towards another.” ([[Mosiah 18.21|Mosiah 18:21]].)
 
 Each of us who has been baptized has covenanted with the Lord to serve him and keep his commandments. Like Lisa, we must stand as a witness of God. Like Christina, we must comfort those in need. Like Jonathan, we must bear one another’s burdens. Like Ellen, we must repent.
 
 I pray that we will have unity and love as we strive together to keep the covenant we have made at baptism, in the name of Jesus Christ, amen.
+
+
+
 

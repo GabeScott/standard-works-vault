@@ -1,5 +1,6 @@
 # The Balm of Gilead
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -11,15 +12,10 @@ The Bible records that in ancient times there came from Gilead, beyond the Jorda
 
 The lyrics of a song record:
 
-There is a Balm in Gilead,
-
-To make the wounded whole,
-
-There is a Balm in Gilead,
-
-To heal the sin sick soul.
-
-(“There Is a Balm in Gilead,” Recreational Songs, The Church of Jesus Christ of Latter-day Saints, 1949, p. 130.)
+>There is a Balm in Gilead,
+>To make the wounded whole,
+>To heal the sin sick soul.
+>
 
 I recently asked a doctor of family medicine how much of his time was devoted purely to correcting physical disorders. He has a large practice, and after thoughtfully considering, he answered, “Not more than 20 percent. The rest of the time I seem to be working on problems that very much affect the physical well-being of my patients but do not originate in the body.
 
@@ -29,7 +25,7 @@ In recent generations one after another of the major diseases has yielded to con
 
 There is another part of us, not so tangible, but quite as real as our physical body. This intangible part of us is described as mind, emotion, intellect, temperament, and many other things. Very seldom is it described as spiritual.
 
-But there is a spirit in man; to ignore it is to ignore reality. There are spiritual disorders, too, and spiritual diseases that can cause intense suffering.
+But there is a *spirit* in man; to ignore it is to ignore reality. There are spiritual disorders, too, and spiritual diseases that can cause intense suffering.
 
 The body and the spirit of man are bound together. Often, very often, when there are disorders, it is very difficult to tell which is which.
 
@@ -135,25 +131,16 @@ You may need a transfusion of spiritual strength to be able to do this. Then jus
 
 One of our sacred hymns carries this message:
 
-Ere you left your room this morning,
-
-Did you think to pray? ...
-
-When your soul was full of sorrow,
-
-Balm of Gilead did you borrow
-
-At the gates of day?
-
-O how praying rests the weary!
-
-Prayer will change the night to day;
-
-So when life gets dark and dreary,
-
-Don’t forget to pray.
-
-(Hymns, no. 31.)
+>Ere you left your room this morning,
+>Did you think to pray? …
+>When your soul was full of sorrow,
+>Balm of Gilead did you borrow
+>At the gates of day?
+>O how praying rests the weary!
+>Prayer will change the night to day;
+>So when life gets dark and dreary,
+>Don’t forget to pray.
+>
 
 All of us carry excess baggage around from time to time, but the wisest ones among us don’t carry it for very long. They get rid of it.
 
@@ -175,7 +162,7 @@ It will then be as though a cloudy, dirty film has been erased from the world ar
 
 A great significant message of the gospel of Jesus Christ is exemplified by the title given to Him: the Prince of Peace. If we follow Him, we can have that individually and collectively.
 
-He has said: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.” (John 14:27.)
+He has said: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.” ([[John 14.27|John 14:27]].)
 
 If you, my brother or sister, are troubled, there is at hand, not just in Gilead, a soothing, healing balm.
 
@@ -189,7 +176,10 @@ Consider this:
 
 “Even the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you.
 
-“I will not leave you comfortless: I will come to you.” (John 14:14–18.)
+“I will not leave you comfortless: I will come to you.” ([[John 14.14|John 14:14–18]][[John 14.15|]][[John 14.16|]][[John 14.17|]][[John 14.18|]].)
 
 I bear witness of Him who is the Great Comforter and as one authorized to bear that witness testify that He lives. In the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Feed My Sheep
-*By Boyd K. Packer - Of the Quorum of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve*
 
 *Given in the April session of the 1984 General Conference*
 
@@ -27,7 +28,7 @@ Then one of their little girls spies our table. She pulls her runny-nosed little
 
 Everyone is waiting. Why did they arrive just at that moment? Such an inconvenient time. Why must we interrupt what we are doing to bother with outsiders? Why couldn’t they have stopped somewhere else? They are not clean! They are not like us. They just don’t fit in.
 
-Since the bishop has put us in charge, he expects us to handle these intruders. What should we do? Of course, this is only a parable. But now for the test. If it really happened, my young friends, what would you do?
+Since the bishop has put us in charge, he expects us to handle these intruders. What should we do? Of course, this is only a parable. But now for the test. If it really happened, my young friends, what *would* you do?
 
 I will give you three choices.
 
@@ -35,7 +36,7 @@ First, you could insist the intruders keep their children quiet while we have th
 
 I doubt that you would do that. Could you choke down a feast before hungry children? Surely we are better than that! That is not the answer.
 
-The next choice. There is that extra table. And we do have too much of some things. We could take a little of this and a little of that and lure the little children back to their own table. Then we could enjoy our feast without interruption. After all, we earned what we have. Did we not “obtain it by [our own] industry,” as the Book of Mormon says? (See Alma 4:6.)
+The next choice. There is that extra table. And we do have too much of some things. We could take a little of this and a little of that and lure the little children back to their own table. Then we could enjoy our feast without interruption. After all, we earned what we have. Did we not “obtain it by \[our own\] industry,” as the Book of Mormon says? (See [[Alma 4.6|Alma 4:6]].)
 
 I hope you would not do that. There is a better answer. You already know what it is.
 
@@ -43,9 +44,9 @@ We should go out to them and invite them to come and join us. You could slide th
 
 Could there be more pure enjoyment than seeing how much we could get those hungry children to eat? Could there be more satisfaction than to interrupt our festivities to help our mechanic fix their car?
 
-Is that what you would do? Surely it is what you should do. But forgive me if I have a little doubt; let me explain.
+Is that what you would do? Surely it is what you *should* do. But forgive me if I have a little doubt; let me explain.
 
-We, as members of the Church, have the fullness of the gospel. Every conceivable manner of spiritual nourishment is ours. Every part of the spiritual menu is included. It provides an unending supply of spiritual strength. Like the widow’s cruse of oil, it is replenished as we use it and shall never fail. (See 1 Kgs. 17:8–16.)
+We, as members of the Church, have the *fullness* of the gospel. Every conceivable manner of spiritual nourishment is ours. Every part of the spiritual menu is included. It provides an unending supply of spiritual strength. Like the widow’s cruse of oil, it is replenished as we use it and shall never fail. (See [[1 Kings 17.8|1 Kgs. 17:8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].)
 
 And yet, there are people across the world and about us—our neighbors, our friends, some in our own families—who, spiritually speaking, are undernourished. Some of them are starving to death!
 
@@ -55,9 +56,9 @@ We are to go out to them, and to invite them to join us. We are to be missionari
 
 It does not matter if it interrupts your schooling or delays your career or your marriage—or basketball. Unless you have a serious health problem, every Latter-day Saint young man should answer the call to serve a mission.
 
-Even mistakes and transgressions must not stand in the way. You should make yourself worthy to receive a call.
+Even mistakes and transgressions must not stand in the way. You should make yourself *worthy* to receive a call.
 
-The early Apostles at first did not know that the gospel was for everyone, for the Gentiles. Then Peter had a vision. He saw a vessel full of all kinds of creatures and was commanded to kill and to eat. But he refused, saying they were common and unclean. Then the voice said, “What God hath cleansed, that call not thou common.” (See Acts 10:9–16.) That vision, and the experience they had immediately following, convinced them of their duty; thus began the great missionary work of all Christianity.
+The early Apostles at first did not know that the gospel was for everyone, for the Gentiles. Then Peter had a vision. He saw a vessel full of all kinds of creatures and was commanded to kill and to eat. But he refused, saying they were common and unclean. Then the voice said, “What God hath cleansed, that call not thou common.” (See [[Acts 10.9|Acts 10:9–16]][[Acts 10.10|]][[Acts 10.11|]][[Acts 10.12|]][[Acts 10.13|]][[Acts 10.14|]][[Acts 10.15|]][[Acts 10.16|]].) That vision, and the experience they had immediately following, convinced them of their duty; thus began the great missionary work of all Christianity.
 
 Almost any returned missionary will have a question: “If they are starving spiritually, why do they not accept what we have? Why do they slam the door on us and turn us away?”
 
@@ -69,7 +70,7 @@ Be patient if some will not eat when first invited. Remember, all who are spirit
 
 Undernourished children must be carefully fed; so it is with the spiritually underfed. Some are so weakened by mischief and sin that to begin with they reject the rich food we offer. They must be fed carefully and gently.
 
-Some are so near spiritual death that they must be spoonfed on the broth of fellowship, or nourished carefully on activities and programs. As the scriptures say, they must have milk before meat. (See 1 Cor. 3:2; D&C 19:22.) But we must take care lest the only nourishment they receive thereafter is that broth.
+Some are so near spiritual death that they must be spoonfed on the broth of fellowship, or nourished carefully on activities and programs. As the scriptures say, they must have milk before meat. (See [[1 Corinthians 3.2|1 Cor. 3:2]]; [[D&C 19.22|D&C 19:22]].) But we must take care lest the only nourishment they receive thereafter is that broth.
 
 But feed them we must. We are commanded to preach the gospel to every nation, kindred, tongue, and people. That message, my young friends, appears more than eighty times in the scriptures.
 
@@ -91,9 +92,12 @@ That was thirty-eight years ago, but I can see him as clearly as if it were yest
 
 Perhaps I was scarred by that experience. If so, it is a battle scar, a worthy one, for which I bear no shame. It reminds me of my duty!
 
-Young brethren, I can hear the voice of the Lord saying to each of us just as He said to Peter, “Feed my lambs. ... Feed my sheep. ... Feed my sheep.” (See John 21:15–17.)
+Young brethren, I can hear the voice of the Lord saying to each of us just as He said to Peter, “Feed my lambs. … Feed my sheep. … Feed my sheep.” (See [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].)
 
 I have unbounded confidence and faith in you, our young brethren. You are the warriors of the Restoration. And in this spiritual battle, you are to relieve the spiritual hunger and feed the sheep. It is your duty!
 
 We have the fullness of the everlasting gospel. We have the obligation to share it with those who do not have it. God grant that we will honor that commission from the Lord and prepare ourselves and answer the call, I humbly pray, in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,19 +1,22 @@
 # Righteous Traditions
-*By By Cheryl C. Lant - Primary General President*
+
+By Cheryl C. Lant - *Primary General President*
 
 *Given in the April session of the 2008 General Conference*
+
+>*Are the traditions that we are creating in our families going to make it easier for our children to follow the living prophets?*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/04/righteous-traditions?lang=eng)
 
 For as long as I can remember, my father wore a beautiful red ruby ring on his left hand. It was passed on to my only brother. I suppose it will become a tradition in our family—a legacy passed from generation to generation. It will be a good tradition, with sweet memories associated with it.
 
-Each of us has traditions in our families. Some of them are material. Some of them have deep meaning. The most important traditions are connected with the way we live our lives and will last beyond us as our children’s lives are influenced and shaped. In the Book of Mormon, we read of the Lamanites who were deeply affected by the traditions of their fathers. King Benjamin said they were a people who knew nothing about the principles of the gospel “or even do not believe them when they are taught them, because of the traditions of their fathers, which are not correct” (Mosiah 1:5).
+Each of us has traditions in our families. Some of them are material. Some of them have deep meaning. The most important traditions are connected with the way we live our lives and will last beyond us as our children’s lives are influenced and shaped. In the Book of Mormon we read of the Lamanites who were deeply affected by the traditions of their fathers. King Benjamin said they were a people who knew nothing about the principles of the gospel “or even do not believe them when they are taught them, because of the traditions of their fathers, which are not correct” ([[Mosiah 1.5|Mosiah 1:5]]).
 
 What kinds of traditions do we have? Some of them may have come from our fathers, and now we are passing them along to our own children. Are they what we want them to be? Are they based on actions of righteousness and faith? Are they mostly material in nature, or are they eternal? Are we consciously creating righteous traditions, or is life just happening to us? Are our traditions being created in response to the loud voices of the world, or are they influenced by the still, small voice of the Spirit? Are the traditions that we are creating in our families going to make it easier for our children to follow the living prophets, or will they make it difficult for them?
 
-How should we determine what our traditions will be? The scriptures give us a great pattern. In Mosiah 5:15 it states, “Therefore, I would that ye should be steadfast and immovable, always abounding in good works.”
+How should we determine what our traditions will be? The scriptures give us a great pattern. In [[Mosiah 5.15|Mosiah 5:15]] it states, “Therefore, I would that ye should be steadfast and immovable, always abounding in good works.”
 
-I love this because we know that traditions are formed over time as we repeat the same actions over and over again. As we are steady and unchanging in doing that which is good, our traditions become firmly rooted in righteousness. But I have a question. How do we determine what is good or, more importantly, what is good enough? Another scripture that gives us a little more information is found in 3 Nephi 6:14. It speaks of people “who were converted unto the true faith; and they would not depart from it, for they were firm, and steadfast, and immovable, willing with all diligence to keep the commandments of the Lord.”
+I love this because we know that traditions are formed over time as we repeat the same actions over and over again. As we are steady and unchanging in doing that which is good, our traditions become firmly rooted in righteousness. But I have a question. How do we determine what is good or, more importantly, what is good enough? Another scripture that gives us a little more information is found in [[3 Nephi 6.14|3 Nephi 6:14]]. It speaks of people “who were converted unto the true faith; and they would not depart from it, for they were firm, and steadfast, and immovable, willing with all diligence to keep the commandments of the Lord.”
 
 We learn that our conversion to the “true faith” precedes our ability to remain firm, steadfast, and immovable in keeping the commandments. This conversion is a firm belief in Jesus Christ as our Redeemer. A witness of this is found in the Book of Mormon, which is another witness of Jesus Christ. It goes hand in hand with the Bible in proclaiming the divinity and mission of Jesus Christ as well as the reality of a living Father in Heaven. Every prophet recorded in these sacred books gives his personal witness of these things, as well as teachings on how we need to live our lives in order to partake of the Atonement and find personal peace and happiness.
 
@@ -25,11 +28,14 @@ Now, the important thing is that we consistently work to do these things. We wil
 
 At the end of my father’s life, he passed much more on to us, his children, than a red ruby ring. His body was spent, but in reality he stood as a pillar of strength, an example of righteousness and truth. His very life held the traditions that strengthen us today, even though he is no longer with us. He was “steadfast, and immovable, willing with all diligence to keep the commandments of the Lord.”
 
-Can we do this for our children? What is the legacy we are giving them today? What will it be tomorrow? It can start with us. Will their hearts and lives be full of traditions that make it easy for them to accept and follow the Lord and the latter-day prophets? Will we as families be able to claim the blessings promised, “that Christ, the Lord God Omnipotent, may seal you his, that you may be brought to heaven, that ye may have everlasting salvation and eternal life” (Mosiah 5:15)?
+Can we do this for our children? What is the legacy we are giving them today? What will it be tomorrow? It can start with us. Will their hearts and lives be full of traditions that make it easy for them to accept and follow the Lord and the latter-day prophets? Will we as families be able to claim the blessings promised, “that Christ, the Lord God Omnipotent, may seal you his, that you may be brought to heaven, that ye may have everlasting salvation and eternal life”? ([[Mosiah 5.15|Mosiah 5:15]]).
 
-Brothers and sisters, I know that we can! I know that God loves us and is waiting to help us come unto Him. Each of us can know that these things are true. I know that they are! I know that God lives; Jesus Christ is His Son and our Redeemer. The gospel of Jesus Christ is true; the scriptures contain it and testify of it. And we have a true and living prophet today—President Thomas S. Monson. He has been prepared and brought forth in this day to lead the Lord’s Church.
+Brothers and sisters, I know that we can! I know that God loves us and is waiting to help us come unto Him. Each of us can know that these things are true. I know that they are! I know that God lives; Jesus Christ is His Son and our Redeemer. The gospel of Jesus Christ is true; the scriptures contain it and testify of it. And we have a true and living prophet today—President Thomas S. Monson. He has been prepared and brought forth in this day to lead the Lord’s Church.
 
 As we become “steadfast and immovable” in keeping the commandments of the Lord, we will secure the blessings of heaven for ourselves and for our families.
 
 I pray that we will feel this deep in our hearts and in our lives, in the name of Jesus Christ, amen.
+
+
+
 

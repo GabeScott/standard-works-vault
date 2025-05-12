@@ -1,5 +1,6 @@
 # Missionary Memories
-*By Thomas S. Monson - Second Counselor in the First Presidency*
+
+By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1987 General Conference*
 
@@ -23,15 +24,15 @@ At this point, President Burt and I looked at President Fetzer and noticed the g
 
 I do not remember the messages delivered during the priesthood meeting that night, but I shall never forget the faith-filled conversation which preceded the commencement of the meeting.
 
-The words of the Lord seemed so appropriate then. They are equally appropriate now: “And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” (D&C 18:15).
+The words of the Lord seemed so appropriate then. They are equally appropriate now: “And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” ([[D&C 18.15|D&C 18:15]]).
 
-We are a missionary-minded people. We have a divine mandate to proclaim the message of the Restoration. You young men here this night are on the threshold of your missionary opportunity. That energetic missionary from the Book of Mormon, even Alma, provides for us a blueprint for missionary conduct: “This is my glory, that perhaps I may be an instrument in the hands of God to bring some soul to repentance; and this is my joy” (Alma 29:9).
+We are a missionary-minded people. We have a divine mandate to proclaim the message of the Restoration. You young men here this night are on the threshold of your missionary opportunity. That energetic missionary from the Book of Mormon, even Alma, provides for us a blueprint for missionary conduct: “This is my glory, that perhaps I may be an instrument in the hands of God to bring some soul to repentance; and this is my joy” ([[Alma 29.9|Alma 29:9]]).
 
 I add my personal witness: Our missionaries are not salesmen with wares to peddle; rather, they are servants of the Most High God, with testimonies to bear, truths to teach, and souls to save.
 
-Each missionary who goes forth in response to a sacred call becomes a servant of the Lord whose work this truly is. Do not fear, young men, for He will be with you. He never fails. He has promised: “I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” (D&C 84:88).
+Each missionary who goes forth in response to a sacred call becomes a servant of the Lord whose work this truly is. Do not fear, young men, for He will be with you. He never fails. He has promised: “I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” ([[D&C 84.88|D&C 84:88]]).
 
-“And ye shall go forth in the power of my Spirit, preaching my gospel, two by two, in my name, lifting up your voices as with the sound of a trump, declaring my word like unto angels of God” (D&C 42:6).
+“And ye shall go forth in the power of my Spirit, preaching my gospel, two by two, in my name, lifting up your voices as with the sound of a trump, declaring my word like unto angels of God” ([[D&C 42.6|D&C 42:6]]).
 
 Fathers, bishops, quorum advisers, yours is the responsibility to prepare this generation of missionaries, to quicken in the hearts of these deacons, teachers, and priests not only an awareness of their obligation to serve, but also a vision of the opportunities and blessings which await them through a missionary call. The work is demanding, the impact everlasting. This is no time for “summer soldiers” in the army of the Lord.
 
@@ -43,7 +44,7 @@ In many respects, a mission is a family calling. The letters which a missionary 
 
 I trust parents will remember that their letters to a missionary son or daughter bring home and heaven close to him or to her and provide a renewal of commitment to the sacred calling of missionary. God will inspire you as you take pen in hand to express to one you love the feelings of your soul and the love of your heart.
 
-At the funeral service for the mother of Elder Marion G. Romney, held in Provo, Utah, her son-in-law, Brother John K. Edmunds, gave the following account: “In their early married life, Brother and Sister Romney lived in Mexico. Brother Romney [like the father of President Benson] was called on a mission. There was no feasible means of support, yet he went and his wife sustained him. One day she grieved because she wanted to write her husband a letter but did not have sufficient money to buy a postage stamp. She prayed and then took a walk through the orchard that autumn day, kicking the leaves as she walked along and thinking of her husband. She noticed a shiny object on the ground and discovered it to be a coin—just the right amount for several postage stamps.”
+At the funeral service for the mother of Elder Marion G. Romney, held in Provo, Utah, her son-in-law, Brother John K. Edmunds, gave the following account: “In their early married life, Brother and Sister Romney lived in Mexico. Brother Romney \[like the father of President Benson\] was called on a mission. There was no feasible means of support, yet he went and his wife sustained him. One day she grieved because she wanted to write her husband a letter but did not have sufficient money to buy a postage stamp. She prayed and then took a walk through the orchard that autumn day, kicking the leaves as she walked along and thinking of her husband. She noticed a shiny object on the ground and discovered it to be a coin—just the right amount for several postage stamps.”
 
 Her letter had been written. Now, through the intervention of God, it could be mailed.
 
@@ -63,23 +64,26 @@ Craig confided to me his deep and abiding love for his parents and his hope that
 
 I was not to see Craig’s mother for over eighteen months. She came to the office and, in sentences punctuated by tears, said to me, “It has been almost two years since Craig departed for his mission. He has never failed in writing a letter to us each week. Recently, my husband, Fred, stood for the first time in a testimony meeting and said, ‘All of you know that I am not a member of the Church, but something has happened to me since Craig left for his mission. His letters have touched my soul. May I share one with you?
 
-“‘Dear Dad,
+“‘“Dear Dad,
 
-“‘Today we taught a choice family about the plan of salvation and blessings of exaltation in the celestial kingdom. For me it just wouldn’t be a celestial kingdom if you were not there. I’m grateful to be your son, Dad, and want you to know that I love you.
+“‘“Today we taught a choice family about the plan of salvation and blessings of exaltation in the celestial kingdom. For me it just wouldn’t be a celestial kingdom if you were not there. I’m grateful to be your son, Dad, and want you to know that I love you.
 
-“‘Your missionary son,
+“‘“Your missionary son,
 
-“‘Craig
+“‘“Craig”
 
 “‘After twenty-six years of marriage, I have made my decision to become a member of the Church, for I know the gospel message is the word of God. My son’s mission has moved me to action. I have made arrangements for my wife and me to meet Craig when he completes his mission. I will be his final baptism as a full-time missionary of the Lord.’” He heard the message, he saw the light, he embraced the truth.
 
 A young missionary with unwavering faith had participated with God in a modern-day miracle. His challenge to communicate with one whom he loved had been made more difficult by the barrier of the thousands of miles that lay between him and home. But the spirit of love spanned the vast expanse of the blue Pacific, and heart spoke to heart in divine dialogue.
 
-No missionary stood so tall as did Craig Sudbury when, in far-off Australia, he helped his father into water waist-deep and, raising his right arm to the square, repeated those sacred words: “Fred Sudbury, having been commissioned of Jesus Christ, I baptize you in the name of the Father, and of the Son, and of the Holy Ghost” (see D&C 20:73).
+No missionary stood so tall as did Craig Sudbury when, in far-off Australia, he helped his father into water waist-deep and, raising his right arm to the square, repeated those sacred words: “Fred Sudbury, having been commissioned of Jesus Christ, I baptize you in the name of the Father, and of the Son, and of the Holy Ghost” (see [[D&C 20.73|D&C 20:73]]).
 
 The prayer of a mother, the faith of a father, the service of a son brought forth the miracle of God.
 
-“How beautiful are the feet of them that preach the gospel of peace, and bring glad tidings of good things!” (Rom. 10:15).
+“How beautiful are the feet of them that preach the gospel of peace, and bring glad tidings of good things!” ([[Romans 10.15|Rom. 10:15]]).
 
 God bless us, my brethren, with missionary memories of stalwart service in the cause of Christ, I pray in His holy name, amen.
+
+
+
 

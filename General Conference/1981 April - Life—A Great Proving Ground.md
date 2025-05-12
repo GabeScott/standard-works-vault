@@ -1,5 +1,6 @@
 # Life—A Great Proving Ground
-*By Franklin D. Richards - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -11,29 +12,29 @@ We are living in a remarkable age—the dispensation of the fulness of times—b
 
 A universal question in the hearts and minds of men and women in all parts of the world is, “What is the purpose of life?”
 
-The restored gospel of Jesus Christ answers this question. In modern revelation the Lord has told us, “If you keep my commandments and endure to the end you shall have eternal life, which gift is the greatest of all the gifts of God.” (D&C 14:7.)
+The restored gospel of Jesus Christ answers this question. In modern revelation the Lord has told us, “If you keep my commandments and endure to the end you shall have eternal life, which gift is the greatest of all the gifts of God.” ([[D&C 14.7|D&C 14:7]].)
 
 Therefore, in essence the purpose of life is to prepare us for the greatest gift of God, eternal life.
 
-The restored gospel explains that we existed as spirit entities before being born into this sphere of activity—yes, spirit children of our Father in Heaven. We came to this earth for our spirits to receive bodies of flesh and bones and to receive experiences wherein we are proved and tested to see, as the scripture states, if we “will do all things whatsoever the Lord ... shall command.” (Abr. 3:25.)
+The restored gospel explains that we existed as spirit entities before being born into this sphere of activity—yes, spirit children of our Father in Heaven. We came to this earth for our spirits to receive bodies of flesh and bones and to receive experiences wherein we are proved and tested to see, as the scripture states, if we “will do all things whatsoever the Lord … shall command.” ([[Abraham 3.25|Abr. 3:25]].)
 
 The Church of Jesus Christ of Latter-day Saints teaches the value of eternal progression. We progressed in the premortal existence, and we have the opportunity to progress in this estate and throughout all eternity. Each of us is endowed with gifts and talents, and through study, prayer, proper work habits, and the use of our gifts and talents, we can accomplish our eternal objectives.
 
-Study, particularly of the scriptures, is an important factor. We are counseled to “seek learning, even by study and also by faith.” (D&C 88:118.) Eternal progress involves continual study. The Lord has told us that “the glory of God is intelligence, or, in other words, light and truth.” (D&C 93:36.)
+Study, particularly of the scriptures, is an important factor. We are counseled to “seek learning, even by study and also by faith.” ([[D&C 88.118|D&C 88:118]].) Eternal progress involves continual study. The Lord has told us that “the glory of God is intelligence, or, in other words, light and truth.” ([[D&C 93.36|D&C 93:36]].)
 
 Also, “Whatever principle of intelligence we attain unto in this life, it will rise with us in the resurrection.
 
-“And if a person gains more knowledge and intelligence in this life through his diligence and obedience than another, he will have so much the advantage in the world to come.” (D&C 130:18–19.)
+“And if a person gains more knowledge and intelligence in this life through his diligence and obedience than another, he will have so much the advantage in the world to come.” ([[D&C 130.18|D&C 130:18–19]][[D&C 130.19|]].)
 
-President Spencer W. Kimball has counseled us in this manner: “Let us ... seek to read and understand and apply the principles and inspired counsel found within the [scriptures]. If we do so, we shall discover that our personal acts of righteousness will also bring personal revelation or inspiration when needed into our own lives.” (Ensign, Sept. 1975, p. 4.)
+President Spencer W. Kimball has counseled us in this manner: “Let us … seek to read and understand and apply the principles and inspired counsel found within the \[scriptures\]. If we do so, we shall discover that our personal *acts* of righteousness will also bring *personal revelation or inspiration* when needed into our own lives.” (*Ensign,* Sept. 1975, p. 4.)
 
 An abundance of modern revelation is to be found in latter-day scriptures. These scriptures explain in detail how to meet today’s challenges. Knowledge received from studying the scriptures assists us in making correct decisions in all areas of life’s activities and helps us to know God and understand his purposes.
 
-Now, with reference to the part that prayer plays in accomplishing our eternal objectives, the Savior instructed his disciples to “pray always” (Luke 21:36), saying: “Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you” (Luke 11:9).
+Now, with reference to the part that prayer plays in accomplishing our eternal objectives, the Savior instructed his disciples to “pray always” ([[Luke 21.36|Luke 21:36]]), saying: “Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you” ([[Luke 11.9|Luke 11:9]]).
 
-The Prophet Joseph Smith observed that “it is the first principle of the gospel to know for a certainty the character of God, and to know that we may converse with Him as one man converses with another.” (History of the Church, 6:305.)
+The Prophet Joseph Smith observed that “it is the first principle of the gospel to know for a certainty the character of God, and to know that we may converse with Him as one man converses with another.” (*History of the Church,* 6:305.)
 
-Brigham Young, in his realistic manner, stated, “You know that it is one peculiarity of our faith and religion never to ask the Lord to do a thing without being willing to help him all that we are able; and then the Lord will do the rest.” (Discourses of Brigham Young, comp. John A. Widtsoe, Salt Lake City: Deseret Book Company, 1941, p. 43.)
+Brigham Young, in his realistic manner, stated, “You know that it is one peculiarity of our faith and religion never to ask the Lord to do a thing without being willing to help him all that we are able; and then the Lord will do the rest.” (*Discourses of Brigham Young,* comp. John A. Widtsoe, Salt Lake City: Deseret Book Company, 1941, p. 43.)
 
 “Please, Lord, help me to help myself.” I am convinced that this prayer for increased personal power is one that God answers. We can learn to solve our problems with God’s help.
 
@@ -49,13 +50,13 @@ While the master was away, the one who received five talents put them to use and
 
 The master returned and asked for an accounting.
 
-To the servants who had multiplied their talents, the master said: “Well done, good and faithful servant; thou hast been faithful over a few things, I will make thee ruler over many things.” (Matt. 25:23.)
+To the servants who had multiplied their talents, the master said: “Well done, good and faithful servant; thou hast been faithful over a few things, I will make thee ruler over many things.” ([[Matthew 25.23|Matt. 25:23]].)
 
 The master called the servant who had hidden his talent and did not multiply it a slothful servant and said he would take the one talent from him and give it to the servant who had ten talents.
 
 What a marvelous philosophy—the gospel of work!
 
-At the time the present welfare program of the Church was established, the First Presidency explained that the primary purpose was to “set up ... a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self respect be once more established amongst our people. The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (In Conference Report, October 1936, p. 3.)
+At the time the present welfare program of the Church was established, the First Presidency explained that the primary purpose was to “set up … a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self respect be once more established amongst our people. The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (In Conference Report, October 1936, p. 3.)
 
 These are eternal principles and are as applicable to us today as they were when they were given.
 
@@ -65,7 +66,7 @@ Whether our work is mainly mental or physical, or a combination of both, we shou
 
 The Savior constantly emphasized the doctrine of loving your neighbor, of unselfishness and sacrifice. Let me suggest, therefore, the advisability of engaging in some work that involves service to our fellowman and some sacrifice of our time, talents, and means.
 
-Remember the words of King Benjamin: “When ye are in the service of your fellow beings ye are only in the service of your God.” (Mosiah 2:17.)
+Remember the words of King Benjamin: “When ye are in the service of your fellow beings ye are only in the service of your God.” ([[Mosiah 2.17|Mosiah 2:17]].)
 
 We should also appreciate that talents are developed by use, and they will not grow and multiply unless they are used. This principle was clearly taught in the Savior’s parable.
 
@@ -83,7 +84,7 @@ But emerging from this dark period were the men who led the Church throughout tr
 
 The answer came as God replied, “My son, peace be unto thy soul; thine adversity and thine afflictions shall be but a small moment;
 
-“And then, if thou endure it well, God shall exalt thee on high.” (D&C 121:7–8.)
+“And then, if thou endure it well, God shall exalt thee on high.” ([[D&C 121.7|D&C 121:7–8]][[D&C 121.8|]].)
 
 The Liberty Jail experience truly constituted a refiner’s fire for those who participated in it, and it gives us a better understanding and appreciation of the greatness of the Prophet Joseph Smith and the early leaders of the Church.
 
@@ -93,7 +94,7 @@ First, the importance of faith in the Lord Jesus Christ and loyalty to our leade
 
 Second, the need for enduring to the end, regardless of how many difficulties we have to surmount.
 
-As we endure to the end, we may need to ask the Lord for comfort, and we, like the Prophet Joseph Smith, may hear, “My son, peace be unto thy soul.” (D&C 121:7.)
+As we endure to the end, we may need to ask the Lord for comfort, and we, like the Prophet Joseph Smith, may hear, “My son, peace be unto thy soul.” ([[D&C 121.7|D&C 121:7]].)
 
 Our Lord and Savior Jesus Christ is called the Prince of Peace, and his message is a message of peace to the individual and to the world. It is the peace that makes us appreciate mortal life and enables us to bear tribulations. One of the objectives of The Church of Jesus Christ of Latter-day Saints is to establish this peace in the hearts and homes of the people.
 
@@ -111,7 +112,10 @@ I bear you my testimony that I know that God lives and that Jesus is the Christ,
 
 And I know that Joseph Smith was the instrument in the hands of the Lord in restoring the gospel in its fulness, in restoring the power to act in the name of God, and in reestablishing the Church of Jesus Christ upon the earth.
 
-I also bear witness that President Spencer W. Kimball is a prophet of God, acting under divine guidance in administering the affairs of the kingdom of God on the earth today. May the Lord bless and sustain him.
+I also bear witness that President Spencer W. Kimball is a prophet of God, acting under divine guidance in administering the affairs of the kingdom of God on the earth today. May the Lord bless and sustain him.
 
 I sincerely pray that we will understand the purpose of life, conform our life-style to eternal gospel principles, enjoy peace, happiness, and growth, and receive eternal life, the greatest gift of God, in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # As Now We Take the Sacrament
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
+
+>*Partaking of the sacrament provides us with a sacred moment in a holy place.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/04/as-now-we-take-the-sacrament?lang=eng)
 
@@ -21,7 +24,7 @@ In sacrament meeting that evening, I had my first opportunity to exercise the pr
 
 Over the years, I have participated, as all of us have, in many sacrament meetings, and to me they really are more than just another meeting. Partaking of the sacrament provides us with a sacred moment in a holy place. We do it in accordance with the commandment the Lord gave us in section 59 of the Doctrine and Covenants:
 
-“And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day” (D&C 59:9).
+“And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day” ([[D&C 59.9|v. 9]]).
 
 From the very beginning, before the world was organized, God laid out a plan whereby He would offer blessings to His children based on their obedience to His commandments. He understood, however, that we would be distracted at times by the things of the world and would need to be reminded regularly of our covenants and His promises.
 
@@ -31,7 +34,7 @@ One of the first commandments given to Adam was that he should worship the Lord 
 
 “And after many days an angel of the Lord appeared unto Adam, saying: Why dost thou offer sacrifices unto the Lord? And Adam said unto him: I know not, save the Lord commanded me.
 
-“And then the angel spake, saying: This thing is a similitude of the sacrifice of the Only Begotten of the Father, which is full of grace and truth” (Moses 5:5–7).
+“And then the angel spake, saying: This thing is a similitude of the sacrifice of the Only Begotten of the Father, which is full of grace and truth” ([[Moses 5.5|Moses 5:5–7]][[Moses 5.6|]][[Moses 5.7|]]).
 
 From that day down until the time of our Savior, Heavenly Father’s children were commanded to offer sacrifices. It was discontinued with the Savior’s atoning sacrifice. Then, the night before He completed that sacrifice, the Savior instituted the sacrament of the Lord’s Supper to help us remember Him and the Atonement He made for all mankind. Thus, in the ancient law of sacrifice and in the sacrament, the Lord has helped us be certain that we do not forget His promises and the requirement that we follow Him and obey His will.
 
@@ -41,9 +44,9 @@ In the New Testament we have an account of the Lord administering the sacrament 
 
 “And he took the cup, and gave thanks, and gave it to them, saying, Drink ye all of it;
 
-“For this is my blood of the new testament, which is shed for many for the remission of sins” (Matt. 26:26–28).
+“For this is my blood of the new testament, which is shed for many for the remission of sins” ([[Matthew 26.26|vv. 26–28]][[Matthew 26.27|]][[Matthew 26.28|]]).
 
-The Book of Mormon, in 3 Nephi, chapter 18, gives us a detailed account of the Savior’s administration of the sacrament to the Nephites:
+The Book of Mormon, in 3 Nephi, chapter 18, gives us a detailed account of the Savior’s administration of the sacrament to the Nephites:
 
 “And it came to pass that Jesus commanded his disciples that they should bring forth some bread and wine unto him.
 
@@ -63,17 +66,17 @@ The Book of Mormon, in 3 Nephi, chapter 18, gives us a detailed account of the S
 
 “And it came to pass that they did so, and did drink of it and were filled; and they gave unto the multitude, and they did drink, and they were filled.
 
-“And when the disciples had done this, Jesus said unto them: Blessed are ye for this thing which ye have done, for this is fulfilling my commandments, and this doth witness unto the Father that ye are willing to do that which I have commanded you” (3 Ne. 18:1–10).
+“And when the disciples had done this, Jesus said unto them: Blessed are ye for this thing which ye have done, for this is fulfilling my commandments, and this doth witness unto the Father that ye are willing to do that which I have commanded you” ([[3 Nephi 18.1|vv. 1–10]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]]).
 
 His instructions are very clear that we should be willing to do what He has commanded us to do. It would surely be expected that in our day we would again be commanded to partake of the sacrament. As the Doctrine and Covenants tells us:
 
-“It is expedient that the church meet together often to partake of bread and wine in the remembrance of the Lord Jesus” (D&C 20:75).
+“It is expedient that the church meet together often to partake of bread and wine in the remembrance of the Lord Jesus” ([[D&C 20.75|D&C 20:75]]).
 
 The purpose of partaking of the sacrament is, of course, to renew the covenants we have made with the Lord.
 
 Elder Delbert L. Stapley instructed us in this when he said about covenants:
 
-“The gospel of our Lord Jesus Christ is a covenant between God and his people. ... When baptized by an authorized servant of God, we covenant to do God’s will and to obey his commandments. ... By partaking of the Sacrament we renew all covenants entered into with the Lord and pledge ourselves to take upon us the name of his Son, to always remember him and keep his commandments” (in Conference Report, Oct. 1965, 14).
+“The gospel of our Lord Jesus Christ is a covenant between God and his people. … When baptized by an authorized servant of God, we covenant to do God’s will and to obey his commandments. … By partaking of the Sacrament we renew all covenants entered into with the Lord and pledge ourselves to take upon us the name of his Son, to always remember him and keep his commandments” (in Conference Report, Oct. 1965, 14).
 
 The sacrament is one of the most sacred ordinances in the Church. Partaking of the sacrament worthily gives us an opportunity for spiritual growth.
 
@@ -81,15 +84,18 @@ I remember that when I was a child, beautiful music was played during the passin
 
 Elder Melvin J. Ballard once said:
 
-“I am a witness that there is a spirit attending the administration of the sacrament that warms the soul from head to foot; you feel the wounds of the spirit being healed, and the load is lifted. Comfort and happiness come to the soul that is worthy and truly desirous of partaking of this spiritual food” (“The Sacramental Covenant,” Improvement Era, Oct. 1919, 1027).
+“I am a witness that there is a spirit attending the administration of the sacrament that warms the soul from head to foot; you feel the wounds of the spirit being healed, and the load is lifted. Comfort and happiness come to the soul that is worthy and truly desirous of partaking of this spiritual food” (“The Sacramental Covenant,” *Improvement Era,* Oct. 1919, 1027).
 
-When we partake of the sacrament worthily, we remember the sacrifice of our Lord and Savior, that He gave up His life and took upon Himself the sins of the world that we may have the blessing of immortality. We take upon ourselves the name of our Savior and promise to always remember Him and to keep His commandments—that is, to “live by every word that proceedeth forth from the mouth of God” (D&C 84:44).
+When we partake of the sacrament worthily, we remember the sacrifice of our Lord and Savior, that He gave up His life and took upon Himself the sins of the world that we may have the blessing of immortality. We take upon ourselves the name of our Savior and promise to always remember Him and to keep His commandments—that is, to “live by every word that proceedeth forth from the mouth of God” ([[D&C 84.44|D&C 84:44]]).
 
 Parents, you have the responsibility of teaching your families the importance of attending sacrament meeting weekly. It should be a regular family practice. Every family needs that time of renewing and committing to live the gospel in accordance with the teachings of the Savior. Families, properly prepared, will attend sacrament meeting with a spirit of reverence and with gratitude for the opportunity of partaking of the sacred emblems.
 
 I remember an experience our family had while on vacation at a resort area. Because the period of our stay included a Sunday, we made arrangements to attend a sacrament meeting at a nearby chapel. So did hundreds of others staying at the resort. The chapel was filled to overflowing. Before the meeting started, the bishop invited any attending deacons who were worthy and properly dressed to participate in the passing of the sacrament. An adequate number, dressed in white shirts and ties, came forward to receive instructions on how to handle such a large congregation. The ordinance was administered reverently and efficiently. As I observed the congregation, I saw that many were deeply moved by the spirit of the meeting.
 
-After we returned to the resort, there was an obvious difference in the Sabbath-day activities compared to that of the weekdays. Boats remained tied at the dock; the lake was almost free of swimmers; and the dress for the Sabbath day was very appropriate. Those families saw the fulfillment of the Lord’s promise: by going to the house of prayer on His holy day and renewing their covenants to obey the commandments, they were able to keep themselves more fully unspotted from the world (see D&C 59:9).
+After we returned to the resort, there was an obvious difference in the Sabbath-day activities compared to that of the weekdays. Boats remained tied at the dock; the lake was almost free of swimmers; and the dress for the Sabbath day was very appropriate. Those families saw the fulfillment of the Lord’s promise: by going to the house of prayer on His holy day and renewing their covenants to obey the commandments, they were able to keep themselves more fully unspotted from the world (see [[D&C 59.9|D&C 59:9]]).
 
 May there be instilled in each of us an increased reverence for the Sabbath. May we more fully realize the special blessing of being able to partake of the sacrament and its significance in our lives. May we always remember Him and keep His commandments, which He has given us to fulfill the purpose of life and the hope of the eternities that are to come. This is the Lord’s work in which we are engaged. God lives. Jesus is the Christ, the Savior of the world. We’re permitted to be part of this great gospel plan, of which the sacrament is such a vital part. In the name of Jesus Christ, amen.
+
+
+
 

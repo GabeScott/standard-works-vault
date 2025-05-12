@@ -1,5 +1,6 @@
 # Priceless Principles for Success
-*By Claudio R. M. Costa - Of the Seventy*
+
+By Elder Claudio R. M. Costa - *Of the Seventy*
 
 *Given in the October session of the 1994 General Conference*
 
@@ -15,9 +16,9 @@ After I was baptized into the Church, I came to understand the true meaning of s
 
 During the time I presided over the Brazil Manaus Mission, I witnessed great examples of true success, stories which came from people truly devoted to the gospel and to their covenants with God.
 
-One man I met lived simply in a tiny, little town in the middle of the Amazon. After being baptized with his family, he could hardly wait to complete a year’s membership in the Church so he could take his wife and children to the temple. The São Paulo Brazil Temple is very far from the Amazon. It usually takes four days by boat and four days by bus to get to the temple—about a week’s travel. This man was a cabinetmaker. How could he save enough money to pay for himself, his wife, and his children? Although he worked hard for many months, he made very little money.
+One man I met lived simply in a tiny, little town in the middle of the Amazon. After being baptized with his family, he could hardly wait to complete a year’s membership in the Church so he could take his wife and children to the temple. The São Paulo Brazil Temple is very far from the Amazon. It usually takes four days by boat and four days by bus to get to the temple—about a week’s travel. This man was a cabinetmaker. How could he save enough money to pay for himself, his wife, and his children? Although he worked hard for many months, he made very little money.
 
-When the time came to go to the temple, he sold all his furniture and appliances, even his electric saw and his only means of transportation, a motorcycle—everything he had—and went to the temple with his wife and children. It required eight days of travel to reach São Paulo. After spending four glorious days in the temple doing the work of the Lord, this family then had to travel seven more days to return to their home. But they went back home happy, feeling that their difficulties and struggles were nothing compared to the great happiness and blessings they had experienced in the house of the Lord.
+When the time came to go to the temple, he sold all his furniture and appliances, even his electric saw and his only means of transportation, a motorcycle—everything he had—and went to the temple with his wife and children. It required eight days of travel to reach São Paulo. After spending four glorious days in the temple doing the work of the Lord, this family then had to travel seven more days to return to their home. But they went back home happy, feeling that their difficulties and struggles were nothing compared to the great happiness and blessings they had experienced in the house of the Lord.
 
 During my mission, I met missionaries—young men and women—who for me were examples of true success. They were so faithful and excited about the gospel that they were never bothered by the scorching high temperatures and excessive humidity of the Amazon climate. They were truly angelic messengers carrying the gospel message to the people of northern Brazil.
 
@@ -33,5 +34,8 @@ I am grateful to the Lord for having touched my heart and for helping me to choo
 
 The General Authorities of the Church, for whom I am most grateful, are true heroes for me. I had been a member of the Church for just one week when I met my first General Authority, Elder Royden G. Derrick, a member of the Seventy. I shall never forget the challenge he presented to the members of the Church to be exemplary in all aspects of our lives.
 
-I shall always remember the counsel given by our beloved President Spencer W. Kimball about not only spiritual matters but also how to manage our temporal lives. I have followed his counsel, and I am happy and grateful for the protection that comes from hearkening to the words of the prophets, Apostles, my Brethren of the Quorum, and my local leaders. Only when we keep the commandments of the Lord and do His will can we feel totally safe. I know that God lives. Jesus is the Christ, our Savior and Redeemer. Joseph Smith was a prophet of God. I know that we are guided by a prophet today. I testify to you that President Howard W. Hunter is a prophet of God. My testimony is renewed every time I hear and follow his counsel. My life has been very blessed through the gospel. For this I am most grateful, in the name of Jesus Christ, amen.
+I shall always remember the counsel given by our beloved President Spencer W. Kimball about not only spiritual matters but also how to manage our temporal lives. I have followed his counsel, and I am happy and grateful for the protection that comes from hearkening to the words of the prophets, apostles, my Brethren of the Quorum, and my local leaders. Only when we keep the commandments of the Lord and do His will can we feel totally safe. I know that God lives. Jesus is the Christ, our Savior and Redeemer. Joseph Smith was a prophet of God. I know that we are guided by a prophet today. I testify to you that President Howard W. Hunter is a prophet of God. My testimony is renewed every time I hear and follow his counsel. My life has been very blessed through the gospel. For this I am most grateful, in the name of Jesus Christ, amen.
+
+
+
 

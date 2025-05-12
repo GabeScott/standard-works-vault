@@ -1,5 +1,6 @@
 # Address Given by President Spencer W. Kimball at the Welfare Services Meeting Saturday, April 6, 1974
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -32,4 +33,7 @@ There are so many things we should talk about in this great work. I would like t
 Now may the Lord bless you. It is wonderful to be with you here this morning and see your great interest. I want to tell you, brethren, how we love you. We are so proud of you and every week when we pass upon new bishops, we just think there is another great man receiving his great opportunity, perhaps the greatest of his life.
 
 God bless you. We pray for you and we ask his blessing upon you always, in the name of Jesus Christ. Amen.
+
+
+
 

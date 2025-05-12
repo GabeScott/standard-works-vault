@@ -1,5 +1,6 @@
 # Inspiring Music—Worthy Thoughts
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -15,7 +16,7 @@ It has been obvious for centuries that lyrics of the worst kind can be set to mu
 
 Recently the First Presidency restated this counsel:
 
-“Through music, man’s ability to express himself extends beyond the limits of the spoken language in both subtlety and power. Music can be used to exalt and inspire or to carry messages of degradation and destruction. It is therefore important that as Latter-day Saints we at all times apply the principles of the gospel and seek the guidance of the Spirit in selecting the music with which we surround ourselves.” (Priesthood Bulletin, August, 1973.)
+“Through music, man’s ability to express himself extends beyond the limits of the spoken language in both subtlety and power. Music can be used to exalt and inspire or to carry messages of degradation and destruction. It is therefore important that as Latter-day Saints we at all times apply the principles of the gospel and seek the guidance of the Spirit in selecting the music with which we surround ourselves.” (*Priesthood Bulletin,* August, 1973.)
 
 In our day music itself has been corrupted. Music can, by its tempo, by its beat, by its intensity, dull the spiritual sensitivity of men.
 
@@ -27,13 +28,13 @@ One of the signs of apostasy in the Christian churches today is the willingness 
 
 The pity of it is, their foolishness has not accomplished the ends they sought. Their young people are not drawn to them as they hoped and expected. Rather, young people are inventing so-called churches of their own, groping and seeking for something that they find missing in their lives.
 
-Some have been critical when our leaders have exercised restraint on the kind of music we will allow at Church activities.
+Some have been critical when *our* leaders have exercised restraint on the kind of music we will allow at Church activities.
 
 “Do you want to lose your youth?” they ask.
 
 I would remind all such that it is not the privilege of those called as leaders to slide the Church about as though it were on casters, hoping to put it into the path that men or youth will be safe within it.
 
-President J. Reuben Clark said:
+President J. Reuben Clark said:
 
 “We may not, under our duty, provide or tolerate an unwholesome amusement on the theory that if we do not provide it the youth will go elsewhere to get it. We could hardly set up a roulette table in the Church amusement hall for gambling purposes, with the excuse that if we do not provide it the youth would go to a gambling hall to gamble. We can never really hold our youth thus. Our task is to help the home to plant better standards in the minds of the youth.”
 
@@ -75,15 +76,15 @@ Parents ought to foster good music in the home and cultivate a desire to have th
 
 The time for music lessons seems to come along when there are so many other expenses for the family with little children. But we encourage parents to include musical training in the lives of their children.
 
-Somehow Andrew and Olive Kimball did, and Spencer learned to play. Somehow Samuel and Louisa Lee managed to do it, and Harold learned to play. And now, as the leaders of the Church assemble for our sacred meetings in the upper room of the temple, we always sing a hymn. At the organ is President Spencer W. Kimball or President Harold B. Lee.
+Somehow Andrew and Olive Kimball did, and Spencer learned to play. Somehow Samuel and Louisa Lee managed to do it, and Harold learned to play. And now, as the leaders of the Church assemble for our sacred meetings in the upper room of the temple, we always sing a hymn. At the organ is President Spencer W. Kimball or President Harold B. Lee.
 
 How wonderful is the music instructor who will teach children and youth to play and will acquaint them with good music in their formative years, including the music of worship. To have such music as a part of one’s life is a great blessing.
 
-The Lord has said, “For my soul delighteth in the song of the heart; yea, the song of the righteous is a prayer unto me, and it shall be answered with a blessing upon their heads.” (D&C 25:12.)
+The Lord has said, “For my soul delighteth in the song of the heart; yea, the song of the righteous is a prayer unto me, and it shall be answered with a blessing upon their heads.” ([[D&C 25.12|D&C 25:12]].)
 
 I think I would like to share with the young people something about how such music has been very important in my life, although I am not trained as a musician.
 
-Probably the greatest challenge to people of any age, particularly young people, and the most difficult thing you will face in mortal life is to learn to control your thoughts. As a man “thinketh in his heart, so is he.” (Prov. 23:7.) One who can control his thoughts has conquered himself.
+Probably the greatest challenge to people of any age, particularly young people, and the most difficult thing you will face in mortal life is to learn to control your thoughts. As a man “thinketh in his heart, so is he.” ([[Proverbs 23.7|Prov. 23:7]].) One who can control his thoughts has conquered himself.
 
 When I was about ten years old, we lived in a home surrounded by an orchard. There never seemed to be enough water for the trees. The ditches, always fresh-plowed in the spring, would soon be filled with weeds. One day, in charge of the irrigating turn, I found myself in trouble.
 
@@ -117,7 +118,7 @@ This is what I would teach you. Choose from among the sacred music of the Church
 
 Now, use this hymn as the place for your thoughts to go. Make it your emergency channel. Whenever you find these shady actors have slipped from the sidelines of your thinking onto the stage of your mind, put on this record, as it were.
 
-As the music begins and as the words form in your thoughts, the unworthy ones will slip shamefully away. It will change the whole mood on the stage of your mind. Because it is uplifting and clean, the baser thoughts will disappear. For while virtue, by choice, will not associate with filth, evil cannot tolerate the presence of light.
+As the music begins and as the words form in your thoughts, the unworthy ones will slip shamefully away. It will change the whole mood on the stage of your mind. Because it is uplifting and clean, the baser thoughts will disappear. For while virtue, by choice, *will not* associate with filth, evil *cannot* tolerate the presence of light.
 
 In due time you will find yourself, on occasion, humming the music inwardly. As you retrace your thoughts, you discover some influence from the world about you encouraged an unworthy thought to move on stage in your mind, and the music almost automatically began.
 
@@ -127,7 +128,7 @@ I am so grateful for music that is worthy and uplifting and inspiring.
 
 Once you learn to clear the stage of your mind from unworthy thoughts, keep it busy with learning worthwhile things. Change your environment so that you have things about you that will inspire good and uplifting thoughts. Keep busy with things that are righteous.
 
-Young people, you cannot afford to fill your mind with the unworthy hard music of our day. It is not harmless. It can welcome onto the stage of your mind unworthy thoughts and set the tempo to which they dance and to which you may act.
+Young people, you cannot afford to fill your mind with the unworthy hard music of our day. It is *not* harmless. It can welcome onto the stage of your mind unworthy thoughts and set the tempo to which they dance and to which you may act.
 
 You degrade yourself when you identify with all of those things which seem now to surround such extremes in music: the shabbiness, the irreverence, the immorality, and the addictions. Such music as that is not worthy of you. You should have self-respect.
 
@@ -141,23 +142,20 @@ We talked of courage and of fear. I asked how he had held himself together in th
 
 He said, “I have a favorite hymn—‘Come, Come, Ye Saints,’ and when it was desperate, when there was little hope that we would return, I would keep that on my mind and it was as though the engines of the aircraft would sing back to me:
 
-‘Come, come, ye saints,
-
-No toil nor labor fear;
-
-But with joy wend your way.
-
-Though hard to you
-
-This journey may appear,
-
-Grace shall be as your day.’”
-
-—Hymns, no. 13
+>‘Come, come, ye saints,
+>No toil nor labor fear;
+>But with joy wend your way.
+>Though hard to you
+>This journey may appear,
+>Grace shall be as your day.’”
+>
 
 From this he clung to faith, the one essential ingredient to courage.
 
-There are many references in the scriptures, both ancient and modern, that attest to the influence of righteous music. The Lord, Himself, was prepared for His greatest test through its influence, for the scripture records: “And when they had sung an hymn, they went out into the mount of Olives.” (Mark 14:26.)
+There are many references in the scriptures, both ancient and modern, that attest to the influence of righteous music. The Lord, Himself, was prepared for His greatest test through its influence, for the scripture records: “And when they had sung an hymn, they went out into the mount of Olives.” ([[Mark 14.26|Mark 14:26]].)
 
 I bear witness that God is our Father, that we are His children, that He loves us and has provided great and glorious things in this life. I know this, and I thank Him for the uplifting influence of good music in my life and in the lives of my children. There are many things we can do together as a family; inspired music we can feel together. In the name of Jesus Christ. Amen.
+
+
+
 

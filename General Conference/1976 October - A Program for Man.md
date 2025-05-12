@@ -1,5 +1,6 @@
 # A Program for Man
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -29,45 +30,32 @@ The standards of the Church have been emphasized over and over, with warm appeal
 
 We have been taught as fathers and mothers and bishops how to prepare missionaries to attain excellence.
 
-One of our favorite songs has these words from the Master: “He marked the path and led the way, And every point defines To life and light and endless day Where God’s full presence shines.” (Hymns, no. 68.) Why should we be so concerned about flickering candles, when there is an unextinguishable light at hand for the earning?
+One of our favorite songs has these words from the Master: “He marked the path and led the way, And every point defines To life and light and endless day Where God’s full presence shines.” (*Hymns,* no. 68.) Why should we be so concerned about flickering candles, when there is an unextinguishable light at hand for the earning?
 
 The numerous testimonies of the Brethren of the ages are positive and uniform, uplifting and faith-building and hope-building, and they encourage worthiness. They are like these lines:
 
-Canst thou take the barren soil
+>Canst thou take the barren soil
+>And with all thy pain and toil
+>Make lilies grow?
+>Have faith in God, He can!
+>Canst thou paint the clouds above
+>And all sunset colors weave
+>Into the sky?
+>Thou canst not, O pow’rless man.
+>Have faith in God, He can.
+>Canst thou still the troubled heart
+>And make all care and trials depart
+>From out the soul?
+>Thou canst not, thou helpless man.
+>
 
-And with all thy pain and toil
+We wonder why we fail with all the exhortation and explanation given us by the Brethren who have pled with us! We can understand why the Savior must have been disappointed, and why he said, “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.” ([[Matthew 7.21|Matt. 7:21]].)
 
-Make lilies grow?
-
-Have faith in God, He can!
-
-Canst thou paint the clouds above
-
-And all sunset colors weave
-
-Into the sky?
-
-Thou canst not, O pow’rless man.
-
-Have faith in God, He can.
-
-Canst thou still the troubled heart
-
-And make all care and trials depart
-
-From out the soul?
-
-Thou canst not, thou helpless man.
-
-Have faith in God, He can.
-
-We wonder why we fail with all the exhortation and explanation given us by the Brethren who have pled with us! We can understand why the Savior must have been disappointed, and why he said, “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.” (Matt. 7:21.)
-
-And then he said again, “Why call ye me, Lord, Lord, and do not the things which I say?” (Luke 6:46.) I hope that theme will follow us to our homes and to our future lives.
+And then he said again, “Why call ye me, Lord, Lord, and do not the things which I say?” ([[Luke 6.46|Luke 6:46]].) I hope that theme will follow us to our homes and to our future lives.
 
 As we close this great conference, I again implore the hearer of these messages to do the things which the Lord says and which have been so clearly outlined during this conference.
 
-Recently a prominent doctor, knowing of my surgery and cancer treatments, exhibited a little surprise at my assuming the great responsibility of the church presidency. He was not a member of the Church and evidently had never known the pull and the pressure one feels when one has a positive assurance that the Lord is not playing games, but rather has a serious program for man and for his glory. The Lord knows what He is doing, and all His moves are appropriate and right.
+Recently a prominent doctor, knowing of my surgery and cancer treatments, exhibited a little surprise at my assuming the great responsibility of the church presidency. He was not a member of the Church and evidently had never known the pull and the pressure one feels when one has a positive assurance that the Lord is *not* playing games, but rather has a serious program for man and for his glory. The Lord knows what He is doing, and all His moves are appropriate and right.
 
 And I was surprised also that any man would wonder and question the work of the Lord. We who have the positive assurance and testimony of the divinity of this work do not question the ways or determinations of the Lord.
 
@@ -84,4 +72,7 @@ Since Adam and Eve were placed in the garden the Lord has been eager—eager to 
 I know the gospel truths will save and exalt mankind if men will accept the truth and fully live up to their commitments and covenants.
 
 I know this is true, and I bear this testimony to you, my beloved brothers and sisters and friends in all the world, and I urge all men to seriously accept and conform their lives totally to the gospel. I bear this witness in the name of Jesus Christ. Amen.
+
+
+
 

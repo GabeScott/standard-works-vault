@@ -1,5 +1,6 @@
 # The Marriage That Endures
-*By Gordon B. Hinckley - Of the Council of the Twelve*
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -9,7 +10,7 @@ My beloved brethren and sisters, I am grateful for the invocation offered by Bro
 
 There is something stirring and beautiful about their voices. If the Holy Spirit will direct me, I think I should like to address my remarks to them, even though they are seated behind me. In so doing, I also speak to youth across the entire Church.
 
-It is springtime in this part of the world, the season when “a young man’s fancy ... turns to thoughts of love.” (Alfred Lord Tennyson, “Locksley Hall.”) It is April when young men and women dream of June weddings.
+It is springtime in this part of the world, the season when “a young man’s fancy … turns to thoughts of love.” (Alfred Lord Tennyson, “Locksley Hall.”) It is April when young men and women dream of June weddings.
 
 As an introduction may I tell of two experiences.
 
@@ -43,7 +44,7 @@ I continued, “Can you conceive of eternal life without eternal love? Can eithe
 
 “But,” I continued, “the Father of us all, who loves his children and wants the best for them, has provided for a continuation, under proper circumstances, of this most sacred and ennobling of all human relationships, the relationships of marriage and family.
 
-“In that great and moving conversation between the Savior and his apostles, wherein Peter declared, ‘Thou art the Christ, the Son of the living God,’ and the Lord responded, ‘Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven.’ The Lord then went on to say to Peter and his associates, ‘And I will give unto thee the keys of the kingdom of heaven: and whatsoever thou shalt bind on earth shall be bound in heaven: and whatsoever thou shalt loose on earth shall be loosed in heaven.’ (Matt. 16:13–19.)
+“In that great and moving conversation between the Savior and his apostles, wherein Peter declared, ‘Thou art the Christ, the Son of the living God,’ and the Lord responded, ‘Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven.’ The Lord then went on to say to Peter and his associates, ‘And I will give unto thee the keys of the kingdom of heaven: and whatsoever thou shalt bind on earth shall be bound in heaven: and whatsoever thou shalt loose on earth shall be loosed in heaven.’ ([[Matthew 16.13|Matt. 16:13–19]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]][[Matthew 16.17|]][[Matthew 16.18|]][[Matthew 16.19|]].)
 
 “In that marvelous bestowal of authority the Lord gave to his apostles the keys of the holy priesthood, whose power reaches beyond life and death into eternity. This same authority has been restored to the earth by those same apostles who held it anciently, even Peter, James, and John.” I continued by saying that following the dedication of the temple on the following Sunday, those same keys of the holy priesthood would be exercised in behalf of the men and women who come into this sacred house to solemnize their marriage. They will be joined in a union which death cannot dissolve and time cannot destroy.
 
@@ -55,13 +56,11 @@ Every man who truly loves a woman, and every woman who truly loves a man, hopes 
 
 When I was much younger and less brittle, we danced to a song whose words went something like this:
 
-Is love like a rose
-
-That blossoms and grows,
-
-Then withers and goes
-
-When summer is gone?
+>Is love like a rose
+>That blossoms and grows,
+>Then withers and goes
+>When summer is gone?
+>
 
 It was only a dance ballad, but it was a question that has been asked through the centuries by men and women who loved one another and looked beyond today into the future of eternity.
 
@@ -69,15 +68,15 @@ To that question we answer no, and reaffirm that love and marriage under the rev
 
 But this gift, precious beyond all others, comes only with a price—with self-discipline, with virtue, with obedience to the commandments of God. These may be difficult, but they are possible under the motivation that comes of an understanding of truth.
 
-Brigham Young once declared: “There is not a young man in our community who would not be willing to travel from here to England to be married right, if he understood things as they are; there is not a young woman in our community, who loves the Gospel and wishes its blessings, that would be married in any other way.” (Discourses of Brigham Young, p. 195.)
+Brigham Young once declared: “There is not a young man in our community who would not be willing to travel from here to England to be married right, if he understood things as they are; there is not a young woman in our community, who loves the Gospel and wishes its blessings, that would be married in any other way.” (*Discourses of Brigham Young,* p. 195.)
 
 Many have traveled that far and even farther to receive the blessings of temple marriage. I have seen a group of Latter-day Saints from Japan who had denied themselves food to make possible the long journey to the Hawaii Temple. In London we met those who had gone without necessities to afford the 7,000 mile flight from South Africa to the temple in Surrey, England. There was a light in their eyes and smiles on their faces and testimonies from their lips that it was worth infinitely more than all it had cost.
 
-And I remember hearing in New Zealand the testimony of a man from the far side of Australia who, having been previously sealed by civil authority and then joined the Church with his wife and children, had traveled all the way across that wide continent, then across the Tasman Sea to Auckland, and down to the temple in the beautiful valley of the Waikata. As I remember his words, he said, “We could not afford to come. Our worldly possessions consisted of an old car, our furniture, and our dishes. I said to my family, ‘We cannot afford to go.’ Then I looked into the faces of my beautiful wife and our beautiful children, and I said, ‘We cannot afford not to go. If the Lord will give me strength, I can work and earn enough for another car and furniture and dishes, but if I should lose these my loved ones, I would be poor indeed in both life and in eternity.’”
+And I remember hearing in New Zealand the testimony of a man from the far side of Australia who, having been previously sealed by civil authority and then joined the Church with his wife and children, had traveled all the way across that wide continent, then across the Tasman Sea to Auckland, and down to the temple in the beautiful valley of the Waikata. As I remember his words, he said, “We could not afford to come. Our worldly possessions consisted of an old car, our furniture, and our dishes. I said to my family, ‘We cannot afford to go.’ Then I looked into the faces of my beautiful wife and our beautiful children, and I said, ‘We cannot afford *not* to go. If the Lord will give me strength, I can work and earn enough for another car and furniture and dishes, but if I should lose these my loved ones, I would be poor indeed in both life and in eternity.’”
 
 How shortsighted so many of us are, how prone to look only at today without thought for the morrow. But the morrow will surely come, as will also come death and separation. How sweet is the assurance, how comforting is the peace that come from the knowledge that if we marry right and live right, our relationship will continue, notwithstanding the certainty of death and the passage of time. Men may write love songs and sing them. They may yearn and hope and dream. But all of this will be only a romantic longing unless there is an exercise of authority that transcends the powers of time and death.
 
-Speaking from this pulpit many years ago, President Joseph F. Smith said, “The house of the Lord is a house of order and not a house of confusion; and that means ... that there is no union for time and eternity that can be perfected outside of the law of God and the order of His house. Men may desire it, they may go through the form of it in this life, but it will be of no effect except it be done and sanctioned by divine authority, in the name of the Father and of the Son and of the Holy Ghost.” (Gospel Doctrine, 1971–72 Melchizedek Priesthood course of study, vol. 2, p. 1.)
+Speaking from this pulpit many years ago, President Joseph F. Smith said, “The house of the Lord is a house of order and not a house of confusion; and that means … that there is no union for time and eternity that can be perfected outside of the law of God and the order of His house. Men may desire it, they may go through the form of it in this life, but it will be of no effect except it be done and sanctioned by divine authority, in the name of the Father and of the Son and of the Holy Ghost.” (*Gospel Doctrine,* 1971–72 Melchizedek Priesthood course of study, vol. 2, p. 1.)
 
 In conclusion may I leave you a story. It is fiction, but in principle it is true. Can you imagine two young people at a time when the moon is full and the roses are in bloom and a sacred love has matured between them? Johnny says to Mary, “Mary, I love you. I want you for my wife and the mother of our children. But I don’t want you or them forever. Just for a season and then goodbye.” And she, looking at him through tears in the moonlight, says, “Johnny, you’re wonderful. There’s nobody else in all the world like you. I love you, and I want you for my husband and the father of our children, but only for a time, and then farewell.”
 
@@ -88,4 +87,7 @@ Life is eternal. The God of heaven has also made possible eternal love and etern
 God bless you, my dear young friends, that as you look forward to marriage, you may look not only for rewarding companionship and rich and fruitful family relationships through all of your mortal days, but to an even better estate where love and treasured associations may be felt and known under a promise given of God.
 
 I bear witness of the living reality of the Lord Jesus Christ through whom this authority has come. I bear witness that his power, his priesthood, is among us and is exercised in his holy houses. Do not spurn that which he has offered. Live worthy of it and partake of it, and let the sanctifying power of his holy priesthood seal your companionship. For these blessings I humbly pray in your behalf, as I bear testimony and witness of these truths in the name of the Lord Jesus Christ. Amen.
+
+
+
 

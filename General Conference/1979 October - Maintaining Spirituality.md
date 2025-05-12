@@ -1,5 +1,6 @@
 # Maintaining Spirituality
-*By Marion G. Romney - Second Counselor in the First Presidency*
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -7,65 +8,65 @@
 
 My beloved brothers and sisters, I seek the Spirit of the Lord as I give you a message. I have chosen to speak about maintaining spirituality. This subject came to mind as I pondered the admonition of Jacob, Nephi’s brother:
 
-“Remember, to be carnally-minded is death, and to be spiritually-minded is life eternal” (2 Ne. 9:39).
+“Remember, to be carnally-minded is death, and to be spiritually-minded is life eternal” ([[2 Nephi 9.39|2 Ne. 9:39]]).
 
-President McKay defined spirituality as “the consciousness of victory over self, and of communion with the infinite. Spirituality,” he said, “impels one to conquer difficulties and acquire more and more strength. To feel one’s faculties unfolding and truth expanding the soul is one of life’s sublimest experiences” (David O. McKay, Stepping Stones to an Abundant Life, comp. Llewelyn R. McKay, Salt Lake City: Deseret Book Co., 1971, p. 99).
+President McKay defined spirituality as “the consciousness of victory over self, and of communion with the infinite. Spirituality,” he said, “impels one to conquer difficulties and acquire more and more strength. To feel one’s faculties unfolding and truth expanding the soul is one of life’s sublimest experiences” (David O. McKay, *Stepping Stones to an Abundant Life,* comp. Llewelyn R. McKay, Salt Lake City: Deseret Book Co., 1971, p. 99).
 
-Through the Prophet Joseph Smith, the Lord revealed the truth that “all spirit is matter, but it is more fine or pure, and can only be discerned by purer eyes” (D&C 131:7).
+Through the Prophet Joseph Smith, the Lord revealed the truth that “all spirit is matter, but it is more fine or pure, and can only be discerned by purer eyes” ([[D&C 131.7|D&C 131:7]]).
 
-Abraham said: “The Lord had shown unto me ... the intelligences that were organized before the world was; ...
+Abraham said: “The Lord had shown unto me … the intelligences that were organized before the world was; …
 
-“And God saw these souls that they were good, ... for he stood among those that were spirits” (Abr. 3:22–23).
+“And God saw these souls that they were good, … for he stood among those that were spirits” ([[Abraham 3.22|Abr. 3:22–23]][[Abraham 3.23|]]).
 
 These spirits were the offspring of God, who, according to John, is also a spirit. He—that is, John—wrote:
 
-“God is a Spirit: and they that worship him must worship him in spirit” (John 4:24).
+“God is a Spirit: and they that worship him must worship him in spirit” ([[John 4.24|John 4:24]]).
 
-Although God’s spirit is clothed in “a body of flesh and bones as tangible as man’s” (D&C 130:22), his body is neither temporal nor carnal, for, says he, “all things unto me are spiritual” (D&C 29:34). “I ... created [all things] by the word of my power, which is the power of my Spirit.
+Although God’s spirit is clothed in “a body of flesh and bones as tangible as man’s” ([[D&C 130.22|D&C 130:22]]), his body is neither temporal nor carnal, for, says he, “all things unto me are spiritual” ([[D&C 29.34|D&C 29:34]]). “I … created \[all things\] by the word of my power, which is the power of my Spirit.
 
-“... both spiritual and temporal—
+“… both spiritual and temporal—
 
 “First spiritual, secondly temporal, which is the beginning of my work; and again, first temporal, and secondly spiritual, which is the last of my work—
 
-“... all things unto me are spiritual, and not at any time have I given unto you a law which was temporal” (D&C 29:30–32, 34).
+“… all things unto me are spiritual, and not at any time have I given unto you a law which was temporal” ([[D&C 29.30|D&C 29:30–32, 34]][[D&C 29.31|]][[D&C 29.32|]][[D&C 29.34|]]).
 
-Being in tune with God is being spiritual. Man himself is naturally spiritual. His spirit is a child of God. The spirits of “the inhabitants [of all worlds] are begotten sons and daughters unto God” (D&C 76:24).
+Being in tune with God is being spiritual. Man himself is naturally spiritual. His spirit is a child of God. The spirits of “the inhabitants \[of all worlds\] are begotten sons and daughters unto God” ([[D&C 76.24|D&C 76:24]]).
 
-Furthermore, “the Spirit [of the Lord] giveth light to every man that cometh into the world; and the Spirit enlighteneth every man through the world, that hearkeneth to the voice of the Spirit.
+Furthermore, “the Spirit \[of the Lord\] giveth light to every man that cometh into the world; and the Spirit enlighteneth every man through the world, that hearkeneth to the voice of the Spirit.
 
-“And every one that hearkeneth to the voice of the Spirit cometh unto God, even the Father” (D&C 84:46–47).
+“And every one that hearkeneth to the voice of the Spirit cometh unto God, even the Father” ([[D&C 84.46|D&C 84:46–47]][[D&C 84.47|]]).
 
 “Every spirit of man was innocent in the beginning; and God having redeemed man from the fall, men became again, in their infant state, innocent before God.
 
-“And that wicked one cometh and taketh away light and truth” (D&C 93:38–39).
+“And that wicked one cometh and taketh away light and truth” ([[D&C 93.38|D&C 93:38–39]][[D&C 93.39|]]).
 
 This loss of spirituality began with the children of Adam and Eve when they refused to obey the teachings of their parents.
 
-You will recall that Adam was taught the gospel by an angel (see Moses 5:6–8), and that thereafter “he was caught away by the Spirit of the Lord,” and was baptized and received the Holy Ghost. “And thus he was born of the Spirit” (see Moses 6:64–65; see also Moses 5:10).
+You will recall that Adam was taught the gospel by an angel (see [[Moses 5.6|Moses 5:6–8]][[Moses 5.7|]][[Moses 5.8|]]), and that thereafter “he was caught away by the Spirit of the Lord,” and was baptized and received the Holy Ghost. “And thus he was born of the Spirit” (see [[Moses 6.64|Moses 6:64–65]][[Moses 6.65|]]; see also [[Moses 5.10|Moses 5:10]]).
 
 “And Adam and Eve blessed the name of God, and they made all things known unto their sons and their daughters.
 
-“And Satan came among them [those sons and daughters], saying: I am also a son of God; and he commanded them, saying: Believe it not [that is, the teachings of their parents]; and they believed it not, and they loved Satan more than God. And men began from that time forth to be carnal, sensual, and devilish” (Moses 5:12–13).
+“And Satan came among them \[those sons and daughters\], saying: I am also a son of God; and he commanded them, saying: Believe it not \[that is, the teachings of their parents\]; and they believed it not, and they loved Satan more than God. And men began from that time forth to be carnal, sensual, and devilish” ([[Moses 5.12|Moses 5:12–13]][[Moses 5.13|]]).
 
 Spirituality comes by faith, repentance, baptism, and reception of the Holy Ghost. One who has the companionship of the Holy Ghost is in harmony with God. He is, therefore, spiritual. Spirituality is sustained by so living as to keep that companionship.
 
-A sure way for us to do this is to learn what our duties are and perform them. They include obeying the first and second great commandments: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind” and “Thou shalt love thy neighbour as thyself” (Matt. 22:37, 39). They also include obedience to the Ten Commandments and the Sermon on the Mount, implementing the Articles of Faith, and prayer.
+A sure way for us to do this is to learn what our duties are and perform them. They include obeying the first and second great commandments: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind” and “Thou shalt love thy neighbour as thyself” ([[Matthew 22.37|Matt. 22:37, 39]][[Matthew 22.39|]]). They also include obedience to the Ten Commandments and the Sermon on the Mount, implementing the Articles of Faith, and prayer.
 
-As to the importance of prayer in maintaining spirituality, it is interesting to note that the first recorded commandment Adam and Eve received from the Lord, following their expulsion from the garden, was “that they should worship the Lord their God” (Moses 5:5).
+As to the importance of prayer in maintaining spirituality, it is interesting to note that the first recorded commandment Adam and Eve received from the Lord, following their expulsion from the garden, was “that they should worship the Lord their God” ([[Moses 5.5|Moses 5:5]]).
 
-The next heavenly being who spoke to Adam was the angel who told him that the sacrifice he was offering was “a similitude of the sacrifice of the Only Begotten of the Father. ...
+The next heavenly being who spoke to Adam was the angel who told him that the sacrifice he was offering was “a similitude of the sacrifice of the Only Begotten of the Father. …
 
-“Wherefore,” he added, “thou shalt do all that thou doest in the name of the Son, and thou shalt repent and call upon God in the name of the Son forevermore” (Moses 5:7–8).
+“Wherefore,” he added, “thou shalt do all that thou doest in the name of the Son, and thou shalt repent and call upon God in the name of the Son forevermore” ([[Moses 5.7|Moses 5:7–8]][[Moses 5.8|]]).
 
 From then until now, no divine commandment has been more frequently repeated than the commandment to pray in the name of the Lord Jesus Christ.
 
-One of the most impressive lessons on the importance of prayer was received by the brother of Jared when “the Lord ... stood in a cloud and talked with him. And for the space of three hours did the Lord talk with the brother of Jared, and chastened him because he remembered not to call upon the name of the Lord.
+One of the most impressive lessons on the importance of prayer was received by the brother of Jared when “the Lord … stood in a cloud and talked with him. And for the space of three hours did the Lord talk with the brother of Jared, and chastened him because he remembered not to call upon the name of the Lord.
 
-“And,” continues the record, “the brother of Jared repented of the evil which he had done, and did call upon the name of the Lord for his brethren who were with him. And the Lord said unto him: I will forgive thee and thy brethren of their sins; but thou shalt not sin any more, for ye shall remember that my Spirit will not always strive with man” (Ether 2:14–15).
+“And,” continues the record, “the brother of Jared repented of the evil which he had done, and did call upon the name of the Lord for his brethren who were with him. And the Lord said unto him: I will forgive thee and thy brethren of their sins; but thou shalt not sin any more, for ye shall remember that my Spirit will not always strive with man” ([[Ether 2.14|Ether 2:14–15]][[Ether 2.15|]]).
 
-It was not very long thereafter that the brother of Jared prayed with such faith that the Lord Jesus Christ, then a premortal spirit, appeared to him, and said: “Behold, I am Jesus Christ. ...
+It was not very long thereafter that the brother of Jared prayed with such faith that the Lord Jesus Christ, then a premortal spirit, appeared to him, and said: “Behold, I am Jesus Christ. …
 
-“... this body, which ye now behold, is the body of my spirit; ... and even as I appear unto thee to be in the spirit will I appear unto my people in the flesh” (Ether 3:14, 16).
+“… this body, which ye now behold, is the body of my spirit; … and even as I appear unto thee to be in the spirit will I appear unto my people in the flesh” ([[Ether 3.14|Ether 3:14, 16]][[Ether 3.16|]]).
 
 Another convincing evidence of the power of prayer in helping one to maintain spirituality is the account given by Enos, Jacob’s son, who wrote:
 
@@ -85,25 +86,25 @@ Another convincing evidence of the power of prayer in helping one to maintain sp
 
 “Now, it came to pass that when I had heard these words I began to feel a desire for the welfare of my brethren, the Nephites; wherefore, I did pour out my whole soul unto God for them.
 
-“And while I was thus struggling in the spirit, behold, the voice of the Lord came into my mind again, saying: I will visit thy brethren according to their diligence in keeping my commandments” (Enos 1:2–10).
+“And while I was thus struggling in the spirit, behold, the voice of the Lord came into my mind again, saying: I will visit thy brethren according to their diligence in keeping my commandments” ([[Enos 1.2|Enos 1:2–10]][[Enos 1.3|]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]][[Enos 1.9|]][[Enos 1.10|]]).
 
 Searching the scriptures is another powerful assist in maintaining spirituality. Alma bears witness to this in his account of the miraculous missionary accomplishments of the sons of Mosiah.
 
 “They had waxed strong in the knowledge of the truth,” he said, “for they were men of a sound understanding and they had searched the scriptures diligently, that they might know the word of God.
 
-“But this is not all; they had given themselves to much prayer, and fasting; therefore they had the spirit of prophecy, and the spirit of revelation, and when they taught, they taught with power and authority of God” (Alma 17:2–3).
+“But this is not all; they had given themselves to much prayer, and fasting; therefore they had the spirit of prophecy, and the spirit of revelation, and when they taught, they taught with power and authority of God” ([[Alma 17.2|Alma 17:2–3]][[Alma 17.3|]]).
 
 Prayer and searching the scriptures are companion aids in both obtaining and maintaining spirituality.
 
-“Pray always,” said the Lord to the Prophet Joseph, “that you may come off conqueror; yea, that you my conquer Satan, and that you may escape the hands of the servants of Satan that do uphold his work” (D&C 10:5).
+“Pray always,” said the Lord to the Prophet Joseph, “that you may come off conqueror; yea, that you my conquer Satan, and that you may escape the hands of the servants of Satan that do uphold his work” ([[D&C 10.5|D&C 10:5]]).
 
-Concerning the scriptures, John reports that Jesus said, “Search the scriptures; for in them ye think ye have eternal life: and they are they which testify of me” (John 5:39).
+Concerning the scriptures, John reports that Jesus said, “Search the scriptures; for in them ye think ye have eternal life: and they are they which testify of me” ([[John 5.39|John 5:39]]).
 
-The purpose of the sacrament is to promote the maintenance of spirituality. Both the revealed prayers over the bread and over the water contain the phrase, “that they [who partake] may ... have his Spirit to be with them” (see D&C 20:77, 79).
+The purpose of the sacrament is to promote the maintenance of spirituality. Both the revealed prayers over the bread and over the water contain the phrase, “that they \[who partake\] may … have his Spirit to be with them” (see [[D&C 20.77|D&C 20:77, 79]][[D&C 20.79|]]).
 
 In a revelation recorded in section 59 of the Doctrine and Covenants, given through the Prophet Joseph Smith 7 August 1831 for the guidance of the Saints who had recently arrived in Jackson County, Missouri, the Lord revealed a list of instructions essential to their maintaining spirituality. In part he said:
 
-“Behold, blessed, saith the Lord, are they who have come up unto this land with an eye single to my glory. ...
+“Behold, blessed, saith the Lord, are they who have come up unto this land with an eye single to my glory. …
 
 “For those that live shall inherit the earth, and those that die shall rest from all their labors, and their works shall follow them; and they shall receive a crown in the mansions of my Father, which I have prepared for them.
 
@@ -145,17 +146,20 @@ In a revelation recorded in section 59 of the Doctrine and Covenants, given thro
 
 “And in nothing doth man offend God, or against none is his wrath kindled, save those who confess not his hand in all things, and obey not his commandments.
 
-“Behold, this is according to the law and the prophets; wherefore, ...
+“Behold, this is according to the law and the prophets; wherefore, …
 
-“... learn that he who doeth the works of righteousness shall receive his reward, even peace in this world, and eternal life in the world to come.
+“… learn that he who doeth the works of righteousness shall receive his reward, even peace in this world, and eternal life in the world to come.
 
-“I, the Lord, have spoken it, and the Spirit beareth record” (D&C 59:1–24).
+“I, the Lord, have spoken it, and the Spirit beareth record” ([[D&C 59.1|D&C 59:1–24]][[D&C 59.2|]][[D&C 59.3|]][[D&C 59.4|]][[D&C 59.5|]][[D&C 59.6|]][[D&C 59.7|]][[D&C 59.8|]][[D&C 59.9|]][[D&C 59.10|]][[D&C 59.11|]][[D&C 59.12|]][[D&C 59.13|]][[D&C 59.14|]][[D&C 59.15|]][[D&C 59.16|]][[D&C 59.17|]][[D&C 59.18|]][[D&C 59.19|]][[D&C 59.20|]][[D&C 59.21|]][[D&C 59.22|]][[D&C 59.23|]][[D&C 59.24|]]).
 
 Spirituality, brothers and sisters, will come to all who will follow this pattern, for the Lord himself has said: “It shall come to pass that every soul who forsaketh his sins and cometh unto me, and calleth on my name, and obeyeth my voice, and keepeth my commandments, shall see my face and know that I am;
 
 “And that I am the true light that lighteth every man that cometh into the world;
 
-“And that I am in the Father, and the Father in me, and the Father and I are one” (D&C 93:1–3).
+“And that I am in the Father, and the Father in me, and the Father and I are one” ([[D&C 93.1|D&C 93:1–3]][[D&C 93.2|]][[D&C 93.3|]]).
 
 Such is the pattern, my beloved brothers and sisters, for maintaining spirituality. May we all succeed in attaining it and pleasing the Lord and find him, I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

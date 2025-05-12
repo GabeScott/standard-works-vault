@@ -1,5 +1,6 @@
 # How We Promote Activation
-*By By Michael Nicholas - Beavercreek Ward, Dayton Ohio East Stake*
+
+By Michael Nicholas - *Beavercreek Ward, Dayton Ohio East Stake*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -24,4 +25,7 @@ This past summer our deacons quorum brought two members into full quorum activit
 In our ward we have early morning seminary. I have to get up at 5:15 every morning. That means I have to get to bed early enough to avoid going to sleep in school. We also have a “consecutive reading club,” which helps me to read the scriptures and learn more about the Church and its prophets. I am one of two Mormons in the junior class of about 750 people in my high school. Daily contact with the other youth in the ward at seminary helps me to maintain my standards. Being in the seminary presidency and quorum presidency helps me to learn to conduct meetings. Seminary, quorum activities, quorum advisers, and bishops have helped me learn to control my temper and use my excess energy in constructive ways. These things will help me while I am on a mission, after I am married, and after I become a parent.
 
 I know that the Aaronic Priesthood and Young Men program works. It has worked in my life, and I have seen it work in the lives of other young men. I say these things in the name of Jesus Christ, amen.
+
+
+
 

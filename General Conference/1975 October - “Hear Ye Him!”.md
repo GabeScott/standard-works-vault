@@ -1,5 +1,6 @@
 # “Hear Ye Him!”
-*By Mark E. Petersen - Of the Council of the Twelve*
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -11,17 +12,17 @@ We Latter-day Saints have a message for the world. It is divine and declares to 
 
 As the Almighty thus spoke, he said, “Hear, O ye heavens, and give ear, O earth, and rejoice ye inhabitants thereof, for the Lord is God, and beside him there is no Savior.
 
-“Great is his wisdom [and] marvelous are his ways.” (D&C 76:1–2.)
+“Great is his wisdom \[and\] marvelous are his ways.” ([[D&C 76.1|D&C 76:1–2]][[D&C 76.2|]].)
 
-And he said, “The voice of the Lord is unto all men. ... And the voice of warning shall be unto all people.” (D&C 1:2, 4.)
+And he said, “The voice of the Lord is unto all men. … And the voice of warning shall be unto all people.” ([[D&C 1.2|D&C 1:2, 4]][[D&C 1.4|]].)
 
 The crux of our message is that Jesus of Nazareth is Christ the Lord, the Redeemer of all mankind, the Savior of the Christians and the Messiah of the Jews. We affirm most solemnly that this same Jesus was the literal begotten Son of God, born of Mary, and that without him there is no Savior.
 
-The Almighty repeatedly affirmed that Jesus of Nazareth is his Son and insistently commanded, “Hear ye him!” In these last days, as the Almighty gave his great new revelation of Jesus Christ, again came the commandment, “Hear ye him!”
+The Almighty repeatedly affirmed that Jesus of Nazareth is his Son and insistently commanded, *“Hear ye him!”* In these last days, as the Almighty gave his great new revelation of Jesus Christ, again came the commandment, *“Hear ye him!”*
 
-So as Latter-day Saints we bring to you a new and modern revelation of Jesus Christ, and in doing so we pass on to all who will listen the urgent command of God the Father in which he says again, Hear ye him!
+So as Latter-day Saints we bring to you a new and modern revelation of Jesus Christ, and in doing so we pass on to all who will listen the urgent command of God the Father in which he says again, *Hear ye him!*
 
-Our message is true. It is of vital concern to this troubled world. The Lord himself said, “Hearken ye people from afar; and ye that are upon the islands of the sea, listen together. For verily the voice of the Lord is unto all men.” (D&C 1:1.)
+Our message is true. It is of vital concern to this troubled world. The Lord himself said, “Hearken ye people from afar; and ye that are upon the islands of the sea, listen together. For verily the voice of the Lord is unto all men.” ([[D&C 1.1|D&C 1:1]].)
 
 When we thus declare his modern revealed word, there arises immediately in the minds of many people the matter of credibility. This we realize full well, knowing that the credibility of our message rests to a large extent upon the credibility of us as a people. With that in mind, permit me to tell you a little about ourselves.
 
@@ -29,11 +30,11 @@ We are a people committed to sobriety and good character, to honesty and righteo
 
 To us the family is the cornerstone of civilization and must ever be. It is the foundation of proper human relationships.
 
-We teach our men and women fidelity in its loftiest meaning. We believe that each of us is a spirit child of God and that the Lord intends that we shall so live that eventually we may become perfect, as our Father which is in heaven is perfect. (See Matt. 5:48.)
+We teach our men and women fidelity in its loftiest meaning. We believe that each of us is a spirit child of God and that the Lord intends that we shall so live that eventually we may become perfect, as our Father which is in heaven is perfect. (See [[Matthew 5.48|Matt. 5:48]].)
 
 We believe the family was intended to become an eternal unit, to be projected beyond death and the resurrection into an everlasting and immortal life.
 
-It is to prepare ourselves in worthiness for such a destiny that we teach this high standard of fidelity on the part of both husband and wife. We have but one single standard of morality for all. Our constant cry is “Be ye clean that bear the vessels of the Lord.” (D&C 38:42.)
+It is to prepare ourselves in worthiness for such a destiny that we teach this high standard of fidelity on the part of both husband and wife. We have but one single standard of morality for all. Our constant cry is “Be ye clean that bear the vessels of the Lord.” ([[D&C 38.42|D&C 38:42]].)
 
 We are a fast growing people. Honest-hearted men and women respond as they hear our message. We now have a Church membership of 3 1/2 million. Ten years ago it was less than 2 1/2 million.
 
@@ -41,11 +42,11 @@ We operate a consistent missionary program. We now have 133 missions with congre
 
 Our congregations generally are divided into what we call branches, wards, and stakes—the branches and wards being somewhat comparable to parishes, the stakes being likened to dioceses. Ten years ago we had 6,000 wards and branches, and now we have nearly 8,000. Ten years ago we had 412 stakes, the larger units; now we have over 700. They are found in nations from South America to Scandinavia and from Alaska to South Africa to Australia and the islands of the South Seas.
 
-We are generally a healthy people. Dr. James E. Enstrom of the UCLA School of Public Health reported in the Pasadena Star-News last April 9 that the incidence of cancer among the Mormons is 50 percent lower than the national average. In Utah the cancer death rate is the lowest in America.
+We are generally a healthy people. Dr. James E. Enstrom of the UCLA School of Public Health reported in the Pasadena *Star-News* last April 9 that the incidence of cancer among the Mormons is 50 percent lower than the national average. In Utah the cancer death rate is the lowest in America.
 
-With respect to lung cancer, LDS women have only 31 percent of the national average, the men only 38 percent of the national average. For cancer of the esophagus related to alcohol usage, the figure for Latter-day Saints is only 11 percent of the national average for women and 34 percent for the men. These figures are provided by Dr. Joseph F. Lyon, director of the Utah Cancer Registry.
+With respect to lung cancer, LDS women have only 31 percent of the national average, the men only 38 percent of the national average. For cancer of the esophagus related to alcohol usage, the figure for Latter-day Saints is only 11 percent of the national average for women and 34 percent for the men. These figures are provided by Dr. Joseph F. Lyon, director of the Utah Cancer Registry.
 
-The Statistical Abstract of the United States for the year 1971 (Bureau of the Census) reports some interesting figures in which Utah and the rest of the nation are compared. All states in the union are listed according to frequency of incidence of the diseases which I shall mention, with the states placed lowest on the list having the least number of cases.
+The *Statistical Abstract* of the United States for the year 1971 (Bureau of the Census) reports some interesting figures in which Utah and the rest of the nation are compared. All states in the union are listed according to frequency of incidence of the diseases which I shall mention, with the states placed lowest on the list having the least number of cases.
 
 For diseases of the heart, Utah ranks in 46th place; for influenza and pneumonia, 49th place; for cerebrovascular diseases, 46th place; arteriosclerosis, 49th place; cirrhosis of the liver, 45th place; bronchitis, emphysema, and asthma, 30th place; tuberculosis, 50th place; venereal diseases, 50th place; major cardiovascular and renal diseases combined, 50th place; diseases of the cardiovascular system, 50th place; vascular lesions affecting the nervous system, 50th place; hypertensive heart disease, 43rd place; other hypertensive disease, 50th place; infectious diseases, 50th place; complications of pregnancy, 46th place; infant mortality, 50th place.
 
@@ -63,15 +64,15 @@ In this day of juvenile delinquency, we are greatly heartened by the fact that o
 
 You will be interested in our Sunday School attendance. Fifty-nine percent of all of our little children are in our Sunday Schools every Sunday, and of the teen-age group, every Sunday 60 percent of all LDS youth are actually present in their classes.
 
-In our Church we teach that “the glory of God is intelligence.” (See D&C 93:36.) We believe also that the glory of man is likewise intelligence. With this in mind, we are strong advocates of education.
+In our Church we teach that “the glory of God is intelligence.” (See [[D&C 93.36|D&C 93:36]].) We believe also that the glory of man is likewise intelligence. With this in mind, we are strong advocates of education.
 
 When Dr. Clark Kerr, chairman of the Carnegie Council on Policy Studies in Higher Education, addressed the commencement exercises of the University of Utah last year, he said this interesting thing:
 
 “Utah stands first in the nation in the total population ages 3 to 34 enrolled in school.
 
-“Utah stands first in the percentage of the total population enrolled in school at every age level except ages 16–17, where Minnesota ranks first. ...
+“Utah stands first in the percentage of the total population enrolled in school at every age level except ages 16–17, where Minnesota ranks first. …
 
-“Utah stands first in the average years of school completed for all of its citizens age 25 and older. ...
+“Utah stands first in the average years of school completed for all of its citizens age 25 and older. …
 
 “Utah stands first in expenditures on the operating programs of medical schools per $100,000 of personal income in the state.”
 
@@ -83,7 +84,7 @@ Then he asked, “Why has Utah done so well? It is neither the richest, nor the 
 
 This educational background is reflected in the number of our people who have reached places of prominence in the United States, Canada, and the world.
 
-Mark W. Cannon, in a discussion entitled “Mormons in the Executive Suite,” said that a recent study shows that among the 471 leading business institutions of America, more of their presidents were born in Utah, in relation to its population, than in any other state of the union. Utah produced one such president for each 62,000 persons of population compared to one for each 205,000 nationally. Currently sixty-one Latter-day Saint men are holding positions as either president, chairman of the board, or vice-chairman of the board for American companies listing assets of more than $10 million. Many Latter-day Saints hold major positions in corporations with assets exceeding $75 million.
+Mark W. Cannon, in a discussion entitled “Mormons in the Executive Suite,” said that a recent study shows that among the 471 leading business institutions of America, more of their presidents were born in Utah, in relation to its population, than in any other state of the union. Utah produced one such president for each 62,000 persons of population compared to one for each 205,000 nationally. Currently sixty-one Latter-day Saint men are holding positions as either president, chairman of the board, or vice-chairman of the board for American companies listing assets of more than $10 million. Many Latter-day Saints hold major positions in corporations with assets exceeding $75 million.
 
 Latter-day Saints have filled cabinet positions in the United States and other important positions in Canada. We have our generals and admirals in the military forces. Our people have served regularly in the U.S. Congress over the years, as well as in governing bodies in Canada. For example, in 1952 there were fifteen holding seats in Congress and in other top federal positions. Now there are twenty-eight.
 
@@ -99,7 +100,7 @@ You will be pleased to know that Mormon women were the first women anywhere to r
 
 We believe that Mormon women are less circumscribed and are possessed of greater liberty than any women in the world. They understand the true meaning of liberty and justice for all, because it is part of their religion and is fundamental in their daily routine.
 
-We have in our church an organization especially for women, operated and directed by the women themselves. It is known as the women’s Relief Society. It has nearly a million members. Leaders of this organization have served prominently in the World Council of Women, and one of them, Mrs. Belle S. Spafford, recently served as president of the National Council of Women in the United States.
+We have in our church an organization especially for women, operated and directed by the women themselves. It is known as the women’s Relief Society. It has nearly a million members. Leaders of this organization have served prominently in the World Council of Women, and one of them, Mrs. Belle S. Spafford, recently served as president of the National Council of Women in the United States.
 
 The purpose of this Relief Society organization is to provide compassionate service for those in need, but it also promotes the cultural development of the women, helping them to achieve their desired goals in life and to establish high ideals in the family circle.
 
@@ -111,5 +112,8 @@ Our message is solemn. Our message is true. Our people are substantial citizens,
 
 In this day of darkness, sin, and confusion, would you not welcome a new revelation from God, reaffirming his existence, showing anew the way to salvation, and providing a beacon as a light upon a hill?
 
-We testify that God does live. He is the Creator of the world. We testify that Jesus Christ lives and that he is the Redeemer of this world. And we unitedly give voice to God’s command with respect to the Christ: “Hear ye him!” There is salvation in and through him alone. And to this we testify in his holy name. Amen.
+We testify that God does live. He is the Creator of the world. We testify that Jesus Christ lives and that he is the Redeemer of this world. And we unitedly give voice to God’s command with respect to the Christ: *“Hear ye him!”* There is salvation in and through him alone. And to this we testify in his holy name. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # An Elect Lady
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
 
@@ -7,9 +8,9 @@
 
 Marriage is a divine institution, ordained of God. Achieving success in the home is a supernal challenge—no other success can compensate for it. Unless, however, a husband and wife learn to work together as one, marriage can also be an infernal ordeal. There are too many unhappy marriages in the world today. There are too many marriages that do not stay the course, ending prematurely in divorce. There are too many children who are silently suffering from a lack of nurturing and care because their parents’ union is unhappy or dissolved.
 
-Before God created woman, He knew that man should not be alone. Following the creation of Eve, the first woman, the Lord instituted the union of marriage, then instructed the first man, Adam, “Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh” (Gen. 2:24).
+Before God created woman, He knew that man should not be alone. Following the creation of Eve, the first woman, the Lord instituted the union of marriage, then instructed the first man, Adam, “Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh” ([[Genesis 2.24|Gen. 2:24]]).
 
-Adam learned that the bonds of marriage are stronger than any other family bond. The sacred bonds of marriage invite unity, fidelity, respect, and mutual support. We know from the scriptures that Adam and Eve learned this lesson. At the time they were cast out of the garden, it is recorded “that Adam began to till the earth, and to have dominion over all the beasts of the field, and to eat his bread by the sweat of his brow, as I the Lord had commanded him. And Eve, also, his wife, did labor with him” (Moses 5:1).
+Adam learned that the bonds of marriage are stronger than any other family bond. The sacred bonds of marriage invite unity, fidelity, respect, and mutual support. We know from the scriptures that Adam and Eve learned this lesson. At the time they were cast out of the garden, it is recorded “that Adam began to till the earth, and to have dominion over all the beasts of the field, and to eat his bread by the sweat of his brow, as I the Lord had commanded him. And Eve, also, his wife, did labor with him” ([[Moses 5.1|Moses 5:1]]).
 
 No single issue causes more concern among the leaders of churches and the leaders of nations than the alarming rate of breakup of marriages today. Statistics show that strong marriages produce strong families. The breakup of the family is causing serious social problems that are destroying our communities—including increases in poverty, crime, and delinquency.
 
@@ -25,7 +26,7 @@ Sister Hinckley’s roots sink deeply into rich pioneer soil, leaving an indelib
 
 “Upon returning home, William was reprimanded by his elder brother, David, for being absent from his accustomed place in the choir. Asked to give an account of himself, William replied, ‘I have been where you should have been, and I shall not be satisfied until you all hear the wonderful truth I have heard this morning.’
 
-“... William and David were converted to the gospel, and then helped convert other members of their family” (Ensign, July 1981, p. 48).
+“… William and David were converted to the gospel, and then helped convert other members of their family” (*Ensign,* July 1981, p. 48).
 
 Sister Hinckley commented, “I never sing the hymns of the Church without remembering that it was the singing of a hymn that opened the door to the gospel for my family and made it possible for me to enjoy all the blessings that have followed” (p. 48).
 
@@ -37,9 +38,9 @@ We catch a glimpse from these two stories about Sister Hinckley’s ancestors of
 
 Over the years, my wife and I have had the privilege of traveling on many assignments with President and Sister Hinckley. In our travels we have always found Sister Hinckley so positive and cheerful. Her enthusiastic and supportive attitude clearly lifts her husband. Often the trips have been long and tiring. Schedules may not have been ideal. Accommodations may not have been four-star, sometimes way below. But in the midst of turmoil, discomfort, or challenge, Sister Hinckley has maintained her composure and her naturally happy disposition. Each time we would step off a plane to greet the Saints at a new destination, her kind and loving spirit was contagious. She has set a standard of support for priesthood-leader husbands that literally brings out the best in them.
 
-Sister Barbara Smith made this observation when President and Sister Hinckley, accompanied by their children, were celebrating their fiftieth wedding anniversary while he was fulfilling an assignment: “On a typical evening, President Hinckley would be exhausted after a day of meetings, including the evening meal with local leaders. [Sister Hinckley] would attend to the conversation of her husband and the leaders for a time, then slip quietly away to be sure that all was well with her family.
+Sister Barbara Smith made this observation when President and Sister Hinckley, accompanied by their children, were celebrating their fiftieth wedding anniversary while he was fulfilling an assignment: “On a typical evening, President Hinckley would be exhausted after a day of meetings, including the evening meal with local leaders. \[Sister Hinckley\] would attend to the conversation of her husband and the leaders for a time, then slip quietly away to be sure that all was well with her family.
 
-“[You can] sense in this pattern the careful way that Sister Hinckley has been able, over the years, to respond to the needs of her children while at the same time supporting her husband in his critical role in the work of our Father’s kingdom” (Barbara B. Smith and Shirley W. Thomas, Women of Devotion, Salt Lake City: Bookcraft, 1990, p. 5).
+“\[You can\] sense in this pattern the careful way that Sister Hinckley has been able, over the years, to respond to the needs of her children while at the same time supporting her husband in his critical role in the work of our Father’s kingdom” (Barbara B. Smith and Shirley W. Thomas, *Women of Devotion,* Salt Lake City: Bookcraft, 1990, p. 5).
 
 What an example she is to the wives of priesthood leaders all over the world!
 
@@ -49,7 +50,7 @@ Sister Hinckley has said this about motherhood:
 
 “It is the mothers of young children I would like to address first. These are golden years for you. These are years when you will probably do the most important work of your lives. Don’t wish away your years of caring for small children. Life is what happens to you while you are making other plans. This is a time of great opportunity for you to build the kingdom. When you teach children to love their Heavenly Father, you have done one of the greatest things you will ever do. If you can be a full-time homemaker, be grateful. If not, you must do what is best for you. I for one have never felt a need to apologize for my role as a full-time homemaker.
 
-“These are busy, busy days for you. I have seen women in all kinds of circumstances—Chinese women working on road repairs, European women working in the fields, Asian women sweeping streets—but it is my opinion that ... Mormon women are among the hardest working women in the world. They plant gardens and they bottle the produce; they sew and bargain shop. They go on the heart fund drive. They take dinners to new mothers and the sick in their neighborhoods. They take care of aged parents. They climb Mount Timpanogos with Cub Scouts, go to Little League games, sit on the piano bench while Jennie practices, do temple work, and worry about getting their journals up-to-date. My heart bursts with pride when I see them come into church on Sunday, some as early as 8:30 in the morning, their children all clean and shiny, their arms loaded with supplies, as they head for classes where they teach other women’s children. They scrub their houses with little or no domestic help and then try to be the glamour girl in their husband’s life when he arrives home at night. But remember, my dear young friends, that you are now doing the work that God intended you to do. Be grateful for the opportunity” (“Building the Kingdom from a Firm Foundation,” in Mary E. Stovall and Carol Cornwall Madsen, eds., As Women of Faith: Talks Selected from the BYU Women’s Conferences, Salt Lake City: Deseret Book Co., 1989, p. 5).
+“These are busy, busy days for you. I have seen women in all kinds of circumstances—Chinese women working on road repairs, European women working in the fields, Asian women sweeping streets—but it is my opinion that … Mormon women are among the hardest working women in the world. They plant gardens and they bottle the produce; they sew and bargain shop. They go on the heart fund drive. They take dinners to new mothers and the sick in their neighborhoods. They take care of aged parents. They climb Mount Timpanogos with Cub Scouts, go to Little League games, sit on the piano bench while Jennie practices, do temple work, and worry about getting their journals up-to-date. My heart bursts with pride when I see them come into church on Sunday, some as early as 8:30 in the morning, their children all clean and shiny, their arms loaded with supplies, as they head for classes where they teach other women’s children. They scrub their houses with little or no domestic help and then try to be the glamour girl in their husband’s life when he arrives home at night. But remember, my dear young friends, that you are now doing the work that God intended you to do. Be grateful for the opportunity” (“Building the Kingdom from a Firm Foundation,” in Mary E. Stovall and Carol Cornwall Madsen, eds., *As Women of Faith: Talks Selected from the BYU Women’s Conferences,* Salt Lake City: Deseret Book Co., 1989, p. 5).
 
 Motherhood is the noblest and greatest of all callings.
 
@@ -57,9 +58,12 @@ Sister Hinckley, you are an inspiration to all of us. You are diligent in seekin
 
 With all of the confusion existing in the world today over the role of women, you stand as a worthy role model for those who are still struggling to find the right balance in life. May they listen when you declare how great it is to be eighty years of age because you can look back on a life filled with accomplishment, growth, understanding, faith, support, and fulfillment. You have said:
 
-“Contrary to rumor, these are golden years, if you have a measure of good health. At this age, my dear contemporaries, we no longer have to compete with anyone. We don’t have to prove anything—we just have to enjoy it all. How many of you have told your children how wonderful it is to be this age?” (“Building the Kingdom,” p. 10.)
+“Contrary to rumor, these *are* golden years, if you have a measure of good health. At this age, my dear contemporaries, we no longer have to compete with anyone. We don’t have to prove anything—we just have to enjoy it all. How many of you have told your children how wonderful it is to be this age?” (“Building the Kingdom,” p. 10.)
 
 President Hinckley paid this compliment to you as the Quorum of the Twelve Apostles met in the Salt Lake Temple on the day he was ordained and set apart as President of the Church. In the part that I remember, he said: “She is a woman of great faith. She is a wonderful mother. How I love her.”
 
 Sister Hinckley, you are a wonderful example to all of us. May the Lord continue to bless you with good health and a long, long life. May each of us catch the enthusiastic spirit you have for the gospel of our Lord and Savior, I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

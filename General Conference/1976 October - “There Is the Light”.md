@@ -1,5 +1,6 @@
 # “There Is the Light”
-*By John H. Groberg - Of the First Quorum of the Seventy*
+
+By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -19,13 +20,13 @@ The weather had deteriorated to the point of a small gale. The seas were heavy, 
 
 There was much concern expressed and much talk about the darkness, the storm, and the formidable reef with its extremely narrow opening to the harbor we were attempting to gain. Some found reason to stay behind; but soon eight persons, including an ill missionary, a very experienced captain, and a somewhat concerned district president, boarded the boat and the spiritually prompted voyage to home base began.
 
-No sooner had we made our commitment to the open seas than the intensity of the storm seemed to increase sevenfold. The small gale now became a major storm. As the sun sank below the horizon, bringing with it darkness and gloom, so also did my spirit seem to sink into the darkness of doubt and apprehension. The thick clouds and driving rain increased the blackness of our already dark universe—no stars, no moon, no rest—only turmoil of sea and body and mind and spirit. And as we toiled on through that fearsome night, I found my spirit communing with the spirit of the father of an afflicted child in the New Testament, as he exclaimed, “Lord, I believe; help thou mine unbelief.” (Mark 9:24.) And He did, and He does, and He will. That I know.
+No sooner had we made our commitment to the open seas than the intensity of the storm seemed to increase sevenfold. The small gale now became a major storm. As the sun sank below the horizon, bringing with it darkness and gloom, so also did my spirit seem to sink into the darkness of doubt and apprehension. The thick clouds and driving rain increased the blackness of our already dark universe—no stars, no moon, no rest—only turmoil of sea and body and mind and spirit. And as we toiled on through that fearsome night, I found my spirit communing with the spirit of the father of an afflicted child in the New Testament, as he exclaimed, “Lord, I believe; help thou mine unbelief.” ([[Mark 9.24|Mark 9:24]].) And He did, and He does, and He will. That I know.
 
 As we rolled and tossed closer and closer to the reef, all eyes searched for the light that marked the opening—the only entry to our home. Where was it? The blackness of the night seemed to increase; the fierceness of the raging elements seemed to know no bounds. The rain slashed at our faces and tore at our eyes—eyes vainly searching for that life-giving light.
 
 Then I heard the chilling sound of the waves crashing and chewing against the reef! It was close—too close. Where was that light? Unless we hit the opening exactly, we would be smashed against the reef and ripped and torn by that thousand-toothed monster. It seemed that all the elements were savagely bent on our total destruction. Our eyes strained against the blackness, but we could not see the light.
 
-Some began to whimper, others to moan and cry, and one or two even to scream in hysteria. At the height of this panic, when many were pleading to turn to the left or to the right, when the tumultuous elements all but forced us to abandon life and hope, I looked at the captain—and there I saw the face of calmness, the ageless face of wisdom and experience, as his eyes penetrated the darkness ahead. Quietly his weather-roughened lips parted, and without moving his fixed gaze and just perceptibly shifting the wheel, he breathed those life-giving words, “Ko e Maama e” (“There is the light!”).
+Some began to whimper, others to moan and cry, and one or two even to scream in hysteria. At the height of this panic, when many were pleading to turn to the left or to the right, when the tumultuous elements all but forced us to abandon life and hope, I looked at the captain—and there I saw the face of calmness, the ageless face of wisdom and experience, as his eyes penetrated the darkness ahead. Quietly his weather-roughened lips parted, and without moving his fixed gaze and just perceptibly shifting the wheel, he breathed those life-giving words, *“Ko e Maama e”* (“There is the light!”).
 
 I could not see the light, but the captain could see it. And I knew he could see it. Those eyes long experienced in ocean travel were not fooled by the madness of the storm nor were they influenced by the pleadings of those of lesser experience to turn to the left or to the right. And so with one last great swell we were hurtled through the opening and into calmer waters.
 
@@ -45,5 +46,8 @@ In like manner, and with even deeper meaning, I thank the Lord for our great pro
 
 I bear testimony that I know that God lives. I know that our Father in heaven loves us. I know that Jesus is the Christ, the Savior of the world. I know that He is our personal Savior, that He is our Friend—and I know He is our Helper: He will help us each personally and individually as we merit that help.
 
-I know that Joseph Smith is a prophet of God. I testify that in our day Spencer W. Kimball is the man whose eyes see the light that can and will save us and the world. When all about us are sinking in darkness and fear and despair, when destruction seems close and the raging fury of men and demons ensnares us in seemingly insoluble problems, listen as he calmly says, “There is the light. This is the way.” I testify that he will so guide us safely home if we will but listen and obey. In the name of Jesus Christ. Amen.
+I know that Joseph Smith is a prophet of God. I testify that in our day Spencer W. Kimball is the man whose eyes see the light that can and will save us and the world. When all about us are sinking in darkness and fear and despair, when destruction seems close and the raging fury of men and demons ensnares us in seemingly insoluble problems, listen as he calmly says, “There is the light. This is the way.” I testify that he will so guide us safely home if we will but listen and obey. In the name of Jesus Christ. Amen.
+
+
+
 

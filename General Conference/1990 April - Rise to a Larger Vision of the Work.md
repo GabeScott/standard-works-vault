@@ -1,5 +1,6 @@
 # Rise to a Larger Vision of the Work
-*By Gordon B. Hinckley - First Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
 
@@ -15,13 +16,11 @@ I stand before you as one who is filled with a tremendous sense of gratitude and
 
 I am thankful for the law of tithing. Surely it is divine. The Lord has made it universal in its application among all of His people. It is miraculous in its simplicity. No certified public accountant is needed to determine what is owed to the Lord. When we were children, we learned the principle:
 
-What is tithing?
-
-I can tell you every time—
-
-Ten cents from a dollar,
-
-And a penny from a dime.
+>What is tithing?
+>I can tell you every time—
+>Ten cents from a dollar,
+>And a penny from a dime.
+>
 
 I see the struggles of other churches to raise funds, and wonder why they do not do that which the Lord has outlined. I see the complexity, almost beyond comprehension, of government systems of taxation, and I thank the Lord for the magnitude of His wisdom in making things simple concerning the financing of His kingdom.
 
@@ -47,11 +46,11 @@ I think I speak for my Brethren when I say that we are constantly aware of the g
 
 I recall that when I was a boy I raised a question with my father, who was my stake president, concerning the expenditure of Church funds. He reminded me that mine is the God-given obligation to pay my tithes and offerings. When I do so, that which I give is no longer mine. It belongs to the Lord to whom I consecrate it. What the authorities of the Church do with it need not concern me. They are answerable to the Lord, who will require an accounting at their hands.
 
-Great is the trust, tremendous is the responsibility. I deplore waste. I deplore extravagance. I value thrift. I believe in prudence and conservatism. I believe, and I have always believed, as far back as I can remember, that tithing is the Lord’s law of finance. In a revelation given on 8 July 1838, He indicated that His saints “shall pay one-tenth of all their interest annually; and this shall be a standing law unto them forever, for my holy priesthood, saith the Lord.” (D&C 119:4.)
+Great is the trust, tremendous is the responsibility. I deplore waste. I deplore extravagance. I value thrift. I believe in prudence and conservatism. I believe, and I have always believed, as far back as I can remember, that tithing is the Lord’s law of finance. In a revelation given on 8 July 1838, He indicated that His saints “shall pay one-tenth of all their interest annually; and this shall be a standing law unto them forever, for my holy priesthood, saith the Lord.” ([[D&C 119.4|D&C 119:4]].)
 
-The Brethren have interpreted the word interest to mean income. Beyond that they have not given interpretation.
+The Brethren have interpreted the word *interest* to mean income. Beyond that they have not given interpretation.
 
-On the same day in which this revelation was given, the Lord established the system under which the tithes should be disbursed. He said: “Verily, thus saith the Lord, the time is now come, that it shall be disposed of by a council, composed of the First Presidency of my Church, and of the bishop and his council, and by my high council; and by mine own voice unto them, saith the Lord. Even so. Amen.” (D&C 120.)
+On the same day in which this revelation was given, the Lord established the system under which the tithes should be disbursed. He said: “Verily, thus saith the Lord, the time is now come, that it shall be disposed of by a council, composed of the First Presidency of my Church, and of the bishop and his council, and by my high council; and by mine own voice unto them, saith the Lord. Even so. Amen.” ([[D&C 120.1|D&C 120]].)
 
 That same system obtains and governs today as was prescribed when the revelation was first given. Each Tuesday of the year, with the exception of one or two Tuesdays during the Christmas season, the Appropriations Committee meets. This is comprised of the First Presidency, representatives of the Council of the Twelve, and the Presiding Bishopric. This committee essentially becomes an executive committee of the Council on the Disposition of the Tithes—which includes the First Presidency and all of the Twelve, who are sustained as prophets, seers, and revelators, together with the Presiding Bishopric—and which Council meets at scheduled times during the year.
 
@@ -69,7 +68,7 @@ Further with reference to activities, may I say that I regard activities as impo
 
 It should be recognized that this church is not a social club. This is the kingdom of God in the earth. It is The Church of Jesus Christ of Latter-day Saints. Its purpose is to bring salvation and exaltation to both the living and the dead.
 
-May I remind you of a tremendous statement given by the First Presidency in 1907. They said: “Our motives are not selfish; our purposes not petty and earthbound; we contemplate the human race—past, present, and yet to come—as immortal beings, for whose salvation it is our mission to labor; and to this work, broad as eternity and deep as the love of God, we devote ourselves, now and forever.” (In Conference Report, Apr. 1907, appendix, “An Address to the World,” p. 16.) Such is the scope of our responsibility.
+May I remind you of a tremendous statement given by the First Presidency in 1907. They said: “Our motives are not selfish; our purposes not petty and earthbound; we contemplate the human race—past, present, and yet to come—as immortal beings, for whose salvation it is our mission to labor; and to this work, broad as eternity and deep as the love of God, we devote ourselves, now and forever.” (In Conference Report, Apr. 1907, appendix, “An Address to the World,” p. 16.) Such is the scope of our responsibility.
 
 In working under this new program let us not quibble or complain. Let us not get bogged down in discussions over a division of dollars and dimes. Let us not worry and get all worked up about exotic excursions that now may not be possible. These might provide wonderful fun, and young people, we all agree, need to have some fun under the direction of Church officers and teachers. But these officers and teachers, and these young men and women, are people of ingenuity who with faith and prayer can work out programs costing little in dollars that will yield tremendous dividends in wholesome recreation and faith-building activities. Perhaps we should be less concerned with fun and more with faith. This is a new and wonderful program. As with any new program, there will be a few items that will need to be corrected as we go along. There are still unanswered questions, particularly concerning recreation properties. Time and experience will provide the answers. Meanwhile, be grateful and prayerfully go to work to make it function. I promise you that you will be happy if you do so. Family life will be strengthened and faith will increase.
 
@@ -85,7 +84,10 @@ Less-active members and nonmembers have generously contributed through the LDS F
 
 Now, brethren and sisters, I invite you to look beyond the narrow boundaries of your own wards and rise to the larger vision of this, the work of God. We have a challenge to meet, a work to do beyond the comprehension of any of us—that is, to assist our Heavenly Father to save His sons and daughters of all generations, both the living and the dead, to work for the salvation not only of those in the Church, but for those presently outside, wherever they may be. No body of people on the face of the earth has received a stronger mandate from the God of heaven than have we of this Church.
 
-You have entrusted some of us with a heavy responsibility. God, our Eternal Father, likewise has so entrusted us. We are ever mindful of this. We pray for you, and we know that you pray for us. Please know that we love you, and accept our gratitude for the love you show for us. As servants of the Lord, endowed with His holy priesthood, we bless you that as you walk in faith and faithfulness, the windows of heaven may be opened and that there may be showered upon you those precious gifts which come from the God of heaven, who is our Eternal Father, and His divine Son, who is our Redeemer and who declared, “Seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.” (Matt. 6:33.)
+You have entrusted some of us with a heavy responsibility. God, our Eternal Father, likewise has so entrusted us. We are ever mindful of this. We pray for you, and we know that you pray for us. Please know that we love you, and accept our gratitude for the love you show for us. As servants of the Lord, endowed with His holy priesthood, we bless you that as you walk in faith and faithfulness, the windows of heaven may be opened and that there may be showered upon you those precious gifts which come from the God of heaven, who is our Eternal Father, and His divine Son, who is our Redeemer and who declared, “Seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.” ([[Matthew 6.33|Matt. 6:33]].)
 
 This is the work of the Almighty. Let us never forget that. It is the work of His Son, our Savior. Of this I testify as I invoke these blessings upon you in the name of Jesus Christ, amen.
+
+
+
 

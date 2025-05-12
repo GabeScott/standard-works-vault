@@ -1,7 +1,10 @@
 # Adversity
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2009 General Conference*
+
+>*I bear you my testimony that God the Father lives. He set a course for each of us that can polish and perfect us to be with Him.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2009/04/adversity?lang=eng)
 
@@ -25,13 +28,13 @@ It will comfort us when we must wait in distress for the Savior’s promised rel
 
 “And he will take upon him death, that he may loose the bands of death which bind his people; and he will take upon him their infirmities, that his bowels may be filled with mercy, according to the flesh, that he may know according to the flesh how to succor his people according to their infirmities.
 
-“Now the Spirit knoweth all things; nevertheless the Son of God suffereth according to the flesh that he might take upon him the sins of his people, [so] that he might blot out their transgressions according to the power of his deliverance; and now behold, this is the testimony which is in me.”
+“Now the Spirit knoweth all things; nevertheless the Son of God suffereth according to the flesh that he might take upon him the sins of his people, \[so\] that he might blot out their transgressions according to the power of his deliverance; and now behold, this is the testimony which is in me.”[^1]
 
 Even when you feel the truth of that capacity and kindness of the Lord to deliver you in your trials, it may still test your courage and strength to endure. The Prophet Joseph Smith cried out in agony in a dungeon:
 
 “O God, where art thou? And where is the pavilion that covereth thy hiding place?
 
-“How long shall thy hand be stayed, and thine eye, yea thy pure eye, behold from the eternal heavens the wrongs of thy people and of thy servants, and thine ear be penetrated with their cries?”
+“How long shall thy hand be stayed, and thine eye, yea thy pure eye, behold from the eternal heavens the wrongs of thy people and of thy servants, and thine ear be penetrated with their cries?”[^2]
 
 The Lord’s reply has helped me and can encourage us all in times of darkness. Here it is:
 
@@ -41,7 +44,7 @@ The Lord’s reply has helped me and can encourage us all in times of darkness. 
 
 “Thy friends do stand by thee, and they shall hail thee again with warm hearts and friendly hands.
 
-“Thou art not yet as Job; thy friends do not contend against thee, neither charge thee with transgression, as they did Job.”
+“Thou art not yet as Job; thy friends do not contend against thee, neither charge thee with transgression, as they did Job.”[^3]
 
 I have seen faith and courage come from a testimony that it is true that we are being prepared for eternal life. The Lord will rescue His faithful disciples. And the disciple who accepts a trial as an invitation to grow and therefore qualify for eternal life can find peace in the midst of the struggle.
 
@@ -53,11 +56,11 @@ You remember the moment when Alma turned to the man who led the people in distre
 
 “Therefore he did say no more to the other multitude; but he stretched forth his hand, and cried unto those whom he beheld, who were truly penitent, and said unto them:
 
-“I behold that ye are lowly in heart; and if so, blessed are ye.”
+“I behold that ye are lowly in heart; and if so, blessed are ye.”[^4]
 
 The scripture goes on to praise those of us who prepared for adversity in the more prosperous times. Many of you had the faith to try to qualify for the help you now need, before the crisis came.
 
-Alma continued, “Yea, he that truly humbleth himself, and repenteth of his sins, and endureth to the end, the same shall be blessed—yea, much more blessed than they who are compelled to be humble because of their exceeding poverty.”
+Alma continued, “Yea, he that truly humbleth himself, and repenteth of his sins, and endureth to the end, the same shall be blessed—yea, much more blessed than they who are compelled to be humble because of their exceeding poverty.”[^5]
 
 That young man with whom I spoke recently was one who had done more than put away food and a little savings for the misfortune which living prophets had warned would come. He had begun to prepare his heart to be worthy of the Lord’s help which he knew he would in the near future need. When I asked his wife on the day he lost his job if she was worried, she said with cheerfulness in her voice, “No, we’ve just come from the bishop’s office. We are full-tithe payers.” Now, it is still too early to tell, but I felt assured as they seemed to be assured: “Things will work out.” Tragedy did not erode their faith; it tested it and strengthened it. And the feeling of peace the Lord has promised has already been delivered in the midst of the storm. Other miracles are sure to follow.
 
@@ -65,7 +68,7 @@ The Lord always suits the relief to the person in need to best strengthen and pu
 
 Most of us know widows who need attention. What touches me is to hear, as I have, of an older widow whom I was intending to visit again having been inspired to visit a younger widow to comfort her. A widow needing comfort herself was sent to comfort another. The Lord helped and blessed two widows by inspiring them to encourage each other. So He gave succor to them both.
 
-The Lord sent help in that same way to the humble poor in Alma 34 who had responded to the teaching and testimony of His servants. Once they had repented and were converted, they were still poor. But He sent them to do for others what they might reasonably have thought was beyond them and which they still needed. They were to give others what they would have hoped He would give them. Through His servant, the Lord gave these poor converts this hard task: “After ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.”
+The Lord sent help in that same way to the humble poor in [[Alma 34.1|Alma 34]][[Alma 34.2|]][[Alma 34.3|]][[Alma 34.4|]][[Alma 34.5|]][[Alma 34.6|]][[Alma 34.7|]][[Alma 34.8|]][[Alma 34.9|]][[Alma 34.10|]][[Alma 34.11|]][[Alma 34.12|]][[Alma 34.13|]][[Alma 34.14|]][[Alma 34.15|]][[Alma 34.16|]][[Alma 34.17|]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]][[Alma 34.28|]][[Alma 34.29|]][[Alma 34.30|]][[Alma 34.31|]][[Alma 34.32|]][[Alma 34.33|]][[Alma 34.34|]][[Alma 34.35|]][[Alma 34.36|]][[Alma 34.37|]][[Alma 34.38|]][[Alma 34.39|]][[Alma 34.40|]][[Alma 34.41|]] who had responded to the teaching and testimony of His servants. Once they had repented and were converted, they were still poor. But He sent them to do for others what they might reasonably have thought was beyond them and which they still needed. They were to give others what they would have hoped He would give them. Through His servant, the Lord gave these poor converts this hard task: “After ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.”[^6]
 
 That may seem much to ask of people in such great need themselves. But I know one young man who was inspired to do that very thing early in his marriage. He and his wife were barely getting by on a tiny budget. But he saw another couple even poorer than they were. To the surprise of his wife, he gave help to them from their scanty finances. A promised blessing of peace came while they were still in their poverty. The blessing of prosperity beyond their fondest dreams came later. And the pattern of seeing someone in need, someone with less or in pain, has never ceased.
 
@@ -85,9 +88,26 @@ I left thinking that I would see him again soon. But the phone call came within 
 
 “I have fought a good fight, I have finished my course, I have kept the faith:
 
-“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.”
+“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.”[^7]
 
 I have confidence that my neighbor made it through his trial and will face his judge with a joyous smile.
 
 I bear you my testimony that God the Father lives. He set a course for each of us that can polish and perfect us to be with Him. I testify that the Savior lives. His Atonement makes possible our being purified as we keep His commandments and our sacred covenants. And I know from my own experience that He can and will give us strength to rise through every trial. President Monson is the Lord’s prophet. He holds all the keys of the priesthood. This is the Lord’s true Church in which we are, with Him, lifting each other and being blessed to succor the fellow sufferers He places in our way. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
+
+[^2]: [[D&C 121.1|D&C 121:1–2]][[D&C 121.2|]].
+
+[^3]: [[D&C 121.7|D&C 121:7–10]][[D&C 121.8|]][[D&C 121.9|]][[D&C 121.10|]].
+
+[^4]: [[Alma 32.6|Alma 32:6–8]][[Alma 32.7|]][[Alma 32.8|]].
+
+[^5]: [[Alma 32.15|Alma 32:15]].
+
+[^6]: [[Alma 34.28|Alma 34:28]].
+
+[^7]: [[2 Timothy 4.5|2 Timothy 4:5–8]][[2 Timothy 4.6|]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].
 

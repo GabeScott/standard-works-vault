@@ -1,5 +1,6 @@
 # A Haven of Love
-*By By Bishop Victor L. Brown - Presiding Bishop*
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -7,19 +8,19 @@
 
 This morning I would like to speak of a division of Welfare Services which is rarely mentioned in this Welfare Services meeting, and yet through its organization and activities it draws all who participate—the giver and the receiver—so very close to the Savior. We might appropriately call it a “haven of love,” a very special haven for some very special people, where perhaps for the first time an individual begins to feel worth something after all—
 
-where the environment is such as to help one regain his self-respect;
+- where the environment is such as to help one regain his self-respect;
 
-where lack of training, skills, or aptitude is not considered a handicap;
+- where lack of training, skills, or aptitude is not considered a handicap;
 
-where a person is treated with tender, loving care, regardless of mental or physical limitations;
+- where a person is treated with tender, loving care, regardless of mental or physical limitations;
 
-where by making a contribution, no matter how modest, a person gains the feeling of being needed, worthwhile, and important;
+- where by making a contribution, no matter how modest, a person gains the feeling of being needed, worthwhile, and important;
 
-where each work day begins with a morning devotional.
+- where each work day begins with a morning devotional.
 
 This haven for special people is Deseret Industries. Deseret Industries epitomizes the spirit of the Savior’s teachings and is one of the most exciting aspects of Welfare Services. What makes it so exciting is the influence it has in the lives of people who serve there. Let me introduce you to some of these wonderful people.
 
-[A film was shown.]
+\[A film was shown.\]
 
 Perhaps you sense now why these are such wonderful people. Their example of faith, self-reliance, and determination is a beacon and a sermon to all. Let me share with you in a little more detail what happens to those who work at Deseret Industries. A father tells this story of his son:
 
@@ -58,4 +59,7 @@ May I close with just one other experience. Let me tell you of one elderly broth
 In the process of doing, he started to get a small glimmer of interest in something—in anything—and his eyes raised from the floor. He saw the walls, and he saw the windows. As this process continued, the development of a feeling that everyone needs was nurtured. It wasn’t long until other assignments were given to him which he did very well. In time his faith in himself and his feeling of worth had been restored. He became a supervisor of others.
 
 May the Lord bless these wonderful, special people, and may we be blessed as their leaders, that we, through the work of the Welfare Services program, may bless their lives, I pray in the name of Jesus Christ. Amen.
+
+
+
 

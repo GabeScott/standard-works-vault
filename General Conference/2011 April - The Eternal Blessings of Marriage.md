@@ -1,13 +1,16 @@
 # The Eternal Blessings of Marriage
-*By Richard G. Scott - Of the Quorum of the Twelve Apostles*
+
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
+
+>*The temple sealing has greater meaning as life unfolds. It will help you draw ever closer together and find greater joy and fulfillment.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/04/the-eternal-blessings-of-marriage?lang=eng)
 
 That beautiful message by this magnificent choir describes, I think, the pattern of life for so many of us: “trying to be like Jesus.”
 
-On July 16, 1953, my beloved Jeanene and I knelt as a young couple at an altar in the Manti Utah Temple. President Lewis R. Anderson exercised the sealing authority and pronounced us husband and wife, wedded for time and for all eternity. I have no power to describe the peace and serenity that come from the assurance that as I continue to live worthily, I will be able to be with my beloved Jeanene and our children forever because of that sacred ordinance performed with the proper priesthood authority in the house of the Lord.
+On July 16, 1953, my beloved Jeanene and I knelt as a young couple at an altar in the Manti Utah Temple. President Lewis R. Anderson exercised the sealing authority and pronounced us husband and wife, wedded for time and for all eternity. I have no power to describe the peace and serenity that come from the assurance that as I continue to live worthily, I will be able to be with my beloved Jeanene and our children forever because of that sacred ordinance performed with the proper priesthood authority in the house of the Lord.
 
 Our seven children are bound to us by the sacred ordinances of the temple. My precious wife, Jeanene, and two of our children are beyond the veil. They provide a powerful motivation for each remaining member of our family to live so that together we will receive all of the eternal blessings promised in the temple.
 
@@ -68,4 +71,7 @@ I feel sorry for any man who hasn’t yet made the choice to seek an eternal com
 Please pardon me for speaking of my precious wife, Jeanene, but we are an eternal family. She was always joyously happy, and much of it came from service to others. Even while very ill, in her morning prayer she would ask her Father in Heaven to lead her to someone she could help. That sincere supplication was answered time and again. The burdens of many were eased; their lives were brightened. She was blessed continually for being an instrument directed by the Lord.
 
 I know what it is to love a daughter of Father in Heaven who with grace and devotion lived the full feminine splendor of her righteous womanhood. I am confident that when, in our future, I see her again beyond the veil, we will recognize that we have become even more deeply in love. We will appreciate each other even more, having spent this time separated by the veil. In the name of Jesus Christ, amen.
+
+
+
 

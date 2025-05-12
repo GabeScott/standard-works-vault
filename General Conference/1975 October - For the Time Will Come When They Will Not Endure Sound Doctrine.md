@@ -1,5 +1,6 @@
 # For the Time Will Come When They Will Not Endure Sound Doctrine
-*By L. Tom Perry - Of the Council of the Twelve*
+
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -37,7 +38,7 @@ Once again, I repeat that while in Washington, D.C., attending this gathering I 
 
 As the meeting concluded I had great disappointment that a declaration of gratitude to our Eternal Father had not been pronounced or produced by this great body of religious leaders. However, I came away with the firm resolve that I would at least let my voice be heard on two issues during this bicentennial year.
 
-First, I will develop within me the courage to stand up and defend that which I believe to be right. I will declare my personal witness that the heavens are not closed. The Lord continues to guide and direct all of his children on earth if they will but heed his voice. I will teach my firm conviction that the foundation of any righteous government is the law that has been received from the Lord to guide and direct man’s efforts. Righteous government receives direction from the Lord. The scripture President Tanner quoted bears this out, in our country, in the establishment of this government. “And for this purpose have I established the Constitution of this land, by the hands of wise men whom I raised up unto this very purpose, and redeemed the land by the shedding of blood.” (D&C 101:80.)
+First, I will develop within me the courage to stand up and defend that which I believe to be right. I will declare my personal witness that the heavens are not closed. The Lord continues to guide and direct all of his children on earth if they will but heed his voice. I will teach my firm conviction that the foundation of any righteous government is the law that has been received from the Lord to guide and direct man’s efforts. Righteous government receives direction from the Lord. The scripture President Tanner quoted bears this out, in our country, in the establishment of this government. “And for this purpose have I established the Constitution of this land, by the hands of wise men whom I raised up unto this very purpose, and redeemed the land by the shedding of blood.” ([[D&C 101.80|D&C 101:80]].)
 
 I have resolved to do all that is within my power to keep alive the same faith which existed in the hearts and souls of our early founding fathers.
 
@@ -51,7 +52,7 @@ Now second, I want to publicly profess my opposition to those who are so caught 
 
 Let me cite just one example of how these seemingly enlightened minds are trying to destroy the sacred institution of marriage with their erroneous doctrines and teachings. A quotation from a recent publication, which is just one of many I have recently received from concerned citizens, is as follows:
 
-“On the basis of this and other such evidence, some observers suggest that the institution of marriage which had necessarily been changed over the centuries to accommodate the needs of a changing society now faces a future in which it may gradually become obsolete. In their judgment, marriage will ultimately manifest itself, not as a religious sacrament or a legal certification but simply as a sociological fact.” (William H. Masters and Virginia E. Johnson, The Pleasure Bond, Toronto and Boston, Little, Brown and Co., p. 179.) They are calling for a new Christian approach to marriage. They state that dogmatism is being forced to yield to humanism no matter how slowly or how grudgingly. They call attention to studies they claim are on the verge of revealing with assurance that having extramarital relations may serve as a vehicle to faithfulness to God.
+“On the basis of this and other such evidence, some observers suggest that the institution of marriage which had necessarily been changed over the centuries to accommodate the needs of a changing society now faces a future in which it may gradually become obsolete. In their judgment, marriage will ultimately manifest itself, not as a religious sacrament or a legal certification but simply as a sociological fact.” (William H. Masters and Virginia E. Johnson, *The Pleasure Bond,* Toronto and Boston, Little, Brown and Co., p. 179.) They are calling for a new Christian approach to marriage. They state that dogmatism is being forced to yield to humanism no matter how slowly or how grudgingly. They call attention to studies they claim are on the verge of revealing with assurance that having extramarital relations may serve as a vehicle to faithfulness to God.
 
 I find that such teachings are absolutely contrary to the instructions of the Lord to mankind. As I examine the physical order in the Lord’s divine plan, I find no evidence that he has ever found it necessary to make a correction. The earth continues to rotate in the same direction. The angle of its axis is unchanged. The circulation of moisture continues from sea to cloud to earth to river to sea with its same beneficial effect without alteration.
 
@@ -59,37 +60,40 @@ I find the same consistency in the divine law he has established for mankind. In
 
 “And the Lord God said, It is not good that the man should be alone; I will make him an help meet for him.
 
-“And the Lord God caused a deep sleep to fall upon Adam and he slept: and he took one of his ribs, ...
+“And the Lord God caused a deep sleep to fall upon Adam and he slept: and he took one of his ribs, …
 
 “And the rib, which the Lord God had taken from man, made he a woman, and brought her unto the man.
 
 “And Adam said, This is now bone of my bones, and flesh of my flesh: she shall be called Woman, because she was taken out of Man.
 
-“Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh.” (Gen. 2:18, 21–24.)
+“Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh.” ([[Genesis 2.18|Gen. 2:18, 21–24]][[Genesis 2.21|]][[Genesis 2.22|]][[Genesis 2.23|]][[Genesis 2.24|]].)
 
 The union between husband and wife is sacred to the Lord, something not to be trifled with. The marriage covenant was essential to the Lord God to accomplish his mission and purposes for which he created the heavens and the earth.
 
-In all periods of time, he has declared his divine law is to safeguard and protect this holy union between husband and wife. When Moses found need for laws to govern the children of Israel, one of the pronouncements by the Lord to him was, “Thou shalt not commit adultery.” (Ex. 20:14.)
+In all periods of time, he has declared his divine law is to safeguard and protect this holy union between husband and wife. When Moses found need for laws to govern the children of Israel, one of the pronouncements by the Lord to him was, “Thou shalt not commit adultery.” ([[Exodus 20.14|Ex. 20:14]].)
 
 In another age when the only Begotten Son was on the earth, he reaffirmed with added emphasis this eternal law: “Ye have heard that it was said by them of old time, Thou shalt not commit adultery:
 
-“But I say unto you, That whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart.” (Matt. 5:27–28.)
+“But I say unto you, That whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart.” ([[Matthew 5.27|Matt. 5:27–28]][[Matthew 5.28|]].)
 
-The Lord in his dealings on the American continent, as contained in the Book of Mormon, declares again the same consistent teaching, “Thou shalt not commit adultery.” (Mosiah 13:22.)
+The Lord in his dealings on the American continent, as contained in the Book of Mormon, declares again the same consistent teaching, “Thou shalt not commit adultery.” ([[Mosiah 13.22|Mosiah 13:22]].)
 
-He has not left us without that same instruction in our modern scriptures. For again in this day he has declared, “Thou shalt not commit adultery; and he that committeth adultery, and repenteth not, shall be cast out.” (D&C 42:24.)
+He has not left us without that same instruction in our modern scriptures. For again in this day he has declared, “Thou shalt not commit adultery; and he that committeth adultery, and repenteth not, shall be cast out.” ([[D&C 42.24|D&C 42:24]].)
 
 There has not been and never will be contradiction in the divine laws of God. Scripture after scripture in all ages of time declare his divine message that does not change and cannot be changed by man.
 
-It is comforting to me that the early founders of this country had the same conviction of the powers of the Almighty. Thomas Paine said, “What is it we want to know? Does not the creation, the universe we behold, preach to us the existence of an Almighty power, that governs and regulates the whole? And is not the evidence that this creation holds out to our senses infinitely stronger than anything we can read in a book that any imposter might make or call the word of God? As for morality, the knowledge of it exists in every man’s conscience.” (In God We Trust, ed. Norman Cousins, New York, Harper and Brothers, 1958, p. 1.)
+It is comforting to me that the early founders of this country had the same conviction of the powers of the Almighty. Thomas Paine said, “What is it we want to know? Does not the creation, the universe we behold, preach to us the existence of an Almighty power, that governs and regulates the whole? And is not the evidence that this creation holds out to our senses infinitely stronger than anything we can read in a book that any imposter might make or call the word of God? As for morality, the knowledge of it exists in every man’s conscience.” (*In God We Trust,* ed. Norman Cousins, New York, Harper and Brothers, 1958, p. 1.)
 
 And so today, I sound the same words of warning as Paul the Apostle of old: “For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears;
 
-“And they shall turn away their ears from the truth, and shall be turned unto fables.” (2 Tim. 4:3–4.)
+“And they shall turn away their ears from the truth, and shall be turned unto fables.” ([[2 Timothy 4.3|2 Tim. 4:3–4]][[2 Timothy 4.4|]].)
 
 I leave you my witness that there is a consistency in the laws of God that will not change. When we conform our lives to his laws we will find a rewarding joy, a fulfillment, and a peace as we live here on earth. When we would pervert or change his laws or disregard them, we must stand the judgments of God, and as surely as that occurs, misery, sorrow, and heartache will be the result.
 
-Let us catch the spirit of the Psalmist who wrote, “The earth is the Lord’s, and the fulness thereof; the world, and they that dwell therein.” (Ps. 24:1.)
+Let us catch the spirit of the Psalmist who wrote, “The earth is the Lord’s, and the fulness thereof; the world, and they that dwell therein.” ([[Psalms 24.1|Ps. 24:1]].)
 
 May God grant that we may have the courage to stand up and be counted for that which we know to be right, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

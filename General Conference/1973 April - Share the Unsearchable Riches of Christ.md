@@ -1,5 +1,6 @@
 # Share the Unsearchable Riches of Christ
-*By Rex D. Pinegar - Of the Seventy*
+
+By President Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -9,7 +10,7 @@ My dear brothers and sisters: It is a great privilege to be here with you on thi
 
 The blessing of sharing the gospel message is overwhelming. I am often filled with the feelings I think Paul may have had when he wrote to the saints at Ephesus, regarding his call to serve the Lord:
 
-“Whereof I was made a minister, according to the gift of the grace of God given unto me ...
+“Whereof I was made a minister, according to the gift of the grace of God given unto me …
 
 “Unto me, who am less than the least of all saints, is this grace given, that I should preach among the Gentiles the unsearchable riches of Christ;
 
@@ -17,7 +18,7 @@ The blessing of sharing the gospel message is overwhelming. I am often filled wi
 
 “In whom we have boldness and access with confidence by the faith of him.
 
-“For this cause I bow my knees unto the Father of our Lord Jesus Christ.” (Eph. 3:7–8, 11–12, 14.)
+“For this cause I bow my knees unto the Father of our Lord Jesus Christ.” ([[Ephesians 3.7|Eph. 3:7–8, 11–12, 14]][[Ephesians 3.8|]][[Ephesians 3.11|]][[Ephesians 3.12|]][[Ephesians 3.14|]].)
 
 This same feeling of humble gratitude seems to fill the hearts of every member and missionary who becomes involved in sharing the gospel. As we see the peace and assurance that come to those who receive the gospel, we become more conscious of the great obligation and opportunity we have to share the restored gospel of Jesus Christ with our friends and neighbors, our brothers and sisters.
 
@@ -25,7 +26,7 @@ The Lord has spoken clearly regarding this sacred responsibility and the condemn
 
 “And this revelation unto you, and commandment, is in force from this very hour upon all the world, and the gospel is unto all who have not received it.
 
-“But, verily I say unto all those to whom the kingdom has been given—from you it must be preached unto them. ...” (D&C 84:75–76.)
+“But, verily I say unto all those to whom the kingdom has been given—from you it must be preached unto them. …” ([[D&C 84.75|D&C 84:75–76]][[D&C 84.76|]].)
 
 Joseph Smith has said that the greatest and most important duty we have is to teach others the gospel. He declared the same thing about doing the work for the dead. Each of these activities makes available to others the blessings of membership in the kingdom of God.
 
@@ -61,7 +62,7 @@ President Joseph Fielding Smith, in addressing the British area conference of th
 
 “We respect our Father’s other children of all sects, parties, and denominations, and have no desire except to see them receive the added light and knowledge that has come to us by revelation, and to become with us inheritors of the great blessings of the restoration of the gospel.
 
-“But we have the plan of salvation; we administer the gospel; and the gospel is the sole hope of the world, the one way that will bring peace on earth and right the wrongs that exist in all nations.” (“To the Saints in Great Britain,” Ensign, September 1971, pp. 3–4.)
+“But we have the plan of salvation; we administer the gospel; and the gospel is the sole hope of the world, the one way that will bring peace on earth and right the wrongs that exist in all nations.” (“To the Saints in Great Britain,” *Ensign,* September 1971, pp. 3–4.)
 
 Brothers and sisters, we have the charge to share “the unsearchable riches” of Christ with all of Heavenly Father’s children. We are blessed to have the promise of Ephraim to bring the blessings of the gospel to them. May we keep the commandment to “preach the gospel unto them” who have not yet received the kingdom, by working as one in the Lord’s great missionary effort.
 
@@ -77,7 +78,10 @@ We invite all men everywhere to join with us that we might receive the blessing 
 
 “Now unto him that is able to do exceeding abundantly above all that we ask or think, according to the power that worketh in us,
 
-“Unto him be glory in the church by Christ Jesus throughout all ages, world without end. ...” (Eph. 3:16–21.)
+“Unto him be glory in the church by Christ Jesus throughout all ages, world without end. …” ([[Ephesians 3.16|Eph. 3:16–21]][[Ephesians 3.17|]][[Ephesians 3.18|]][[Ephesians 3.19|]][[Ephesians 3.20|]][[Ephesians 3.21|]].)
 
-I solemnly declare my witness to you that Jesus is the Christ, that this is his church, and that President Harold B. Lee is his anointed prophet and seer today, in the name of Jesus Christ. Amen.
+I solemnly declare my witness to you that Jesus is the Christ, that this is his church, and that President Harold B. Lee is his anointed prophet and seer today, in the name of Jesus Christ. Amen.
+
+
+
 

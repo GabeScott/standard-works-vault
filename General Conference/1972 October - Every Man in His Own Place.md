@@ -1,5 +1,6 @@
 # Every Man in His Own Place
-*By Marion D. Hanks - Assistant to the Council of the Twelve*
+
+By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -9,17 +10,17 @@ For some time I have thought whimsically, as this occasion approached, of a coun
 
 I have always felt it to be a great honor to be permitted to express the convictions of my heart here, and I feel so today.
 
-Yesterday President Romney referred to the 27th chapter of 3 Nephi in recalling the Lord’s admonition to name his church in his name. Subsequently in that same marvelous chapter, Christ defined his gospel in some beautiful and to me eternally significant words: “Behold I have given unto you my gospel, and this is the gospel which I have given unto you—that I came into the world to do the will of my Father, because my Father sent me.”
+Yesterday President Romney referred to the 27th chapter of 3 Nephi in recalling the Lord’s admonition to name his church in his name. Subsequently in that same marvelous chapter, Christ defined his gospel in some beautiful and to me eternally significant words: “Behold I have given unto you my gospel, and this is the gospel which I have given unto you—that I came into the world to do the will of my Father, because my Father sent me.”
 
 It is my earnest conviction that we came here for the same reason. Christ expresses his understanding of the will of his Father and his own commission in the words which follow:
 
 “And my Father sent me that I might be lifted up upon the cross; and after that I had been lifted up upon the cross, that I might draw all men unto me, that as I have been lifted up by men even so should men be lifted up by the Father, to stand before me, to be judged of their works, whether they be good or whether they be evil—
 
-“And for this cause have I been lifted up. ...” (3 Ne. 27:13–15.)
+“And for this cause have I been lifted up. …” ([[3 Nephi 27.13|3 Ne. 27:13–15]][[3 Nephi 27.14|]][[3 Nephi 27.15|]].)
 
-And then the Master taught what we know to be the first principles and ordinances of the gospel, concluding as he had begun: “Verily, verily, I say unto you, this is my gospel.” Then he added: “Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am.” (3 Ne. 27:21, 27.)
+And then the Master taught what we know to be the first principles and ordinances of the gospel, concluding as he had begun: “Verily, verily, I say unto you, this is my gospel.” Then he added: “Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am.” ([[3 Nephi 27.21|3 Ne. 27:21, 27]][[3 Nephi 27.27|]].)
 
-Christ’s commission was clear, and it seems to me that through him our commission becomes clear, that we are so to live that through him and his love we may be lifted up by the Father to enjoy the consequences of our convictions and our decisions.
+Christ’s commission was clear, and it seems to me that through him *our* commission becomes clear, that we are so to live that through him and his love we may be lifted up by the Father to enjoy the consequences of our convictions and our decisions.
 
 We are here to love God and to keep his commandments, to live with an integrity that will merit our own self-respect and the respect of our loved ones and make us worthy for the companionship of the Spirit. We are here to love and serve our fellowmen, to reflect in our own lives daily our true convictions as to the priceless value of the individual child of God, to live with joy in a way worthy of the sons of God, to become the manner of men that he is.
 
@@ -33,7 +34,7 @@ That is how Christ feels, and so should we.
 
 We are all aware that many valuable souls are in jeopardy these days. Many sheep are wandering, many coins are being dropped, many young prodigals have left home and are wasting their inheritance. As we have been reminded this morning, in substantially every community across the earth there are those who are cynically trading in filth, mining gold from dirt. They press pornography and drugs and destructive behavior. They seek to beguile unstable souls, as the scriptures teach.
 
-“For when they speak great swelling words of vanity, they allure through the lusts of the flesh, through much wantonness, those that were clean escaped from them who live in error. While they promise them liberty, they themselves are the servants of corruption. ...” (2 Pet. 2:18–19.)
+“For when they speak great swelling words of vanity, they allure through the lusts of the flesh, through much wantonness, those that were clean escaped from them who live in error. While they promise them liberty, they themselves are the servants of corruption. …” ([[2 Peter 2.18|2 Pet. 2:18–19]][[2 Peter 2.19|]].)
 
 Some other adults are not wise or sensitive to the needs of the young, or are guilty of cowardice masquerading as enlightenment and liberalism, or are indifferent.
 
@@ -41,11 +42,11 @@ Unfortunately, too many young people surrender to the enticements and arguments,
 
 The marvel to me is how many choice young people see through the mists and choose a wiser way. Some of them do this even though they have not had the benefit of a good home and family and parents who care and try. Somehow they are wise enough to take a stand against the crowd or the current, even when the source of the pressure seems respectable and when those who should care seem not to care.
 
-There are so many great young people. One who comes to mind was a well-dressed, good-looking young man, sharp, well-spoken, and contemporary in every constructive way, but he was obviously deeply distressed as he rose to offer a greeting in behalf of the university student body of which he was president. His audience was made up of regents and trustees of institutions of higher education meeting in conference at his school. The group had listened to a series of speeches from educators, noting with approval the abandonment on college and university campuses of the doctrine of in loco parentis, a term that means, as you may know, “standing in the place of a parent.” The schools, the speakers said, no longer accept the responsibility of standing in the place of a parent to the students who attend them. Knowledge, intellect, reason—these are the goods with which these institutions deal; the private life of the individual is not their proper concern.
+There are so many great young people. One who comes to mind was a well-dressed, good-looking young man, sharp, well-spoken, and contemporary in every constructive way, but he was obviously deeply distressed as he rose to offer a greeting in behalf of the university student body of which he was president. His audience was made up of regents and trustees of institutions of higher education meeting in conference at his school. The group had listened to a series of speeches from educators, noting with approval the abandonment on college and university campuses of the doctrine of *in loco parentis,* a term that means, as you may know, “standing in the place of a parent.” The schools, the speakers said, no longer accept the responsibility of standing in the place of a parent to the students who attend them. Knowledge, intellect, reason—these are the goods with which these institutions deal; the private life of the individual is not their proper concern.
 
 The young student president said what many of us were thinking:
 
-“I’ve listened to your announcement of the abandonment of the principle of in loco parentis,” he said, “and feel there is something you should know. If in fact the school is no longer interested in or willing to fill that role—if it doesn’t care about us as persons, as good parents would care—then that leaves a great many of us with no parents at all anyplace.”
+“I’ve listened to your announcement of the abandonment of the principle of *in loco parentis,*” he said, “and feel there is something you should know. If in fact the school is no longer interested in or willing to fill that role—if it doesn’t care about us as persons, as good parents would care—then that leaves a great many of us with no parents at all anyplace.”
 
 No further explanation was made, and none was needed.
 
@@ -77,23 +78,22 @@ My spirit today is one of gratitude but not one of self-congratulation. How well
 
 How tragic it would be if such a beautiful spirit were lost because one of us, one of God’s stewards, fails in an assignment or relationship.
 
-Recently I recalled for a wonderful group of great young Latter-day Saints the thrilling story of Gideon of old, humble in the face of a seemingly insuperable challenge but called of God, who, through his resourcefulness and the strength of the Almighty, won a battle. His rallying cry is remembered: “The sword of the Lord, and of Gideon.” (Judg. 7:18.)
+Recently I recalled for a wonderful group of great young Latter-day Saints the thrilling story of Gideon of old, humble in the face of a seemingly insuperable challenge but called of God, who, through his resourcefulness and the strength of the Almighty, won a battle. His rallying cry is remembered: “The sword of the Lord, and of Gideon.” ([[Judges 7.18|Judg. 7:18]].)
 
-One other line from that marvelous story is so important that I call it to your attention: “they stood every man in his own place round about the camp. ...” (Judg. 7:21.) The battle was won.
+One other line from that marvelous story is so important that I call it to your attention: “they stood every man in his own place round about the camp. …” ([[Judges 7.21|Judg. 7:21]].) The battle was won.
 
-Asa, king of Judah, commissioned of God to the conflict, facing an enemy army of more than a million soldiers, gave us the key. He said, “... we rest on thee, and in thy name we go. ...” (2 Chr. 14:11.)
+Asa, king of Judah, commissioned of God to the conflict, facing an enemy army of more than a million soldiers, gave us the key. He said, “… we rest on thee, and in thy name we go. …” ([[2 Chronicles 14.11|2 Chr. 14:11]].)
 
 I thank God for the multitude of marvelous young people I know. I pray for them and invoke God’s Spirit to be with them, and as plainly as I know how, and as earnestly, invoke God’s Spirit to be upon us, the stewards. Let me repeat for the second time today that beautiful line from the hymn Brother Petersen used this morning:
 
-“The soul that on Jesus hath leaned for repose
-
-I will not, I cannot, desert to his foes;
-
-That soul, though all hell should endeavor to shake,
-
-I’ll never, no never, no never forsake!”
-
-—Hymns, no. 66
+>“The soul that on Jesus hath leaned for repose
+>I will not, I cannot, desert to his foes;
+>That soul, though all hell should endeavor to shake,
+>I’ll never, no never, no never forsake!”
+>
 
 God bless us, I pray in the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Live the Gospel
-*By Gordon B. Hinckley - Second Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -13,7 +14,7 @@ If our leaders could have spoken to us, I am confident they would have said, “
 
 One hundred years ago at the October 1884 conference, in this same Tabernacle, George Q. Cannon, Counselor in the First Presidency, standing where I now stand, said to those here assembled:
 
-“If I could speak so that the whole world would hear the utterance I would like to sound it in the ears of all mortal men—that there is no power that will ever be permitted to array itself, or to combine itself against this work of our God, to retard its onward progress from this time forward until the full consummation will be achieved—that is, if the Latter-day Saints themselves are faithful to God, if they will keep the commandments of God, if they will sanctify themselves and cleanse themselves from sin, and live pure and holy lives. If they will do this, then the success and the triumph and the continued growth and advancement of this kingdom ... are assured unto us as a people. There is no doubt of it. I say in the name of Jesus Christ, that it will be so.” (Journal of Discourses, 25:325.)
+“If I could speak so that the whole world would hear the utterance I would like to sound it in the ears of all mortal men—that there is no power that will ever be permitted to array itself, or to combine itself against this work of our God, to retard its onward progress from this time forward until the full consummation will be achieved—that is, if the Latter-day Saints themselves are faithful to God, if they will keep the commandments of God, if they will sanctify themselves and cleanse themselves from sin, and live pure and holy lives. If they will do this, then the success and the triumph and the continued growth and advancement of this kingdom … are assured unto us as a people. There is no doubt of it. I say in the name of Jesus Christ, that it will be so.” (*Journal of Discourses,* 25:325.)
 
 I appreciate what has been said by all who have spoken in this conference. I want to assure you, as I have assured you in the past, that there is unity in the leadership of the Church. There is not the slightest divisiveness among the General Authorities. There is a great sense of loyalty among them—loyalty to you, loyalty to one another, loyalty to this cause, loyalty to God and his Eternal Son.
 
@@ -42,4 +43,7 @@ I add my testimony to the many that have been borne in this conference. I know t
 Joseph Smith was and is a prophet. We have a prophet among us at this time. This is the Church of Jesus Christ, restored in this dispensation for the blessing of our Father’s children.
 
 I leave with you my love and blessing and that of each of my Brethren in the name of Jesus Christ, amen.
+
+
+
 

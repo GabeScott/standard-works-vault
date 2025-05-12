@@ -1,5 +1,6 @@
 # The Joy of Serving a Mission
-*By LeGrand Richards - Of the Council of the Twelve*
+
+By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -9,9 +10,9 @@ It’s a thrill, brethren, to stand here this evening and see this great audienc
 
 I think of when I was a young man, before I was even ordained a deacon, I went to one of our ward meetings in the little country town where I was raised, and two missionaries reported their missions down in the Southern States. In those days they traveled without purse or scrip, and they had to sleep out many nights when they couldn’t get entertainment. I don’t know whether they said anything unusual that night or not; but if they didn’t, the Lord did something unusual for me, because when I left that meeting, I felt like I could have walked to any mission field in the world, if I just had a call. And I went home, went into my little bedroom, and got down on my knees, and asked the Lord to help me to live worthy so that when I was old enough I could go on a mission. And when the train finally left the station here in Salt Lake and I was headed for the little land of Holland, the last thing I said to my loved ones was, “This is the happiest day of my life.”
 
-Before I left on that mission, President Anthon H. Lund, who was then a counselor in the First Presidency of the Church, talked to us missionaries, and he said, among other things, “The people will love you. Now,” he said, “don’t get lifted up in the pride of your hearts and think that they love you because you are better than other people. They will love you because of what you bring to them.” I did not understand that then, but before I left the little land of Holland, where I spent nearly three years, I knew what President Lund meant. I went around saying good-bye to the Saints and the converts who I had brought into the Church, and I shed a thousand tears, as compared to what I shed when I told my loved ones good-bye.
+Before I left on that mission, President Anthon H. Lund, who was then a counselor in the First Presidency of the Church, talked to us missionaries, and he said, among other things, “The people will love you. Now,” he said, “don’t get lifted up in the pride of your hearts and think that they love you because you are better than other people. They will love you because of what you bring to them.” I did not understand that then, but before I left the little land of Holland, where I spent nearly three years, I knew what President Lund meant. I went around saying good-bye to the Saints and the converts who I had brought into the Church, and I shed a thousand tears, as compared to what I shed when I told my loved ones good-bye.
 
-For instance, in Amsterdam I went into a home where I had been the first missionary there, and the little mother, looking up into my face with tears rolling down her cheeks, said, “Brother Richards, it was hard to see my daughter leave for Zion a few months ago, but it’s much harder to see you go.” I had been the first missionary in that home. Then I thought I could understand what President Lund meant when he said, “They will love you.”
+For instance, in Amsterdam I went into a home where I had been the first missionary there, and the little mother, looking up into my face with tears rolling down her cheeks, said, “Brother Richards, it was hard to see my daughter leave for Zion a few months ago, but it’s much harder to see *you* go.” I had been the first missionary in that home. Then I thought I could understand what President Lund meant when he said, “They will love you.”
 
 I went to tell a man with a little Dutch beard good-bye. He stood erect in the uniform of his country. He got down on his knees and took my hand in his and hugged it and kissed it and bathed it with his tears. And then I thought I could understand what President Lund meant when he said, “They will love you.”
 
@@ -29,7 +30,7 @@ I went over these ten families in my mind the other day, thinking of the words o
 
 “But lay up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal:
 
-“For where your treasure is, there will your heart be also.” (Matt. 6:19–21.)
+“For where your treasure is, there will your heart be also.” ([[Matthew 6.19|Matt. 6:19–21]][[Matthew 6.20|]][[Matthew 6.21|]].)
 
 What do you suppose I could have done during those few years of my young manhood that would lay away treasures in heaven like the years I spent over there among those Dutch people? Some of them have already passed on, and I love them almost like my own family. I look forward to being able to meet them again when my time comes to join that innumerable group.
 
@@ -39,7 +40,10 @@ Now I have labored so much with the missionaries. I have been on four missions, 
 
 I had a young missionary come in to visit with me as he returned from the Argentine. I knew his people back in Washington, and he had been kept over to help train some of the other missionaries, until he had been away from home for three years. And I said, “Craig, do you feel like it was a waste of time to be in the mission field, that you ought to have been home getting your education and getting ready to settle down?” He said, “Now listen, bishop, if the Brethren want to make me happy, just let them load me on the plane in the morning and let them send me back to the Argentine.” You can’t put that kind of feeling in the hearts of young people with money. The Lord who creates the feelings of the human breast is the only one who can put that kind of faith into the hearts of his people.
 
-Brethren, after all the missionary service I have had, I wouldn’t want to raise a boy and not have him go on a mission, for his good and because I think we owe it to the world to share with them the truths of the gospel. And one way to make sure that your boys will go on missions is to start a missionary fund for them and let them keep adding to it, and they will be on their missions from the time that they are young boys. For instance, down in California I went to a ward, and the bishop has a program of giving to each boy when he’s ordained a deacon fifteen dollars out of the missionary fund. Then they ask the father to match it, and then every time the boy is interviewed—for instance, when he’s ordained a teacher—they check on his missionary fund. I figured, on a percentage basis, if every ward in the Church had as many missionaries in the field as that ward, we would have 55,500 missionaries. So I provided in my family that every male child who has not been on a mission has a missionary fund so he will know that he is on his mission from the time he is a boy.
+Brethren, after all the missionary service I have had, I wouldn’t want to raise a boy and not have him go on a mission, for *his* good and because I think we owe it to the world to share with them the truths of the gospel. And one way to make sure that your boys will go on missions is to start a missionary fund for them and let them keep adding to it, and they will be on their missions from the time that they are young boys. For instance, down in California I went to a ward, and the bishop has a program of giving to each boy when he’s ordained a deacon fifteen dollars out of the missionary fund. Then they ask the father to match it, and then every time the boy is interviewed—for instance, when he’s ordained a teacher—they check on his missionary fund. I figured, on a percentage basis, if every ward in the Church had as many missionaries in the field as that ward, we would have 55,500 missionaries. So I provided in my family that every male child who has not been on a mission has a missionary fund so he will know that he is on his mission from the time he is a boy.
 
 God bless you all, and may we not disappoint our great leader in sending all of our boys on missions, I pray, and I leave you my blessing, in the name of the Lord Jesus Christ. Amen.
+
+
+
 

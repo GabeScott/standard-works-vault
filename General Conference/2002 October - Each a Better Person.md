@@ -1,7 +1,10 @@
 # Each a Better Person
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2002 General Conference*
+
+>*There is room for improvement in every life. … Regardless of our circumstances, we can improve ourselves and while so doing have an effect on the lives of those about us.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2002/10/each-a-better-person?lang=eng)
 
@@ -17,7 +20,7 @@ I believe with all my heart that the Latter-day Saints, generally speaking, are 
 
 There is room for improvement in every life. Regardless of our occupations, regardless of our circumstances, we can improve ourselves and while so doing have an effect on the lives of those about us.
 
-We do not need to wear our religion on our sleeves. We certainly do not need to be boastful about it or to be arrogant in any way. Such becomes a negation of the Spirit of the Christ whom we ought to try to emulate. That Spirit finds expression in the heart and the soul, in the quiet and unboastful manner of our lives.
+We do not need to wear our religion on our sleeves. We certainly do not need to be boastful about it or to be arrogant in any way. Such becomes a negation of the Spirit of the Christ, whom we ought to try to emulate. That Spirit finds expression in the heart and the soul, in the quiet and unboastful manner of our lives.
 
 All of us have seen those we almost envy because they have cultivated a manner that, without even mentioning it, speaks of the beauty of the gospel they have incorporated in their behavior.
 
@@ -34,4 +37,7 @@ My brothers and sisters, we must work at our responsibility as parents as if eve
 If we fail in our homes, we fail in our lives. No man is truly successful who has failed in his home. I ask you men, particularly, to pause and take stock of yourselves as husbands and fathers and heads of households. Pray for guidance, for help, for direction, and then follow the whisperings of the Spirit to guide you in the most serious of all responsibilities, for the consequences of your leadership in your home will be eternal and everlasting.
 
 God bless you, my beloved associates. May a spirit of peace and love attend you wherever you may be. May there be harmony in your lives. As I’ve said to our youth in many areas, be smart, be clean, be true, be grateful, be humble, be prayerful. May you kneel in prayer before the Almighty with thanksgiving unto Him for His bounteous blessings. May you then stand on your feet and go forward as sons and daughters of God to bring to pass His eternal purposes, each in your own way, is my humble prayer as I leave my love and blessing with you, in the sacred name of the Lord Jesus Christ, amen.
+
+
+
 

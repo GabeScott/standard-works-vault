@@ -1,5 +1,6 @@
 # The Royal Law of Love
-*By Marion G. Romney - Second Counselor in the First Presidency*
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -9,19 +10,19 @@ Brothers and sisters, with you I have enjoyed this meeting very much. I don’t 
 
 I have prepared a speech too long to give in the time available. I believe, however, you can get along without it if you will do what you have been counseled to do here today. Our time here this morning has been well spent.
 
-The subject of the talk I have prepared is “The Royal Law.” Defining it, the apostle James said, “If ye fulfil the royal law according to the scripture, Thou shalt love thy neighbour as thyself, ye do well.” (James 2:8.) We must have this law in mind in all that we do in our welfare work. We must love our neighbors as ourselves. The Savior put this law second only to the love of God when He said:
+The subject of the talk I have prepared is “The Royal Law.” Defining it, the apostle James said, “If ye fulfil the royal law according to the scripture, Thou shalt love thy neighbour as thyself, ye do well.” ([[James 2.8|James 2:8]].) We must have this law in mind in all that we do in our welfare work. We must love our neighbors as ourselves. The Savior put this law second only to the love of God when He said:
 
 “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.
 
-“And the second is like unto it, Thou shalt love thy neighbour as thyself.” (Matt. 22:37, 39.)
+“And the second is like unto it, Thou shalt love thy neighbour as thyself.” ([[Matthew 22.37|Matt. 22:37, 39]][[Matthew 22.39|]].)
 
 In the payment of our fast offerings, we must do so with the royal law in mind. You remember that Isaiah speaks of the people who came to the Lord and said:
 
-“Wherefore have we fasted, ... and thou seest not?”
+“Wherefore have we fasted, … and thou seest not?”
 
-Because, came the answer, you do not keep the fast which I commanded. True, you bow down your heads as a bulrush and spread sackcloth and ashes under your feet, but you do not deal your bread to the hungry, nor provide housing for the poor, nor do you cover the naked. When you do these things, “then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am.” (See Isa. 58:3–9.)
+Because, came the answer, you do not keep the fast which I commanded. True, you bow down your heads as a bulrush and spread sackcloth and ashes under your feet, but you do not deal your bread to the hungry, nor provide housing for the poor, nor do you cover the naked. When you do these things, “then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am.” (See [[Isaiah 58.3|Isa. 58:3–9]][[Isaiah 58.4|]][[Isaiah 58.5|]][[Isaiah 58.6|]][[Isaiah 58.7|]][[Isaiah 58.8|]][[Isaiah 58.9|]].)
 
-The caring for the poor and the handicapped and those who need our help is a main purpose and an absolute requirement in fulfilling the royal law of loving our neighbors as ourselves. You will remember the great sermon of Amulek on prayer, in which he tells the people to pray and tells them how often to pray—morning, night, and noon—and tells them where to pray and how to pray and what to pray for. He goes into great detail and then he says that “after ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.” (See Alma 34:17–38.)
+The caring for the poor and the handicapped and those who need our help is a main purpose and an absolute requirement in fulfilling the royal law of loving our neighbors as ourselves. You will remember the great sermon of Amulek on prayer, in which he tells the people to pray and tells them how often to pray—morning, night, and noon—and tells them where to pray and how to pray and what to pray for. He goes into great detail and then he says that “after ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.” (See [[Alma 34.17|Alma 34:17–38]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]][[Alma 34.28|]][[Alma 34.29|]][[Alma 34.30|]][[Alma 34.31|]][[Alma 34.32|]][[Alma 34.33|]][[Alma 34.34|]][[Alma 34.35|]][[Alma 34.36|]][[Alma 34.37|]][[Alma 34.38|]].)
 
 I believe we are coming to under stand the royal law, “Thou shalt love thy neighbour as thyself.” You will remember that Jesus, just before the close of His ministry, speaking to His apostles, said:
 
@@ -43,9 +44,12 @@ I believe we are coming to under stand the royal law, “Thou shalt love thy nei
 
 “Or when saw we thee sick, or in prison, and came unto thee?
 
-“And the King shall answer and say unto them, Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” (Matt. 25:31–40.)
+“And the King shall answer and say unto them, Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.31|Matt. 25:31–40]][[Matthew 25.32|]][[Matthew 25.33|]][[Matthew 25.34|]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]].)
 
-I know this gospel is true. I have no doubt about that at all. I never remember a time when I questioned a principle of the gospel. I know that the welfare program that was outlined in the 1930s was inspired of the Lord. He gave President Grant the inspiration and gave him help through his great counselor, J. Reuben Clark, Jr., and others, to set up the program. It is our duty now to follow it and take care of His kingdom in the spirit of loving our neighbors as ourselves.
+I know this gospel is true. I have no doubt about that at all. I never remember a time when I questioned a principle of the gospel. I know that the welfare program that was outlined in the 1930s was inspired of the Lord. He gave President Grant the inspiration and gave him help through his great counselor, J. Reuben Clark, Jr., and others, to set up the program. It is our duty now to follow it and take care of His kingdom in the spirit of loving our neighbors as ourselves.
 
 If we do so, we shall be able to meet the trying days ahead, which are coming faster than we think. The peoples of the earth will be in such trouble and distress that they will be unable to solve their problems in any other way than to turn to the Lord’s program. I bear you this testimony in the name of Jesus Christ. Amen.
+
+
+
 

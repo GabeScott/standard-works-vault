@@ -1,5 +1,6 @@
 # The Scourge of Illicit Drugs
-*By Gordon B. Hinckley - First Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
 
@@ -13,7 +14,7 @@ The first is an expression of appreciation to my Brethren of the Seventy who wer
 
 To those who are released or who receive emeritus status, may I express appreciation in behalf of the entire Church. Without exception, you have done a magnificent work. When you were called, you consecrated yourselves to this work. You have gone wherever you have been asked to go and never complained. You have put in long and wearisome days. You have dealt with very serious problems. You have been absolutely loyal to the Church and its membership. You have served at times at the peril of your own health. You have gone when human wisdom would have dictated that you stay home. You have sacrificed private means in giving your full time to the work.
 
-You have exercised apostolic power in carrying the gospel to the nations of the earth. You have exercised the divine sealing power in the temples of the Lord. You have spoken from scores and scores of pulpits with power and conviction, with great persuasiveness to your listeners, and with deep sincerity welling up from the strong and sure testimonies which you carry in your hearts. Your wives have been a part of all of this. They, too, have made sacrifices. In many instances, they have remained at home while their husbands have been off traveling in the ministry. They have known much of loneliness and even anxiety. To them, we express our deep and sincere gratitude. We sincerely thank each of you.
+You have exercised apostolic power in carrying the gospel to the nations of the earth. You have exercised the divine sealing power in the temples of the Lord. You have spoken from scores and scores of pulpits with power and conviction, with great persuasiveness to your listeners, and with deep sincerity welling up from the strong and sure testimonies which you carry in your hearts. Your wives have been a part of all of this. They, too, have made sacrifices. In many instances, they have remained at home while their husbands have been off traveling in the ministry. They have known much of loneliness and even anxiety. To them we express our deep and sincere gratitude. We sincerely thank each of you.
 
 While these Brethren are being released from Churchwide service, they still have much to offer. They are men of demonstrated judgment and wisdom. They know the gospel. They know how to speak about it. They know how to teach it. They know how to live it. They are not ready to lie down and die. They have so much of value in them that they can still make tremendous contributions. While some have physical limitations which would make it inadvisable to call them to certain duties, others are not so limited except by factors of age, which eventually slow us all. You presidents of stakes and bishops of wards should speak with them and find out their desires and be guided thereby.
 
@@ -27,13 +28,13 @@ Now, I should like to say a few words on another subject. It is a matter much in
 
 I received a letter the other day from a government official who for years has been involved in the fight against illegal drugs. He says: “I know from firsthand knowledge what a scourge illicit narcotics are to this country and others. The drain on the human and monetary resources of the world being caused by this dilemma is inestimable and threatens the very foundations of freedom. I have watched as families dissolved, morals collapsed, and lives were lost, both directly and indirectly due to the effect of drugs.”
 
-I am confident this man knows whereof he speaks. He pleads for help, for public support, for Church support against this terrible scourge that is destroying so many. The Wall Street Journal a few days ago carried the results of a national poll which indicated that “three out of four Americans have been touched personally by drugs. Half have personally used drugs or have a family member who has. A remarkable 43% say that drugs are the nation’s single most important issue.”
+I am confident this man knows whereof he speaks. He pleads for help, for public support, for Church support against this terrible scourge that is destroying so many. The *Wall Street Journal* a few days ago carried the results of a national poll which indicated that “three out of four Americans have been touched personally by drugs. Half have personally used drugs or have a family member who has. A remarkable 43% say that drugs are the nation’s single most important issue.”
 
 The article goes on to say: “A surprisingly high 70% of the voters surveyed believe at least half of the crimes committed in their neighborhoods are drug related. Also, 70% of those with children between the ages of 13 and 17 say that drugs are sold in their children’s schools.”
 
 As most of you are aware, the president of the United States has described the drug problem as the gravest domestic threat facing our nation. He has launched a battle against illicit drugs, with some eight billion dollars to be spent on strengthening police forces, building more prisons, and implementing other measures. Notwithstanding this, “those responding to the poll were deeply skeptical that the battle can be won: Only a third believe a federal program would do a ‘great deal’ or ‘quite a bit’ to correct the drug problem.”
 
-A woman respondent said, “No amount of money is going to stop it. It has to be a change within the hearts and minds of people. Young people have to think: ‘I have just one body, and I’m going to need it all my life.’” (Wall Street Journal, 22 Sept. 1989, pp. 1–2.)
+A woman respondent said, “No amount of money is going to stop it. It has to be a change within the hearts and minds of people. Young people have to think: ‘I have just one body, and I’m going to need it all my life.’” (Michael McQueen and David Shribman, “Battle against Drugs Is Chief Issue Facing Nation, Americans Say,” *Wall Street Journal,* 22 Sept. 1989, sec. A, pp. 1, 14.)
 
 I am inclined to agree with this woman. Stiffer enforcement measures may be necessary. But I believe that, only when far greater numbers of people conclude within their hearts and minds that the fruits of drug-taking are only sorrow and trouble, remorse, and even death, then will things change to any significant degree.
 
@@ -45,9 +46,9 @@ Some have even used as an alibi the fact that drugs are not mentioned in the Wor
 
 Regardless of the Word of Wisdom, there is a divinely given reason for avoiding these illegal substances.
 
-I am convinced that their use is an affront to God. He is our Creator. We are made in His image. These remarkable and wonderful bodies are His handiwork. Does anyone think that he can deliberately injure and impair his body without affronting its Creator? We are told again and again that the body is the tabernacle of the spirit. We are told that it is a temple, holy to the Lord. In a time of terrible conflict between the Nephites and the Lamanites, we are told that the Nephites, who had been strong, became “weak, like unto their brethren, the Lamanites, and that the Spirit of the Lord did no more preserve them; yea, it had withdrawn from them because the Spirit of the Lord doth not dwell in unholy temples.” (Hel. 4:24.)
+I am convinced that their use is an affront to God. He is our Creator. We are made in His image. These remarkable and wonderful bodies are His handiwork. Does anyone think that he can deliberately injure and impair his body without affronting its Creator? We are told again and again that the body is the tabernacle of the spirit. We are told that it is a temple, holy to the Lord. In a time of terrible conflict between the Nephites and the Lamanites, we are told that the Nephites, who had been strong, became “weak, like unto their brethren, the Lamanites, and that the Spirit of the Lord did no more preserve them; yea, it had withdrawn from them because the Spirit of the Lord doth not dwell in unholy temples.” ([[Helaman 4.24|Hel. 4:24]].)
 
-Alma taught the people of Zarahemla: The Lord “doth not dwell in unholy temples; neither can filthiness or anything which is unclean be received into the kingdom of God.” (Alma 7:21.)
+Alma taught the people of Zarahemla: The Lord “doth not dwell in unholy temples; neither can filthiness or anything which is unclean be received into the kingdom of God.” ([[Alma 7.21|Alma 7:21]].)
 
 Can anyone doubt that the taking of these mind- and body-destroying drugs is an act of unholiness? Does anyone think that the Spirit of God can dwell in the temple of the body when that body is defiled by these destructive elements? If there be a young man anywhere who is listening tonight, who is tampering with these things, let him resolve forthwith, and with the strongest determination of which he is capable, that he will never touch them again.
 
@@ -77,9 +78,12 @@ Although I recognize that drugs are not mentioned specifically in the Word of Wi
 
 “And shall run and not be weary, and shall walk and not faint.
 
-“And I, the Lord, give unto them a promise, that the destroying angel shall pass by them, as the children of Israel, and not slay them.” (D&C 89:18–21.)
+“And I, the Lord, give unto them a promise, that the destroying angel shall pass by them, as the children of Israel, and not slay them.” ([[D&C 89.18|D&C 89:18–21]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]].)
 
 Let no member of this church, be he man or boy, girl or woman, fall prey to this frightful scourge. Some things are right; some are wrong. You know this as well as do I. God grant you the strength to stand free from this enslavement and from the personal holocaust of destruction which inevitably follows.
 
 God bless you to this end I humbly pray, as one who loves you, in the name of Jesus Christ, amen.
+
+
+
 

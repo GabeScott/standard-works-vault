@@ -1,35 +1,38 @@
 # The Lord Jesus Christ Teaches Us to Minister
-*By Juan A. Uceda - Of the Seventy*
+
+By Elder Juan A. Uceda - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
+
+>*With our Savior’s help, we can love His precious sheep and minister to them as He would.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/04/34uceda?lang=eng)
 
 The Lord Jesus Christ said:
 
-“I am the good shepherd: the good shepherd giveth his life for the sheep. ...
+“I am the good shepherd: the good shepherd giveth his life for the sheep. …
 
-“As the Father knoweth me, even so know I the Father: and I lay down my life for the sheep.”1
+“As the Father knoweth me, even so know I the Father: and I lay down my life for the sheep.”[^1]
 
-In the Greek version of this scripture, the word for good also means “beautiful, magnificent.” So today, I wish to speak of the Good Shepherd, the Beautiful Shepherd, the Magnificent Shepherd, even Jesus Christ.
+In the Greek version of this scripture, the word for *good* also means “beautiful, magnificent.” So today, I wish to speak of the Good Shepherd, the Beautiful Shepherd, the Magnificent Shepherd, even Jesus Christ.
 
-In the New Testament, He is called the “great shepherd,”2 the “chief Shepherd,”3 and “the Shepherd and Bishop of [our] souls.”4
+In the New Testament, He is called the “great shepherd,”[^2] the “chief Shepherd,”[^3] and “the Shepherd and Bishop of \[our\] souls.”[^4]
 
-In the Old Testament, Isaiah wrote that “he shall feed his flock like a shepherd.”5
+In the Old Testament, Isaiah wrote that “he shall feed his flock like a shepherd.”[^5]
 
-In the Book of Mormon, He is called “the good shepherd”6 and the “great and true shepherd.”7
+In the Book of Mormon, He is called “the good shepherd”[^6] and the “great and true shepherd.”[^7]
 
-In the Doctrine and Covenants, He declares, “Wherefore, I am in your midst, and I am the good shepherd.”8
+In the Doctrine and Covenants, He declares, “Wherefore, I am in your midst, and I am the good shepherd.”[^8]
 
-In our day, President Russell M. Nelson has declared: “The Good Shepherd lovingly cares for all sheep of His fold, and we are His true undershepherds. Our privilege is to bear His love and to add our own love to friends and neighbors—feeding, tending, and nurturing them—as the Savior would have us do.”9
+In our day, President Russell M. Nelson has declared: “The Good Shepherd lovingly cares for all sheep of His fold, and we are His true undershepherds. Our privilege is to bear His love and to add our own love to friends and neighbors—feeding, tending, and nurturing them—as the Savior would have us do.”[^9]
 
-More recently, President Nelson has said: “A hallmark of the Lord’s true and living Church will always be an organized, directed effort to minister to individual children of God and their families. Because it is His Church, we as His servants will minister to the one, just as He did. We will minister in His name, with His power and authority, and with His loving-kindness.”10
+More recently, President Nelson has said: “A hallmark of the Lord’s true and living Church will always be an organized, directed effort to minister to individual children of God and their families. Because it is His Church, we as His servants will minister to the one, just as He did. We will minister in His name, with His power and authority, and with His loving-kindness.”[^10]
 
-When the Pharisees and scribes murmured against the Lord, “saying, This man receiveth sinners, and eateth with them,”11 He responded by presenting three beautiful stories that we have come to know as the parable of the lost sheep, the parable of the lost coin, and the parable of the prodigal son.
+When the Pharisees and scribes murmured against the Lord, “saying, This man receiveth sinners, and eateth with them,”[^11] He responded by presenting three beautiful stories that we have come to know as the parable of the lost sheep, the parable of the lost coin, and the parable of the prodigal son.
 
-It is interesting to note that when Luke, the Gospel writer, is introducing the three stories, he uses the word parable in the singular, not in the plural.12 It appears that the Lord is teaching one unique lesson with three stories—stories that present different numbers: 100 sheep, 10 coins, and 2 sons.
+It is interesting to note that when Luke, the Gospel writer, is introducing the three stories, he uses the word *parable* in the singular, not in the plural.[^12] It appears that the Lord is teaching one unique lesson with three stories—stories that present different numbers: 100 sheep, 10 coins, and 2 sons.
 
-The key number in each of these stories, however, is the number one. And a lesson we might take from that number is that you might be an undershepherd for 100 elders and prospective elders in your elders quorum or an adviser to 10 young women or a teacher to 2 Primary children, but you always, always minister to them, care for them, and love them one by one, individually. You never say, “What a foolish sheep” or “After all, I do not really need that coin” or “What a rebellious son he is.” If you and I have with us “the pure love of Christ,”13 we, as the man in the story of the lost sheep, will “leave the ninety and nine ... and go after that which is lost, until [... until ... until we] find it.”14 Or, as the woman in the story of the lost coin, we will “light a candle, and sweep the house, and seek diligently [... diligently] till [... till ... till we] find it.”15 If we have with us “the pure love of Christ,” we will follow the example of the father in the story of the prodigal son, who, when the son “was yet a great way off, ... saw him, and had compassion, and ran, and fell on his neck, and kissed him.”16
+The key number in each of these stories, however, is the number *one*. And a lesson we might take from that number is that you might be an undershepherd for 100 elders and prospective elders in your elders quorum or an adviser to 10 young women or a teacher to 2 Primary children, but you always, always minister to them, care for them, and love them one by one, individually. You never say, “What a foolish sheep” or “After all, I do not really need that coin” or “What a rebellious son he is.” If you and I have with us “the pure love of Christ,”[^13] we, as the man in the story of the lost sheep, will “leave the ninety and nine … and go after that which is lost, until \[… until … until we\] find it.”[^14] Or, as the woman in the story of the lost coin, we will “light a candle, and sweep the house, and seek diligently \[… diligently\] till \[… till … till we\] find it.”[^15] If we have with us “the pure love of Christ,” we will follow the example of the father in the story of the prodigal son, who, when the son “was yet a great way off, … saw him, and had compassion, and ran, and fell on his neck, and kissed him.”[^16]
 
 Can we feel the urgency in the heart of the man who lost only one sheep? Or the urgency in the heart of the woman who lost just one coin? Or the ineffable love and compassion in the heart of the prodigal’s father?
 
@@ -48,4 +51,39 @@ The day I met him, I invited him to share with me some of his experiences visiti
 Suddenly, I heard myself saying, “Brother Florian, as a servant of the Lord, I apologize for our not being there for you. Please, forgive us. Give us another chance to show you that we do love you. That we need you. That you are important to us.”
 
 The following Sunday he was back. He had a long conversation with his bishop and remained active. A few months later he passed away—but he had come back. He had come back. I testify that with our Savior’s help, we can love His precious sheep and minister to them as He would. And so, there in Guatemala City the Lord Jesus Christ brought back one more precious sheep into His fold. And He taught me a lesson on ministering that I cannot forget. In the name of the Good Shepherd, the Beautiful Shepherd, the Magnificent Shepherd, even the Lord Jesus Christ, amen.
+
+
+
+
+[^1]: [[John 10.11|John 10:11, 15]][[John 10.15|]].
+
+[^2]: [[Hebrews 13.20|Hebrews 13:20]].
+
+[^3]: [[1 Peter 5.4|1 Peter 5:4]].
+
+[^4]: [[1 Peter 2.25|1 Peter 2:25]].
+
+[^5]: [[Isaiah 40.11|Isaiah 40:11]].
+
+[^6]: [[Alma 5.38|Alma 5:38, 60]][[Alma 5.60|]].
+
+[^7]: [[Helaman 15.13|Helaman 15:13]].
+
+[^8]: [[D&C 50.44|Doctrine and Covenants 50:44]].
+
+[^9]: Russell M. Nelson, “[Shepherds, Lambs, and Home Teachers](https://churchofjesuschrist.org/study/ensign/1994/08/shepherds-lambs-and-home-teachers?lang=eng&id=p110#p110),” *Ensign*, Aug. 1994, 19.
+
+[^10]: Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona*, May 2018, 69.
+
+[^11]: [[Luke 15.2|Luke 15:2]].
+
+[^12]: See [[Luke 15.3|Luke 15:3]].
+
+[^13]: [[Moroni 7.47|Moroni 7:47]].
+
+[^14]: [[Luke 15.4|Luke 15:4]].
+
+[^15]: [[Luke 15.8|Luke 15:8]].
+
+[^16]: [[Luke 15.20|Luke 15:20]].
 

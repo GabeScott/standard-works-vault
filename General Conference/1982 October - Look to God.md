@@ -1,5 +1,6 @@
 # Look to God
-*By Rex C. Reeve - Of the First Quorum of the Seventy*
+
+By Elder Rex C. Reeve - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -7,7 +8,7 @@
 
 As fearful as the daily news headlines are and even though there are violence and ominous uncertainty continually on almost every hand, there is no problem, national or personal, which could not be solved, and solved easily, if men and nations would turn their hearts and lives to God. It would be so simple.
 
-He is our father, the actual father of our spirits. He is the father of all men. We are His children. He knows us; He loves us. He may not like all we do, but of one thing we can be sure—He loves His children. Yes, He is a loving Heavenly Father. And He is there.
+He is our father, the actual father of our spirits. He is the father of all men. We are His children. He knows us; He loves us. He may not like all we do, but of one thing we can be sure—He loves His children. Yes, He is a loving Heavenly Father. And He *is* there.
 
 How comforting and reassuring it is each day as we behold the wonders of the universe and this beautiful world on which we live. We can see His hand in the matchless order with which the heavenly bodies move and the delicate beauty of the flowers and trees and other growing things, all of them bearing silent witness of His existence.
 
@@ -19,21 +20,21 @@ As He communed with our father Abraham He told him of the purpose of sending us 
 
 “We will go down, for there is space there, and we will take of these materials, and we will make an earth whereon these may dwell;
 
-“And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them.” (Abr. 3:24–25.)
+“And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them.” ([[Abraham 3.24|Abr. 3:24–25]][[Abraham 3.25|]].)
 
 Yes, this life is a time of testing. It is not the reward time. That will come later. We are here being tested. The test is going on now!
 
-He wants us to know how we feel in our heart. He has said, “For as [a man] thinketh in his heart, so is he.” (Prov. 23:7.)
+He wants us to know how we feel in our heart. He has said, “For as \[a man\] thinketh in his heart, so is he.” ([[Proverbs 23.7|Prov. 23:7]].)
 
-“They draw near to me with their lips, but their hearts are far from me.” (JS—H 1:19.)
+“They draw near to me with their lips, but their hearts are far from me.” ([[Joseph Smith History 1.19|JS—H 1:19]].)
 
-When our hearts are not right, the Lord withholds His spirit. “They sought evil in their hearts, and I, the Lord, withheld my Spirit.” (D&C 64:16.)
+When our hearts are not right, the Lord withholds His spirit. “They sought evil in their hearts, and I, the Lord, withheld my Spirit.” ([[D&C 64.16|D&C 64:16]].)
 
-He “granteth unto men” according to the desire of their heart. (See Alma 29:4.)
+He “granteth unto men” according to the desire of their heart. (See [[Alma 29.4|Alma 29:4]].)
 
-“O ye that embark in the service of God, see that ye serve him with all your heart ... that ye may stand blameless before God at the last day.” (D&C 4:2.)
+“O ye that embark in the service of God, see that ye serve him with all your heart … that ye may stand blameless before God at the last day.” ([[D&C 4.2|D&C 4:2]].)
 
-Of offerings, the Lord has said, “Speak unto the children of Israel, that they may bring me an offering: of every man that giveth it willingly with his heart ye shall take my offering.” (Ex. 25:2.)
+Of offerings, the Lord has said, “Speak unto the children of Israel, that they may bring me an offering: of every man that giveth it willingly with his heart ye shall take my offering.” ([[Exodus 25.2|Ex. 25:2]].)
 
 There was no concern as to the gift itself, but only that he give “it willingly with his heart.”
 
@@ -53,15 +54,15 @@ If men and nations did reach up to God with all their hearts, the Sabbath day wo
 
 Yes, worship is really of the heart.
 
-“But if from thence thou shalt seek the Lord thy God, thou shalt find him, if thou seek him with all thy heart and all thy soul.” (Deut. 4:29.)
+“But if from thence thou shalt seek the Lord thy God, thou shalt find him, if thou seek him with all thy heart and all thy soul.” ([[Deuteronomy 4.29|Deut. 4:29]].)
 
 This question was asked of Jesus: “Master, which is the great commandment in the law?
 
-“Jesus said unto him, Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.” (Matt. 22:36–37.)
+“Jesus said unto him, Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.” ([[Matthew 22.36|Matt. 22:36–37]][[Matthew 22.37|]].)
 
 We need to grow in respect and reverence and love of God, the Father, and His Son, Jesus Christ. This can come as we desire and seek. It will not come automatically, but we as individuals, free to choose, must desire and seek and pray and ask. It must grow from the deep feelings in our hearts.
 
-The Lord has said, “For where your treasure is, there will your heart be also.” (Matt. 6:21.)
+The Lord has said, “For where your treasure is, there will your heart be also.” ([[Matthew 6.21|Matt. 6:21]].)
 
 To you wonderful young men of the Church, turn your hearts to the Lord, put Him first in your lives. The finest thing each of you can do for the Lord and for yourself and your family is to prepare yourself to serve as a missionary, to carry His gospel to the people who haven’t yet heard it.
 
@@ -94,4 +95,7 @@ We should look to God; put Him first in our lives and especially in our hearts.
 I testify that He does live! He is our Father! He loves His children! I also testify that Jesus is the Christ, and that He will be as close to us as we will let Him be by how we live and feel in our hearts.
 
 In the name of Jesus Christ, amen.
+
+
+
 

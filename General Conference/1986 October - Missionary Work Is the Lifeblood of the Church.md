@@ -1,5 +1,6 @@
 # Missionary Work Is the Lifeblood of the Church
-*By H. Verlan Andersen - Of the First Quorum of the Seventy*
+
+By Elder H. Verlan Andersen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
 
@@ -13,11 +14,11 @@ The history of the Lamanites just prior to the Lord’s first appearance on this
 
 There is an aspect of missionary work upon which I would like to comment briefly, and that is the joy which comes to those who engage in it.
 
-The Book of Mormon sums up the whole purpose of existence in this short sentence: “Men are, that they might have joy” (2 Ne. 2:25).
+The Book of Mormon sums up the whole purpose of existence in this short sentence: “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]).
 
 If joy is the supreme goal of life, then everyone should be intensely interested in how it may be obtained. We should be equally concerned about how we may avoid its opposite, misery. These vital topics are discussed and illustrated in the Book of Mormon, and the information concerning them is directly related to missionary work. The book tells us that those who completely devote their lives to the task of spreading the gospel experience exquisite joy, while those who oppose it and seek to promulgate falsehood suffer a misery equally intense.
 
-The gospel, and the opportunity to share its message, have not always been on the earth. But when the gospel is here, we should value it highly. The Lord has given us his promise that if we labor all of our days and bring save it be one soul to him, how great shall be our joy with him in the kingdom of our Father (see D&C 18:15).
+The gospel, and the opportunity to share its message, have not always been on the earth. But when the gospel is here, we should value it highly. The Lord has given us his promise that if we labor all of our days and bring save it be one soul to him, how great shall be our joy with him in the kingdom of our Father (see [[D&C 18.15|D&C 18:15]]).
 
 A number of years ago, the late President Spencer W. Kimball, who was then a member of the Quorum of the Twelve, visited the stake in which I was living and made the statement that missionary work is the lifeblood of the Church. He also said that were it not for missionary work, the Church would wither and die on the vine. That statement doubtless applies as much to us as individuals and families as it does to the Church as a whole. A failure to utilize our endowments and fulfill our callings as the salt of the earth may indeed cause us to wither and die on the vine.
 
@@ -36,4 +37,7 @@ I must not close without expressing my love and appreciation for my dear compani
 “Grandmothers, you say you cannot leave the grandchildren? I want to bear you my testimony that you can be a lasting influence for good in the lives of those little ones by giving a year or so of your time to the service of the Lord in the mission field. The bonds of love will be strengthened, and true miracles will occur. Don’t deny your grandchildren those blessings. I challenge you to put missionary work to the test.”
 
 Such is the message of my dear wife, with whom I am in total agreement. And now in closing, I bear you my own witness that missionary work truly is the lifeblood of the Church and that we have a divine commission to share the gospel with others both at home and abroad. I know, nothing doubting, that this is the work of the Lord and that President Benson is his prophet on earth today. This testimony I bear in the name of Jesus Christ, amen.
+
+
+
 

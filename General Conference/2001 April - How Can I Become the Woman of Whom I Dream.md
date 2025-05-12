@@ -1,7 +1,10 @@
 # How Can I Become the Woman of Whom I Dream?
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2001 General Conference*
+
+>*You are daughters of the Almighty. Limitless is your potential. Magnificent is your future, if you will take control of it.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2001/04/how-can-i-become-the-woman-of-whom-i-dream?lang=eng)
 
@@ -51,7 +54,7 @@ A few years ago, I was riding a plane home from the East. It was late at night. 
 
 I learned that they had been active in the Church, serving in whatever capacity they were asked to serve. By every measure, they were successful. They had accomplished the goals which they had set for themselves. They had been honored and respected and had made a tremendous contribution to the society of which they were a part. She had become the woman of whom she had dreamed. She had exceeded that dream.
 
-As I returned to my seat on the plane, I thought of those two girls of whom I have spoken to you tonight. The life of the one had been spelled out in a three-letter word: F–U–N. It had been lived aimlessly, without stability, without contribution to society, without ambition. It had ended in misery and pain and early death.
+As I returned to my seat on the plane, I thought of those two girls of whom I have spoken to you tonight. The life of the one had been spelled out in a three-letter word: *F–U–N.* It had been lived aimlessly, without stability, without contribution to society, without ambition. It had ended in misery and pain and early death.
 
 The life of the other had been difficult. It had meant scrimping and saving. It had meant working and struggling to keep going. It had meant simple food and plain clothing and a very modest apartment in the years of her husband’s initial effort to get started in his profession. But out of that seemingly sterile soil there had grown a plant, yes, two plants, side by side, that blossomed and bloomed in a beautiful and wonderful way.
 
@@ -63,19 +66,19 @@ And so, my dear, dear young friends, I feel so earnest, so sincere, so anxious t
 
 As a starter, there must be cleanliness, for immorality will blight your life and leave a scar that will never entirely leave you. There must be purpose. We are here to accomplish something, to bless society with our talents and our learning. There can be fun, yes. But there must be recognition of the fact that life is serious, that the risks are great, but that you can overcome them if you will discipline yourselves and seek the unfailing strength of the Lord.
 
-Let me first assure you that if you have made a mistake, if you have become involved in any immoral behavior, all is not lost. Memory of that mistake will likely linger, but the deed can be forgiven, and you can rise above the past to live a life fully acceptable unto the Lord where there has been repentance. He has promised that He will forgive your sins and remember them no more against you (see D&C 58:42).
+Let me first assure you that if you have made a mistake, if you have become involved in any immoral behavior, all is not lost. Memory of that mistake will likely linger, but the deed can be forgiven, and you can rise above the past to live a life fully acceptable unto the Lord where there has been repentance. He has promised that He will forgive your sins and remember them no more against you (see [[D&C 58.42|D&C 58:42]]).
 
 He has set up the machinery with helpful parents and Church leaders to assist you in your difficulty. You can put behind you any evil with which you have been involved. You can go forward with a renewal of hope and acceptability to a far better way of life.
 
-But there will be scars that will remain. The best way, the only way for you, is to avoid any entrapment with evil. President George Albert Smith used to say, “Stay on the Lord’s side of the line” (Sharing the Gospel with Others, sel. Preston Nibley [1948], 42). You have within you instincts, powerful and terribly persuasive, urging you at times to let go and experience a little fling. You must not do it. You cannot do it. You are daughters of God with tremendous potential. He has great expectations concerning you, as do others. You cannot let down for a minute. You cannot give in to an impulse. There must be discipline, strong and unbending. Flee from temptation, as Joseph fled from the wiles of Potiphar’s wife.
+But there will be scars that will remain. The best way, the only way for you, is to avoid any entrapment with evil. President George Albert Smith used to say, “Stay on the Lord’s side of the line” (*Sharing the Gospel with Others,* sel. Preston Nibley \[1948\], 42). You have within you instincts, powerful and terribly persuasive, urging you at times to let go and experience a little fling. You must not do it. You cannot do it. You are daughters of God with tremendous potential. He has great expectations concerning you, as do others. You cannot let down for a minute. You cannot give in to an impulse. There must be discipline, strong and unbending. Flee from temptation, as Joseph fled from the wiles of Potiphar’s wife.
 
 There is nothing in all this world as magnificent as virtue. It glows without tarnish. It is precious and beautiful. It is above price. It cannot be bought or sold. It is the fruit of self-mastery.
 
-You young women spend a lot of time thinking of the boys. You can have a good time with them, but never overstep the line of virtue. Any young man who invites or encourages you or demands that you indulge in any kind of sexual behavior is unworthy of your company. Get him out of your life before both yours and his are blighted. If you can thus discipline yourselves, you will be grateful for as long as you live. Most of you will marry, and your marriage will be much the happier for your earlier restraint. You will be worthy to go to the house of the Lord. There is no adequate substitute for this marvelous blessing. The Lord has given a wonderful mandate. He has said, “Let virtue garnish thy thoughts unceasingly” (D&C 121:45). This becomes a commandment to be observed with diligence and discipline. And there is attached to it the promise of marvelous and wonderful blessings. He has said to those who live with virtue:
+You young women spend a lot of time thinking of the boys. You can have a good time with them, but never overstep the line of virtue. Any young man who invites or encourages you or demands that you indulge in any kind of sexual behavior is unworthy of your company. Get him out of your life before both yours and his are blighted. If you can thus discipline yourselves, you will be grateful for as long as you live. Most of you will marry, and your marriage will be much the happier for your earlier restraint. You will be worthy to go to the house of the Lord. There is no adequate substitute for this marvelous blessing. The Lord has given a wonderful mandate. He has said, “Let virtue garnish thy thoughts unceasingly” ([[D&C 121.45|D&C 121:45]]). This becomes a commandment to be observed with diligence and discipline. And there is attached to it the promise of marvelous and wonderful blessings. He has said to those who live with virtue:
 
-“Then shall thy confidence wax strong in the presence of God. ...
+“Then shall thy confidence wax strong in the presence of God. …
 
-“The Holy Ghost”—of which we have spoken tonight—“shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth; and thy dominion shall be an everlasting dominion, and without compulsory means it shall flow unto thee forever and ever” (D&C 121:45–46).
+“The Holy Ghost”—of which we have spoken tonight—“shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth; and thy dominion shall be an everlasting dominion, and without compulsory means it shall flow unto thee forever and ever” ([[D&C 121.45|D&C 121:45–46]][[D&C 121.46|]]).
 
 Could there be a greater or more beautiful promise than this?
 
@@ -93,23 +96,19 @@ Never forget that you came to earth as a child of the divine Father, with someth
 
 Of course there will be some problems along the way. There will be difficulties to overcome. But they will not last forever. He will not forsake you.
 
-When upon life’s billows you are tempest-tossed,
-
-When you are discouraged, thinking all is lost,
-
-Count your many blessings; name them one by one,
-
-And it will surprise you what the Lord has done. ...
-
-So amid the conflict, whether great or small,
-
-Do not be discouraged; God is over all.
-
-Count your many blessings; angels will attend,
-
-Help and comfort give you to your journey’s end.
-
-(“Count Your Blessings,” Hymns, no. 241)
+>When upon life’s billows you are tempest-tossed,
+>When you are discouraged, thinking all is lost,
+>Count your many blessings; name them one by one,
+>And it will surprise you what the Lord has done. …
+>
+>So amid the conflict, whether great or small,
+>Do not be discouraged; God is over all.
+>Count your many blessings; angels will attend,
+>Help and comfort give you to your journey’s end.
+>
 
 Look to the positive. Know that He is watching over you, that He hears your prayers and will answer them, that He loves you and will make that love manifest. Let the Holy Spirit guide you in all that you do as you look to become the kind of woman of whom you dream. You can do it. You will have friends and loved ones to help. And God will bless you as you pursue your course. This, girls, is my humble promise and prayer in your behalf, in the name of the Lord Jesus Christ, amen.
+
+
+
 

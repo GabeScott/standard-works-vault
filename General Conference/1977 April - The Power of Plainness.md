@@ -1,19 +1,20 @@
 # The Power of Plainness
-*By Marvin J. Ashton - Of the Council of the Twelve*
+
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1977/04/the-power-of-plainness?lang=eng)
 
-Recently in a study group of college-age students I was asked, “Which scripture or quotation in Church history gives you the greatest spiritual uplift?” Although I don’t ever remember having been asked this question in such a setting before, I found myself answering without hesitation and with firm conviction: “I think the most powerful declaration ever uttered in the history of the Church is, ‘Joseph, This is My Beloved Son. Hear Him!’” (JS—H 1:17).
+Recently in a study group of college-age students I was asked, “Which scripture or quotation in Church history gives you the greatest spiritual uplift?” Although I don’t ever remember having been asked this question in such a setting before, I found myself answering without hesitation and with firm conviction: “I think the most powerful declaration ever uttered in the history of the Church is, ‘Joseph, This is My Beloved Son. Hear Him!’” ([[Joseph Smith History 1.17|JS—H 1:17]]).
 
 We went on to talk about the powers of this celestial conversation and of the plainness of the setting, the greeting, the introduction, and the invitation. Here in a grove of trees were two heavenly personages appearing to a fourteen-year-old boy in response to his earnest pleas and unwavering faith. Here in a setting of simple beauty an obscure boy was called by name by God, was introduced to the Savior Jesus Christ, and was invited to listen to words of understandable plainness that he might begin to learn the most important facts taught in this world.
 
-The reality of this vision gives Nephi’s declarations concerning plainness new significance. “For my soul delighteth in plainness; for after this manner doth the Lord God work among the children of men.” (2 Ne. 31:3.) “I glory in plainness; I glory in truth; I glory in my Jesus, for he hath redeemed my soul from hell.” (2 Ne. 33:6.) “My soul delighteth in plainness unto my people, that they may learn.” (2 Ne. 25:4.) Through this great prophet Nephi, along with other leaders and wise teachers, we come to realize that we learn more readily if principles are taught and explained in plainness. Brigham Young once said that if he could do but one thing to bless the Saints, he believed it would be to give them “eyes with which to see things as they are.” (Journal of Discourses, 3:221.)
+The reality of this vision gives Nephi’s declarations concerning plainness new significance. “For my soul delighteth in plainness; for after this manner doth the Lord God work among the children of men.” ([[2 Nephi 31.3|2 Ne. 31:3]].) “I glory in plainness; I glory in truth; I glory in my Jesus, for he hath redeemed my soul from hell.” ([[2 Nephi 33.6|2 Ne. 33:6]].) “My soul delighteth in plainness unto my people, that they may learn.” ([[2 Nephi 25.4|2 Ne. 25:4]].) Through this great prophet Nephi, along with other leaders and wise teachers, we come to realize that we learn more readily if principles are taught and explained in plainness. Brigham Young once said that if he could do but one thing to bless the Saints, he believed it would be to give them “eyes with which to see things as they are.” (*Journal of Discourses,* 3:221.)
 
 Plainness is best comprehended by the humble, the teachable, the intelligent, the wise, and the obedient. Often plain truths are perverted by the pretentious, the crude, the low, the critical, the contentious, the haughty, and the unrighteous. More so than in any other time in our history, there is an urgency in today’s society for men and women to step forward and teach the gospel of Jesus Christ in the power of plainness. God delights when His truths are taught clearly and understandably with no conspicuous ornamentation. Plainness in life, word, and conduct are eternal virtues. When the plainness of Christian teaching and living is lost, apostasy and suffering result. People walk in darkness when the light of plainness is taken from their lives. “They have taken away from the gospel of the Lamb many parts which are plain and most precious; and also many covenants of the Lord have they taken away.
 
-“And all this have they done that they might pervert the right ways of the Lord, that they might blind the eyes and harden the hearts of the children of men.” (1 Ne. 13:26–27.)
+“And all this have they done that they might pervert the right ways of the Lord, that they might blind the eyes and harden the hearts of the children of men.” ([[1 Nephi 13.26|1 Ne. 13:26–27]][[1 Nephi 13.27|]].)
 
 The truths of the gospel of Jesus Christ are plain, precious, and powerful. The lives of the worthy are plain, precious, and powerful. May I share with you a few lessons taught in plainness for which I will eternally be grateful. Some of them come from young children who are humble and accepting in their pure faith. The Savior taught that all mankind should become as little children if they would be the greatest in the kingdom of heaven. Now, an example of the power of plainness in prayer:
 
@@ -37,23 +38,23 @@ To this her friend responded with, “No, I think it is wonderful. Now the burde
 
 In the life of Jesus Christ, each step along His path was plainly marked and plainly taught that we might learn. Recall with me if you will a few of His words spoken in powerful plainness as shared at random from the book of Matthew.
 
-“Blessed are the meek.” (Matt. 5:5.)
+“Blessed are the meek.” ([[Matthew 5.5|Matt. 5:5]].)
 
-“Blessed are the merciful.” (Matt. 5:7.)
+“Blessed are the merciful.” ([[Matthew 5.7|Matt. 5:7]].)
 
-“Love your enemies.” (Matt. 5:44.)
+“Love your enemies.” ([[Matthew 5.44|Matt. 5:44]].)
 
-“Thou shalt love thy neighbour as thyself.” (Matt. 22:39.)
+“Thou shalt love thy neighbour as thyself.” ([[Matthew 22.39|Matt. 22:39]].)
 
-“He that findeth his life shall lose it: and he that loseth his life for my sake shall find it.” (Matt. 10:39.)
+“He that findeth his life shall lose it: and he that loseth his life for my sake shall find it.” ([[Matthew 10.39|Matt. 10:39]].)
 
-“He that hath ears to hear let him hear.” (Matt. 11:15.)
+“He that hath ears to hear let him hear.” ([[Matthew 11.15|Matt. 11:15]].)
 
-“For what is a man profited, if he shall gain the whole world, and lose his own soul?” (Matt. 16:26.)
+“For what is a man profited, if he shall gain the whole world, and lose his own soul?” ([[Matthew 16.26|Matt. 16:26]].)
 
-“Whosoever therefore shall humble himself as this little child, the same is the greatest in the kingdom of heaven.” (Matt. 18:4.)
+“Whosoever therefore shall humble himself as this little child, the same is the greatest in the kingdom of heaven.” ([[Matthew 18.4|Matt. 18:4]].)
 
-“Whosoever will be chief among you, let him be your servant.” (Matt. 20:27.)
+“Whosoever will be chief among you, let him be your servant.” ([[Matthew 20.27|Matt. 20:27]].)
 
 Certainly the Savior has spoken in plainness that we may learn. The words of the Savior are eloquent in their plainness.
 
@@ -63,7 +64,10 @@ May we learn the plain and simple truths of the gospel by following the plain an
 
 The power of plainness in living and teaching is a delight to the mind and will of our Heavenly Father. Joseph Smith is a prophet of God. This I say to you in humility and plainness. His fearless words spoken in truth and plainness will outlive his critics and bring comfort and strength to those who know him for what he is.
 
-To men and women worldwide we declare in sobriety and plainness that God the Father and His Beloved Son Jesus Christ did appear to Joseph Smith: “One of them spake unto me, calling me by name and said, pointing to the other—This Is My Beloved Son. Hear Him!” (JS—H 1:17.)
+To men and women worldwide we declare in sobriety and plainness that God the Father and His Beloved Son Jesus Christ did appear to Joseph Smith: “One of them spake unto me, calling me by name and said, pointing to the other—This Is My Beloved Son. Hear Him!” ([[Joseph Smith History 1.17|JS—H 1:17]].)
 
-We invite mankind everywhere to prayerfully study the truths revealed following this greatest heavenly manifestation. Even though it caused great ridicule and abuse to the Prophet Joseph in the days that followed and ultimately contributed to his martyrdom, I humbly thank God that he had the courage to declare in unmistakable plainness, “However, it was nevertheless a fact that I had beheld a vision.” (JS—H 1:24.) To the truthfulness of these glorious but plain words, I leave you my humble witness in the name of Jesus Christ. Amen.
+We invite mankind everywhere to prayerfully study the truths revealed following this greatest heavenly manifestation. Even though it caused great ridicule and abuse to the Prophet Joseph in the days that followed and ultimately contributed to his martyrdom, I humbly thank God that he had the courage to declare in unmistakable plainness, “However, it was nevertheless a fact that I had beheld a vision.” ([[Joseph Smith History 1.24|JS—H 1:24]].) To the truthfulness of these glorious but plain words, I leave you my humble witness in the name of Jesus Christ. Amen.
+
+
+
 

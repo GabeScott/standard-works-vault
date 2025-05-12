@@ -1,5 +1,6 @@
 # A Deep Commitment to the Principles of Welfare Service
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -16,4 +17,7 @@ I am pleased with the reports we receive regarding family gardens. I hope all of
 Nearly every family in the Church is feeling the effects of worldwide inflation in one way or another. May I remind all of us that if we will live the gospel and follow the counsel of the leaders of the Church, we will be blessed to avoid many of the problems that plague the world. The Lord knows the challenges we face. If we keep his commandments, we will be entitled to the wisdom and blessings of heaven in solving them.
 
 Brothers and sisters, I know the gospel is true. It contains the answers to all of life’s questions and to all of life’s problems. May the Lord bless us all in this great welfare program, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

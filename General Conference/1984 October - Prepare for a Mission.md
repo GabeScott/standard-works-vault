@@ -1,5 +1,6 @@
 # Prepare for a Mission
-*By By R. LaVell Edwards - Head Football Coach, Brigham Young University*
+
+By R. LaVell Edwards - *Head Football Coach, Brigham Young University*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -25,7 +26,7 @@ Every year on the football team there are players on our team who are bigger, st
 
 Two, those who have succeeded have also had the ability to overcome adversity, disappointment, and even tragedy in their lives. Since our quarterback position has such a high visibility and everyone seems to know about them, let me share two short stories with you.
 
-Steve Young is one of the most gifted young men that I have ever known. He is fast, strong, big, handsome, ... and rich. It is easy for us to look at Steve and say, “With all those attributes, you ought to be great.” However, it is more than his physical attributes that have made him great; it is the way he thinks! When Steve was a junior and was starting his first season as our quarterback, we had one of the greatest opportunities presented to us in our football program at BYU. We were scheduled to play Herschel Walker and the University of Georgia, the defending national champions. We worked very hard and felt we had a chance to beat them if we played our very best and did not make mistakes.
+Steve Young is one of the most gifted young men that I have ever known. He is fast, strong, big, handsome, … and rich. It is easy for us to look at Steve and say, “With all those attributes, you ought to be great.” However, it is more than his physical attributes that have made him great; it is the way he thinks! When Steve was a junior and was starting his first season as our quarterback, we had one of the greatest opportunities presented to us in our football program at BYU. We were scheduled to play Herschel Walker and the University of Georgia, the defending national champions. We worked very hard and felt we had a chance to beat them if we played our very best and did not make mistakes.
 
 Before 82,000 fans, and on a “rainy day in Georgia,” Steve threw five interceptions in the first half of the game—more than he would normally throw in five games! In spite of the interceptions and two missed field goal attempts, we were still tied 7–7 at halftime.
 
@@ -40,4 +41,7 @@ I have made progress over the past decades as a coach. But I feel that the progr
 Every position I have held has brought invaluable experiences and growth to my life. Whatever position you are called to, brethren, whether it be bishop, priesthood quorum adviser, home teacher, or athletic director, you will have no greater thrill than when one of the young men in your stewardship makes the decision to accept a mission call. I would encourage you to double your efforts in this regard; it is well worth the time and the effort.
 
 Now brethren, in my career I have had many wonderful things happen to me, many more than I ever dreamed would ever happen. But I would like for you young brethren especially to know that all that has happened to me in my chosen profession is a mere drop in the bucket compared to the truly important things in my life. The testimony of the gospel of Jesus Christ that I have, along with my wife and my family, are my most important possessions. And this testimony I bear to you in Jesus’ name, amen.
+
+
+
 

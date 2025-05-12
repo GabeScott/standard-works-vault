@@ -1,21 +1,24 @@
 # His Spirit to Be with You
-*By Henry B. Eyring - Second Counselor in the First Presidency*
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2018 General Conference*
+
+>*I pray with all my heart that you will hear the voice of the Spirit, which is sent to you so generously.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/04/his-spirit-to-be-with-you?lang=eng)
 
 My brothers and sisters, I am grateful for the opportunity to speak to you on the Lord’s Sabbath, in the general conference of His Church, at this Easter season. I thank our Heavenly Father for the gift of His Beloved Son, who came voluntarily to earth to be our Redeemer. I am grateful to know that He atoned for our sins and rose in the Resurrection. Every day I am blessed to know that, because of His Atonement, I may someday be resurrected to live forever in a loving family.
 
-I know those things by the only way any of us can know them. The Holy Ghost has spoken to my mind and heart that they are true—not just once but often. I have needed that continuing comfort. We all experience tragedy during which we need the reassurance of the Spirit. I felt it one day as I stood with my father in a hospital. We watched my mother take a few shallow breaths—and then no more. As we looked on her face, she was smiling as the pain left. After a few silent moments, my father spoke first. He said, “A little girl has gone home.”
+I know those things by the *only way* any of us can know them. The Holy Ghost has spoken to my mind and heart that they are true—not just once but often. I have needed that continuing comfort. We all experience tragedy during which we need the reassurance of the Spirit. I felt it one day as I stood with my father in a hospital. We watched my mother take a few shallow breaths—and then no more. As we looked on her face, she was smiling as the pain left. After a few silent moments, my father spoke first. He said, “A little girl has gone home.”
 
 He said it softly. He seemed to be at peace. He was reporting something he knew was true. He quietly began to gather Mother’s personal things. He went out into the hospital hallway to thank each of the nurses and doctors who had ministered to her for days.
 
-My father had the companionship of the Holy Ghost at that moment to feel, to know, and to do what he did that day. He had received the promise, as many have: “That they may have his Spirit to be with them” (D&C 20:79).
+My father had the companionship of the Holy Ghost at that moment to feel, to know, and to do what he did that day. He had received the promise, as many have: “That they may have his Spirit to be with them” ([[D&C 20.79|D&C 20:79]]).
 
-My hope today is to increase your desire and your ability to receive the Holy Ghost. Remember, He is the third member of the Godhead. The Father and the Son are resurrected beings. The Holy Ghost is a person of spirit. (See D&C 130:22.) It is your choice whether to receive Him and welcome Him into your heart and mind.
+My hope today is to increase your desire and your ability to receive the Holy Ghost. Remember, He is the third member of the Godhead. The Father and the Son are resurrected beings. The Holy Ghost is a person of spirit. (See [[D&C 130.22|D&C 130:22]].) It is your choice whether to receive Him and welcome Him into your heart and mind.
 
-The conditions on which we can receive that supernal blessing are made clear in the words that are spoken every week but perhaps do not always sink into our hearts and minds. To have the Spirit sent to us, we must “always remember” the Savior and “keep his commandments” (D&C 20:77).
+The conditions on which we can receive that supernal blessing are made clear in the words that are spoken every week but perhaps do not always sink into our hearts and minds. To have the Spirit sent to us, we must “always remember” the Savior and “keep his commandments” ([[D&C 20.77|D&C 20:77]]).
 
 This time of year helps us remember the Savior’s sacrifice and His rising from the tomb a resurrected being. Many of us hold images of those scenes in our memories. I once stood with my wife outside a tomb in Jerusalem. Many believe that it was the tomb from which the crucified Savior emerged as a resurrected and living God.
 
@@ -35,7 +38,7 @@ We stooped to enter. We saw a stone bench against a wall. But into my mind came 
 
 “Jesus saith unto her, Mary. She turned herself, and saith unto him, Rabboni; which is to say, Master.
 
-“Jesus saith unto her, Touch me not; for I am not yet ascended to my Father: but go to my brethren, and say unto them, I ascend unto my Father, and your Father; and to my God, and your God” (John 20:11–17).
+“Jesus saith unto her, Touch me not; for I am not yet ascended to my Father: but go to my brethren, and say unto them, I ascend unto my Father, and your Father; and to my God, and your God” ([[John 20.11|John 20:11–17]][[John 20.12|]][[John 20.13|]][[John 20.14|]][[John 20.15|]][[John 20.16|]][[John 20.17|]]).
 
 I have prayed to be allowed to feel something of what Mary felt at the tomb and what two other disciples felt on the road to Emmaus as they walked with the resurrected Savior, thinking Him a visitor to Jerusalem:
 
@@ -45,41 +48,27 @@ I have prayed to be allowed to feel something of what Mary felt at the tomb and 
 
 “And their eyes were opened, and they knew him; and he vanished out of their sight.
 
-“And they said one to another, Did not our heart burn within us, while he talked with us by the way, and while he opened to us the scriptures?” (Luke 24:29–32).
+“And they said one to another, Did not our heart burn within us, while he talked with us by the way, and while he opened to us the scriptures?” ([[Luke 24.29|Luke 24:29–32]][[Luke 24.30|]][[Luke 24.31|]][[Luke 24.32|]]).
 
 Some of those words were repeated in a sacrament meeting I attended more than 70 years ago. In those days sacrament meetings were held in the evening. It was dark outside. The congregation sang these familiar words. I had heard them many times. But my lasting memory is of a feeling on one particular night. It draws me closer to the Savior. Perhaps if I recite the words, it will come to all of us again:
 
-Abide with me; ’tis eventide.
-
-The day is past and gone;
-
-The shadows of the evening fall;
-
-The night is coming on.
-
-Within my heart a welcome guest,
-
-Within my home abide.
-
-Abide with me; ’tis eventide.
-
-Thy walk today with me
-
-Has made my heart within me burn,
-
-As I communed with thee.
-
-Thy earnest words have filled my soul
-
-And kept me near thy side.
-
-O Savior, stay this night with me;
-
-Behold, ’tis eventide.
-
-O Savior, stay this night with me;
-
-Behold, ’tis eventide.
+>Abide with me; ’tis eventide.
+>The day is past and gone;
+>The shadows of the evening fall;
+>The night is coming on.
+>Within my heart a welcome guest,
+>Within my home abide.
+>
+>Thy walk today with me
+>Has made my heart within me burn,
+>As I communed with thee.
+>Thy earnest words have filled my soul
+>And kept me near thy side.
+>
+>O Savior, stay this night with me;
+>Behold, ’tis eventide.
+>Behold, ’tis eventide.[^1]
+>
 
 More precious than a memory of events is the memory of the Holy Ghost touching our hearts and His continuing affirmation of truth. More precious than seeing with our eyes or remembering words spoken and read is recalling the feelings that accompanied the quiet voice of the Spirit. Rarely I have felt it exactly as the travelers on the road to Emmaus did—as a soft but unmistakable burning in the heart. More often it is a feeling of light and quiet assurance.
 
@@ -125,7 +114,7 @@ The way in which prayer, inspiration, and love of the Lord work together in our 
 
 “At that day ye shall know that I am in my Father, and ye in me, and I in you.
 
-“He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him” (John 14:14–21).
+“He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him” ([[John 14.14|John 14:14–21]][[John 14.15|]][[John 14.16|]][[John 14.17|]][[John 14.18|]][[John 14.19|]][[John 14.20|]][[John 14.21|]]).
 
 I bear my personal witness that the Father is at this moment aware of you, your feelings, and the spiritual and temporal needs of everyone around you. I bear testimony that the Father and the Son are sending the Holy Ghost to all who have that gift, ask for that blessing, and seek to be worthy of it. Neither the Father, nor the Son, nor the Holy Ghost force Themselves into our lives. We are free to choose. The Lord has said to all:
 
@@ -133,9 +122,14 @@ I bear my personal witness that the Father is at this moment aware of you, your 
 
 “To him that overcometh will I grant to sit with me in my throne, even as I also overcame, and am set down with my Father in his throne.
 
-“He that hath an ear, let him hear what the Spirit saith” (Revelation 3:20–22).
+“He that hath an ear, let him hear what the Spirit saith” ([[Revelation 3.20|Revelation 3:20–22]][[Revelation 3.21|]][[Revelation 3.22|]]).
 
-I pray with all my heart that you will hear the voice of the Spirit, which is sent to you so generously. And I pray that you will open your heart always to receive Him. If you ask with real intent and with faith in Jesus Christ for inspiration, you will receive it in the Lord’s way and in His time. God did that for the young Joseph Smith. He does it today for our living prophet, President Russell M. Nelson. He has placed you in the way of other children of God to serve them for Him. I know that not only by what I have seen with my eyes but more powerfully by what the Spirit has whispered to my heart.
+I pray with all my heart that you will hear the voice of the Spirit, which is sent to you so generously. And I pray that you will open your heart always to receive Him. If you ask with real intent and with faith in Jesus Christ for inspiration, you will receive it in the Lord’s way and in His time. God did that for the young Joseph Smith. He does it today for our living prophet, President Russell M. Nelson. He has placed you in the way of other children of God to serve them for Him. I know that not only by what I have seen with my eyes but more powerfully by what the Spirit has whispered to my heart.
 
 I have felt the love of the Father and of His Beloved Son for all the children of God in the world and for His children in the spirit world. I have felt the comfort and the direction of the Holy Ghost. I pray that you may have the joy of having the Spirit with you as your companion constantly. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: “Abide with Me; ’Tis Eventide,” *Hymns,* no. 165.
 

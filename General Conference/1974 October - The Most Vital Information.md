@@ -1,5 +1,6 @@
 # The Most Vital Information
-*By Robert L. Simpson - Assistant to the Council of the Twelve*
+
+By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -13,15 +14,15 @@ I observed a tenderness between him and his wife and his three children. And I k
 
 We are met here this morning hopefully that we might communicate well about the Lord Jesus Christ, because incorporated in his precious teachings are the most urgent, the most important, and the most vital of all information pertaining to the ultimate happiness and eternal destiny of man.
 
-I earnestly seek his divine help and guidance that the intent of my heart will not be misunderstood, and perhaps our communication can be like the prophet Isaiah when he said, “Come now, and let us reason together” (Isa. 1:18); and this for one purpose only, that we might all be blessed more abundantly.
+I earnestly seek his divine help and guidance that the intent of my heart will not be misunderstood, and perhaps our communication can be like the prophet Isaiah when he said, “Come now, and let us reason together” ([[Isaiah 1.18|Isa. 1:18]]); and this for one purpose only, that we might all be blessed more abundantly.
 
 As I proceed now to share these few thoughts with you, I declare with the apostle Paul as he taught the saints of Rome:
 
-“I am ready to preach the gospel to you. ...
+“I am ready to preach the gospel to you. …
 
 “For I am not ashamed of the gospel of Christ: for it is the power of God unto salvation.”
 
-Then he concluded, “It is the power of God ... to every one that believeth.” (Rom. 1:15–16.)
+Then he concluded, “It is the power of God … to every one that believeth.” ([[Romans 1.15|Rom. 1:15–16]][[Romans 1.16|]].)
 
 And I promise you that the Holy Ghost stands ever ready to bear witness to all who earnestly seek the truth that they might recognize that truth.
 
@@ -33,7 +34,7 @@ These same missionaries proclaim to the world that, following this remarkable vi
 
 Who else but the apostles Peter, James, and John would be more appropriate or better qualified to restore the Melchizedek Priesthood just a few weeks later? Yes, those same great apostles who walked and talked with the Savior during his brief ministry, returned to earth for a specific purpose in our time.
 
-Yes, with all of the soberness of my soul, I declare that God’s house is a house of order. His holy purposes are not carried out by man’s whim or fancy but, rather, in this church which bears his name, sacred ordinances can only be performed by proper authority. We agree with Paul that “no man taketh this honour unto himself, but he that is called of God, as was Aaron.” (Heb. 5:4.) Priesthood authority of the Lord Jesus Christ was restored by John the Baptist, by Peter, James, and John in the spring of 1829.
+Yes, with all of the soberness of my soul, I declare that God’s house is a house of order. His holy purposes are not carried out by man’s whim or fancy but, rather, in this church which bears his name, sacred ordinances can only be performed by proper authority. We agree with Paul that “no man taketh this honour unto himself, but he that is called of God, as was Aaron.” ([[Hebrews 5.4|Heb. 5:4]].) Priesthood authority of the Lord Jesus Christ was restored by John the Baptist, by Peter, James, and John in the spring of 1829.
 
 Since the reestablishment of the Lord’s true church 144 years ago, there has been a driving compulsion among the members of the Church to share their good feeling with their neighbors, with their friends, and abroad. “Every member a missionary” has become a byword in this Church, as thousands can be found throughout the free world bearing witness, explaining the restoration, and radiating the Spirit of Christ unto all who will listen.
 
@@ -47,9 +48,9 @@ Not long ago I listened to this testimony from a black man nearing the end of a 
 
 While winging across the South Pacific, an airline stewardess asked me and my wife if we were Mormons after our third serving of milk. Receiving a positive answer, she said with a radiance we shall never forget: “I can hardly wait to get back to California after this trip because I am scheduled for the third discussion from the missionaries, and I already know that it is true.” Yes, she was baptized. She found a young man to match her faith. They have a beautiful little family. They’re on their way.
 
-May I introduce you to a successful young executive who writes: “Our family had it made. My wife and I were close, the three children were well adjusted, and then it happened. Jeff and Angela started to attend Primary with the neighbor’s children. From then on each Primary day our dinner hour became an instant replay of Primary. As parents, we couldn’t believe the great thoughts and attitudes—yes, and ‘a little child shall lead them.’ [Isa. 11:6.] Well, that was the beginning, [he writes], and now after two years as members of the Lord’s true church, we really do have it made. Our family didn’t really know what family unity and true happiness were all about until Mormonism came into our family circle.”
+May I introduce you to a successful young executive who writes: “Our family had it made. My wife and I were close, the three children were well adjusted, and then it happened. Jeff and Angela started to attend Primary with the neighbor’s children. From then on each Primary day our dinner hour became an instant replay of Primary. As parents, we couldn’t believe the great thoughts and attitudes—yes, and ‘a little child shall lead them.’ \[[[Isaiah 11.6|Isa. 11:6]].\] Well, that was the beginning, \[he writes\], and now after two years as members of the Lord’s true church, we really do have it made. Our family didn’t really know what family unity and true happiness were all about until Mormonism came into our family circle.”
 
-One woman in a South American country, intrigued by the sincerity of the Mormon missionaries, invited them back to meet the family that evening. But unfortunately her husband did not share her feelings, and the young men were greeted by a note on the door turning them away. She fasted and prayed that the Lord might intercede. And you know, it was just about six weeks later that the husband told her about two fine young men he had met on the bus coming home. He arranged for them to share their message with the family, and all six were baptized. It was not until then that the wife explained that these were the same two young men whom she had tried to introduce him to earlier. “God moves in a mysterious way his wonders to perform.” (See Hymns, no. 48.)
+One woman in a South American country, intrigued by the sincerity of the Mormon missionaries, invited them back to meet the family that evening. But unfortunately her husband did not share her feelings, and the young men were greeted by a note on the door turning them away. She fasted and prayed that the Lord might intercede. And you know, it was just about six weeks later that the husband told her about two fine young men he had met on the bus coming home. He arranged for them to share their message with the family, and all six were baptized. It was not until then that the wife explained that these were the same two young men whom she had tried to introduce him to earlier. “God moves in a mysterious way his wonders to perform.” (See *Hymns,* no. 48.)
 
 Most people agree that Mormons are happy people, Mormons are stable people, and Mormons are dedicated people. Mormons are trustworthy people, and Mormons are healthy people. And yet I hear you saying, “Ah, but I know a Mormon who does thus and so.” My testimony to you today is that if you know a Mormon who is doing wrong, it is not because of his religious teachings. It is in spite of his religious teachings, and we sincerely hope that he will repent soon, for where much is given, much is expected.
 
@@ -59,7 +60,10 @@ Why not use the same formula suggested by the Savior to test the truth of his ch
 
 “My doctrine is not mine, but his that sent me.
 
-“If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself.” (John 7:16–17.)
+“If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself.” ([[John 7.16|John 7:16–17]][[John 7.17|]].)
 
 I declare in all kindness and sincerity that your eternal life and the salvation of your family depend upon what happened in the life of Joseph Smith, a prophet of God. May you find out soon is my humble prayer in the name of the Lord Jesus Christ. Amen.
+
+
+
 

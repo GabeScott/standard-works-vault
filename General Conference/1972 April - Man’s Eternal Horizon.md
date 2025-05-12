@@ -1,5 +1,6 @@
 # Man’s Eternal Horizon
-*By Joseph Anderson - Assistant to the Council of the Twelve*
+
+By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -39,7 +40,7 @@ We lived by sight in the spirit state before we came here; we are walking by fai
 
 Alma, a Book of Mormon prophet, relates an experience in his time about a people who were cast out of the synagogues because of the coarseness of their apparel, a people who were poor as to the things of this world and were also poor in heart. They came unto Alma, explaining their situation, and asked what they should do. Alma answered by explaining to them the principle of faith and teaching them the word of God.
 
-Concerning faith he states that “faith is not to have a perfect knowledge of things; therefore if ye have faith ye hope for things which are not seen, which are true.” (Alma 32:21.)
+Concerning faith he states that “faith is not to have a perfect knowledge of things; therefore if ye have faith ye hope for things which are not seen, which are true.” ([[Alma 32.21|Alma 32:21]].)
 
 Alma then goes on to compare his words, which are truly the word of God and the gospel of salvation, to a seed that a man plants in the soil. He suggests that if we will give place that a seed may be planted in our hearts, and not cast it out or resist the Spirit of the Lord, if it is a true seed it will swell within the breast; and when one feels this swelling motion he cannot do otherwise than admit that the seed is a good seed, for it enlargeth the soul and beginneth to enlighten one’s understanding, and it becomes delicious to the individual. Further, when the seed, or the word, or the gospel, swells and sprouts and begins to grow in your soul, you know it is a good seed, and therefore your knowledge is perfect; it is no longer faith but knowledge.
 
@@ -70,4 +71,7 @@ With a wavering faith of that kind, how can such a person expect to have the tru
 If you truly have faith in God sufficient to impel you to keep his commandments, you will draw nearer to him and he will come nearer to you, and your faith will become knowledge, and the limit of your horizon will extend into the eternal world.
 
 May we grow in faith through the love and blessing of our Lord and Savior. May we keep the commandments that he has given us, that we may ultimately find salvation and exaltation in his celestial kingdom, I pray in the name of Jesus Christ. Amen.
+
+
+
 

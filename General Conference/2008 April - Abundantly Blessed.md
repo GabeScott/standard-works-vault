@@ -1,11 +1,14 @@
 # Abundantly Blessed
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2008 General Conference*
 
+>*Our testimonies have been strengthened. I believe we are all the more determined to live the principles of the gospel of Jesus Christ.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/04/abundantly-blessed?lang=eng)
 
-I’ve been attending conference for a long time. But I think I’ve never felt quite as richly blessed as during this session. We’ve had rapid-fire messages from a lot of speakers, but every one touched on a very important subject. We’ve had a smorgasbord today of faith, of love, and of counsel. Let’s incorporate these things in our lives.
+I’ve been attending conference for a long time, but I think I’ve never felt quite as richly blessed as during this session. We’ve had rapid-fire messages from a lot of speakers, but every one touched on a very important subject. We’ve had a smorgasbord today of faith, of love, and of counsel. Let’s incorporate these things in our lives.
 
 Brother Ballard, several years ago my dear wife went to the hospital. She left a note behind for the children: “Dear children, do not let Daddy touch the microwave”—followed by a comma, “or the stove, or the dishwasher, or the dryer.” I’m embarrassed to add any more to that list.
 
@@ -19,7 +22,7 @@ His journal, written in pencil, came to me from an uncle who somehow chose me to
 
 When I read that in the journal, there was my wife’s father’s name as one who was in that household, one who probably sang a song, one who became the father of only one daughter, the girl whom I married.
 
-The first day I saw Frances, I knew I’d found the right one. The Lord brought us together later, and I asked her to go out with me. I went to her home to call on her. She introduced me, and her father said, “ ‘Monson’—that’s a Swedish name, isn’t it?”
+The first day I saw Frances, I knew I’d found the right one. The Lord brought us together later, and I asked her to go out with me. I went to her home to call on her. She introduced me, and her father said, “‘Monson’—that’s a Swedish name, isn’t it?”
 
 I said, “Yes.”
 
@@ -35,7 +38,7 @@ Her father wept. He wept easily. He said, “He and his companion were the missi
 
 My sweet Frances had a terrible fall a few years ago. She went to the hospital. She lay in a coma for about 18 days. I sat by her side. She never moved a muscle. The children cried, the grandchildren cried, and I wept. Not a movement.
 
-And then one day, she opened her eyes. I set a speed record in getting to her side. I gave her a kiss and a hug, and I said, “You’re back. I love you.” And she said, “I love you, too, Tom, but we’re in serious trouble.” I thought, What do you know about trouble, Frances? She said, “I forgot to mail in our fourth-quarter income tax payment.”
+And then one day she opened her eyes. I set a speed record in getting to her side. I gave her a kiss and a hug, and I said, “You’re back. I love you.” And she said, “I love you too, Tom, but we’re in serious trouble.” I thought, What do you know about trouble, Frances? She said, “I forgot to mail in our fourth-quarter income tax payment.”
 
 I said to her, “Frances, if you had said that before you extended a kiss to me and told me you love me, I might have left you here.”
 
@@ -58,4 +61,7 @@ To you who are able to attend the temple, I would counsel you to go often. Doing
 Let us be kind to one another, be aware of each other’s needs, and try to help in that regard.
 
 My dear brothers and sisters, I love you, and I pray for you. Please pray for me. And together we will reap the blessings our Heavenly Father has in store for each one of us. This is my prayer, my plea as I add my testimony. This work is true. In the name of Jesus Christ, amen.
+
+
+
 

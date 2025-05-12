@@ -1,5 +1,6 @@
 # Watch the Switches in Your Life
-*By Gordon B. Hinckley - Of the Council of the Twelve*
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -35,19 +36,19 @@ We discovered that the train had been properly made up in Oakland, California, a
 
 That piece of steel was a switch point, and the car that should have been in Newark, New Jersey, was in New Orleans, Louisiana, thirteen hundred miles away.
 
-So it is with our lives—a cigarette smoked, a can of beer drunk at a party, a shot of Speed taken on a dare, a careless giving in to an impulse on a date. Each has thrown a switch in the life of a boy that put him on a track that carried him far away from what might have been a great and foreordained calling. And as Nephi said, “... thus the devil cheateth their souls and leadeth them away carefully down to hell.” (2 Ne. 28:21.)
+So it is with our lives—a cigarette smoked, a can of beer drunk at a party, a shot of Speed taken on a dare, a careless giving in to an impulse on a date. Each has thrown a switch in the life of a boy that put him on a track that carried him far away from what might have been a great and foreordained calling. And as Nephi said, “… thus the devil cheateth their souls and leadeth them away carefully down to hell.” ([[2 Nephi 28.21|2 Ne. 28:21]].)
 
-I hold in my hand a small package that I bought in Switzerland. Do you remember the movie Sound of Music, with its final, beautiful song, “The Edelweiss Song”? It speaks of the flower of the Alps—“small and white, clean and bright, bless my homeland forever.”
+I hold in my hand a small package that I bought in Switzerland. Do you remember the movie *Sound of Music,* with its final, beautiful song, “The Edelweiss Song”? It speaks of the flower of the Alps—“small and white, clean and bright, bless my homeland forever.”
 
 This is a package of Edelweiss seed. The seeds are tiny, like small dry flecks of pepper. But on the face of the package is pictured what they might become—the mature plant, the flower that grows high in the Swiss and Austrian Alps, that weathers the storms that rage through those mountains, that blooms beneath the snow, that gives beauty to Alpine slopes and meadows. These tiny seeds have within them the potential for vigorous and beautiful life. They have become the symbol of a sturdy people—“small and white, clean and bright,” blessing a great land forever.
 
 So it is with boys. There lies within you an incalculable potential for good. The small day-to-day decisions will determine the course of your lives.
 
-Therefore, be smart. The Lord has blessed each of you with greater capacity than you realize. Your I.Q. may not be the highest in the world. So what? Our jails are filled with clever men who were anything but smart. I have concluded that the work of the world is not done by intellectual geniuses. It is done by men of ordinary capacity who use their abilities in an extraordinary manner. As a member of this church you have the obligation to seek learning and to improve your skills.
+Therefore, *be smart.* The Lord has blessed each of you with greater capacity than you realize. Your I.Q. may not be the highest in the world. So what? Our jails are filled with clever men who were anything but smart. I have concluded that the work of the world is not done by intellectual geniuses. It is done by men of ordinary capacity who use their abilities in an extraordinary manner. As a member of this church you have the obligation to seek learning and to improve your skills.
 
 It matters not whether you choose to be merchant, teacher, carpenter, plumber, mechanic, doctor, or to follow any other honorable vocation. The important thing is that you qualify to be useful workers in society. It is so easy and so tragic to become a drifter, a drop-out. It is so challenging and so satisfying to be a producer. In so doing, you will bless not only your own lives and the lives of those you serve, but you will also bring honor to and respect for The Church of Jesus Christ of Latter-day Saints. For your identity as a Mormon will be recognized and the image of the Church will be improved by reason of the opinion which others have of you as you serve them. You cannot afford ever to do cheap or shoddy work. You bear the priesthood of God.
 
-Be clean. “Be ye clean that bear the vessels of the Lord.” (D&C 38:42.) Be ye clean that handle and administer the sacrament of the Lord’s Supper.
+*Be clean.* “Be ye clean that bear the vessels of the Lord.” ([[D&C 38.42|D&C 38:42]].) Be ye clean that handle and administer the sacrament of the Lord’s Supper.
 
 With President Lee we recently stood in the Garden of Gethsemane in Jerusalem where in agony the Lord foresaw the terrible suffering he must endure, suffering so intense that it caused even the Son of God to bleed at every pore. There he was mocked and betrayed and delivered into the hands of wicked men.
 
@@ -59,13 +60,13 @@ Be clean for your own peace of mind. I spoke the other day with a young man who 
 
 Be clean, for the sake of your posterity. Someday each of you will meet the girl of your dreams. If you truly love her, you would rather cut off your right arm than hurt her. Never lose sight of the fact that you are the line through which will pass the qualities of your forebears to the posterity who will come after you. Pause and think. Will those qualities be diminished or enhanced because of your behavior? Be clean, and your strength will be as the strength of ten because your heart is pure.
 
-Be obedient, my dear young friends. Be obedient to the calls of the priesthood. We recently met with missionaries in England and Europe, more than a thousand of them. They are a miracle to me, a constantly renewing miracle. Their tremendous capacity, their courage in meeting obstacles, their quiet and effective powers of persuasion—how impressive they are! How do they do it? someone asked me. That capacity has come slowly, through obedience to the calls of the Church.
+*Be obedient,* my dear young friends. Be obedient to the calls of the priesthood. We recently met with missionaries in England and Europe, more than a thousand of them. They are a miracle to me, a constantly renewing miracle. Their tremendous capacity, their courage in meeting obstacles, their quiet and effective powers of persuasion—how impressive they are! How do they do it? someone asked me. That capacity has come slowly, through obedience to the calls of the Church.
 
 There is no small or unimportant duty in the kingdom of God. And out of the fulfillment of each responsibility comes the strength to undertake something new and more demanding. The men who sit tonight on the stand in this Tabernacle and the priesthood leaders across the world are for the most part the lengthened shadow of boys who tried earnestly to do what they were asked to do.
 
 “So nigh is grandeur to our dust, so near is God to man, when Duty whispers low, Thou must, the youth replies, I can.” (Ralph Waldo Emerson.)
 
-Finally, be prayerful. The Lord has promised, “Be thou humble, and the Lord thy God shall lead thee by the hand, and give thee answer to thy prayers.” (D&C 112:10.)
+Finally, *be prayerful.* The Lord has promised, “Be thou humble, and the Lord thy God shall lead thee by the hand, and give thee answer to thy prayers.” ([[D&C 112.10|D&C 112:10]].)
 
 President Wilford Woodruff once declared: “It does not make any difference whether a man is a priest or an apostle if he magnifies his calling. A priest holds the keys of the ministering of angels. Never in my life, as an apostle, as a seventy, or as an elder, have I had more of the protection of the Lord than while holding the office of a priest.” Is it not a marvelous thing to contemplate that the priesthood of Aaron, which you young men hold, carries with it the right to the ministering of angels!
 
@@ -77,9 +78,12 @@ That boy today presides over The Church of Jesus Christ of Latter-day Saints. Th
 
 For a period of three weeks last month, we walked together, I as his junior companion, in the ministry of the Lord. I give you my witness of the workings of the Spirit in this the prophet of our day, the Spirit nurtured and cultivated and listened to through years reaching back to boyhood.
 
-Be prayerful, my friends, and listen. You may never hear a voice. You likely will not. But in a manner that you cannot explain, you will be prompted and blessed. For the Lord has promised, “I will tell you in your ... heart, by the Holy Ghost, which shall come upon you. ...” (D&C 8:2.)
+Be prayerful, my friends, and listen. You may never hear a voice. You likely will not. But in a manner that you cannot explain, you will be prompted and blessed. For the Lord has promised, “I will tell you in your … heart, by the Holy Ghost, which shall come upon you. …” ([[D&C 8.2|D&C 8:2]].)
 
 Be prayerful, and you will know that God hears and answers. Not always as we might wish him to answer, but with the passing of the years, there will come a realization as certain as the sunrise that he heard and responded.
 
 And so, watch the switches in your life, the small but important day-to-day decisions. Be smart, my dear young friends. Be clean. Be obedient. Be prayerful. To do so will require a measure of discipline, the exercise of which will bring strength and capacity for great and demanding tasks that lie ahead of you in building the kingdom of God and in filling places of useful service in the work of the world. Your lives will be satisfying and your joy will be eternal. I so promise you as a servant of the Lord, and invoke upon you that sweet peace which comes from him alone, in the name of Jesus Christ. Amen.
+
+
+
 

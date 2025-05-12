@@ -1,7 +1,10 @@
 # Do You Know?
-*By Glenn L. Pace - Of the Seventy*
+
+By Elder Glenn L. Pace - *Of the Seventy*
 
 *Given in the April session of the 2007 General Conference*
+
+>*I invite you to “experiment upon my words.” Will you read and pray about the Joseph Smith story?*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2007/04/do-you-know?lang=eng)
 
@@ -17,7 +20,7 @@ The first time I knew I had a testimony of Joseph Smith was when I was just 11 y
 
 My favorite activity was to collect all the free stuff. I became very adept at working the system. I would ask, “Is this free?” After a positive response I would reach out my 11-year-old hand and say, “Thank you. Is that free too? Thank you!” On occasion someone might say, “No, I’m sorry; those cost five cents.” Undeterred, I would lower my head and, showing much disappointment, say, “Oh, I always wanted to read that pamphlet, but I don’t have any money. Thank you!” It worked every time. The truth is, I never read it. I just collected it.
 
-However, on this particular trip, I was alone in our 1948 Chevrolet, waiting for my parents, when I became inescapably bored. In desperation I looked down at the seat and spotted my stack of free stuff. I picked up a pamphlet entitled Joseph Smith Tells His Own Story and began to read it.
+However, on this particular trip, I was alone in our 1948 Chevrolet, waiting for my parents, when I became inescapably bored. In desperation I looked down at the seat and spotted my stack of free stuff. I picked up a pamphlet entitled *Joseph Smith Tells His Own Story* and began to read it.
 
 I was riveted, and my heart was filled with joy. After completing it, I caught my reflection in the rearview mirror, and much to my surprise, I was crying. I didn’t understand then, but I understand now. I had felt a witness of the Spirit. My parents weren’t there. My sister wasn’t there. My Primary teacher wasn’t there. It was just me and the Spirit of the Holy Ghost.
 
@@ -47,13 +50,16 @@ How does this spiritual witness feel? It is as difficult to describe as the scen
 
 The scriptures give us some insights into these feelings:
 
-“Verily, verily, I say unto you, I will impart unto you of my Spirit, which shall enlighten your mind, which shall fill your soul with joy; and then shall ye know” (D&C 11:13–14).
+“Verily, verily, I say unto you, I will impart unto you of my Spirit, which shall enlighten your mind, which shall fill your soul with joy; and then shall ye know” ([[D&C 11.13|D&C 11:13–14]][[D&C 11.14|]]).
 
 Sometimes the feeling is like a memory. We first learned the gospel in our heavenly home. We have come to this earth with a veil of forgetfulness. And yet lingering in each of our spirits are those dormant memories. The Holy Ghost can part the veil and bring those things out of their dormancy. Often my reaction to a supposedly newfound truth is, “Oh, I remember that!”
 
-“The Comforter, which is the Holy Ghost ... [will] bring all things to your remembrance” (John 14:26).
+“The Comforter, which is the Holy Ghost … \[will\] bring all things to your remembrance” ([[John 14.26|John 14:26]]).
 
-My young brothers and sisters, I invite you to “experiment upon my words” (Alma 32:27). Will you read and pray about the Joseph Smith story?
+My young brothers and sisters, I invite you to “experiment upon my words” ([[Alma 32.27|Alma 32:27]]). Will you read and pray about the Joseph Smith story?
 
-The wonderful thing about knowing it is true is that you know simultaneously that God the Father and Jesus Christ live and stand at the head of this Church today. I gained that knowledge when I was 11, and now I stand before you as an ordained especial witness of Jesus Christ and testify it is true. I also testify that the Lord wants you to know it is true, and He “will [reveal] the truth of it unto you, by the power of the Holy Ghost” (Moroni 10:4). In the name of Jesus Christ, amen.
+The wonderful thing about knowing it is true is that you know simultaneously that God the Father and Jesus Christ live and stand at the head of this Church today. I gained that knowledge when I was 11, and now I stand before you as an ordained especial witness of Jesus Christ and testify it is true. I also testify that the Lord wants you to know it is true, and He “will \[reveal\] the truth of it unto you, by the power of the Holy Ghost” ([[Moroni 10.4|Moroni 10:4]]). In the name of Jesus Christ, amen.
+
+
+
 

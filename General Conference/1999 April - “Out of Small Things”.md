@@ -1,13 +1,16 @@
 # “Out of Small Things”
-*By Stephen A. West - Of the Seventy*
+
+By Elder Stephen A. West - *Of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
+
+>*May we take courage, faith, and comfort from the small, quiet, and gentle acts of caring, loving, humble, and dedicated followers of Christ.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1999/04/out-of-small-things?lang=eng)
 
 A few years ago, my wife and I served as a resource to a little inner-city branch of the Church that was composed of about 35 members. The branch president, Daniel Sawyer, a man I greatly admire, may have been the only member of that branch who had belonged to the Church for more than three or four years. Our meetings were held in a row house in one of the most troubled neighborhoods of a large eastern city. The house was located on a street where many buildings had been burned and looted during the extensive riots in 1968, and now, 25 years later, some of those damaged or destroyed buildings still had not been repaired or rebuilt. Up to the front of the row house were a few exterior stairs leading from the sidewalk up through a door which opened to some rooms that had been modified for use as classrooms and as an office. Another door opening right from the sidewalk led down a few interior stairs to the basement, which was furnished with a sacrament table, a podium for the speaker, and folding chairs. Some of the most memorable Church experiences my wife and I have had took place in that setting.
 
-One Sunday, right in the middle of the branch sacrament meeting, a woman walked in the door off the street. She was a homeless woman who was wearing dirty, ragged clothes, coughing, choking, and blowing her nose into a filthy handkerchief. In a loud, hoarse voice she said, “I want to sing! I want to pray!” and walked right to the front row and sat down next to a member who was wearing a white blouse, leaned against her, and laid her head on her shoulder. The member immediately put her arms around this guest and held her in her arms throughout the remainder of the meeting. It happened that the speaker had been talking about the parable of the good Samaritan1 as the woman had come in. As this woman coughed and choked, the speaker continued telling of the parable. As he came to the end of his talk and was quoting a relevant scripture, suddenly, in a loud voice, this homeless woman finished giving the verse that the speaker had begun. In talking of this after sacrament meeting with the speaker, we thought it had probably been a long time since someone had affectionately put an arm around our visitor. We wondered what better illustration you could have of the parable of the good Samaritan than what we had just seen, and we were reminded of the Savior’s words that preceded His telling of that parable, “Thou shalt love ... thy neighbour as thyself.”2
+One Sunday right in the middle of the branch sacrament meeting, a woman walked in the door off the street. She was a homeless woman who was wearing dirty, ragged clothes, coughing, choking, and blowing her nose into a filthy handkerchief. In a loud, hoarse voice she said, “I want to sing! I want to pray!” and walked right to the front row and sat down next to a member who was wearing a white blouse, leaned against her, and laid her head on her shoulder. The member immediately put her arms around this guest and held her in her arms throughout the remainder of the meeting. It happened that the speaker had been talking about the parable of the good Samaritan[^1] as the woman had come in. As this woman coughed and choked, the speaker continued telling of the parable. As he came to the end of his talk and was quoting a relevant scripture, suddenly, in a loud voice, this homeless woman finished giving the verse that the speaker had begun. In talking of this after sacrament meeting with the speaker, we thought it had probably been a long time since someone had affectionately put an arm around our visitor. We wondered what better illustration you could have of the parable of the good Samaritan than what we had just seen, and we were reminded of the Savior’s words that preceded His telling of that parable: “Thou shalt love … thy neighbour as thyself.”[^2]
 
 A second experience in the branch dealt with a kind and conscientious woman who faithfully turned in envelopes containing a few coins for payment of her tithing. One day as she came to church, she was also holding in her hand a plastic sandwich bag with a piece of dried-up bread in it. She handed the plastic bag to us and said: “If you are going to belong to a church, you ought to contribute. I can’t contribute much, but I can contribute the sacrament bread.”
 
@@ -17,23 +20,42 @@ As we used her bread for the sacrament, the whole experience carried an addition
 
 “And he called unto him his disciples, and saith unto them, Verily I say unto you, That this poor widow hath cast more in, than all they which have cast into the treasury:
 
-“For all they did cast in of their abundance; but she of her want did cast in all that she had, even all her living.”3
+“For all they did cast in of their abundance; but she of her want did cast in all that she had, even all her living.”[^3]
 
 A third experience in the branch came during a discussion the members were having in Sunday School concerning when you should give to those who ask you for aid. One of the members, who had come with his wife from Africa to further his education, raised his hand and told us of the following experience. As he had been walking home in the neighborhood, he had been approached by a man who put a pistol to his chest and demanded all his money. Our member took the money from his pockets and handed it over to the man and then said, “If you need the money that badly, I have more.” He opened his briefcase and took out additional money, which he gave to the robber, saying, “Understand, you are not taking this from me; I am giving it to you in the name of the Lord because you need it.” He said the robber looked at him in amazement, put the pistol in his belt, and said, “Where do you live? I’m going to walk you home because you’re too good a man to be on these streets, and you are not safe here.”
 
 As they started to walk to the member’s apartment, suddenly they were surrounded by police cars because a woman had seen the holdup from her apartment window and had called the police. The police arrested the robber and took him away. Having been the victim, this member was asked to be a witness later at the trial of the robber. At the trial, he testified that although the robber had demanded his money, he had told him that he gave the money to him in the name of the Lord and that if the robber needed it that badly, he wanted him to have it.
 
-Since then, when I hear the Savior’s words, “Him that taketh away thy cloke forbid not to take thy coat also,”4 my mind goes back not only to the Holy Land but also to the hard streets in that eastern city.
+Since then, when I hear the Savior’s words, “Him that taketh away thy cloke forbid not to take thy coat also,”[^4] my mind goes back not only to the Holy Land but also to the hard streets in that eastern city.
 
 These are just a few small modern-day experiences that were not witnessed by many, but as they show, these were some exemplary people who lived in difficult conditions. One of the members, pointing to my 40-year-old Book of Mormon, the leather cover of which had largely torn away through wear, leaving frayed corners and exposing the cardboard backing, said, “Many of those in our branch are like your Book of Mormon, tattered and worn on the outside, but inside are great and important things.”
 
-Finally, may I tell you of a nine-year-old Spanish-American girl I interviewed one evening in Texas for baptism. I asked her if she knew who Jesus was. Her answer was, “Yes.” “Who is He?” I asked. Sweeping her hand over her head and gesturing at everything in sight, she said, “He owns all of this!” Could any nine-year-old, or perhaps any of us, have summed it up any better? In only five words she had described the Savior with simple clarity: “He owns all of this!” When the interview was over, she told her mother she did not want to leave the chapel but wanted to stay and sleep that night in “Jesus’ house.” “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.”5
+Finally, may I tell you of a nine-year-old Spanish-American girl I interviewed one evening in Texas for baptism. I asked her if she knew who Jesus was. Her answer was, “Yes.” “Who is He?” I asked. Sweeping her hand over her head and gesturing at everything in sight, she said, “He owns all of this!” Could any nine-year-old, or perhaps any of us, have summed it up any better? In only five words she had described the Savior with simple clarity: “He owns all of this!” When the interview was over, she told her mother she did not want to leave the chapel but wanted to stay and sleep that night in “Jesus’ house.” “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.”[^5]
 
-The Savior said to His disciples in the New World: “... [Y]e know the things that ye must do in my church; for the works which ye have seen me do that shall ye also do; for that which ye have seen me do even that shall ye do;
+The Savior said to His disciples in the New World: “Ye know the things that ye must do in my church; for the works which ye have seen me do that shall ye also do; for that which ye have seen me do even that shall ye do;
 
-“Therefore, if ye do these things blessed are ye.”6
+“Therefore, if ye do these things blessed are ye.”[^6]
 
-In the meridian of time, among other things, the Savior gave a touch here, a kind word there, food (both real and spiritual) to the hungry, advice and counsel to those in need. He gave prayers with the frightened, kindness to the passed-over, respect and affection for the children, loving care for those who are burdened. “And thus we see that by small means the Lord can bring about great things.”7 “Wherefore, be not weary in well-doing, for ye are laying the foundation of a great work. And out of small things proceedeth that which is great.”8
+In the meridian of time, among other things, the Savior gave a touch here, a kind word there, food (both real and spiritual) to the hungry, advice and counsel to those in need. He gave prayers with the frightened, kindness to the passed-over, respect and affection for the children, loving care for those who are burdened. “And thus we see that by small means the Lord can bring about great things.”[^7] “Wherefore, be not weary in well-doing, for ye are laying the foundation of a great work. And out of small things proceedeth that which is great.”[^8]
 
 In these times when so much of our daily experience seems to point to a world moving in the wrong direction, may we take courage, faith, and comfort from the small, quiet, and gentle acts of caring, loving, humble, and dedicated followers of Christ. May we similarly replicate in our own lives the very lessons the Savior taught almost 2,000 years ago is my prayer, to which I add my testimony that He lives, and I do it in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See [[Luke 10.30|Luke 10:30–37]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]][[Luke 10.36|]][[Luke 10.37|]].
+
+[^2]: [[Luke 10.27|Luke 10:27]].
+
+[^3]: [[Mark 12.41|Mark 12:41–44]][[Mark 12.42|]][[Mark 12.43|]][[Mark 12.44|]].
+
+[^4]: [[Luke 6.29|Luke 6:29]].
+
+[^5]: [[John 17.3|John 17:3]].
+
+[^6]: [[3 Nephi 27.21|3 Ne. 27:21–22]][[3 Nephi 27.22|]].
+
+[^7]: [[1 Nephi 16.29|1 Ne. 16:29]].
+
+[^8]: [[D&C 64.33|D&C 64:33]].
 

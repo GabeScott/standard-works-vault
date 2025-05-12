@@ -1,5 +1,6 @@
 # Letter to a Returned Missionary
-*By Charles A. Didier - Of the First Quorum of the Seventy*
+
+By Elder Charles A. Didier - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -19,7 +20,7 @@ One day we learned that you were leaving the city. This you called a transfer. I
 
 We were anxious to receive the next letter. We grew in the Church, were baptized one after the other, and learned very soon of the importance of temple marriage. Some wedding cards arrived in the meantime from some of your companions. We rejoiced every time just looking at their pictures, and we could feel their happiness. Yours never came. We did not dare ask you why.
 
-Some time passed; I had my first opportunity to come to Salt Lake. I was finally going to see all the things you had been talking about, or should I say, bragging about. That’s another word of vocabulary that I learned from you. Would you believe me if I told you that I was not surprised when I saw the city? You revealed so much and with such an enthusiasm about the valley, the Tabernacle, the temple, and the members that I already had a vision in my mind of what to expect. I had envisaged even Brigham Young entering the valley and saying, “This is the place.” Now the vision became reality in the same way that you explained the first vision of Joseph Smith and what it meant for the world and for myself.
+Some time passed; I had my first opportunity to come to Salt Lake. I was finally going to see all the things you had been talking about, or should I say, *bragging* about. That’s another word of vocabulary that I learned from you. Would you believe me if I told you that I was not surprised when I saw the city? You revealed so much and with such an enthusiasm about the valley, the Tabernacle, the temple, and the members that I already had a vision in my mind of what to expect. I had envisaged even Brigham Young entering the valley and saying, “This is the place.” Now the vision became reality in the same way that you explained the first vision of Joseph Smith and what it meant for the world and for myself.
 
 Of course, we wanted to visit with you. We still had a vision of you, Elder, smiling and testifying with tears in your eyes: “I know what I say is true because I asked my Heavenly Father and I received a personal answer. There are no doubts any more. I have peace in my mind. I know that Jesus is the Christ, that Joseph Smith is a Prophet, and that this Church, The Church of Jesus Christ of Latter-day Saints, is the only true and living church upon the face of the whole earth.”
 
@@ -37,13 +38,16 @@ I hope that you will not mind if I have recalled some of the souvenirs of what y
 
 “For behold, this life is the time for men to prepare to meet God; yea, behold the day of this life is the day for men to perform their labors.
 
-“And now, as I said unto you before, as ye have had so many witnesses, therefore, I beseech of you that ye do not procrastinate the day of your repentance until the end; for after this day of life, which is given us to prepare for eternity, behold, if we do not improve our time while in this life, then cometh the night of darkness wherein there can be no labor performed.” (Alma 34:32–33.)
+“And now, as I said unto you before, as ye have had so many witnesses, therefore, I beseech of you that ye do not procrastinate the day of your repentance until the end; for after this day of life, which is given us to prepare for eternity, behold, if we do not improve our time while in this life, then cometh the night of darkness wherein there can be no labor performed.” ([[Alma 34.32|Alma 34:32–33]][[Alma 34.33|]].)
 
 Dear Elder, you said one day in a conference that mothers can give birth to children, but missionaries can give eternal life to people. I recorded this as well as your testimony that day. The words of our Savior Jesus Christ are also recorded that we may not forget, that because of his sacrifice, we may repent of our errors. Didn’t he declare to the Nephites: “Behold, I am the law, and the light. Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life.
 
-“Behold, I have given unto you the commandments; therefore keep my commandments. And this is the law and the prophets, for they truly testified of me.” (3 Ne. 15:9–10.)
+“Behold, I have given unto you the commandments; therefore keep my commandments. And this is the law and the prophets, for they truly testified of me.” ([[3 Nephi 15.9|3 Ne. 15:9–10]][[3 Nephi 15.10|]].)
 
 You have opened the gate to many. Why, why do you close it for yourself? May I put my foot in the door, as you once did in mine? Reach out your hand while there is still time, and let us tell you that we love you. Your bishop is waiting for you; your home teachers are caring for you; your missionary companions do not forget you; but more than that, we, we need you. Come as you are—our arms are open. We’re waiting for you.
 
-Now the time has come to leave, but you should know that what you once were you can be again. May my testimony help you as yours did me some years ago. I know by the power of the Holy Ghost, the spirit of revelation. I know in my mind and in my heart that God lives, that Jesus is the Christ, our Redeemer, and that we have a living prophet today, Spencer W. Kimball, and that by following his directions and advice we can come closer to our Heavenly Father and repent of our sins. My prayer is that you may realize this again in your own life and make a new decision to be one of His disciples, in the name of Jesus Christ. Amen.
+Now the time has come to leave, but you should know that what you once were you can be again. May my testimony help you as yours did me some years ago. I know by the power of the Holy Ghost, the spirit of revelation. I know in my mind and in my heart that God lives, that Jesus is the Christ, our Redeemer, and that we have a living prophet today, Spencer W. Kimball, and that by following his directions and advice we can come closer to our Heavenly Father and repent of our sins. My prayer is that you may realize this again in your own life and make a new decision to be one of His disciples, in the name of Jesus Christ. Amen.
+
+
+
 

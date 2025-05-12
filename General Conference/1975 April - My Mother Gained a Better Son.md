@@ -1,5 +1,6 @@
 # My Mother Gained a Better Son
-*By Adney Y. Komatsu - Assistant to the Council of the Twelve*
+
+By Elder Adney Y. Komatsu - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -21,7 +22,7 @@ However, on the other hand, if I became a better person—more attentive to her 
 
 It is my testimony today that I never had to leave the Church nor cause my mother any concern about my behavior. As I lived the gospel principles taught by the missionaries, and as I studied the principles myself, I had the assurance from my Father in heaven that my future outcome would be one that I would never have to worry about.
 
-I have always tried since baptism to put the principles of the gospel in practice. I have always especially loved this scripture that I came across in Matthew: “But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.” (Matt. 6:33.)
+I have always tried since baptism to put the principles of the gospel in practice. I have always especially loved this scripture that I came across in Matthew: “But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.” ([[Matthew 6.33|Matt. 6:33]].)
 
 I have tried in all of my years of membership in the Church to never refuse the Church whenever a call came to me. I have surely been blessed by the Lord as I have lived the gospel principles, and I have come to appreciate the sacred priesthood that I hold.
 
@@ -31,7 +32,10 @@ I am grateful to my dear wife and our children, for we have had a blessed life t
 
 I bear you my testimony humbly this day that I know God lives. He hears and answers our prayers, and Jesus is the Christ, the Only Begotten of the Father and the Savior of the world. Joseph Smith was indeed an instrument in the hands of the Lord, commissioned to begin the restoration of the gospel of Jesus Christ in its fullness for the salvation of all mankind.
 
-All the presidents of the Church that followed Joseph Smith—they were all called of God, and even today, President Spencer W. Kimball is our living prophet.
+All the presidents of the Church that followed Joseph Smith—they were all called of God, and even today, President Spencer W. Kimball is our living prophet.
 
 I bear you this witness humbly in the name of Jesus Christ. Amen.
+
+
+
 

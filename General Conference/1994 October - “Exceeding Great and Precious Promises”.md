@@ -1,5 +1,6 @@
 # “Exceeding Great and Precious Promises”
-*By Howard W. Hunter - President of the Church*
+
+By President Howard W. Hunter - *President of the Church*
 
 *Given in the October session of the 1994 General Conference*
 
@@ -25,17 +26,17 @@ Following this inspired pattern, the Church will move forward without interrupti
 
 I feel just as President Joseph F. Smith felt on a similar occasion many years ago, when he said:
 
-“I propose that my counselors and fellow Presidents in the First Presidency shall share with me in the responsibility of every act which I shall perform in this capacity. I do not propose to take the reins in my own hands to do as I please; but I propose to do as my brethren and I agree upon and as the Spirit of the Lord manifests to us. I have always held, and do hold, and trust I always shall hold, that it is wrong for one man to exercise all the authority and power of presidency in The Church of Jesus Christ of Latter-day Saints. I dare not assume such a responsibility, and I will not, so long as I can have men like these to stand by and counsel with me in the labors we have to perform and in doing all those things that shall tend to the peace, advancement and happiness of the people of God and the building up of Zion.”
+“I propose that my counselors and fellow Presidents in the First Presidency shall share with me in the responsibility of every act which I shall perform in this capacity. I do not propose to take the reins in my own hands to do as I please; but I propose to do as my brethren and I agree upon and as the Spirit of the Lord manifests to us. I have always held, and do hold, and trust I always shall hold, that it is wrong for one man to exercise all the authority and power of presidency in the Church of Jesus Christ of Latter-day Saints. I dare not assume such a responsibility, and I will not, so long as I can have men like these to stand by and counsel with me in the labors we have to perform and in doing all those things that shall tend to the peace, advancement and happiness of the people of God and the building up of Zion.”
 
 President Smith then continued:
 
 “If at any time my brethren of the Apostleship shall see in me a disposition to depart from this principle or a forgetfulness on my part of this covenant that I make today before this body of Priesthood, I ask them in the name of my Father, that they will come to me, as my brethren, as counselors in the Priesthood, as watchmen on the towers of Zion, and remind me of this covenant and promise which I make to the body of the Church in general conference assembled at this time.
 
-“The Lord never did intend that one man should have all power, and for that reason He has placed in His Church Presidents, Apostles, High Priests, Seventies, Elders and the various offices of the Lesser Priesthood, all of which are essential in their order and place according to the authority bestowed on them” (in Conference Report, Oct.–Nov. 1901, p. 82).
+“The Lord never did intend that one man should have all power, and for that reason He has placed in His Church Presidents, Apostles, High Priests, Seventies, Elders and the various offices of the Lesser Priesthood, all of which are essential in their order and place according to the authority bestowed on them” (in Conference Report, Oct.–Nov. 1901, p. 82).
 
 Those words of President Joseph F. Smith represent my feelings today.
 
-Like my Brethren before me, I receive with this calling the assurance that God will direct his prophet. I humbly accept the call to serve and declare with the Psalmist, “The Lord is my strength and my shield; my heart trusted in him, and I am helped” (Ps. 28:7).
+Like my Brethren before me, I receive with this calling the assurance that God will direct his prophet. I humbly accept the call to serve and declare with the Psalmist, “The Lord is my strength and my shield; my heart trusted in him, and I am helped” ([[Psalms 28.7|Ps. 28:7]]).
 
 At the time of my call, I issued two invitations to the members of the Church. I feel impressed to give these continued emphasis.
 
@@ -43,13 +44,13 @@ First, I invite all members of the Church to live with ever more attention to th
 
 To those who have transgressed or been offended, we say, come back. The path of repentance, though hard at times, lifts one ever upward and leads to a perfect forgiveness.
 
-To those who are hurt or are struggling and afraid, we say, let us stand with you and dry your tears. Come back. Stand with us in The Church of Jesus Christ of Latter-day Saints. Take literally his invitation to “come, follow me” (see Matt. 16:24; Matt. 19:21; Mark 8:34; Mark 10:21; Luke 9:23; Luke 18:22; John 21:22; D&C 38:22). He is the only sure way; he is the light of the world.
+To those who are hurt or are struggling and afraid, we say, let us stand with you and dry your tears. Come back. Stand with us in The Church of Jesus Christ of Latter-day Saints. Take literally his invitation to “come, follow me” (see [[Matthew 16.24|Matt. 16:24]]; [[Matthew 19.21|19:21]]; [[Mark 8.34|Mark 8:34]]; [[Mark 10.21|10:21]]; [[Luke 9.23|Luke 9:23]]; [[Luke 18.22|18:22]]; [[John 21.22|John 21:22]]; [[D&C 38.22|D&C 38:22]]). He is the only sure way; he is the light of the world.
 
 We will, as you would expect us to do, continue to hold to the high standards of conduct which define a Latter-day Saint. It is the Lord who established those standards, and we are not free to set them aside.
 
-Let us study the Master’s every teaching and devote ourselves more fully to his example. He has given us “all things that pertain unto life and godliness.” He has “called us to glory and virtue” and has “given unto us exceeding great and precious promises: that by these [we] might be partakers of the divine nature” (2 Pet. 1:3–4).
+Let us study the Master’s every teaching and devote ourselves more fully to his example. He has given us “all things that pertain unto life and godliness.” He has “called us to glory and virtue” and has “given unto us exceeding great and precious promises: that by these \[we\] might be partakers of the divine nature” ([[2 Peter 1.3|2 Pet. 1:3–4]][[2 Peter 1.4|]]).
 
-I believe in those “exceeding great and precious promises,” and I invite all within the sound of my voice to claim them. We should strive to “be partakers of the divine nature.” Only then may we truly hope for “peace in this world, and eternal life in the world to come” (D&C 59:23).
+I believe in those “exceeding great and precious promises,” and I invite all within the sound of my voice to claim them. We should strive to “be partakers of the divine nature.” Only then may we truly hope for “peace in this world, and eternal life in the world to come” ([[D&C 59.23|D&C 59:23]]).
 
 In that spirit I invite the Latter-day Saints to look to the temple of the Lord as the great symbol of your membership. It is the deepest desire of my heart to have every member of the Church worthy to enter the temple. It would please the Lord if every adult member would be worthy of—and carry—a current temple recommend. The things that we must do and not do to be worthy of a temple recommend are the very things that ensure we will be happy as individuals and as families.
 
@@ -57,19 +58,22 @@ Let us be a temple-attending people. Attend the temple as frequently as personal
 
 If proximity to a temple does not allow frequent attendance, gather in the history of your family and prepare the names for the sacred ordinances performed only in the temple. This family research is essential to the work of the temples, and blessings surely will come to those who do that work.
 
-We desire to bring the temples closer to our people. New temples have been announced and are under construction. Others are being planned. Soon we will dedicate the Orlando Florida and Bountiful Utah temples.
+We desire to bring the temples closer to our people. New temples have been announced and are under construction. Others are being planned. Soon we will dedicate the Orlando Florida and Bountiful Utah Temples.
 
-In the ordinances of the temple, the foundations of the eternal family are sealed in place. The Church has the responsibility—and the authority—to preserve and protect the family as the foundation of society. The pattern for family life, instituted from before the foundation of the world, provides for children to be born to and nurtured by a father and mother who are husband and wife, lawfully married. Parenthood is a sacred obligation and privilege, with children welcomed as a “heritage of the Lord” (Ps. 127:3).
+In the ordinances of the temple, the foundations of the eternal family are sealed in place. The Church has the responsibility—and the authority—to preserve and protect the family as the foundation of society. The pattern for family life, instituted from before the foundation of the world, provides for children to be born to and nurtured by a father and mother who are husband and wife, lawfully married. Parenthood is a sacred obligation and privilege, with children welcomed as a “heritage of the Lord” ([[Psalms 127.3|Ps. 127:3]]).
 
-A worried society now begins to see that the disintegration of the family brings upon the world the calamities foretold by the prophets. The world’s councils and deliberations will succeed only when they define the family as the Lord has revealed it to be. “Except the Lord build the house, they labour in vain that build it” (Ps. 127:1).
+A worried society now begins to see that the disintegration of the family brings upon the world the calamities foretold by the prophets. The world’s councils and deliberations will succeed only when they define the family as the Lord has revealed it to be. “Except the Lord build the house, they labour in vain that build it” ([[Psalms 127.1|Ps. 127:1]]).
 
-As we become more removed from the lifestyle of the world, the Church becomes more the welcome refuge for hundreds of thousands who come each year and say, “Let us go up to the mountain of the Lord, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for out of Zion shall go forth the law, and the word of the Lord from Jerusalem” (Isa. 2:3).
+As we become more removed from the lifestyle of the world, the Church becomes more the welcome refuge for hundreds of thousands who come each year and say, “Let us go up to the mountain of the Lord, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for out of Zion shall go forth the law, and the word of the Lord from Jerusalem” ([[Isaiah 2.3|Isa. 2:3]]).
 
 My brothers and sisters, I testify that the impressions of the Spirit have weighed heavily upon me in considering these matters. Our Eternal Heavenly Father lives. Jesus Christ, our Savior and Redeemer, guides his church today through his prophets.
 
-Let us, as Latter-day Saints, claim those “exceeding great and precious promises” so that we, “Holy Father, ... may grow up in thee, and receive a fulness of the Holy Ghost, and be organized according to thy laws, and be prepared to obtain every needful thing” (D&C 109:14–15).
+Let us, as Latter-day Saints, claim those “exceeding great and precious promises” so that we, “Holy Father, … may grow up in thee, and receive a fulness of the Holy Ghost, and be organized according to thy laws, and be prepared to obtain every needful thing” ([[D&C 109.14|D&C 109:14–15]][[D&C 109.15|]]).
 
 I invoke his blessings upon you in your homes, in your work, in your service in his church.
 
-I pledge my life, my strength, and the full measure of my soul to serving him. May we have ears to hear and hearts to feel, and the courage to follow, I humbly pray in the name of Jesus Christ, amen.
+I pledge my life, my strength, and the full measure of my soul to serving him. May we have ears to hear and hearts to feel and the courage to follow, I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

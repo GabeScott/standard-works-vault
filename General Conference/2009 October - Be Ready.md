@@ -1,7 +1,10 @@
 # Be Ready
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2009 General Conference*
+
+>*The preparation that counts will be made by the young men making choices to rise to their great destiny as priesthood servants for God.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2009/10/be-ready?lang=eng)
 
@@ -33,13 +36,13 @@ Because of Nephi’s preparation, God blessed him with power to fulfill his assi
 
 “Behold, thou art Nephi, and I am God. Behold, I declare it unto thee in the presence of mine angels, that ye shall have power over this people, and shall smite the earth with famine, and with pestilence, and destruction, according to the wickedness of this people.
 
-“Behold, I give unto you power, that whatsoever ye shall seal on earth shall be sealed in heaven; and whatsoever ye shall loose on earth shall be loosed in heaven; and thus shall ye have power among this people.”
+“Behold, I give unto you power, that whatsoever ye shall seal on earth shall be sealed in heaven; and whatsoever ye shall loose on earth shall be loosed in heaven; and thus shall ye have power among this people.”[^1]
 
 As the account from the Book of Mormon tells us, the people did not repent. So Nephi asked God to change the seasons. He asked for a miracle to help the people choose to repent because of famine. The famine came. The people repented, and then they begged Nephi to have God send rain. He did ask God, and God honored his unshakable faith.
 
 That faith did not come in the moment when Nephi needed it, nor did God’s trust in Nephi. He earned that great faith and God’s confidence by courageous and sustained labor in the Lord’s service. You young men are building that faith now for the days ahead when you will need it.
 
-It may be so small a thing as to keep careful minutes in a deacons or a teachers quorum. There were young men years ago who kept meticulous records of what was decided and what was done by boys only months older than they were. That took faith that God called even 12-year-olds into His service who were being guided by revelation. Some of those quorum secretaries of long ago now sit in the presiding councils of the Church. They now read the minutes others prepare. And revelation flows to them now as it did to the leaders they served when they were boys like you. They had been prepared to trust that God reveals His will, even in apparently small matters, in His kingdom.
+It may be so small a thing as to keep careful minutes in a deacons or a teachers quorum. There were young men years ago who kept meticulous records of what was decided and what was done by boys only months older than they were. That took faith that God called even 12-year-olds into His service who were being guided by revelation. Some of those quorum secretaries of long ago now sit in the presiding councils of the Church. They now read the minutes others prepare. And revelation flows to them now as it did to the leaders they served when they were boys like you. They had been prepared to trust that God reveals His *will,* even in apparently small matters, in His kingdom.
 
 Now, the Lord said Nephi could be trusted because he would ask nothing contrary to God’s will. To have that confidence in Nephi, the Lord had to be sure that Nephi believed in revelation, sought it, and followed it. Long experience following inspiration from God was a part of Nephi’s priesthood preparation. It must be part of yours.
 
@@ -51,7 +54,7 @@ Now, the second thing they will need is confidence that they can live up to the 
 
 We can help them choose to prepare by loving them, warning them, and by showing confidence in them. But we can help them even more by our example of a faithful and inspired servant. In our families, in quorums, in classes, and as we associate with them in any setting, we can act as true priesthood holders who use its power as God has taught us.
 
-For me, that instruction is most clear in the 121st section of the Doctrine and Covenants. The Lord warns us in that section to have our motives pure: “No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned.” As we lead and influence young men, we must never do it to gratify our pride or our ambition. We must never use compulsion in any degree of unrighteousness. That is a high standard of the example we must set for our youth.
+For me, that instruction is most clear in the 121st section of the Doctrine and Covenants. The Lord warns us in that section to have our motives pure: “No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned.”[^2] As we lead and influence young men, we must never do it to gratify our pride or our ambition. We must never use compulsion in any degree of unrighteousness. That is a high standard of the example we must set for our youth.
 
 I saw it done when I was a teacher and a priest. My bishop and those who served under him were determined not to lose even one of us. As nearly as I could see, their determination was motivated by love for the Lord and for us, not for any selfish purpose.
 
@@ -63,9 +66,9 @@ I have no idea whether they thought any one of us was going to be anything speci
 
 I don’t know how the bishop got so many people to have such high expectations. As nearly as I can tell, it was done “by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned.” The “no lights out” method the bishop used would not work in some places. But the example of unwavering care for every young man and reaching out quickly brought the power of heaven into our lives. It always will. It helped young men prepare for the days when God needed them in families and in His kingdom.
 
-My father was an example for me of what the Lord teaches in the 121st section about getting heaven’s help in preparing young men. During my early years, he was sometimes disappointed by my performance. He let me know it. Hearing his voice, I could feel he thought I was better than that. But he did it in the Lord’s way: “Reproving betimes with sharpness, when moved upon by the Holy Ghost; and then showing forth afterwards an increase of love toward him whom thou hast reproved, lest he esteem thee to be his enemy.”
+My father was an example for me of what the Lord teaches in the 121st section about getting heaven’s help in preparing young men. During my early years, he was sometimes disappointed by my performance. He let me know it. Hearing his voice, I could feel he thought I was better than that. But he did it in the Lord’s way: “Reproving betimes with sharpness, when moved upon by the Holy Ghost; and then showing forth afterwards an increase of love toward him whom thou hast reproved, lest he esteem thee to be his enemy.”[^3]
 
-I knew, even after the most direct correction, that Dad’s reproof was given in love. In fact, his love seemed to increase when he used even his strongest correction, which was a disapproving and disappointed look. He was my leader and my trainer, never using compulsory means, and I am sure that the promise given in the Doctrine and Covenants will be fulfilled for him. His influence on me will flow unto him “forever and ever.”
+I knew, even after the most direct correction, that Dad’s reproof was given in love. In fact, his love seemed to increase when he used even his strongest correction, which was a disapproving and disappointed look. He was my leader and my trainer, never using compulsory means, and I am sure that the promise given in the Doctrine and Covenants will be fulfilled for him. His influence on me will flow unto him “forever and ever.”[^4]
 
 Many fathers and leaders, when they hear the words of the 121st section of the Doctrine and Covenants, will feel that they must rise higher to come up to that standard. I do. Can you remember a moment when you rebuked a child or youth with sharpness when you were moved by something other than inspiration? Can you remember a time when you told a son to do something or make a sacrifice you were not willing to do or make yourself? Those feelings of regret can spur us to repentance to become more nearly the examples we have covenanted to be.
 
@@ -73,5 +76,16 @@ As we meet our obligations as fathers and leaders, we will help the next generat
 
 It is my prayer that we will be determined to do better every day to prepare the rising generation. Each time I see a bottle of consecrated oil, I will remember this night and the feeling I have now of wanting to do more to help young men prepare for their days of service and opportunity. I pray for a blessing of preparation for them. I am confident that, with the Lord’s help and ours, they will be ready.
 
-I bear you my witness that God the Father lives and that Jesus Christ lives and leads this Church. He is the perfect exemplar of the priesthood. President Thomas S. Monson holds and exercises all the keys of the priesthood on the earth. That is true. I so testify in the name of Jesus Christ, amen.
+I bear you my witness that God the Father lives and that Jesus Christ lives and leads this Church. He is the perfect exemplar of the priesthood. President Thomas S. Monson holds and exercises all the keys of the priesthood on the earth. That is true. I so testify in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Helaman 10.4|Helaman 10:4–7]][[Helaman 10.5|]][[Helaman 10.6|]][[Helaman 10.7|]].
+
+[^2]: [[D&C 121.41|D&C 121:41]].
+
+[^3]: [[D&C 121.43|D&C 121:43]].
+
+[^4]: [[D&C 121.46|D&C 121:46]].
 

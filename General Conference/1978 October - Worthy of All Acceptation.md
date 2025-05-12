@@ -1,41 +1,40 @@
 # Worthy of All Acceptation
-*By Ezra Taft Benson - Of the Council of the Twelve*
+
+By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1978/10/worthy-of-all-acceptation?lang=eng)
 
-In the April general conference of this year, President Spencer W. Kimball said: “I feel the same sense of urgency about temple work for the dead as I do about the missionary work for the living, since they are basically one and the same. ...
+In the April general conference of this year, President Spencer W. Kimball said: “I feel the same sense of urgency about temple work for the dead as I do about the missionary work for the living, since they are basically one and the same. …
 
-“The First Presidency and the Council of the Twelve,” he continued, “recently gave careful consideration as to how we can lengthen our stride in this tremendously important responsibility. ...
+“The First Presidency and the Council of the Twelve,” he continued, “recently gave careful consideration as to how we can lengthen our stride in this tremendously important responsibility. …
 
-“We want to emphasize again and place squarely upon the shoulders of ... individuals and their families the obligation to complete the four-generation program. Families may extend their pedigree beyond the four generations if desired.
+“We want to emphasize again and place squarely upon the shoulders of … individuals and their families the obligation to complete the four-generation program. Families may extend their pedigree beyond the four generations if desired.
 
-“... We are introducing a Churchwide program of extracting names from genealogical records. Church members may now render second-mile service through participating in this regard in extracting these names in this program supervised by the priesthood leaders at the local level.” (“The True Way of Life and Salvation,” Ensign, May 1978, p. 4.)
+“… We are introducing a Churchwide program of extracting names from genealogical records. Church members may now render second-mile service through participating in this regard in extracting these names in this program supervised by the priesthood leaders at the local level.” (“The True Way of Life and Salvation,” *Ensign,* May 1978, p. 4.)
 
 This announcement will make sweeping changes in the mechanics of genealogical research and name submission for temple ordinance work. To determine the effect on us individually and collectively as family organizations, let us consider what has and what has not changed.
 
 First, I mention some things which have not changed:
 
-The Lord’s mandate given in section 128 of the Doctrine and Covenants has not changed: “Brethren, shall we not go on in so great a cause? ...
+1. The Lord’s mandate given in section 128 of the Doctrine and Covenants has not changed: “Brethren, shall we not go on in so great a cause? …“Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in his holy temple … a book containing the records of our dead, which shall be worthy of all acceptation.” ([[D&C 128.22|D&C 128:22, 24]][[D&C 128.24|]].)
 
-“Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in his holy temple ... a book containing the records of our dead, which shall be worthy of all acceptation.” (D&C 128:22, 24.)
+2. Our responsibility to keep a journal and to write our own personal histories and those of our ancestors, particularly those who belong to the first four generations of our pedigree, has not changed.
 
-Our responsibility to keep a journal and to write our own personal histories and those of our ancestors, particularly those who belong to the first four generations of our pedigree, has not changed.
+3. Our responsibility to make certain that all living family members have the opportunity to receive the ordinances of the temple has not changed.
 
-Our responsibility to make certain that all living family members have the opportunity to receive the ordinances of the temple has not changed.
+4. Our responsibility to compile our books of remembrance, including the submission of the names of our ancestors for at least the first four generations, and to have the temple ordinances performed in their behalf has not changed.
 
-Our responsibility to compile our books of remembrance, including the submission of the names of our ancestors for at least the first four generations, and to have the temple ordinances performed in their behalf has not changed.
-
-Our responsibility to organize our families at the immediate family level begins when a couple is married. The grandparent family organization develops as children from the immediate family marry and have children. Through such family organizations, every family in the Church should become actively involved in missionary work, family preparedness, genealogy and temple work, teaching the gospel, and cultural and social activities. These vital responsibilities certainly have not changed.
+5. Our responsibility to organize our families at the immediate family level begins when a couple is married. The grandparent family organization develops as children from the immediate family marry and have children. Through such family organizations, every family in the Church should become actively involved in missionary work, family preparedness, genealogy and temple work, teaching the gospel, and cultural and social activities. These vital responsibilities certainly have not changed.
 
 Next, consider some things which have changed:
 
-The four-generation program has changed in a very significant way. In the past each individual was responsible for the submission of his or her four-generation family group record forms. December 1978 marks the end of the old (current) four-generation program. Beginning July 1979, the Church will accept newly prepared pedigree charts and family group record forms from family organizations, rather than from individuals. In the interim between now and July 1979, members of the Church are encouraged to organize as families—each individual with his brothers, sisters, and parents—to compare the information on the family group sheets which they have in common, check the accuracy of the information, verify the dates, and formulate one record to be submitted on behalf of all family members appearing on the group sheet. This process repeats itself next with the parents (if still living), and so on until all generations are completed, verified, and corrected as necessary. You can readily see the importance of the family organization.
+1. The four-generation program has changed in a very significant way. In the past each individual was responsible for the submission of his or her four-generation family group record forms. December 1978 marks the end of the old (current) four-generation program. Beginning July 1979, the Church will accept newly prepared pedigree charts and family group record forms from family organizations, rather than from individuals. In the interim between now and July 1979, members of the Church are encouraged to organize as families—each individual with his brothers, sisters, and parents—to compare the information on the family group sheets which they have in common, check the accuracy of the information, verify the dates, and formulate *one* record to be submitted on behalf of *all* family members appearing on the group sheet. This process repeats itself next with the parents (if still living), and so on until all generations are completed, verified, and corrected as necessary. You can readily see the importance of the family organization.
 
-A second major change is that original research beyond the four-generation level will be accepted but will no longer be required of individual members or individual families in the Church. Instead, the Church has assumed the responsibility to begin a massive record-gathering and extraction program in order to prepare names for temple work.
+2. A second major change is that original research beyond the four-generation level will be accepted but will no longer be required of individual members or individual families in the Church. Instead, the Church has assumed the responsibility to begin a massive record-gathering and extraction program in order to prepare names for temple work.
 
-Those who are acquainted with Latter-day Saint scriptures and the process of genealogical research will recognize that the extraction program is but a first step in the overall program of preparing a Church book of remembrance “worthy of ... acceptation.” The extraction program is primarily aimed at more efficient identification and processing of names for individual temple ordinance work. It solves the immediate need to provide many more names for the operation of the temples.
+Those who are acquainted with Latter-day Saint scriptures and the process of genealogical research will recognize that the extraction program is but a first step in the overall program of preparing a Church book of remembrance “worthy of … acceptation.” The extraction program is primarily aimed at more efficient identification and processing of names for individual temple ordinance work. It solves the immediate need to provide many more names for the operation of the temples.
 
 In the past it was not uncommon for family organizations to spend an inordinate amount of time, money, and effort in search of a given ancestor. Now it would seem that once a reasonable, conventional effort has been made to locate a given ancestor, if he or she cannot be found, the family organization can assume its responsibility completed and move on to the next line or ancestor in question, leaving the processing of the unidentifiable ancestor to the extraction/indexing program.
 
@@ -47,7 +46,7 @@ Again, I emphasize that every family in the Church should belong to an immediate
 
 Once the families in the Church become organized as the prophet has counseled, and after we have done all we can as a church and as family organizations to identify our progenitors, then perhaps we may qualify for this prophetic blessing spoken of by President Brigham Young:
 
-“You will enter into the Temple of the Lord and begin to offer up ordinances before the Lord for your dead. ... Before this work is finished, a great many of the Elders of Israel in Mount Zion will become pillars in the Temple of God, to go no more out: they will eat and drink and sleep there; and they will often have occasion to say—‘Somebody came into the Temple last night; we did not know who he was, but he was no doubt a brother, and told us a great many things we did not before understand. He gave us the names of a great many of our forefathers that are not on record, and he gave me my true lineage and the names of my forefathers for hundreds of years back. He said to me, ‘You and I are connected in one family; there are the names of your ancestors; take them and write them down, and be baptised and confirmed, and save such and such ones, and receive of the blessings of the eternal Priesthood for such and such an individual, as you do for yourselves.’ This is what we are going to do for the inhabitants of the earth. When I look at it, I do not want to rest a great deal, but be industrious all the day long; for when we come to think upon it, we have no time to lose, for it is a pretty laborious work.” (Journal of Discourses, 6:295; italics added.)
+“You will enter into the Temple of the Lord and begin to offer up ordinances before the Lord for your dead. … Before this work is finished, a great many of the Elders of Israel in Mount Zion will become pillars in the Temple of God, to go no more out: they will eat and drink and sleep there; and they will often have occasion to say—‘Somebody came into the Temple last night; we did not know who he was, but he was no doubt a brother, and told us a great many things we did not before understand. *He gave us the names of a great many of our forefathers that are not on record,* and he gave me my true lineage and the names of my forefathers for hundreds of years back. He said to me, ‘You and I are connected in one family; there are the names of your ancestors; take them and write them down, and be baptised and confirmed, and save such and such ones, and receive of the blessings of the eternal Priesthood for such and such an individual, as you do for yourselves.’ This is what we are going to do for the inhabitants of the earth. When I look at it, I do not want to rest a great deal, but be industrious all the day long; for when we come to think upon it, we have no time to lose, for it is a pretty laborious work.” (*Journal of Discourses,* 6:295; italics added.)
 
 In keeping with the principles which I have outlined to you, I have organized my family, as I’m sure scores of you have done—the Ezra Taft Benson Family Organization—as a grandparent family. Our children and married grandchildren are organizing as part of that organization and as individual, immediate family organizations.
 
@@ -59,11 +58,14 @@ In the preparation of these histories, we have sought to write them in a common 
 
 Now, if you have not already done so, may I encourage you to organize your immediate and grandparent families and prepare your individual and family histories.
 
-“Let us go to and attend to our ordinances, then when we go to the spirit world and meet with father, mother, brother or sister they cannot rise up and accuse us of negligence. ... These [temple] ordinances have been revealed to us; we understand them, and unless we attend to them we shall fall under condemnation.” (Wilford Woodruff, in Journal of Discourses, 13:327.)
+“Let us go to and attend to our ordinances, then when we go to the spirit world and meet with father, mother, brother or sister they cannot rise up and accuse us of negligence. … These \[temple\] ordinances have been revealed to us; we understand them, and unless we attend to them we shall fall under condemnation.” (Wilford Woodruff, in *Journal of Discourses,* 13:327.)
 
-“Shall we not,” as the Prophet Joseph Smith declared, “go on in so great a cause? Go forward and not backward. Courage, ... and on, on to the victory! Let your hearts rejoice, and be exceedingly glad. Let the earth break forth into singing. Let the dead speak forth anthems of eternal praise to the King Immanuel, who hath ordained, before the world was, that which would enable us to redeem them out of their prison; for the prisoners shall go free.
+“Shall we not,” as the Prophet Joseph Smith declared, “go on in so great a cause? Go forward and not backward. Courage, … and on, on to the victory! Let your hearts rejoice, and be exceedingly glad. Let the earth break forth into singing. Let the dead speak forth anthems of eternal praise to the King Immanuel, who hath ordained, before the world was, that which would enable us to redeem them out of their prison; for the prisoners shall go free.
 
-“... Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in His holy temple ... a book containing the records of our dead, which shall be worthy of all acceptation.” (D&C 128:22, 24; italics added.)
+“… Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in His holy temple … a book containing the records of our dead, *which shall be worthy of all acceptation.*” ([[D&C 128.22|D&C 128:22, 24]][[D&C 128.24|]]; italics added.)
 
 In the name of Jesus Christ, amen.
+
+
+
 

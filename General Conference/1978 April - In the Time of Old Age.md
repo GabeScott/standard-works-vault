@@ -1,13 +1,14 @@
 # In the Time of Old Age
-*By By Barbara B. Smith - Relief Society General President*
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1978 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1978/04/in-the-time-of-old-age?lang=eng)
 
-“Sunrise, sunset—swiftly fly the years. ...” (From Fiddler on the Roof, 1964.)
+“Sunrise, sunset—swiftly fly the years. …” (From *Fiddler on the Roof,* 1964.)
 
-Those lines from the poignant song bring a memory of two friends who, like the father and mother portrayed in Fiddler on the Roof, did not “remember getting older.” The man was about sixty-three and the woman fifty-five. Both were healthy, happy, and employed in work they enjoyed.
+Those lines from the poignant song bring a memory of two friends who, like the father and mother portrayed in *Fiddler on the Roof,* did not “remember getting older.” The man was about sixty-three and the woman fifty-five. Both were healthy, happy, and employed in work they enjoyed.
 
 One day the man was told he must take an immediate retirement. On the Monday morning the retirement took effect, the husband watched his wife prepare to leave for work. He realized that he would be home alone with nothing to do. He had no occupation, no hobbies, no special interests, and no plans for the future.
 
@@ -17,9 +18,9 @@ What, indeed, was there for this man to do, who one day was at the peak of his c
 
 Now there are those who would say that this crisis in the lives of my friends was inevitable. This, of course, is true. Aging is a natural process.
 
-President N. Eldon Tanner has counseled: “People of all ages must realize that one day they could be old ... —a time for which we should all prepare.” (“Preparing for Old Age,” Ensign, Dec. 1976, p. 4.)
+President N. Eldon Tanner has counseled: “People of all ages must realize that one day they could be old … —a time for which we should all prepare.” (“Preparing for Old Age,” *Ensign,* Dec. 1976, p. 4.)
 
-Many different circumstances and factors affect the quality of a person’s life in the later years. But there is a corollary between preparing for old age and enjoying it when it comes. We are told in the Doctrine and Covenants: “If ye are prepared ye shall not fear.” (D&C 38:30.)
+Many different circumstances and factors affect the quality of a person’s life in the later years. But there is a corollary between preparing for old age and enjoying it when it comes. We are told in the Doctrine and Covenants: “If ye are prepared ye shall not fear.” ([[D&C 38.30|D&C 38:30]].)
 
 May I suggest a few preparations?
 
@@ -57,7 +58,7 @@ There may be times when the medical and physical needs of the aged can only be m
 
 And after a family member enters a health care institution, the family and the Church need to continue their supportive interest with regular visits and expressions of love. Visiting teachers, and, where appropriate, special nursing-home Relief Society sessions, can be a blessing to sisters in such institutions.
 
-Church members will be led to a greater understanding of their responsibilities regarding the aged if a stake uses the new BYU film production The Mailbox as the focus of a discussion on the needs and contributions of its elderly members.
+Church members will be led to a greater understanding of their responsibilities regarding the aged if a stake uses the new BYU film production *The Mailbox* as the focus of a discussion on the needs and contributions of its elderly members.
 
 When the time of old age comes upon us—and it surely will, for “swiftly fly the years,” as the song says—we need to come to that time with a courage born of faith and of preparation. Underlying all we do for ourselves and for our own, we must remember the aged with the compassionate spirit of Christ in whose work we are engaged.
 
@@ -65,7 +66,10 @@ May the cry of the psalmist ring in our hearts:
 
 “Cast me not off in the time of old age;
 
-“Forsake me not when my strength faileth.” (Ps. 71:9.)
+“Forsake me not when my strength faileth.” ([[Psalms 71.9|Ps. 71:9]].)
 
 I humbly pray, in the name of Jesus Christ. Amen.
+
+
+
 

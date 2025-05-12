@@ -1,5 +1,6 @@
 # The Aaronic Priesthood—a Gift from God
-*By Gordon B. Hinckley - First Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1988 General Conference*
 
@@ -19,9 +20,9 @@ When I was twelve, I also became a deacon in the Aaronic Priesthood. My name was
 
 Then two men, good and true and faithful—one of them my father—placed their hands upon my head and conferred upon me the Aaronic Priesthood and ordained me to the office of deacon. I did not have any oath, slogan, motto, or law to memorize in connection with this. But I did memorize section 13 of the Doctrine and Covenants, and I have remembered it ever since. These are the words of an angel. They are the words of John the Baptist when he conferred the Aaronic Priesthood upon Joseph Smith and Oliver Cowdery on May 15, 1829:
 
-“Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins; and this shall never be taken again from the earth, until the sons of Levi do offer again an offering unto the Lord in righteousness.” [D&C 13]
+“Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins; and this shall never be taken again from the earth, until the sons of Levi do offer again an offering unto the Lord in righteousness.” \[[[D&C 13.1|D&C 13]]\]
 
-Unlike Scouting, we did not have one large deacons quorum that met in the cultural hall. Rather, we were divided into four quorums, with up to twelve boys in each. I thought it was a good arrangement because there were fewer of us in a group, with less noise and a more intimate relationship between us and our priesthood leader. I later learned that this number had been wisely designated by the Lord in revelation. He said, “And again, verily I say unto you, the duty of a president over the office of a deacon is to preside over twelve deacons, to sit in council with them, and to teach them their duty, edifying one another” (D&C 107:85).
+Unlike Scouting, we did not have one large deacons quorum that met in the cultural hall. Rather, we were divided into four quorums, with up to twelve boys in each. I thought it was a good arrangement because there were fewer of us in a group, with less noise and a more intimate relationship between us and our priesthood leader. I later learned that this number had been wisely designated by the Lord in revelation. He said, “And again, verily I say unto you, the duty of a president over the office of a deacon is to preside over twelve deacons, to sit in council with them, and to teach them their duty, edifying one another” ([[D&C 107.85|D&C 107:85]]).
 
 Now I am not in any way disparaging Scouting. It is a wonderful program. It is the Church’s activity program for boys in many areas of the world.
 
@@ -51,15 +52,15 @@ Aaron lived to the good age of 123, and his authority was passed to his son to b
 
 Now what are the elements of this priesthood which were restored to the earth by John the Baptist?
 
-He said that this priesthood of Aaron “holds the keys of the ministering of angels” (D&C 13:1). It is a tremendous thing to have the right to the ministering of angels.
+He said that this priesthood of Aaron “holds the keys of the ministering of angels” ([[D&C 13.1|D&C 13:1]]). It is a tremendous thing to have the right to the ministering of angels.
 
 When President Wilford Woodruff was an elderly man, he said to the young men of the Church:
 
-“I desire to impress upon you the fact that it does not make any difference whether a man is a Priest or an Apostle, if he magnifies his calling. A Priest holds the keys of the ministering of angels. Never in my life, as an Apostle, as a Seventy, or as an Elder, have I ever had more of the protection of the Lord than while holding the office of a Priest. The Lord revealed to me by visions, by revelations, and by the Holy Spirit, many things that lay before me” (Millennial Star, 5 Oct. 1891, p. 629).
+“I desire to impress upon you the fact that it does not make any difference whether a man is a Priest or an Apostle, if he magnifies his calling. A Priest holds the keys of the ministering of angels. Never in my life, as an Apostle, as a Seventy, or as an Elder, have I ever had more of the protection of the Lord than while holding the office of a Priest. The Lord revealed to me by visions, by revelations, and by the Holy Spirit, many things that lay before me” (*Millennial Star,* 5 Oct. 1891, p. 629).
 
 On Sunday, February 28, 1897, ninety-one years ago, a great meeting was held here in this Salt Lake Tabernacle. It was to honor President Woodruff on his ninetieth birthday. The Tabernacle was beautifully decorated. There was appropriate music with talks of tribute. Then President Woodruff, old and somewhat crippled, stood to speak, and he said to the young men:
 
-“I have passed through the periods of boyhood, early manhood and old age. I cannot expect to tarry a great while longer with you, but I want to give to you a few words of counsel. You occupy a position in the Church and Kingdom of God and have received the power of the holy priesthood. The God of heaven has appointed you and called you forth in this day and generation. I want you to look at this. Young men, listen to the counsel of your brethren. Live near to God; pray while young; learn to pray; learn to cultivate the Holy Spirit of God; link it to you and it will become a spirit of revelation unto you, inasmuch as you nourish it” (Matthias Cowley, Wilford Woodruff, 2d ed., Salt Lake City: Deseret News, 1916, pp. 602–3).
+“I have passed through the periods of boyhood, early manhood and old age. I cannot expect to tarry a great while longer with you, but I want to give to you a few words of counsel. You occupy a position in the Church and Kingdom of God and have received the power of the holy priesthood. The God of heaven has appointed you and called you forth in this day and generation. I want you to look at this. Young men, listen to the counsel of your brethren. Live near to God; pray while young; learn to pray; learn to cultivate the Holy Spirit of God; link it to you and it will become a spirit of revelation unto you, inasmuch as you nourish it” (Matthias Cowley, *Wilford Woodruff,* 2nd ed., Salt Lake City: Deseret News, 1916, pp. 602–3).
 
 President Woodruff had an inspired view of this remarkable and wonderful blessing which may be enjoyed by every boy who holds the Aaronic Priesthood and lives worthy of it. That key is the gift of the ministering of angels. I am convinced that the Lord would not have given it to us had he not desired that we have it so that we might enjoy the wonderful gifts, guidance, and protection which come therefrom.
 
@@ -84,4 +85,7 @@ You cannot consistently so serve on the Sabbath and fail to live the standards o
 I would not wish to leave the impression that these abhorrent practices are common among the young men of the Church, but I know that they are not entirely absent. Most of you are trying to do the right thing, and I compliment you most warmly. But if there be any here who are not doing the right thing, then I plead with you, and I invoke upon you the spirit of repentance, the keys of which you hold as those endowed with the Aaronic Priesthood. Make yourselves worthy in every respect, and the Lord will bless you. You will have peace in your hearts and a greater sense of the remarkable power which has been given to you under this greatest of all programs for young men, this program which has come from the Lord Himself for the blessing of young men and those to whom they minister.
 
 I bear my witness and testimony of these things as I invoke the blessings of the Lord upon you, His servants, who have been endowed with His power. In the name of Jesus Christ, amen.
+
+
+
 

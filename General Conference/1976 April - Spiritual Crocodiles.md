@@ -1,5 +1,6 @@
 # Spiritual Crocodiles
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -55,11 +56,11 @@ I could see for myself that there were no crocodiles. I was so sure of myself I 
 
 My young friends, I hope you’ll be wiser in talking to your guides than I was on that occasion. That smart-aleck idea that I knew everything really wasn’t worthy of me, nor is it worthy of you. I’m not very proud of it, and I think I’d be ashamed to tell you about it except that telling you may help you.
 
-Those ahead of you in life have probed about the water holes a bit and raise a voice of warning about crocodiles. Not just the big, gray lizards that can bite you to pieces, but spiritual crocodiles, infinitely more dangerous, and more deceptive and less visible, even, than those well-camouflaged reptiles of Africa.
+Those ahead of you in life have probed about the water holes a bit and raise a voice of warning about crocodiles. Not just the big, gray lizards that can bite you to pieces, but *spiritual crocodiles,* infinitely more dangerous, and more deceptive and less visible, even, than those well-camouflaged reptiles of Africa.
 
 These spiritual crocodiles can kill or mutilate your souls. They can destroy your peace of mind and the peace of mind of those who love you. Those are the ones to be warned against, and there is hardly a watering place in all of mortality now that is not infested with them.
 
-On another trip to Africa I discussed this experience with a game ranger in another park. He assured me that you can indeed hide a crocodile in an elephant track—one big enough to bite a man in two.
+On another trip to Africa I discussed this experience with a game ranger in another park. He assured me that you can *indeed* hide a crocodile in an elephant track—one big enough to bite a man in two.
 
 He then showed me a place where a tragedy had occurred. A young man from England was working in the hotel for the season. In spite of constant and repeated warnings, he went through the compound fence to check something across a shallow splash of water that didn’t cover his tennis shoes.
 
@@ -87,13 +88,13 @@ The basic exercise for you to perform in your youth to become spiritually strong
 
 Now, my young friends, I would like to make reference to another experience, one I think of often but one I seldom talk about. I shall not mention it in detail; I only want to refer to it. It happened many years ago when I was perhaps not quite as young as you are now, and it had to do with my decision to follow that guide.
 
-I knew what agency was and knew how important it was to be individual and to be independent, to be free. I somehow knew there was one thing the Lord would never take from me, and that was my free agency. I would not surrender my agency to any being but to Him! I determined that I would give Him the one thing that He would never take—my agency. I decided, by myself, that from that time on I would do things His way.
+I knew what agency was and knew how important it was to be individual and to be independent, to be free. I somehow knew there was one thing the Lord would never take from me, and that was my free agency. I would not surrender my agency to any being but to Him! I determined that I would *give* Him the one thing that He would never take—my agency. I decided, by myself, that from that time on I would do things His way.
 
-That was a great trial for me, for I thought I was giving away the most precious thing I possessed. I was not wise enough in my youth to know that because I exercised my agency and decided myself, I was not losing it. It was strengthened!
+That was a great trial for me, for I thought I was giving away the most precious thing I possessed. I was not wise enough in my youth to know that because I exercised my agency and decided myself, I was not *losing* it. It was *strengthened!*
 
 I learned from that experience the meaning of the scripture: “If ye continue in my word, then are ye my disciples indeed;
 
-“And ye shall know the truth, and the truth shall make you free.” (John 8:31–32.)
+“And ye shall know the truth, and the truth shall make you free.” ([[John 8.31|John 8:31–32]][[John 8.32|]].)
 
 I have not been quite as frightened of spiritual crocodiles since then, because I have been alerted on many occasions as to where they were lurking.
 
@@ -102,4 +103,7 @@ I have been nipped a time or two and on occasion have needed some spiritual firs
 Fortunately, there is spiritual first aid for those who have been bitten. The bishop of the ward is the guide in charge of this first aid. He can also treat those who have been badly morally mauled by these spiritual crocodiles—and see them completely healed.
 
 That experience in Africa was another reminder for me to follow the Guide. I follow Him because I want to. Through the other experience I came to know the Guide. I bear witness that He lives, that Jesus is the Christ. I know that He has a body of flesh and bones, that He directs this Church, and His purpose is to see all of us guided safely back into His presence. In the name of Jesus Christ. Amen.
+
+
+
 

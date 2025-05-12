@@ -1,5 +1,6 @@
 # Jesus the Christ
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -7,15 +8,15 @@
 
 Beloved brothers and sisters, we come to the close of this great conference. We have been much benefited and blessed. You have heard thirty or more speakers bear testimony of the divinity of Jesus Christ, and I should like to say it was He, Jesus Christ, who came forth from the tomb a resurrected being, and He, who “though he were a Son, yet learned he obedience by the things which he suffered;
 
-“And being made perfect, he became the author of eternal salvation unto all them that obey him.” (Heb. 5:8–9.)
+“And being made perfect, he became the author of eternal salvation unto all them that obey him.” ([[Hebrews 5.8|Heb. 5:8–9]][[Hebrews 5.9|]].)
 
-It was this same Jesus Christ who gave revelations to his prophets and revealed to them also through John the Revelator: “I am Alpha and Omega, the first and the last ...
+It was this same Jesus Christ who gave revelations to his prophets and revealed to them also through John the Revelator: “I am Alpha and Omega, the first and the last …
 
-“I am he that liveth, and was dead; and, behold, I am alive for evermore, Amen; and have the keys of hell and of death.” (Rev. 1:11, 18.)
+“I am he that liveth, and was dead; and, behold, I am alive for evermore, Amen; and have the keys of hell and of death.” ([[Revelation 1.11|Rev. 1:11, 18]][[Revelation 1.18|]].)
 
 It was He, Jesus Christ, in his glorified state who came to the ancestors of the Indians, who is variously known by them as the Great White Spirit, the Fair God and numerous other names.
 
-It was He, Jesus Christ, our Savior, who was introduced to surprised listeners at Jordan (see Matt. 3:13–17), at the holy Mount of Transfiguration (see Matt. 17:1–9), at the temple of the Nephites (see 3 Ne. 11–26), and in the grove at Palmyra, New York (see JS—H 1:17–25); and the introducing person was none other than his actual Father, the holy Elohim, in whose image he was and whose will he carried out.
+It was He, Jesus Christ, our Savior, who was introduced to surprised listeners at Jordan (see [[Matthew 3.13|Matt. 3:13–17]][[Matthew 3.14|]][[Matthew 3.15|]][[Matthew 3.16|]][[Matthew 3.17|]]), at the holy Mount of Transfiguration (see [[Matthew 17.1|Matt. 17:1–9]][[Matthew 17.2|]][[Matthew 17.3|]][[Matthew 17.4|]][[Matthew 17.5|]][[Matthew 17.6|]][[Matthew 17.7|]][[Matthew 17.8|]][[Matthew 17.9|]]), at the temple of the Nephites (see [[3 Nephi 11.1|3 Ne. 11–26]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]]), and in the grove at Palmyra, New York (see [[Joseph Smith History 1.17|JS—H 1:17–25]][[Joseph Smith History 1.18|]][[Joseph Smith History 1.19|]][[Joseph Smith History 1.20|]][[Joseph Smith History 1.21|]][[Joseph Smith History 1.22|]][[Joseph Smith History 1.23|]][[Joseph Smith History 1.24|]][[Joseph Smith History 1.25|]]); and the introducing person was none other than his actual Father, the holy Elohim, in whose image he was and whose will he carried out.
 
 Many people have grown up with the idea that it was the Father who was in charge through the Old Testament history days whenever the title God or Lord was used.
 
@@ -29,15 +30,15 @@ The mountain, the river, the volcano became gods to many. But man in his searchi
 
 Jesus Christ is the God of this world. He has made it very plain in his many self-introductions.
 
-The Lord Jesus Christ proclaimed to Abraham, “My name is Jehovah.” (Abr. 2:8.)
+The Lord Jesus Christ proclaimed to Abraham, “My name is Jehovah.” ([[Abraham 2.8|Abr. 2:8]].)
 
-And Abraham declared, “Thus I, Abraham, talked with the Lord, face to face, as one man talketh with another; and he told me of the works which his hands had made.” (Abr. 3:11.)
+And Abraham declared, “Thus I, Abraham, talked with the Lord, face to face, as one man talketh with another; and he told me of the works which his hands had made.” ([[Abraham 3.11|Abr. 3:11]].)
 
-And Moses said concerning his Maker: “And he [Moses] saw God face to face, ... and the glory of God was upon Moses; therefore Moses could endure his presence.
+And Moses said concerning his Maker: “And he \[Moses\] saw God face to face, … and the glory of God was upon Moses; therefore Moses could endure his presence.
 
-“And God spake unto Moses, saying: Behold, I am the Lord God Almighty, and Endless is my name. ...” (Moses 1:2–3.)
+“And God spake unto Moses, saying: Behold, I am the Lord God Almighty, and Endless is my name. …” ([[Moses 1.2|Moses 1:2–3]][[Moses 1.3|]].)
 
-In the first century in this land the people who had read the scriptures and realized they were about to be fulfilled gathered in a great multitude around and about the temple in the land Bountiful. As they marveled and wondered, conversing about this Jesus Christ, of whom the sign had been given concerning his death, and “while they were thus conversing one with another, they heard a voice as if it came out of heaven ...
+In the first century in this land the people who had read the scriptures and realized they were about to be fulfilled gathered in a great multitude around and about the temple in the land Bountiful. As they marveled and wondered, conversing about this Jesus Christ, of whom the sign had been given concerning his death, and “while they were thus conversing one with another, they heard a voice as if it came out of heaven …
 
 “It did pierce them to the very soul, and did cause their hearts to burn.
 
@@ -51,9 +52,9 @@ In the first century in this land the people who had read the scriptures and rea
 
 “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.
 
-“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.” (3 Ne. 11:3, 6–11.)
+“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.” ([[3 Nephi 11.3|3 Ne. 11:3, 6–11]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]].)
 
-After a long dissertation in which he explained to them the doctrines of Christianity, he said, “Behold, ye have both heard my voice, and seen me.” (3 Ne. 15:24.)
+After a long dissertation in which he explained to them the doctrines of Christianity, he said, “Behold, ye have both heard my voice, and seen me.” ([[3 Nephi 15.24|3 Ne. 15:24]].)
 
 “When Jesus came into the coasts of Caesarea Philippi, he asked his disciples, saying, Whom do men say that I the Son of man am?
 
@@ -65,9 +66,9 @@ After a long dissertation in which he explained to them the doctrines of Christi
 
 “And Jesus answered and said unto him, Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven.
 
-“And I say also unto thee, That thou art Peter, and upon this rock [the rock of revelation] I will build my church; and the gates of hell shall not prevail against it.
+“And I say also unto thee, That thou art Peter, and upon this rock \[the rock of revelation\] I will build my church; and the gates of hell shall not prevail against it.
 
-“And I will give unto thee the keys of the kingdom of heaven: and whatsoever thou shalt bind on earth shall be bound in heaven: and whatsoever thou shalt loose on earth shall be loosed in heaven.” (Matt. 16:13–19.)
+“And I will give unto thee the keys of the kingdom of heaven: and whatsoever thou shalt bind on earth shall be bound in heaven: and whatsoever thou shalt loose on earth shall be loosed in heaven.” ([[Matthew 16.13|Matt. 16:13–19]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]][[Matthew 16.17|]][[Matthew 16.18|]][[Matthew 16.19|]].)
 
 Here were the sacred binding keys of the kingdom of heaven to bind in heaven that which was authoritatively bound in the earth.
 
@@ -77,7 +78,7 @@ It was the solid, firm rock of revelation by which the apostles knew that He was
 
 “And I saw, and bare record that this is the Son of God.
 
-“And looking upon Jesus as he walked, he saith, Behold the Lamb of God!” (John 1:29, 34, 36.)
+“And looking upon Jesus as he walked, he saith, Behold the Lamb of God!” ([[John 1.29|John 1:29, 34, 36]][[John 1.34|]][[John 1.36|]].)
 
 Then we have the testimony of Peter: “Yea, I think it meet, as long as I am in this tabernacle, to stir you up by putting you in remembrance;
 
@@ -89,11 +90,14 @@ Then we have the testimony of Peter: “Yea, I think it meet, as long as I am in
 
 “For he received from God the Father honour and glory, when there came such a voice to him from the excellent glory, This is my Beloved Son, in whom I am well pleased.
 
-“And this voice which came from heaven we heard, when we were with him in the holy mount.” (2 Pet. 1:13–18.)
+“And this voice which came from heaven we heard, when we were with him in the holy mount.” ([[2 Peter 1.13|2 Pet. 1:13–18]][[2 Peter 1.14|]][[2 Peter 1.15|]][[2 Peter 1.16|]][[2 Peter 1.17|]][[2 Peter 1.18|]].)
 
 These are indeed great testimonies of our Savior, Jesus Christ.
 
 This has been a great conference and as each one of these wonderful sermons has been rendered I’ve listened with great attention, and I have made up my mind that I shall go home and be a greater man than I have ever been before. I have listened to all the instructions and the suggestions, and I am hoping that every person who has heard them has done likewise. We have heard many things, all in harmony with the teachings of Jesus Christ. They have been beautifully given by men who are dedicated to the service of the Lord. I urge you to take much thought in your return home from this conference and think again of the things that have been brought to your attention; and so far as they approach your life in any way, see if you can use them to bring you back—all of us—toward the perfection which the Lord has asked of us.
 
 Now brethren and sisters, it has been glorious to be with you. May peace be with you. May you return home in safety and find your families well. We bring to you this great conference with our love and affection and our hope that it will have been a great monument of success in your lives. And now I should like to say once more: God lives; Jesus is the Christ. And all the testimonies we have borne, and that the prayers have borne, and the singers have borne, we communicate to you in the name of Jesus Christ. Amen.
+
+
+
 

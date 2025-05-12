@@ -1,5 +1,6 @@
 # He Is in Charge
-*By Helio da Rocha Camargo - Of the First Quorum of the Seventy*
+
+By Elder Helio da Rocha Camargo - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
 
@@ -12,4 +13,7 @@ When President Hinckley called me and asked me to accept this calling, there cam
 This is the way I feel about my calling in this position. The Lord chose to put me in this position, using my weakness and my inability so that he could prove that he is God, he is the Lord, he is in charge. Even using my poor and broken English, he can do his work. It is because I believe this—I know this, I know that he lives, he is in charge, as I told President Hinckley—that I accept this calling in humility, but in certainty that the Lord is with me. He leads, he governs, and this is his kingdom.
 
 I know that the Lord lives. I know that President Kimball is a prophet—oh, I know that! I could tell you some stories, but the time is not enough now. I know that I am a child of God, and that this gospel is the plan for the happiness of all the children of God in this world, and this I say in the name of Jesus Christ, amen.
+
+
+
 

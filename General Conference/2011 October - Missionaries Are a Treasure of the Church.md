@@ -1,7 +1,10 @@
 # Missionaries Are a Treasure of the Church
-*By Kazuhiko Yamashita - Of the Seventy*
+
+By Elder Kazuhiko Yamashita - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
+
+>*I am thankful that missionaries are called by the Lord, that they respond to that call, and that they are serving throughout the world.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/10/missionaries-are-a-treasure-of-the-church?lang=eng)
 
@@ -15,7 +18,7 @@ I was touched when I heard Elder Swan’s words. And I now understood why Elder 
 
 I am sure that some of you have experienced something similar to this. A number of missionaries serving in Japan have told me that their fathers, their mothers, their grandfathers, or their uncles have also served missions in Japan.
 
-I would like to express my sincere love, respect, and feeling of thankfulness for all the returned missionaries who have served around the world. I am sure that those you helped convert have not forgotten you. “How beautiful upon the mountains are the feet of him that bringeth good tidings ... !”1
+I would like to express my sincere love, respect, and feeling of thankfulness for all the returned missionaries who have served around the world. I am sure that those you helped convert have not forgotten you. “How beautiful upon the mountains are the feet of him that bringeth good tidings!”[^1]
 
 I am one of those converts. I was converted at 17, when I was a high school student. The missionary who performed my baptism was an Elder Rupp from Idaho. He was recently released as a stake president in Idaho. I have not seen him since I was newly baptized, but I have exchanged e-mails with him and talked to him by telephone. I have never forgotten him. His kind, smiling face is etched into my memory. He was so happy when he learned that I was doing well.
 
@@ -35,15 +38,24 @@ I also would like to talk to you future missionaries. In my own family, four of 
 
 So I speak to my sons and to all of you preparing to serve missions. It is necessary to bring three things with you on your mission:
 
-A desire to preach the gospel. The Lord wants you to search for His sheep and seek them out.2 People all over the world are waiting for you. Please go quickly to where they are. No one strives harder than missionaries to go to the rescue of others. I am one of those rescued.
+1. A desire to preach the gospel. The Lord wants you to search for His sheep and seek them out.[^2] People all over the world are waiting for you. Please go quickly to where they are. No one strives harder than missionaries to go to the rescue of others. I am one of those rescued.
 
-Develop your testimony. The Lord requires your “heart and a willing mind.”3
+2. Develop your testimony. The Lord requires your “heart and a willing mind.”[^3]
 
-Love others, just like Elder Swan, who brought his father’s coat and his father’s love for Japan and its people with him on his mission.
+3. Love others, just like Elder Swan, who brought his father’s coat and his father’s love for Japan and its people with him on his mission.
 
 And for those of you who don’t know how to prepare to serve a mission, please go and see your bishop. I know that he will help you.
 
 I am thankful that missionaries are called by the Lord, that they respond to that call, and that they are serving throughout the world. Let me say to all of you beloved returned missionaries: I am truly thankful for all your efforts. You are a treasure of this Church. And may you always continue to be missionaries and act like disciples of Christ.
 
 I testify that we are our Father in Heaven’s children, that He loves us, and that He sent His Beloved Son, Jesus Christ, so that we can again return to His presence. I say these things in the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Isaiah 52.7|Isaiah 52:7]].
+
+[^2]: See [[Ezekiel 34.11|Ezekiel 34:11]].
+
+[^3]: [[D&C 64.34|Doctrine and Covenants 64:34]].
 

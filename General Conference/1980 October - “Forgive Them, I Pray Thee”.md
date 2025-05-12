@@ -1,5 +1,6 @@
 # “Forgive Them, I Pray Thee”
-*By Vaughn J. Featherstone - Of the First Quorum of the Seventy*
+
+By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -9,31 +10,31 @@ My beloved brothers and sisters, it has been my privilege through the past years
 
 Not too long ago a young wife spoke at her husband’s funeral and said, “We came to realize that unimportant things really are unimportant. When the spirit is sick, there can be no true healing, no matter how strong the physical body. If the spirit is well, then physical impairment is unimportant, regardless of the effects of a debilitating disease.”
 
-The Lord has provided the way whereby our spiritual sicknesses can be healed. In the first chapter of Isaiah, verse 18, we read, “Come now, and let us reason together, saith the Lord: though your sins be as scarlet they shall be as white as snow; though they be red like crimson, they shall be as wool.”
+The Lord has provided the way whereby our spiritual sicknesses can be healed. In the [[Isaiah 1.18|first chapter of Isaiah, verse 18]], we read, “Come now, and let us reason together, saith the Lord: though your sins be as scarlet they shall be as white as snow; though they be red like crimson, they shall be as wool.”
 
-And, again in the Doctrine and Covenants, “Nevertheless, he that repents and does the commandments of the Lord shall be forgiven” (D&C 1:32).
+And, again in the Doctrine and Covenants, “Nevertheless, he that repents and does the commandments of the Lord shall be forgiven” ([[D&C 1.32|D&C 1:32]]).
 
-Also, “Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more” (D&C 58:42).
+Also, “Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more” ([[D&C 58.42|D&C 58:42]]).
 
 For one to be forgiven of sin, the Lord requires that he come unto him, mourn over his sins, forsake the sins, be teachable, forgive others, and confess.
 
-Again, in the fifty-eighth section of the Doctrine and Covenants, we read, “By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them” (D&C 58:43).
+Again, in the fifty-eighth section of the Doctrine and Covenants, we read, “By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them” ([[D&C 58.43|D&C 58:43]]).
 
-We must always be truly sincere. In The Adventures of Huckleberry Finn, by Mark Twain, Huck says:
+We must always be truly sincere. In *The Adventures of Huckleberry Finn,* by Mark Twain, Huck says:
 
-“It made me shiver. And I about made up my mind to pray and see if I couldn’t try to quit being the kind of boy I was and be better. So I kneeled down. But the words wouldn’t come. Why wouldn’t they? It weren’t no use to try and hide it from Him ... I knowed very well why they wouldn’t come. It was because my heart warn’t right; it was because I weren’t square: it was because I was playing double. I was letting on to give up sin, but away inside of me I was holding on to the biggest one of all. I was trying to make my mouth say I would do the right thing and the clean thing. But deep down in me, I knowed it was a lie, and He knowed it. YOU CAN’T PRAY A LIE ... I found that out.” (New York: Platt & Munk, 1960, pp. 445–46.)
+“It made me shiver. And I about made up my mind to pray and see if I couldn’t try to quit being the kind of boy I was and be better. So I kneeled down. But the words wouldn’t come. Why wouldn’t they? It weren’t no use to try and hide it from Him … I knowed very well why they wouldn’t come. It was because my heart warn’t right; it was because I weren’t square: it was because I was playing double. I was letting on to give up sin, but away inside of me I was holding on to the biggest one of all. I was trying to make my mouth say I would do the right thing and the clean thing. But deep down in me, I knowed it was a lie, and He knowed it. YOU CAN’T PRAY A LIE … I found that out.” (New York: Platt & Munk, 1960, pp. 445–46.)
 
 Huck Finn was right. You can’t pray a lie; and regardless of what may be decided by a common judge, actual forgiveness cannot take place until true repentance has preceded it. The common judge serves as the Lord’s agent. A bishop may be deceived, but the Holy Ghost cannot. When confession takes place, it ought to be from the inner-most depths of the heart and soul.
 
-What a tragedy when someone finally gets enough courage to go to the bishop and then leaves his office having only partially confessed. Oh, beloved brothers and sisters, “the shepherd should not recoil from the diseased sheep” (Victor Hugo, Les Miserables, New York: Random House, n.d., p. 32). The bishops in this kingdom have been endowed with wisdom, judgment, and mercy from on high. They can relieve the burden of the repentant sufferer.
+What a tragedy when someone finally gets enough courage to go to the bishop and then leaves his office having only partially confessed. Oh, beloved brothers and sisters, “the shepherd should not recoil from the diseased sheep” (Victor Hugo, *Les Miserables,* New York: Random House, n.d., p. 32). The bishops in this kingdom have been endowed with wisdom, judgment, and mercy from on high. They can relieve the burden of the repentant sufferer.
 
-Some years ago, a man knocked on my office door late at night and said, “President, may I speak to you? Are we all alone?” I assured him no one else was in the office. We sat across the corner of the desk, and he said, “Four times I have driven over to the stake office and have seen your light on, and four times I have driven back home without coming in. But,” he continued, “last night I was reading in The Miracle of Forgiveness again, and I realized that every major transgression must be confessed. I have come to confess a transgression. I have been on two high councils and have served as a bishop twice, and I believe the Lord called me.”
+Some years ago, a man knocked on my office door late at night and said, “President, may I speak to you? Are we all alone?” I assured him no one else was in the office. We sat across the corner of the desk, and he said, “Four times I have driven over to the stake office and have seen your light on, and four times I have driven back home without coming in. But,” he continued, “last night I was reading in *The Miracle of Forgiveness* again, and I realized that every major transgression must be confessed. I have come to confess a transgression. I have been on two high councils and have served as a bishop twice, and I believe the Lord called me.”
 
 I agreed, “I’m sure he called you.”
 
 He said, “Forty-two years ago, before my wife and I were married, we committed fornication once, the week prior to our going to the temple. We did not lie to the bishop, who was my wife’s father; he simply talked with us and signed our recommends. We then went to the stake president, and he did not interview us. He signed our recommends, and we went to the temple unworthily. While we were on our honeymoon,” he continued, “we decided to make it up to the Lord. We decided we would pay more than our share of tithing and more than our share of building fund; we would accept every assignment to the welfare farm and do all else we were asked to do. We decided we were not worthy to go to the temple, and we did not go for a year. It has been forty-two years since the transgression, and we have lived as near Christlike lives as we know how. I believe we have been forgiven, but I know that confession is necessary.”
 
-Then he quoted from 2 Nephi 9:41, which states, “Behold, the way for man is narrow, but it lieth in a straight course before him, and the keeper of the gate is the Holy One of Israel; and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name.”
+Then he quoted from [[2 Nephi 9.41|2 Nephi 9:41]], which states, “Behold, the way for man is narrow, but it lieth in a straight course before him, and the keeper of the gate is the Holy One of Israel; and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name.”
 
 Then he said, “I would rather confess to you now. I am not a young man, and I do not have a lot of years left. I want to be able to meet my Savior with nothing left undone.”
 
@@ -61,7 +62,7 @@ It was like pulling wild horses to get a confession. Finally, about fifteen minu
 
 She stopped, looked up at me and, with tears in her eyes, and said, “President, I feel clean for the first time in forty-two years.”
 
-A little publication put out by the Church states, “When one has washed his robes in the blood of the Lamb, they are no longer soiled” (Spencer W. Kimball, A Letter to a Friend, pamphlet, p. 23).
+A little publication put out by the Church states, “When one has washed his robes in the blood of the Lamb, they are no longer soiled” (Spencer W. Kimball, *A Letter to a Friend,* pamphlet, p. 23).
 
 One day a woman came to my business office. She leaned across the desk and said, “President, I have carried a transgression on my heart for thirty-four years that I cannot carry one more step in this life. I know how tender-hearted you are, and I wouldn’t add one particle of a burden to your soul.”
 
@@ -83,19 +84,22 @@ Again I sat across the desk from her and said, “I do not want to keep you wait
 
 If the Savior had been sitting where the woman sat, I would not have felt any closer to him. I believe that is exactly what he would have done. It was as though a two-thousand-pound burden had been lifted from the heart of this good woman. She wept great tears of relief and joy. To this day, I do not remember who the woman was.
 
-President J. Reuben Clark, Jr., said, “I feel that [the Savior] will give that punishment which is the very least that our transgression will justify. ...
+President J. Reuben Clark, Jr., said, “I feel that \[the Savior\] will give that punishment which is the very least that our transgression will justify. …
 
-“I believe that when it comes to making the rewards for our good conduct, he will give us the maximum that it is possible to give.” (J. Reuben Clark, Jr., “As Ye Sow ... ,” Brigham Young University Speeches of the Year, Provo, 3 May 1955, p. 7.) I, too, believe this with all my heart and soul.
+“I believe that when it comes to making the rewards for our good conduct, he will give us the maximum that it is possible to give.” (J. Reuben Clark, Jr., *“As Ye Sow … ,”* Brigham Young University Speeches of the Year, Provo, 3 May 1955, p. 7.) I, too, believe this with all my heart and soul.
 
-In Exodus 32, Moses had gone up to the mountain. The children of Israel had fashioned a golden calf with a graving tool. The people offered burnt offerings, and they sat down to eat, drink, and play; and there was great wickedness when Moses came down out of the mountain. He cast the tablets out of his hands, and they were broken; he burned the golden calf and caused the idolaters to be slain.
+In [[Exodus 32.1|Exodus 32]][[Exodus 32.2|]][[Exodus 32.3|]][[Exodus 32.4|]][[Exodus 32.5|]][[Exodus 32.6|]][[Exodus 32.7|]][[Exodus 32.8|]][[Exodus 32.9|]][[Exodus 32.10|]][[Exodus 32.11|]][[Exodus 32.12|]][[Exodus 32.13|]][[Exodus 32.14|]][[Exodus 32.15|]][[Exodus 32.16|]][[Exodus 32.17|]][[Exodus 32.18|]][[Exodus 32.19|]][[Exodus 32.20|]][[Exodus 32.21|]][[Exodus 32.22|]][[Exodus 32.23|]][[Exodus 32.24|]][[Exodus 32.25|]][[Exodus 32.26|]][[Exodus 32.27|]][[Exodus 32.28|]][[Exodus 32.29|]][[Exodus 32.30|]][[Exodus 32.31|]][[Exodus 32.32|]][[Exodus 32.33|]][[Exodus 32.34|]][[Exodus 32.35|]], Moses had gone up to the mountain. The children of Israel had fashioned a golden calf with a graving tool. The people offered burnt offerings, and they sat down to eat, drink, and play; and there was great wickedness when Moses came down out of the mountain. He cast the tablets out of his hands, and they were broken; he burned the golden calf and caused the idolaters to be slain.
 
-Then, when the people had repented (and that is the key), Moses went back before the Lord and prayed, “Yet now, if thou wilt forgive their sin—; and if not, blot me, I pray thee, out of thy book which thou hast written” (Ex. 32:32).
+Then, when the people had repented (and that is the key), Moses went back before the Lord and prayed, “Yet now, if thou wilt forgive their sin—; and if not, blot me, I pray thee, out of thy book which thou hast written” ([[Exodus 32.32|Ex. 32:32]]).
 
 I have listened to possibly a thousand major transgressions; and each time after a truly repentant transgressor has left my office, I have either knelt behind the desk or bowed my head in prayer and said, “Lord, forgive him or her, I pray thee. If not, blot my name also out of thy book. I do not want to be where they aren’t, for they are some of the most Christlike people I have ever met.”
 
-Though their sins be as scarlet, they may become white as the driven snow (see Isa. 1:18), and the Lord has promised he would remember their sins no more (see D&C 58:42).
+Though their sins be as scarlet, they may become white as the driven snow (see [[Isaiah 1.18|Isa. 1:18]]), and the Lord has promised he would remember their sins no more (see [[D&C 58.42|D&C 58:42]]).
 
 Beloved, the Lord has provided every soul with a Christlike ecclesiastical leader who has been endowed with powers and keys from on high to be his agent in exercising forgiveness on behalf of the Church. I plead with you: if you have a major transgression on your heart that has not been confessed, go to your bishop. He will be filled with love and charity and will bless your life and take the burden of sin from your heart as a repentant soul in modern Israel.
 
 I know that he, our Savior, loves us and that he is our Redeemer, our Atoner, and our Savior. In the name of Jesus Christ, amen.
+
+
+
 

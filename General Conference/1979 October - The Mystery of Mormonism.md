@@ -1,11 +1,12 @@
 # The Mystery of Mormonism
-*By Bruce R. McConkie - Of the Council of the Twelve*
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/10/the-mystery-of-mormonism?lang=eng)
 
-I shall speak as a second witness to the things of which President N. Eldon Tanner has just so eloquently and fervently testified. We have some words to speak to the world at large. We address ourselves particularly to those inquiring minds who desire to hear some new doctrine, to see some strange sight, to unravel (shall we not say it?) the greatest mystery of the religious world—the mystery of Mormonism.
+I shall speak as a second witness to the things of which President N. Eldon Tanner has just so eloquently and fervently testified. We have some words to speak to the world at large. We address ourselves particularly to those inquiring minds who desire to hear some new doctrine, to see some strange sight, to unravel (shall we not say it?) the greatest mystery of the religious world—the mystery of Mormonism.
 
 We are a peculiar people; we are a congregation of true believers who are unique and different from all others; we are the Saints of the Most High who are assembling together in many nations to build up Zion and to prepare a people for the second coming of the Son of Man.
 
@@ -17,7 +18,7 @@ We feel it is not too much to ask, in this age of enlightenment and open dialogu
 
 We glory in our designation as a peculiar people. It is our desire to be unique—different from other men—because we have forsaken the world and have made a covenant to live godly lives and to walk in paths of truth and virtue.
 
-It is our hope that it may ever be said of us, as Peter avouched of the true believers in his day: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” (1 Pet. 2:9).
+It is our hope that it may ever be said of us, as Peter avouched of the true believers in his day: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
 
 Now out of a decent respect for the views and concerns of our fellowmen—Christian and non-Christian, Jew and Gentile alike—we shall set forth some of those things which we believe and know to be true.
 
@@ -41,13 +42,13 @@ It called for an infinite and eternal atonement—wrought by One who would be th
 
 The Lord Jesus Christ, the Firstborn of the Father, was chosen for this high and exalted labor. He was born of Mary in time’s meridian and was crucified for the sins of the world.
 
-Thus salvation is in Christ; it comes through his goodness and grace and because of his atoning sacrifice; he came “to bring to pass the immortality and eternal life of man” (Moses 1:39).
+Thus salvation is in Christ; it comes through his goodness and grace and because of his atoning sacrifice; he came “to bring to pass the immortality and eternal life of man” ([[Moses 1.39|Moses 1:39]]).
 
 He is our Savior and Redeemer. His was a ministry of mediation and of reconciliation; he brought to pass the great and eternal plan of redemption. Because of him we can be justified; we can be sanctified; we can be saved with an eternal salvation. He is our God and we are his people, and we sing praises to his holy name forever!
 
 On our part, to give full efficacy to his atonement and to claim for ourselves the cleansing power of his blood, we must believe in him and in his Father, repent of our sins, covenant in the waters of baptism to love and serve them all our days, and then receive the gift of the Holy Ghost.
 
-Thereafter, guided by that holy monitor, we must walk in the light, keep the commandments, and overcome the world. Such is the plan of salvation for all men in all ages. Such is the plan that has been revealed from age to age so that fallen man might work out his salvation with fear and trembling before the Lord (see Philip. 2:12).
+Thereafter, guided by that holy monitor, we must walk in the light, keep the commandments, and overcome the world. Such is the plan of salvation for all men in all ages. Such is the plan that has been revealed from age to age so that fallen man might work out his salvation with fear and trembling before the Lord (see [[Philippians 2.12|Philip. 2:12]]).
 
 And now—hear it, O ye heavens, and give ear, O earth—the great God, who is Father to us all, who loves all his children, and who pleads with all men to repent and be saved, the great God in heaven above has commenced the promised restoration of all things.
 
@@ -55,7 +56,7 @@ He speaks; the voice of God is heard again. He appears; mortal man once more see
 
 As the Father was in Christ manifesting himself to the world in the last dispensation, so in our day the Son becomes his voice and witness and revealer.
 
-“This is My Beloved Son. Hear Him!” the Father said in the spring of 1820 (JS—H 1:17). From that moment the divine word pours forth; line upon line, precept upon precept, as rapidly as the Saints are able to receive it.
+*“This is My Beloved Son. Hear Him!”* the Father said in the spring of 1820 ([[Joseph Smith History 1.17|JS—H 1:17]]). From that moment the divine word pours forth; line upon line, precept upon precept, as rapidly as the Saints are able to receive it.
 
 The Book of Mormon is revealed, translated, and published to the world by the gift and power of God. The truths in the Bible are reaffirmed and new revelations come, setting forth things which few have known from the foundations of the earth.
 
@@ -65,7 +66,7 @@ John the Baptist confers the Aaronic Priesthood with all its keys and powers. Pe
 
 Moses comes, commanding that Israel be gathered the second time. Elijah brings the sealing power so that once again man can bind and loose both on earth and in heaven.
 
-And so it has gone until the gospel has been restored in its everlasting fulness, until The Church of Jesus Christ of Latter-day Saints has been perfected, until the kingdom of God on earth has been established and is rolling forth, clear as the sun, fair as the moon, and terrible as an army with banners (see Song 6:10).
+And so it has gone until the gospel has been restored in its everlasting fulness, until The Church of Jesus Christ of Latter-day Saints has been perfected, until the kingdom of God on earth has been established and is rolling forth, clear as the sun, fair as the moon, and terrible as an army with banners (see [[Song of Solomon 6.10|Song 6:10]]).
 
 This holy gospel is for the salvation of the living and the dead. They with us may become heirs of salvation when they believe and obey in that eternal world. Ours is the privilege of performing for them the ordinances of salvation in holy temples built for that purpose.
 
@@ -94,4 +95,7 @@ We prophesy—it is my voice you hear, but it is the united voice of all my Bret
 And we invite all who will to come and partake of the goodness of God, that they may gain peace in this life and be inheritors of eternal life in the world to come.
 
 In the name of the Lord Jesus Christ, amen.
+
+
+
 

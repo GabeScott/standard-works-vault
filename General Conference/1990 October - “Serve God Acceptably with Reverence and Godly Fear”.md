@@ -1,5 +1,6 @@
 # “Serve God Acceptably with Reverence and Godly Fear”
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
 
@@ -11,17 +12,17 @@
 
 “Yea, and my presence shall be there, for I will come into it, and all the pure in heart that shall come into it shall see God.
 
-“But if it be defiled I will not come into it, and my glory shall not be there; for I will not come into unholy temples.” (D&C 97:15–17.)
+“But if it be defiled I will not come into it, and my glory shall not be there; for I will not come into unholy temples” ([[D&C 97.15|D&C 97:15–17]][[D&C 97.16|]][[D&C 97.17|]]).
 
 I want to speak to you today about reverence. While I believe that reverence is often exhibited through reverent behaviors, it is not behaviors that concern me now. I want to discuss reverence as an attitude—an attitude of deepest respect and veneration toward Deity. Of course, reverent behaviors follow reverent attitudes, but it is the attitude of reverence that we need to cultivate first among our members. Reverent behaviors without reverent attitudes are empty of meaning because they are performed for the praises of men, not God.
 
-The scriptures remind us constantly of the goodness that is centered in the heart. Those who put on an appearance only to receive the honors of men, but have unclean hearts, are called hypocrites. It is not enough to behave reverently; we must feel in our hearts reverence for our Heavenly Father and our Lord, Jesus Christ. Reverence flows from our admiration and respect for Deity. Those who are truly reverent are those who have paid the price to know the glory of the Father and His Son. As Paul admonished in Hebrews, “Serve God acceptably with reverence and godly fear.” (Heb. 12:28.)
+The scriptures remind us constantly of the goodness that is centered in the heart. Those who put on an appearance only to receive the honors of men, but have unclean hearts, are called hypocrites. It is not enough to behave reverently; we must feel in our hearts reverence for our Heavenly Father and our Lord, Jesus Christ. Reverence flows from our admiration and respect for Deity. Those who are truly reverent are those who have paid the price to know the glory of the Father and His Son. As Paul admonished in Hebrews, “Serve God acceptably with reverence and godly fear” ([[Hebrews 12.28|Heb. 12:28]]).
 
 The story of Alma the Younger provides a wonderful illustration of the reverence we feel in our hearts when we come to know God. As a young man, he had chosen to be sinful and worldly. Alma was so astonished when an angel appeared to him and called him to repentance that he became dumb and so weak he could not move. After two days and two nights, when Alma’s limbs received their strength, he stood up and began to speak unto the people about how he had been redeemed of the Lord. Alma was born again. He was a new creature. His heart had changed.
 
-In verse 29 of the twenty-seventh chapter of Mosiah, Alma describes his marvelous transformation. He declares: “My soul hath been redeemed from the gall of bitterness and bonds of iniquity. I was in the darkest abyss; but now I behold the marvelous light of God. My soul was racked with eternal torment; but I am snatched, and my soul is pained no more.” [Mosiah 27:29]
+In [[Mosiah 27.29|verse twenty-nine of the twenty-seventh chapter of Mosiah]], Alma describes his marvelous transformation. He declares: “My soul hath been redeemed from the gall of bitterness and bonds of iniquity. I was in the darkest abyss; but now I behold the marvelous light of God. My soul was racked with eternal torment; but I am snatched, and my soul is pained no more.”
 
-Then in the thirty-first verse, we see evidence of Alma’s deep reverence for God: “Yea, every knee shall bow, and every tongue confess before him. Yea, even at the last day, when all men shall stand to be judged of him, then shall they confess that he is God; then shall they confess, who live without God in the world, that the judgment of an everlasting punishment is just upon them; and they shall quake, and tremble, and shrink beneath the glance of his all-searching eye.” [Mosiah 27:31]
+Then in the [[Mosiah 27.31|thirty-first verse]], we see evidence of Alma’s deep reverence for God: “Yea, every knee shall bow, and every tongue confess before him. Yea, even at the last day, when all men shall stand to be judged of him, then shall they confess that he is God; then shall they confess, who live without God in the world, that the judgment of an everlasting punishment is just upon them; and they shall quake, and tremble, and shrink beneath the glance of his all-searching eye.”
 
 Alma’s experience had enabled him to understand the glory of God and also “godly fear.” He held the deepest respect and veneration for God because he had seen Him seated upon His heavenly throne, in all His power and majesty.
 
@@ -55,7 +56,10 @@ It is during family home evenings, which are a part of our home life, where chil
 
 One Sunday, my granddaughter Diana, who is four years old, was sitting next to her father at church. Diana sat reverently, enjoying the comfort of her father’s arm holding her close to him. However, when the bishop stood up and announced the sacrament hymn, Diana gently lifted her father’s arm from off her shoulder and placed it in his lap. Then she sat up straight and folded her arms. She looked over at her father and encouraged him to do the same.
 
-Diana’s message to her father was perfectly clear. She was telling him to turn his complete and total attention to the Savior. This is the message a reverent attitude always conveys, and when reverent attitudes abound, reverent behavior will always flourish. I pray that, like Diana, we may all strive to develop reverent attitudes so that we may serve God reverently and with godly fear. (See Heb. 12:28.)
+Diana’s message to her father was perfectly clear. She was telling him to turn his complete and total attention to the Savior. This is the message a reverent attitude always conveys, and when reverent attitudes abound, reverent behavior will always flourish. I pray that, like Diana, we may all strive to develop reverent attitudes so that we may serve God reverently and with godly fear (see [[Hebrews 12.28|Heb. 12:28]]).
 
-Let us never depreciate the value of our own personal example of being a living witness of the love and respect we have for Him whom we call “Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace” (2 Ne. 19:6), is my humble prayer in the name of Jesus Christ, amen.
+Let us never depreciate the value of our own personal example of being a living witness of the love and respect we have for Him whom we call “Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace” ([[2 Nephi 19.6|2 Ne. 19:6]]), is my humble prayer in the name of Jesus Christ, amen.
+
+
+
 

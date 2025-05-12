@@ -1,5 +1,6 @@
 # The People Say “Amen”
-*By Mark E. Petersen - Of the Council of the Twelve*
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -7,11 +8,11 @@
 
 During this conference we have formally installed a new president of The Church of Jesus Christ of Latter-day Saints. It was a momentous occasion.
 
-Only 12 times in the 144 years of our history has this been done. In the solemn assembly held this morning in the Tabernacle, President Spencer W. Kimball was accepted by the vote of the people as the President of the Church, but also as the prophet, seer, and revelator of the Lord.
+Only 12 times in the 144 years of our history has this been done. In the solemn assembly held this morning in the Tabernacle, President Spencer W. Kimball was accepted by the vote of the people as the President of the Church, but also as the prophet, seer, and revelator of the Lord.
 
-The voting was unanimous. The positive and affirmative confirmation of the Holy Spirit was here also. Everyone in the great Tabernacle felt the presence of that divine influence. It was experienced also by those who listened on the radio and witnessed the proceedings by television. And as was the case in the days of Moses, “All the people ... say, Amen.” (See Deut. 27.)
+The voting was unanimous. The positive and affirmative confirmation of the Holy Spirit was here also. Everyone in the great Tabernacle felt the presence of that divine influence. It was experienced also by those who listened on the radio and witnessed the proceedings by television. And as was the case in the days of Moses, “All the people … say, Amen.” (See [[Deuteronomy 27.1|Deut. 27]][[Deuteronomy 27.2|]][[Deuteronomy 27.3|]][[Deuteronomy 27.4|]][[Deuteronomy 27.5|]][[Deuteronomy 27.6|]][[Deuteronomy 27.7|]][[Deuteronomy 27.8|]][[Deuteronomy 27.9|]][[Deuteronomy 27.10|]][[Deuteronomy 27.11|]][[Deuteronomy 27.12|]][[Deuteronomy 27.13|]][[Deuteronomy 27.14|]][[Deuteronomy 27.15|]][[Deuteronomy 27.16|]][[Deuteronomy 27.17|]][[Deuteronomy 27.18|]][[Deuteronomy 27.19|]][[Deuteronomy 27.20|]][[Deuteronomy 27.21|]][[Deuteronomy 27.22|]][[Deuteronomy 27.23|]][[Deuteronomy 27.24|]][[Deuteronomy 27.25|]][[Deuteronomy 27.26|]].)
 
-And what a wonderful man has been chosen. Having directed the Council of the Twelve for several years, and having served as President of the Church by action of the Council of the Twelve in the interim period from President Harold B. Lee’s death until this conference, he now is sustained by the vote of the membership as their divinely appointed spiritual guide and the interpreter of the word and will of the Lord.
+And what a wonderful man has been chosen. Having directed the Council of the Twelve for several years, and having served as President of the Church by action of the Council of the Twelve in the interim period from President Harold B. Lee’s death until this conference, he now is sustained by the vote of the membership as their divinely appointed spiritual guide and the interpreter of the word and will of the Lord.
 
 He has accepted this high position in deep humility. But although humble and unassuming, he is nevertheless a tower of strength, a man of great initiative and foresight, a doer in every sense.
 
@@ -31,9 +32,9 @@ When difficult tasks confront him—and the present one is his greatest—he nev
 
 Constantly aware of his own personal limitations, he nevertheless knows that this is God’s work and that the Lord uses humble people to accomplish his purposes.
 
-President Kimball is a firm believer in the words of Nephi who said, “... I know that the Lord giveth no commandment unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” (1 Ne. 3:7.) This is part and parcel of his faith. It is the secret of his success.
+President Kimball is a firm believer in the words of Nephi who said, “… I know that the Lord giveth no commandment unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].) This is part and parcel of his faith. It is the secret of his success.
 
-The program of the Lord will go forward now as it always has done, for the Almighty will work through, and daily direct, President Spencer W. Kimball. The work will never fail, nor will it be given to another people.
+The program of the Lord will go forward now as it always has done, for the Almighty will work through, and daily direct, President Spencer W. Kimball. The work will never fail, nor will it be given to another people.
 
 As the Church members today by unanimous vote sustained our new President, they not only took upon themselves a great responsibility in pledging to follow him, but they also preserved a vital principle of the restored gospel of the Lord Jesus Christ.
 
@@ -41,17 +42,17 @@ Their vote was a covenant, made with uplifted hands before God and witnesses who
 
 When we sustain our President, we agree to follow his direction. He is the mouthpiece of the Lord for today, and that has great and significant meaning. When this matter came up in the days of the Prophet Joseph Smith, the Lord, speaking of his leaders, said:
 
-“... They shall speak as they are moved upon by the Holy Ghost.
+“… They shall speak as they are moved upon by the Holy Ghost.
 
-“And whatsoever they shall speak when moved upon by the Holy Ghost shall be scripture, shall be the will of the Lord, shall be the mind of the Lord, shall be the word of the Lord, shall be the voice of the Lord, and the power of God unto salvation.” (D&C 68:3–4.)
+“And whatsoever they shall speak when moved upon by the Holy Ghost shall be scripture, shall be the will of the Lord, shall be the mind of the Lord, shall be the word of the Lord, shall be the voice of the Lord, and the power of God unto salvation.” ([[D&C 68.3|D&C 68:3–4]][[D&C 68.4|]].)
 
 As members of the Church, by voting to sustain our new President, we have placed ourselves under a solemn covenant to give diligent heed to the words of eternal life as he gives them to us.
 
-The modern word of the Lord says, “... You shall live by every word that proceedeth forth from the mouth of God.” (D&C 84:44.)
+The modern word of the Lord says, “… You shall live by every word that proceedeth forth from the mouth of God.” ([[D&C 84.44|D&C 84:44]].)
 
 And how are we to receive that word? Through his prophet!
 
-That has been the divine pattern from the beginning. Through Amos came the revelation saying, “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” (Amos 3:7.)
+That has been the divine pattern from the beginning. Through Amos came the revelation saying, “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” ([[Amos 3.7|Amos 3:7]].)
 
 This was the Lord’s pattern throughout the Old Testament. It was true in New Testament times, and it is true today.
 
@@ -63,35 +64,35 @@ Having done so, the Lord designated him also as prophet, seer, and revelator. An
 
 “Wherefore, meaning the church, thou shalt give heed unto all his words and commandments which he shall give unto you as he receiveth them, walking in all holiness before me;
 
-“For his word ye shall receive, as if from mine own mouth, in all patience and faith.” (D&C 21:4–5.)
+“For his word ye shall receive, as if from mine own mouth, in all patience and faith.” ([[D&C 21.4|D&C 21:4–5]][[D&C 21.5|]].)
 
 Then followed this great promise if we will thus obey:
 
-“For by doing these things the gates of hell shall not prevail against you; yea, and the Lord God will disperse the powers of darkness from before you, and cause the heavens to shake for your good, and his name’s glory.” (D&C 21:6.)
+“For by doing these things the gates of hell shall not prevail against you; yea, and the Lord God will disperse the powers of darkness from before you, and cause the heavens to shake for your good, and his name’s glory.” ([[D&C 21.6|D&C 21:6]].)
 
 What more can we ask?
 
-This points up a great principle—an added lesson—that we must learn from today’s voting. It is that there can be only one head of Christ’s church on earth at one time, and he must be chosen and sustained just as President Kimball was today. No man can take it unto himself. He must be called of God as was Aaron. (See Heb. 5:4.)
+This points up a great principle—an added lesson—that we must learn from today’s voting. It is that there can be only one head of Christ’s church on earth at one time, and he must be chosen and sustained just as President Kimball was today. No man can take it unto himself. He must be called of God as was Aaron. (See [[Hebrews 5.4|Heb. 5:4]].)
 
-Neither does the Lord allow for any secret ordinations in his work. To be valid, everything is done publicly and by the vote of the people. Said the Savior, “... It shall not be given to any one to go forth to preach my gospel, or to build up my church, except he be ordained by some one who has authority, and it is known to the church that he has authority and has been regularly ordained by the heads of the church.” (D&C 42:11. Italics added.)
+Neither does the Lord allow for any secret ordinations in his work. To be valid, everything is done publicly and by the vote of the people. Said the Savior, “… It shall not be given to any one to go forth to preach my gospel, or to build up my church, except he be ordained by some one who has authority, *and it is known to the church that he has authority and has been regularly ordained by the heads of the church.*” ([[D&C 42.11|D&C 42:11]]. Italics added.)
 
-And then the Lord said, “... All things shall be done by common consent in the church, ...” which means by public knowledge and public vote. (D&C 26:2.)
+And then the Lord said, “… All things shall be done by common consent in the church, …” which means by public knowledge and public vote. ([[D&C 26.2|D&C 26:2]].)
 
-And he said further, “No person is to be ordained to any office in this church, where there is a regularly organized branch of the same, without the vote of that church.” (D&C 20:65.)
+And he said further, “No person is to be ordained to any office in this church, where there is a regularly organized branch of the same, without the vote of that church.” ([[D&C 20.65|D&C 20:65]].)
 
-And again, “And a commandment I give unto you, that you should fill all these offices and approve of those names which I have mentioned, or else disapprove of them at my general conference.” (D&C 124:144.)
+And again, “And a commandment I give unto you, that you should fill all these offices and approve of those names which I have mentioned, or else disapprove of them at my general conference.” ([[D&C 124.144|D&C 124:144]].)
 
 This rules out cultists of all kinds, false teachers and false leaders of every description, and puts the Lord’s people on notice that there is but one clear directing voice in the Church, and that is the voice of the prophet, seer, and revelator duly chosen by revelation and accepted by the vote of the people in the general conference of the Church.
 
-For today that man is Spencer W. Kimball.
+For today that man is Spencer W. Kimball.
 
-President John Taylor, in speaking of the process of voting by which our President is sustained and which process we have followed today, said, “This is the order that the Lord has instituted in Zion, as it was in former times among Israel. ... This is emphatically the voice of God, and the voice of the people.” (The Gospel Kingdom, Deseret Book Co., 1943, p. 143.)
+President John Taylor, in speaking of the process of voting by which our President is sustained and which process we have followed today, said, “This is the order that the Lord has instituted in Zion, as it was in former times among Israel. … This is emphatically the voice of God, and the voice of the people.” (*The Gospel Kingdom,* Deseret Book Co., 1943, p. 143.)
 
-When President Brigham Young discussed this subject, he said, “[The Lord] has but one mouth through which to make known his will to his people. When the Lord wishes to give a revelation to his people, when he wishes to reveal new items of doctrine to them, or administer chastisement, he will do it through the man whom he has appointed to that office and calling.” (Discourses of Brigham Young, Deseret Book Co., 1925, p. 212.) And that man is the President of the Church!
+When President Brigham Young discussed this subject, he said, “\[The Lord\] has but one mouth through which to make known his will to his people. When the Lord wishes to give a revelation to his people, when he wishes to reveal new items of doctrine to them, or administer chastisement, he will do it through the man whom he has appointed to that office and calling.” (*Discourses of Brigham Young,* Deseret Book Co., 1925, p. 212.) *And that man is the President of the Church!*
 
-Brigham Young further said, “The Lord Almighty leads this Church, and he will never suffer you to be led astray if you are found doing your duty.” (Discourses of Brigham Young, p. 212.)
+Brigham Young further said, “The Lord Almighty leads this Church, and he will never suffer you to be led astray if you are found doing your duty.” (*Discourses of Brigham Young,* p. 212.)
 
-It was President Heber J. Grant who added, “You have no need to fear that any man will ever stand at the head of the Church of Jesus Christ unless our Heavenly Father wants him there.” (G. Homer Durham, comp., Gospel Standards, Improvement Era, 1969, p. 68.)
+It was President Heber J. Grant who added, “You have no need to fear that any man will ever stand at the head of the Church of Jesus Christ unless our Heavenly Father wants him there.” (G. Homer Durham, comp., *Gospel Standards,* Improvement Era, 1969, p. 68.)
 
 Now what authority does President Kimball have? As President of the Church, he holds all of the keys and powers ever given by the angels to the Prophet Joseph Smith in the restoration of the gospel in this last dispensation. He has received these powers by the laying on of hands of those in authority. I repeat, he has received all these powers by the laying on of hands of those previously possessing them and holding the authority to give them to President Kimball.
 
@@ -115,9 +116,12 @@ We readily see then that the powers given by the angels to the Prophet Joseph Sm
 
 It could not be any other way. This is the Lord’s pattern. This is the way he directs and conducts his work.
 
-Surely Amos spoke truly when he said, “... the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” (Amos 3:7.)
+Surely Amos spoke truly when he said, “… the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” ([[Amos 3.7|Amos 3:7]].)
 
-In the words of President Wilford Woodruff, “Let me exhort all elders of Israel and Saints of God to rise up in the majesty and dignity of their calling, and make full proof of their ministry and covenant. Sustain by your works the authorities, keys, and priesthood; the eyes of God, angels and men are over you, and when the work is finished, you will receive your just recompense.” (Matthias F. Cowley, comp., Wilford Woodruff, Salt Lake City: The Deseret News, 1909, p. 657.)
+In the words of President Wilford Woodruff, “Let me exhort all elders of Israel and Saints of God to rise up in the majesty and dignity of their calling, and make full proof of their ministry and covenant. Sustain by your works the authorities, keys, and priesthood; the eyes of God, angels and men are over you, and when the work is finished, you will receive your just recompense.” (Matthias F. Cowley, comp., *Wilford Woodruff,* Salt Lake City: The Deseret News, 1909, p. 657.)
 
 I know that my Redeemer lives. He has made known to me personally that what I have said here today is true. God our Heavenly Father lives. This Church is his church. Jesus our Savior directs the work. And President Kimball is his prophet! This I solemnly testify by all that I hold sacred and in the holy name of the Lord Jesus Christ. Amen.
+
+
+
 

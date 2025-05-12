@@ -1,5 +1,6 @@
 # Obedience
-*By N. Eldon Tanner - First Counselor in the First Presidency*
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -17,51 +18,43 @@ I would like to have these young men try to listen to what I have to say because
 
 “They become the sons of Moses and of Aaron and the seed of Abraham, and the church and kingdom, and the elect of God.
 
-“... therefore all that my Father hath shall be given unto him.” (D&C 84:33–34, 38.)
+“… therefore all that my Father hath shall be given unto him.” ([[D&C 84.33|D&C 84:33–34, 38]][[D&C 84.34|]][[D&C 84.38|]].)
 
 Now note the commandment the Lord gives unto all priesthood holders:
 
 “And I now give unto you a commandment to beware concerning yourselves, to give diligent heed to the words of eternal life.
 
-“For you shall live by every word that proceedeth forth from the mouth of God.” (D&C 84:43–44.)
+“For you shall live by every word that proceedeth forth from the mouth of God.” ([[D&C 84.43|D&C 84:43–44]][[D&C 84.44|]].)
 
 Never before has your strength and influence been needed more than now to combat the evils of the world which are as predicted and recorded in Second Nephi. Speaking of this day, and referring to the devil, Nephi says:
 
 “For behold, at that day shall he rage in the hearts of the children of men, and stir them up to anger against that which is good.
 
-“And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell.” (2 Ne. 28:20–21.)
+“And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell.” ([[2 Nephi 28.20|2 Ne. 28:20–21]][[2 Nephi 28.21|]].)
 
 Brethren, we seem to think that is a long way away, and when we die we won’t be well met unless we are prepared to do what the Lord has asked us to do.
 
 If we are to accomplish what we have been called and set apart to do, we must honor our priesthood, magnify our calling, and as President Lee has admonished, love God and keep his commandments. To keep the commandments requires self-discipline and obedience to the law. Obedience is the first law of heaven, and it is obedience to the laws of God that I should like to talk about particularly, because these laws affect not only our happiness and well-being here upon the earth, but are essential to our eternal life.
 
-First I should like to emphasize that one of the greatest gifts that God has given to man is his free agency. You may choose your life and what you will be. But the Lord has said; “If ye love me, keep my commandments” (John 14:15), whether you are boys or men.
+First I should like to emphasize that one of the greatest gifts that God has given to man is his *free agency.* You may choose your life and what you will be. But the Lord has said; “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]), whether you are boys or men.
 
 I should like to read a little poem which most of you have heard—some, many times:
 
-“Know this, that every soul is free
-
-To choose his life and what he’ll be,
-
-For this eternal truth is given
-
-That God will force no man to heav’n.
-
-“He’ll call, persuade, direct aright,
-
-And bless with wisdom, love and light,
-
-In nameless ways be good and kind,
-
-But never force the human mind.
-
-“Freedom and reason make us men;
-
-Take these away, what are we then?
-
-Mere animals, and just as well
-
-The beasts may think of heav’n or hell.”
+>“Know this, that every soul is free
+>To choose his life and what he’ll be,
+>For this eternal truth is given
+>That God will force no man to heav’n.
+>
+>“He’ll call, persuade, direct aright,
+>And bless with wisdom, love and light,
+>In nameless ways be good and kind,
+>But never force the human mind.
+>
+>“Freedom and reason make us men;
+>Take these away, what are we then?
+>Mere animals, and just as well
+>The beasts may think of heav’n or hell.”
+>
 
 We have the laws, we may choose how we will apply them. We must be prepared, however, to take the consequences of our choices. All laws of God are for our good and welfare and benefit. Through obedience we will be blessed. If disobedient, we will suffer, though sometimes the consequences may be much later.
 
@@ -69,11 +62,11 @@ Self-discipline is the basis of our success. Man has been given a mind to think,
 
 The measure of our success depends on our decision, our determination, discipline, and dependability. But let us always remember that the Lord has said:
 
-“When we obtain any blessing from God, it is by obedience to that law upon which it is predicated.” (D&C 130:21.)
+“When we obtain any blessing from God, it is by obedience to that law upon which it is predicated.” ([[D&C 130.21|D&C 130:21]].)
 
 He also said:
 
-“I, the Lord, am bound when ye do what I say; but when ye do not what I say, ye have no promise.” (D&C 82:10.)
+“I, the Lord, am bound when ye do what I say; but when ye do not what I say, ye have no promise.” ([[D&C 82.10|D&C 82:10]].)
 
 The laws of nature are inflexible and rigid and right. Through ignorance or deliberate intent, if you touch a hot stove, you are going to be burned; or if you touch a high voltage wire, you will suffer the consequences. If you say, I am going to defy gravity and jump off a high building or a high precipice, you might say halfway down, “All is going well.”
 
@@ -93,7 +86,7 @@ How important that we listen to the prophet’s voice and govern ourselves and o
 
 Often throughout the ages man has not known or understood why certain laws were given, but through faith in God, he has accepted and kept the commandments, if he were wise.
 
-Adam, when asked why he offered sacrifice, said, “I know not, save the Lord commanded me.” (Moses 5:6.) That was enough for Adam, and he kept the commandments. Imagine yourself being in Noah’s place when the Lord told him to go and build an ark. There was no rain or anything to worry about, but he was told to go and build an ark; and he set about to build the ark and he followed directions. But there were many people who did not follow; they didn’t believe; they thought it was a long way away and wouldn’t happen, and you know the result.
+Adam, when asked why he offered sacrifice, said, “I know not, save the Lord commanded me.” ([[Moses 5.6|Moses 5:6]].) That was enough for Adam, and he kept the commandments. Imagine yourself being in Noah’s place when the Lord told him to go and build an ark. There was no rain or anything to worry about, but he was told to go and build an ark; and he set about to build the ark and he followed directions. But there were many people who did not follow; they didn’t believe; they thought it was a long way away and wouldn’t happen, and you know the result.
 
 Lehi was directed to leave Jerusalem, and you know objections were raised by his family. Some questioned his sanity, but he followed and accepted the words of the Lord and was obedient to them, and the Lord directed Nephi to build a ship to take them across the waters.
 
@@ -107,7 +100,7 @@ At the conclusion of the article it says that “all of the epidemics of typhoid
 
 Did the Lord know what he was talking about? Should the people listen to the commandments, whether or not they realize just why they are given? Brethren, we as priesthood holders, members of his Church and kingdom here upon the earth—and I bear testimony that this is his Church and he directs it through a prophet of God—should keep the commandments.
 
-The same article tells of a woman on the autopsy table and states: “Her scalp has been peeled back ... and there is only a cavity where her brain once functioned.”
+The same article tells of a woman on the autopsy table and states: “Her scalp has been peeled back … and there is only a cavity where her brain once functioned.”
 
 It also tells of a prominent lawyer in a large southern city who died of a heart problem caused by the smoking of cigarettes. It tells of the suicide of the dean of a community college who had blown off the top of his head when the agony of smoker’s emphysema had become too much to bear.
 
@@ -117,7 +110,7 @@ The article goes on to say that the use of nicotine and tobacco often leads to t
 
 “For his word ye shall receive, as if from mine own mouth, in all patience and faith.
 
-“For by doing these things the gates of hell shall not prevail against you; yea, and the Lord God will disperse the powers of darkness from before you, and cause the heavens to shake for your good, and his name’s glory.” (D&C 21:4–6.)
+“For by doing these things the gates of hell shall not prevail against you; yea, and the Lord God will disperse the powers of darkness from before you, and cause the heavens to shake for your good, and his name’s glory.” ([[D&C 21.4|D&C 21:4–6]][[D&C 21.5|]][[D&C 21.6|]].)
 
 Is that promise enough, brethren?
 
@@ -125,7 +118,7 @@ Regarding the Sabbath day, surely the members of the Church and priesthood holde
 
 “And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day;
 
-“For verily this is a day appointed unto you to rest from your labors, and to pay thy devotions unto the Most High.” (D&C 59:9–10.)
+“For verily this is a day appointed unto you to rest from your labors, and to pay thy devotions unto the Most High.” ([[D&C 59.9|D&C 59:9–10]][[D&C 59.10|]].)
 
 Surely we can give one day out of seven serving the Lord who came and gave his life for us. Surely we can follow the teachings of the Lord, where he says that we should do these things, worshipping him, expressing our gratitude and thanks for the sacrifice he has made. It seems that this commandment is being ignored and broken more often all the time by men who hold the priesthood.
 
@@ -142,4 +135,7 @@ How would you like the Lord to figure out his blessings on the same basis that y
 Brethren, let us be obedient to the commandments of God. Let us prove faithful, let us be an example to the world, a light unto the world. Appreciate the priesthood which we have and the calling that is ours. We have been given the great privilege of holding the priesthood and the responsibility of taking the gospel to the world. We can do it by our actions as well as by precept, which is much more effective. Only as we live and keep the commandments of God, being obedient in all things can we fully enjoy life here and eternal life in the world to come, and be able to influence the world for good, and help build the kingdom of God here upon the earth.
 
 May we do this, as members of the Church of Jesus Christ, which we are, and follow the prophet of God who has been chosen and through whom the Lord speaks, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

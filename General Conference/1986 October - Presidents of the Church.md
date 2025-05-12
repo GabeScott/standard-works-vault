@@ -1,5 +1,6 @@
 # Presidents of the Church
-*By Joseph Anderson - Emeritus Member of the First Quorum of the Seventy*
+
+By Elder Joseph Anderson - *Emeritus Member of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
 
@@ -17,7 +18,7 @@ What about the Prophet Joseph Smith? Do you believe that he was a prophet? I wan
 
 The following is an excerpt from Joseph Smith’s letter written in 1842 to Mr. John Wentworth of Chicago:
 
-“No unhallowed hand can stop the work from progressing; persecutions may rage, mobs may combine, armies may assemble, calumny may defame, but the truth of God will go forth boldly, nobly, and independent, till it has penetrated every continent, visited every clime, swept every country, and sounded in every ear, till the purposes of God shall be accomplished, and the Great Jehovah shall say the work is done” (History of the Church, 4:540).
+“No unhallowed hand can stop the work from progressing; persecutions may rage, mobs may combine, armies may assemble, calumny may defame, but the truth of God will go forth boldly, nobly, and independent, till it has penetrated every continent, visited every clime, swept every country, and sounded in every ear, till the purposes of God shall be accomplished, and the Great Jehovah shall say the work is done” (*History of the Church,* 4:540).
 
 Those who have succeeded the Prophet Joseph Smith have been given these same keys that I have mentioned. Each of these Brethren of the General Authorities has been called of God, by prophecy and by the laying on of hands by those who are in authority to preach the gospel and administer in the ordinances thereof. They are set apart from all other men upon this earth. They are authorized by ordination to do things that no other men upon this earth can do.
 
@@ -33,9 +34,12 @@ President Grant became an Apostle in the days of John Taylor, who was with the P
 
 It was also my privilege to have in my custody the records of the General Authority council meetings held in the temple, which later council meetings I recorded during my many years as secretary. Yes, I have known all these Brethren in a very real sense.
 
-The Savior, in praying to our Heavenly Father just before his crucifixion, said, “This is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent” (John 17:3).
+The Savior, in praying to our Heavenly Father just before his crucifixion, said, “This is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent” ([[John 17.3|John 17:3]]).
 
 These Brethren to whom I have referred know God and Jesus Christ, whom He has sent.
 
 I know that God lives, that Jesus is the Christ, that these Brethren whom I have mentioned were and are true prophets of the living God and have served and do serve under the direction of the Lord, who is the true head of the Church. I say this in the name of our Lord, Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # In His Strength
-*By Marvin J. Ashton - Of the Council of the Twelve*
+
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -21,13 +22,13 @@ We do ourselves a great injustice when we allow ourselves, through tragedy, misf
 
 As children of God we are somebody. He will build us, mold us, and magnify us if we will but hold our heads up, our arms out, and walk with him. What a great blessing to be created in his image and know of our true potential in and through him! What a great blessing to know that in his strength we can do all things!
 
-Ammon taught a great lesson not only to his brother Aaron, but to all of us in this day, in Alma 26:10–12:
+Ammon taught a great lesson not only to his brother Aaron, but to all of us in this day, in [[Alma 26.10|Alma 26:10–12]][[Alma 26.11|]][[Alma 26.12|]]:
 
 “And it came to pass that when Ammon had said these words, his brother Aaron rebuked him, saying: Ammon, I fear that thy joy doth carry thee away unto boasting.
 
 “But Ammon said unto him: I do not boast in my own strength, nor in my own wisdom; but behold, my joy is full, yea, my heart is brim with joy, and I will rejoice in my God.
 
-“Yea, I know ... as to my strength I am weak; therefore I will not boast of myself, but I will boast of my God, for in his strength I can do all things; yea, behold, many mighty miracles we have wrought in this land, for which we will praise his name forever.”
+“Yea, I know … as to my strength I am weak; therefore I will not boast of myself, but I will boast of my God, for in his strength I can do all things; yea, behold, many mighty miracles we have wrought in this land, for which we will praise his name forever.”
 
 As grievous as labeling ourselves as a “nobody” is man’s tendency to classify others as a “nobody.” Sometimes mankind is prone to identify the stranger or the unknown as a nobody. Often this is done for self-convenience and an unwillingness to listen. Countless numbers today reject Joseph Smith and his message because they will not accept a 14-year-old “nobody.” Others turn away from eternal restored truths available today because they will not accept a 19-year-old elder or a 21-year-old lady missionary or a neighbor down the street because they are “nobody,” so they may suppose.
 
@@ -37,7 +38,7 @@ I bear witness to you and the world that Joseph Smith knew with earth-shattering
 
 “It caused me serious reflection then, and often has since, how very strange it was that an obscure boy, of a little over fourteen years of age, and one, too, who was doomed to the necessity of obtaining a scanty maintenance by his daily labor, should be thought a character of sufficient importance to attract the attention of the great ones of the most popular sects of the day, and in a manner to create in them a spirit of the most bitter persecution and reviling. But strange or not, so it was, and it was the cause of great sorrow to myself.
 
-“However, it was nevertheless a fact that I had beheld a vision. ...” (JS—H 1:23–24.)
+“However, it was nevertheless a fact that I had beheld a vision. …” ([[Joseph Smith History 1.23|JS—H 1:23–24]][[Joseph Smith History 1.24|]].)
 
 May I remind all of us that Joseph Smith referred to himself as “an obscure boy” but never as a “nobody.” Joseph Smith was sustained all the days of his perilous life by the knowledge that in God’s strength he could accomplish all things.
 
@@ -55,7 +56,7 @@ May we learn an important lesson from a missionary recently interviewed. This el
 
 Here is a young man who may have had some excuse to pity himself with a “nobody” label when his parents don’t bother to write, but he is having no part of this kind of attitude. Further conversation with him emphatically convinced me that here is a young man who is really someone. If his parents don’t write, that is their responsibility. His responsibility is to write, and that is just what he is doing with enthusiasm. I have never met this missionary’s mother or father, probably never will, but wherever they are, in my mind they are “somebody” just to have him for their son. This missionary will succeed because he knows he is someone and is conducting himself accordingly.
 
-More than once during the past few months President Harold B. Lee has called me to his office to listen with him to someone he has invited to share a suggestion, concern, bewilderment, or heartache. Some might well conclude for President Lee that he just doesn’t have time for the least of these his brethren, but he knows well the worth of every soul in the kingdom. I recall one saying to President Lee at the time of departure, “I can’t believe you would take the time to listen to someone like me.”
+More than once during the past few months President Harold B. Lee has called me to his office to listen with him to someone he has invited to share a suggestion, concern, bewilderment, or heartache. Some might well conclude for President Lee that he just doesn’t have time for the least of these his brethren, but he knows well the worth of every soul in the kingdom. I recall one saying to President Lee at the time of departure, “I can’t believe you would take the time to listen to someone like me.”
 
 To mothers, fathers, husbands, wives, and children everywhere, we declare that regardless of your present station in life you are someone special. Remember, you may be an obscure boy, girl, man, or woman, but you are not a “nobody.” Please enjoy with me one of the truly great parables in all of the holy scriptures as we think along this subject.
 
@@ -101,7 +102,7 @@ To mothers, fathers, husbands, wives, and children everywhere, we declare that r
 
 “And he said unto him, Son, thou art ever with me, and all that I have is thine.
 
-“It was meet that we should make merry, and be glad: for this thy brother was dead, and is alive again; and was lost, and is found.” (Luke 15:11–32.)
+“It was meet that we should make merry, and be glad: for this thy brother was dead, and is alive again; and was lost, and is found.” ([[Luke 15.11|Luke 15:11–32]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]].)
 
 Brothers and sisters, think well again on these points, if you will. “Father, divide your goods and give me my share. I am going off on my own.” In the days ahead he wasted his possessions with riotous living. He became so low, so hungry, he lived with the swine. “Father, I have sinned against heaven, and in thy sight, and am no more worthy to be called thy son.” His heart was crying out, “I am lower than the low. I am now absolutely nothing—I am absolutely nobody.”
 
@@ -112,4 +113,7 @@ In the father’s joy he also taught well his older, bewildered son that he too 
 Do not allow yourself to be self-condemning. Avoid discouragement. Teach yourself correct principles and govern yourself with honor. Appropriately involve yourself in helping others. As we develop proper self-image in ourselves and others, I promise you the “nobody” attitude will completely disappear. Ever remember wherever you are today within the sound of my voice that you are someone.
 
 God lives. He too is someone—real and eternal—and he wants us to be someone with him. I bear witness that in his strength we can become like him. I leave you this my witness and my testimony humbly and in the name of Jesus Christ. Amen.
+
+
+
 

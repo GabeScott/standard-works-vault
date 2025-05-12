@@ -1,15 +1,16 @@
 # Windows
-*By Thomas S. Monson - Second Counselor in the First Presidency*
+
+By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1989/10/windows?lang=eng)
 
-While waiting my turn at an airline office in London, England, I reached forward from my chair and selected an advertising brochure from the small table which contained reading material. The publication bore the title, Windows to the World. Each page contained a framed picture of a well-known and beautiful site, accompanied by a well-written description which made one desire to visit all of the locations shown. The Matterhorn in Switzerland, the Alps of New Zealand, even the Taj Mahal of India—all seemed to suggest to the reader the desirability of an immediate visit.
+While waiting my turn at an airline office in London, England, I reached forward from my chair and selected an advertising brochure from the small table which contained reading material. The publication bore the title *Windows to the World.* Each page contained a framed picture of a well-known and beautiful site, accompanied by a well-written description which made one desire to visit all of the locations shown. The Matterhorn in Switzerland, the Alps of New Zealand, even the Taj Mahal of India—all seemed to suggest to the reader the desirability of an immediate visit.
 
 Windows are wonderful. They serve as a frame on which we might focus our attention. They provide a glimpse of God’s creations. The azure blue sky, the billowy, white clouds, the verdant green forest all are as framed pictures in the memory of the mind. Windows also reveal the approach of a friend, a gathering storm, a magnificent sunset—even the passing parade of life.
 
-Windows welcome light to our lives and bring joy to our souls. The absence of windows, such as in dark prison cells, shuts out the world. Deprived of light, the depression of darkness encompasses us.
+Windows welcome light to our lives and bring joy to our souls. The absence of windows, such as in dark prison cells, shuts out the world. When we are deprived of light, the depression of darkness encompasses us.
 
 Windows teach lessons never to be forgotten. Ever shall I remember a visit to the home of President Hugh B. Brown. It was graduation day at Brigham Young University. He was to conduct the exercises, and I was to deliver the commencement address. I drove to President Brown’s home and escorted him to my car. Before we could drive away, however, he said to me, “Wait just a few minutes. My wife, Zina, will come to the front window.”
 
@@ -27,7 +28,7 @@ A national columnist one day titled her story, “What a Forgotten Birthday Can 
 
 “I have never written to you before, but I believe the following might interest you and your readers. I found it in an old magazine. No author’s name was mentioned—just ‘A Heavy-Hearted Observer.’
 
-“‘Yesterday was a man’s birthday. He was ninety-one. He awakened earlier than usual, bathed, shaved and put on his best clothes. Surely they would come today, he thought.
+“‘Yesterday was a man’s birthday. He was ninety-one. He awakened earlier than usual, bathed, shaved, and put on his best clothes. Surely they would come today, he thought.
 
 “‘He didn’t take his daily walk to the gas station to visit with the old-timers of the community because he wanted to be right there when they came.
 
@@ -35,7 +36,7 @@ A national columnist one day titled her story, “What a Forgotten Birthday Can 
 
 “‘He decided to skip his noon nap because he wanted to be up when they came. He had six children. Two of his daughters and their married children lived within four miles. They hadn’t been to see him for such a long time. But today was his birthday. Surely they would come today.
 
-“‘At supper time he refused to cut the cake and asked that the ice cream be left in the freezer. He wanted to wait and have dessert with them when they came.
+“‘At supper time he refused to cut the cake and asked that the ice cream be left in the freezer. He wanted to wait and have dessert with *them* when they came.
 
 “‘About 9 o’clock he went to his room and got ready for bed. His last words before turning out the lights were, “Promise to wake me up when they come.”
 
@@ -57,7 +58,7 @@ Who among us can forget the timeless lesson taught by the Lord when, “in the a
 
 “Beware of the scribes, which desire to walk in long robes, and love greetings in the markets, and the highest seats in the synagogues, and the chief rooms at feasts;
 
-“Which devour widows’ houses, and for a shew make long prayers.” (Luke 20:45–47.)
+“Which devour widows’ houses, and for a shew make long prayers.” ([[Luke 20.45|Luke 20:45–47]][[Luke 20.46|]][[Luke 20.47|]].)
 
 “And he looked up, and saw the rich men casting their gifts into the treasury.
 
@@ -65,7 +66,7 @@ Who among us can forget the timeless lesson taught by the Lord when, “in the a
 
 “And he said, Of a truth I say unto you, that this poor widow hath cast in more than they all:
 
-“For all these have of their abundance cast in unto the offerings of God: but she of her penury hath cast in all the living that she had.” (Luke 21:1–4.) What a beautiful lesson, as taught through the window of example.
+“For all these have of their abundance cast in unto the offerings of God: but she of her penury hath cast in all the living that she had.” ([[Luke 21.1|Luke 21:1–4]][[Luke 21.2|]][[Luke 21.3|]][[Luke 21.4|]].) What a beautiful lesson, as taught through the window of example.
 
 At a city called Nain, the Lord opened to his disciples and to many people who followed him a window through which they might view true compassion:
 
@@ -75,7 +76,7 @@ At a city called Nain, the Lord opened to his disciples and to many people who f
 
 “And he came and touched the bier: and they that bare him stood still. And he said, Young man, I say unto thee, Arise.
 
-“And he that was dead sat up, and began to speak. And he delivered him to his mother.” (Luke 7:12–15.)
+“And he that was dead sat up, and began to speak. And he delivered him to his mother.” ([[Luke 7.12|Luke 7:12–15]][[Luke 7.13|]][[Luke 7.14|]][[Luke 7.15|]].)
 
 The disciples of the Lord witnessed through the windows Jesus opened the power of God and were made partakers of this same power when, in righteousness, they ministered to the children of the Almighty.
 
@@ -85,11 +86,11 @@ A beautiful account, recorded in the book of Acts, tells of a disciple named Tab
 
 “And forasmuch as Lydda was nigh to Joppa, and the disciples had heard that Peter was there, they sent unto him two men, desiring him that he would not delay to come to them.
 
-“Then Peter arose and went with them. When he was come, they brought him into the upper chamber: and all the widows stood by him weeping, and shewing the coats and garments which [Tabitha] made, while she was with them.” (Could we not say this was a window through which Peter glimpsed the industry of Tabitha’s life?) “Peter put them all forth, and kneeled down, and prayed; and turning him to the body said, Tabitha, arise. And she opened her eyes: and when she saw Peter, she sat up.
+“Then Peter arose and went with them. When he was come, they brought him into the upper chamber: and all the widows stood by him weeping, and shewing the coats and garments which \[Tabitha\] made, while she was with them.” (Could we not say this was a window through which Peter glimpsed the industry of Tabitha’s life?) “Peter put them all forth, and kneeled down, and prayed; and turning him to the body said, Tabitha, arise. And she opened her eyes: and when she saw Peter, she sat up.
 
 “And he gave her his hand, and lifted her up, and when he had called the saints and widows, presented her alive.
 
-“And it was known throughout all Joppa; and many believed in the Lord.” (Acts 9:36–42.)
+“And it was known throughout all Joppa; and many believed in the Lord.” ([[Acts 9.36|Acts 9:36–42]][[Acts 9.37|]][[Acts 9.38|]][[Acts 9.39|]][[Acts 9.40|]][[Acts 9.41|]][[Acts 9.42|]].)
 
 Would it not be ever so sad if such a window to priesthood power, to faith, to healing, were to be restricted to Joppa alone? Are these sacred and moving accounts recorded only for our uplift and enlightenment? Can we not apply such mighty lessons to our daily lives?
 
@@ -113,21 +114,22 @@ In describing his condition, Steven commented, “I hope they leave enough of my
 
 As I departed the hospital, situated high on the east bench of Salt Lake City, I gazed at the panoramic view of the valley before me. The miles collapsed; the stars drew near. I could almost see through the window of mortality the expanse of eternity. One star shone especially bright. It seemed to light the way and mark the path to Wellsville. I remembered the poem from Primary days:
 
-Star light, star bright,
-
-The first star I see tonight,
-
-I wish I may, I wish I might,
-
-Have the wish I wish tonight.
+>Star light, star bright,
+>The first star I see tonight,
+>I wish I may, I wish I might,
+>Have the wish I wish tonight.
+>
 
 What was my wish? That Martha Sharp might receive the welcome message, “Your son loves you.”
 
-From sacred soil far away, and from a timeless truth taught long ago, came the message, “With God all things are possible.” (Matt. 19:26.)
+From sacred soil far away, and from a timeless truth taught long ago, came the message, “With God all things are possible.” ([[Matthew 19.26|Matt. 19:26]].)
 
 Once more a gentle but unseen hand had opened a window to the soul, that precious lives might receive blessings heaven-sent.
 
 He beckons to each of us and extends the warm invitation not only to gaze at the beauty seen through the windows He opens, but also to pass through them to the priceless opportunities He provides to bless the lives of others.
 
 That each may experience this privilege is my humble prayer, in the name of Jesus Christ, amen.
+
+
+
 

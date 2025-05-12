@@ -1,19 +1,20 @@
 # And Peter Went Out and Wept Bitterly
-*By Gordon B. Hinckley - Of the Council of the Twelve*
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/04/and-peter-went-out-and-wept-bitterly?lang=eng)
 
-As we approach the end of this morning of inspiration, I should like to take you, for a moment, back to that most dreadful night in and about Jerusalem when the Last Supper was concluded. Jesus and his disciples left the city and went over to the Mount of Olives. Knowing that his terrible ordeal was at hand, he spoke with those he loved. And he said to them: “All ye shall be offended [that is, shall fall away] because of me this night. ...
+As we approach the end of this morning of inspiration, I should like to take you, for a moment, back to that most dreadful night in and about Jerusalem when the Last Supper was concluded. Jesus and his disciples left the city and went over to the Mount of Olives. Knowing that his terrible ordeal was at hand, he spoke with those he loved. And he said to them: “All ye shall be offended \[that is, shall fall away\] because of me this night. …
 
 “Peter answered and said unto him, Though all men shall be offended because of thee, yet will I never be offended.
 
 “Jesus said unto him, Verily I say unto thee, That this night, before the cock crow, thou shalt deny me thrice.
 
-“Peter said unto him, Though I should die with thee, yet will I not deny thee.” (Matt. 26:31, 33–36.)
+“Peter said unto him, Though I should die with thee, yet will I not deny thee.” ([[Matthew 26.31|Matt. 26:31, 33–36]][[Matthew 26.33|]][[Matthew 26.34|]][[Matthew 26.35|]][[Matthew 26.36|]].)
 
-There followed shortly thereafter the terrible agony in the Garden of Gethsemane, and then the betrayal. As the procession moved to the court of Caiaphas, “Peter followed ... unto the high priest’s palace, and went in, and sat with the servants, to see the end” (Matt. 26:58).
+There followed shortly thereafter the terrible agony in the Garden of Gethsemane, and then the betrayal. As the procession moved to the court of Caiaphas, “Peter followed … unto the high priest’s palace, and went in, and sat with the servants, to see the end” ([[Matthew 26.58|Matt. 26:58]]).
 
 While the mockery of that trial was going on and Jesus’ accusers spit on him, and buffeted him, and smote him with the palms of their hands, a damsel, seeing Peter, said: “Thou also wast with Jesus of Galilee.
 
@@ -27,7 +28,7 @@ While the mockery of that trial was going on and Jesus’ accusers spit on him, 
 
 “Then began he to curse and to swear, saying, I know not the man. And immediately the cock crew.
 
-“And Peter remembered the word of Jesus, which said unto him, Before the cock crow, thou shalt deny me thrice. And he went out, and wept bitterly.” (Matt. 26:69–75; italics added.)
+“And Peter remembered the word of Jesus, which said unto him, Before the cock crow, thou shalt deny me thrice. *And he went out, and wept bitterly.*” ([[Matthew 26.69|Matt. 26:69–75]][[Matthew 26.70|]][[Matthew 26.71|]][[Matthew 26.72|]][[Matthew 26.73|]][[Matthew 26.74|]][[Matthew 26.75|]]; italics added.)
 
 What pathos there is in those words! Peter, affirming his loyalty, his determination, his resolution, said that he would never deny. But the fear of men came upon him and the weakness of his flesh overtook him, and under the pressure of accusation, his resolution crumbled. Then, recognizing his wrong and weakness, “he went out, and wept.”
 
@@ -43,13 +44,11 @@ He went down like a falling star, tragically burning out and disappearing in the
 
 I think of another. I knew him well. He joined the Church when long ago I was a missionary in the British Isles. He had a smoking habit. He prayed for strength in that springtime of his Church membership and the Lord answered his prayer and gave him power to overcome his habit. He looked to God and lived with a joy he never had previously known. But something happened. Family and social pressures were brought against him. He lowered his vision and gave way to his appetite. The smell of burning tobacco seduced him. I saw him some years later. We talked together of the old and better days he had known. And he, like Peter, wept bitterly. He blamed this and he blamed that, and, as he did so, I was inclined to repeat the words of Cassius—
 
-The fault, dear Brutus, is not in our stars,
+>The fault, dear Brutus, is not in our stars,
+>But in ourselves, that we are underlings.
+>
 
-But in ourselves, that we are underlings.
-
-(Julius Caesar, act 1, sc. 2, lines 140–41.)
-
-And so I might continue telling you of those who begin with noble objectives, but then slow down, or of those who are strong starters and weak finishers. So many in the game of life get to first base, or second, or even third, but then fail to score. They are inclined to live unto themselves, denying their generous instincts, grasping for possessions and in their self-centered, uninspired living, sharing neither talent nor faith with others. Of them the Lord has said: “And this shall be your lamentation in the day of visitation, and of judgment, and of indignation: The harvest is past, the summer is ended, and my soul is not saved!” (D&C 56:16).
+And so I might continue telling you of those who begin with noble objectives, but then slow down, or of those who are strong starters and weak finishers. So many in the game of life get to first base, or second, or even third, but then fail to score. They are inclined to live unto themselves, denying their generous instincts, grasping for possessions and in their self-centered, uninspired living, sharing neither talent nor faith with others. Of them the Lord has said: “And this shall be your lamentation in the day of visitation, and of judgment, and of indignation: The harvest is past, the summer is ended, and my soul is not saved!” ([[D&C 56.16|D&C 56:16]]).
 
 But more particularly, I wish to say a word concerning those who, like Peter, profess love for the Lord and his work and then, either with voice or by silence, deny him.
 
@@ -59,13 +58,13 @@ He never spoke in defiance of the faith he had lived by. That was not necessary.
 
 The other day I was speaking with a friend concerning a mutual acquaintance, a man looked upon as highly successful in his vocation. “But what of his activity in the Church?” I asked. To which my friend responded, “He knows in his heart that it is true, but he is afraid of it. He is fearful that if he were to acknowledge his Church membership and live its standards, he would be cut off from the social circle in which he moves.”
 
-I reflected, “Like Peter who denied his own sure knowledge, the day will come, though possibly not until old age, when in hours of quiet reflection this man will know that he traded his birthright for a mess of pottage (see Gen. 25:34); and there will be remorse and sorrow and tears, for he will come to see that he not only denied the Lord in his own life, but also in effect denied him before his children who have grown up without a faith to cling to.”
+I reflected, “Like Peter who denied his own sure knowledge, the day will come, though possibly not until old age, when in hours of quiet reflection this man will know that he traded his birthright for a mess of pottage (see [[Genesis 25.34|Gen. 25:34]]); and there will be remorse and sorrow and tears, for he will come to see that he not only denied the Lord in his own life, but also in effect denied him before his children who have grown up without a faith to cling to.”
 
-The Lord himself said, “Whosoever therefore shall be ashamed of me and of my words in this adulterous and sinful generation; of him also shall the Son of man be ashamed, when he cometh in the glory of his Father with the holy angels” (Mark 8:38).
+The Lord himself said, “Whosoever therefore shall be ashamed of me and of my words in this adulterous and sinful generation; of him also shall the Son of man be ashamed, when he cometh in the glory of his Father with the holy angels” ([[Mark 8.38|Mark 8:38]]).
 
-Now, in conclusion, may I go back to Peter who denied and wept. Recognizing his error, repenting of his weakness, he turned about and became a mighty voice in bearing witness of the risen Lord. He, the senior apostle, dedicated the remainder of his life to testifying of the mission, the death, and the resurrection of Jesus Christ, the living Son of the living God. He preached the moving sermon on the day of Pentecost when the multitude were touched in their hearts by the power of the Holy Ghost. In the authority of the priesthood received from his Master, he, with John, healed the lame man, the miracle that brought on persecution. He fearlessly spoke for his brethren when they were arraigned before the Sanhedrin. His was the vision that led to carrying the gospel to the Gentiles. (See Acts 2–4; 10.)
+Now, in conclusion, may I go back to Peter who denied and wept. Recognizing his error, repenting of his weakness, he turned about and became a mighty voice in bearing witness of the risen Lord. He, the senior apostle, dedicated the remainder of his life to testifying of the mission, the death, and the resurrection of Jesus Christ, the living Son of the living God. He preached the moving sermon on the day of Pentecost when the multitude were touched in their hearts by the power of the Holy Ghost. In the authority of the priesthood received from his Master, he, with John, healed the lame man, the miracle that brought on persecution. He fearlessly spoke for his brethren when they were arraigned before the Sanhedrin. His was the vision that led to carrying the gospel to the Gentiles. (See [[Acts 2.1|Acts 2–4]][[Acts 2.2|]][[Acts 2.3|]][[Acts 2.4|]][[Acts 2.5|]][[Acts 2.6|]][[Acts 2.7|]][[Acts 2.8|]][[Acts 2.9|]][[Acts 2.10|]][[Acts 2.11|]][[Acts 2.12|]][[Acts 2.13|]][[Acts 2.14|]][[Acts 2.15|]][[Acts 2.16|]][[Acts 2.17|]][[Acts 2.18|]][[Acts 2.19|]][[Acts 2.20|]][[Acts 2.21|]][[Acts 2.22|]][[Acts 2.23|]][[Acts 2.24|]][[Acts 2.25|]][[Acts 2.26|]][[Acts 2.27|]][[Acts 2.28|]][[Acts 2.29|]][[Acts 2.30|]][[Acts 2.31|]][[Acts 2.32|]][[Acts 2.33|]][[Acts 2.34|]][[Acts 2.35|]][[Acts 2.36|]][[Acts 2.37|]][[Acts 2.38|]][[Acts 2.39|]][[Acts 2.40|]][[Acts 2.41|]][[Acts 2.42|]][[Acts 2.43|]][[Acts 2.44|]][[Acts 2.45|]][[Acts 2.46|]][[Acts 2.47|]]; [[Acts 10.1|10]][[Acts 10.2|]][[Acts 10.3|]][[Acts 10.4|]][[Acts 10.5|]][[Acts 10.6|]][[Acts 10.7|]][[Acts 10.8|]][[Acts 10.9|]][[Acts 10.10|]][[Acts 10.11|]][[Acts 10.12|]][[Acts 10.13|]][[Acts 10.14|]][[Acts 10.15|]][[Acts 10.16|]][[Acts 10.17|]][[Acts 10.18|]][[Acts 10.19|]][[Acts 10.20|]][[Acts 10.21|]][[Acts 10.22|]][[Acts 10.23|]][[Acts 10.24|]][[Acts 10.25|]][[Acts 10.26|]][[Acts 10.27|]][[Acts 10.28|]][[Acts 10.29|]][[Acts 10.30|]][[Acts 10.31|]][[Acts 10.32|]][[Acts 10.33|]][[Acts 10.34|]][[Acts 10.35|]][[Acts 10.36|]][[Acts 10.37|]][[Acts 10.38|]][[Acts 10.39|]][[Acts 10.40|]][[Acts 10.41|]][[Acts 10.42|]][[Acts 10.43|]][[Acts 10.44|]][[Acts 10.45|]][[Acts 10.46|]][[Acts 10.47|]][[Acts 10.48|]].)
 
-He suffered chains and prison and a terrible martyr’s death as a witness of Him who had called him from his nets to become a fisher of men (see Matt. 4:19). He remained faithful and true to the great and compelling trust given when the resurrected Lord in his final instructions to the eleven apostles charged them to go “and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost” (Matt. 28:19). And he it was who, with James and John, came back to earth in this dispensation to restore the holy priesthood, under which divine authority the Church of Jesus Christ was organized in these latter days and under which same authority it now functions. These mighty works and many more unmentioned were done by Peter who once had denied and sorrowed, and then rose above that remorse to carry forward the work of the Savior following his ascension and to participate in the restoration of that work in this dispensation.
+He suffered chains and prison and a terrible martyr’s death as a witness of Him who had called him from his nets to become a fisher of men (see [[Matthew 4.19|Matt. 4:19]]). He remained faithful and true to the great and compelling trust given when the resurrected Lord in his final instructions to the eleven apostles charged them to go “and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost” ([[Matthew 28.19|Matt. 28:19]]). And he it was who, with James and John, came back to earth in this dispensation to restore the holy priesthood, under which divine authority the Church of Jesus Christ was organized in these latter days and under which same authority it now functions. These mighty works and many more unmentioned were done by Peter who once had denied and sorrowed, and then rose above that remorse to carry forward the work of the Savior following his ascension and to participate in the restoration of that work in this dispensation.
 
 Now, if there be any within the sound of my voice today who by word or act have denied the faith, I pray that you may draw comfort and resolution from the example of Peter who, though he had walked daily with Jesus, in an hour of extremity denied both the Lord and the testimony which he carried in his own heart. But he rose above this, and became a mighty defender and a powerful advocate. So too, there is a way for you to turn about, and add your strength and faith to the strength and faith of others in building the kingdom of God.
 
@@ -74,4 +73,7 @@ There sits in this hall today a man who grew up with love for the Church. But wh
 My beloved brethren and sisters who may also have drifted, the Church needs you, and you need the Church. You will find many ears that will listen with understanding. There will be many hands to help you find your way back. There will be hearts to warm your own. There will be tears, not of bitterness but of rejoicing.
 
 May the Lord touch you by the power of his Spirit to increase your desire. May he strengthen your resolution. May your joy be full and your peace sweet and satisfying as you return to that which you know in your heart is true, I humbly pray as I leave you my witness and testimony of him in whose name we serve, even the name of Jesus Christ, amen.
+
+
+
 

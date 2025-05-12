@@ -1,11 +1,12 @@
 # The Priesthood of Aaron
-*By Gordon B. Hinckley - Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1982/10/the-priesthood-of-aaron?lang=eng)
 
-“Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins; and this shall never be taken again from the earth, until the sons of Levi do offer again an offering unto the Lord in righteousness.” (D&C 13.)
+“Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins; and this shall never be taken again from the earth, until the sons of Levi do offer again an offering unto the Lord in righteousness.” ([[D&C 13.1|D&C 13]][[D&C 13.2|]][[D&C 13.3|]][[D&C 13.4|]][[D&C 13.5|]][[D&C 13.6|]][[D&C 13.7|]][[D&C 13.8|]][[D&C 13.9|]][[D&C 13.10|]][[D&C 13.11|]][[D&C 13.12|]][[D&C 13.13|]][[D&C 13.14|]][[D&C 13.15|]][[D&C 13.16|]][[D&C 13.17|]][[D&C 13.18|]][[D&C 13.19|]][[D&C 13.20|]][[D&C 13.21|]][[D&C 13.22|]][[D&C 13.23|]][[D&C 13.24|]][[D&C 13.25|]][[D&C 13.26|]][[D&C 13.27|]][[D&C 13.28|]][[D&C 13.29|]][[D&C 13.30|]][[D&C 13.31|]][[D&C 13.32|]][[D&C 13.33|]][[D&C 13.34|]][[D&C 13.35|]][[D&C 13.36|]][[D&C 13.37|]][[D&C 13.38|]][[D&C 13.39|]][[D&C 13.40|]][[D&C 13.41|]][[D&C 13.42|]][[D&C 13.43|]][[D&C 13.44|]][[D&C 13.45|]][[D&C 13.46|]][[D&C 13.47|]][[D&C 13.48|]][[D&C 13.49|]][[D&C 13.50|]][[D&C 13.51|]][[D&C 13.52|]][[D&C 13.53|]][[D&C 13.54|]][[D&C 13.55|]][[D&C 13.56|]][[D&C 13.57|]][[D&C 13.58|]][[D&C 13.59|]][[D&C 13.60|]][[D&C 13.61|]][[D&C 13.62|]][[D&C 13.63|]][[D&C 13.64|]][[D&C 13.65|]][[D&C 13.66|]][[D&C 13.67|]][[D&C 13.68|]][[D&C 13.69|]][[D&C 13.70|]][[D&C 13.71|]][[D&C 13.72|]][[D&C 13.73|]][[D&C 13.74|]].)
 
 All of you recognize these words as section 13 of the Doctrine and Covenants. They are the words of John the Baptist to Joseph Smith and Oliver Cowdery as he laid his hands upon their heads and conferred upon them the Aaronic Priesthood on 15 May 1829.
 
@@ -29,25 +30,25 @@ Boys, if you will remember this, it will have a tremendous influence upon your l
 
 Then John the Baptist, in his bestowal of this authority, spoke concerning the powers of this priesthood. He said, among other things, that it “holds the keys of the ministering of angels.”
 
-When Wilford Woodruff, a man who had lived many years and had many experiences, was the President of the Church, he said to the boys of the Aaronic Priesthood: “I desire to impress upon you the fact that it does not make any difference whether a man is a Priest or an Apostle, if he magnifies his calling. A Priest holds the keys of the ministering of angels,” said he. “Never in my life, as an Apostle, as a Seventy, or as an Elder, have I ever had more of the protection of the Lord than while holding the office of a Priest.” (Millennial Star, 53:629.)
+When Wilford Woodruff, a man who had lived many years and had many experiences, was the President of the Church, he said to the boys of the Aaronic Priesthood: “I desire to impress upon you the fact that it does not make any difference whether a man is a Priest or an Apostle, if he magnifies his calling. A Priest holds the keys of the ministering of angels,” said he. “Never in my life, as an Apostle, as a Seventy, or as an Elder, have I ever had more of the protection of the Lord than while holding the office of a Priest.” (*Millennial Star,* 53:629.)
 
 Think of it, my dear young brethren. This priesthood which you hold carries with it the keys of the ministering of angels. That means, as I interpret it, that if you live worthy of the priesthood, you have the right to receive and enjoy the very power of heavenly beings to guide you, to protect you, to bless you. What boy, if he is thoughtful, would not welcome this remarkable blessing?
 
-In the same talk from which I quoted a statement from President Woodruff, he also said: “After I came to these valleys and returned to Winter Quarters, I was sent to Boston by President Brigham Young. ... While on the road there, I drove my carriage one evening into the yard of Brother Williams. Brother Orson Hyde drove a wagon by the side of mine. I had my wife and children in the carriage. After I turned out my team and had my supper I went to bed in the carriage. I had not been there but a few minutes when the Spirit said to me, ‘Get up and move that carriage.’ I told my wife I had to get up and move the carriage. She said, ‘What for?’ I said, ‘I don’t know.’ That is all she asked me on such occasions; when I told her I did not know, that was enough. I got up and moved my carriage four or five rods, and put the off fore wheel against the corner of the house. I then looked around me and went to bed. The same Spirit said, ‘Go and move your animals from that oak tree.’ They were two hundred yards from where my carriage was. I went and moved my horses, and put them in a little hickory grove. I again went to bed.
+In the same talk from which I quoted a statement from President Woodruff, he also said: “After I came to these valleys and returned to Winter Quarters, I was sent to Boston by President Brigham Young. … While on the road there, I drove my carriage one evening into the yard of Brother Williams. Brother Orson Hyde drove a wagon by the side of mine. I had my wife and children in the carriage. After I turned out my team and had my supper I went to bed in the carriage. I had not been there but a few minutes when the Spirit said to me, ‘Get up and move that carriage.’ I told my wife I had to get up and move the carriage. She said, ‘What for?’ I said, ‘I don’t know.’ That is all she asked me on such occasions; when I told her I did not know, that was enough. I got up and moved my carriage four or five rods, and put the off fore wheel against the corner of the house. I then looked around me and went to bed. The same Spirit said, ‘Go and move your animals from that oak tree.’ They were two hundred yards from where my carriage was. I went and moved my horses, and put them in a little hickory grove. I again went to bed.
 
-“In thirty minutes a whirlwind came up and broke that oak tree off within two feet from the ground. It swept over three or four fences and fell square in that dooryard, near Brother Orson Hyde’s wagon, and right where mine had stood. What would have been the consequences if I had not listened to that Spirit? Why, myself and wife and children doubtless would have been killed. That was the still, small voice to me—no earthquake, no thunder, no lightning—but the still, small voice of the Spirit of God. It saved my life. It was the spirit of revelation to me.” (Millennial Star, 53:642–3.)
+“In thirty minutes a whirlwind came up and broke that oak tree off within two feet from the ground. It swept over three or four fences and fell square in that dooryard, near Brother Orson Hyde’s wagon, and right where mine had stood. What would have been the consequences if I had not listened to that Spirit? Why, myself and wife and children doubtless would have been killed. That was the still, small voice to me—no earthquake, no thunder, no lightning—but the still, small voice of the Spirit of God. It saved my life. It was the spirit of revelation to me.” (*Millennial Star,* 53:642–3.)
 
 Such was the testimony of a great and wise and prayerful man who became the President of the Church. He told that story while talking of the blessing that is yours as one who has received the priesthood and who is eligible to have “the ministering of angels.”
 
 Of course, you know, as I know, that none of us can expect this great blessing if our lives are not as they should be as Latter-day Saints who hold the priesthood.
 
-The next words given by John to Joseph Smith and Oliver Cowdery—“[the keys] of the gospel of repentance.”
+The next words given by John to Joseph Smith and Oliver Cowdery—“\[the keys\] of the gospel of repentance.”
 
 Many of you are teachers and priests and have home teaching assignments. You have the authority in this service to be teachers of repentance—that is, to encourage those Latter-day Saints for whom you have some responsibility to live the gospel principles more faithfully. A young man who is a priest comes to my home with his father as a home teacher. He has the opportunity and the responsibility to encourage me to live more fully the principles of the restored gospel of Jesus Christ.
 
 The great burden of our work in the ministry of the Lord is to teach repentance, to encourage people to resist sin and to walk uprightly before the Lord. This is the gospel of repentance, and yours is the responsibility and the authority under the priesthood which you hold to teach this gospel of repentance. You recognize, of course, that if you are to do so effectively, your own life must be an example.
 
-And now the next statement of John the Baptist as he conferred the Aaronic Priesthood—“[the keys] of baptism by immersion for the remission of sins.”
+And now the next statement of John the Baptist as he conferred the Aaronic Priesthood—“\[the keys\] of baptism by immersion for the remission of sins.”
 
 As all of you who are priests know, you have the authority to baptize by immersion for the remission of sins. Have you ever thought of the wonder of that power?
 
@@ -59,9 +60,9 @@ Now, as I speak to you young men I wish to repeat in conclusion some other words
 
 The occasion was a Sunday afternoon, on February 28, 1897. The place was this Tabernacle. It was in commemoration of President Woodruff’s ninetieth birthday. This great building was filled to capacity with all seats occupied and the aisles packed in every part of the building, such as we are not permitted to do now. It is estimated there were more than ten thousand young people present—a vast congregation of young men your age and young women of the same age. President Woodruff, who was then weak in body and whose voice was not strong, stood at the pulpit where I stand and said, particularly to the young men present, these words:
 
-“I have passed through the periods of boyhood, early manhood and old age. I cannot expect to tarry a great while longer with you, but I want to give you a few words of counsel. You occupy a position in the Church and Kingdom of God and have received the power of the holy priesthood. The God of heaven has appointed you and called you forth in this day and generation. I want you to look at this. Young men listen to the counsel of your brethren. Live near to God; pray while young; learn to pray; learn to cultivate the Holy Spirit of God; link it to you and it will become a spirit of revelation unto you, inasmuch as you nourish it. ...”
+“I have passed through the periods of boyhood, early manhood and old age. I cannot expect to tarry a great while longer with you, but I want to give you a few words of counsel. You occupy a position in the Church and Kingdom of God and have received the power of the holy priesthood. The God of heaven has appointed you and called you forth in this day and generation. I want you to look at this. Young men listen to the counsel of your brethren. Live near to God; pray while young; learn to pray; learn to cultivate the Holy Spirit of God; link it to you and it will become a spirit of revelation unto you, inasmuch as you nourish it. …”
 
-He went on to say: “God in heaven has willed to spare me to see this day. He has given me power to reject every testimony and reject every example that leads to evil. I say to you ... do not use tobacco, liquor, or any of these things that destroy the body and mind, but honor Him and you will have a mission upon your heads that the world knows not of. May God bless you. Amen.” (Wilford Woodruff: Fourth President of The Church of Jesus Christ of Latter-day Saints, prepared for publication by Matthias F. Cowley, Salt Lake City: Deseret News, 1909, pp. 602–3.)
+He went on to say: “God in heaven has willed to spare me to see this day. He has given me power to reject every testimony and reject every example that leads to evil. I say to you … do not use tobacco, liquor, or any of these things that destroy the body and mind, but honor Him and you will have a mission upon your heads that the world knows not of. May God bless you. Amen.” (*Wilford Woodruff: Fourth President of The Church of Jesus Christ of Latter-day Saints,* prepared for publication by Matthias F. Cowley, Salt Lake City: Deseret News, 1909, pp. 602–3.)
 
 I echo that great counsel of President Wilford Woodruff as I testify to you young men this night that God our Eternal Father lives and that Jesus Christ is his Beloved Son, that the priesthood of which we have spoken is verily here upon the earth, and that we are partakers of its blessings, powers, and responsibilities.
 
@@ -77,9 +78,9 @@ It is in our sacrament meetings that we should be testifying of the Lord and tea
 
 I think the Lord had in mind our sacrament meetings when, in a revelation given to Joseph Smith August 7, 1831, he said to us and to all of the people of his Church:
 
-“And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day; ...
+“And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day; …
 
-“Remember that on this, the Lord’s day, thou shall offer thine oblations and thy sacraments unto the Most High, confessing thy sins unto thy brethren, and before the Lord.” (D&C 59:9, 12.)
+“Remember that on this, the Lord’s day, thou shall offer thine oblations and thy sacraments unto the Most High, confessing thy sins unto thy brethren, and before the Lord.” ([[D&C 59.9|D&C 59:9, 12]][[D&C 59.12|]].)
 
 How shall our people keep themselves unspotted from the world unless they develop within themselves the spiritual strength and capacity to resist temptation that is so rampant everywhere we go these days? And where shall they develop such discipline? I think the meaning of this revelation is clear: they shall develop such discipline of self and such desire to live above the stains of the world in their communion with the Lord as worshipers in sacrament meetings.
 
@@ -88,4 +89,7 @@ Every sacrament meeting ought to be a spiritual feast. It ought to be a time for
 I plead with you who are responsible for these meetings that you strive a little more diligently to program them in such a manner that each sacrament meeting will become a time for spiritual refreshening. I plead with all of you who participate in these meetings, and I include with some emphasis you boys, to see that there is cultivated a spirit of reverence in these sacred gatherings.
 
 It is not easy to keep oneself unspotted from the world. Each of us needs all the help he can get. The Lord has given us direction in how to achieve this. That direction is clear and unequivocal. I pray that we shall follow it, as I leave with you, my brethren of the holy priesthood, my testimony and witness of the divinity of this work, and invoke the blessings of the Lord upon you. In the name of him whom we serve, even the Lord Jesus Christ, amen.
+
+
+
 

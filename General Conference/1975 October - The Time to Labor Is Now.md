@@ -1,5 +1,6 @@
 # The Time to Labor Is Now
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -7,7 +8,7 @@
 
 We welcome you to this general conference, whether in the building or on the air. We convey to you our best wishes and our affection.
 
-Today we announce to you the appointment of four new General Authorities to assist in the carrying forth of the work of the Lord, especially in the missionary area. Elder Gene R. Cook of Bountiful, Utah, formerly executive secretary of the First Council of the Seventy, will become a member of the First Council of the Seventy. The First Quorum of the Seventy will be gradually organized, eventually with seventy members, the presidency of which will be made up of the seven members. Three Brethren this day will be added to the First Quorum of the Seventy. They are Charles A. Didier, a native of Belgium, now of Frankfurt, Germany, a seventy; William Rawsel Bradford of San Antonio, Texas, now president of the Chile Santiago Mission, a seventy; Elder George Patrick Lee of Towaoc, Colorado, and Shiprock, New Mexico, a seventy, now serving as president of the Arizona Holbrook Mission. These four men will assume and carry out the responsibilities of General Authorities. These four General Authorities will be presented with the other General Authorities for your vote a little later in the conference.
+Today we announce to you the appointment of four new General Authorities to assist in the carrying forth of the work of the Lord, especially in the missionary area. Elder Gene R. Cook of Bountiful, Utah, formerly executive secretary of the First Council of the Seventy, will become a member of the First Council of the Seventy. The First Quorum of the Seventy will be gradually organized, eventually with seventy members, the presidency of which will be made up of the seven members. Three Brethren this day will be added to the First Quorum of the Seventy. They are Charles A. Didier, a native of Belgium, now of Frankfurt, Germany, a seventy; William Rawsel Bradford of San Antonio, Texas, now president of the Chile Santiago Mission, a seventy; Elder George Patrick Lee of Towaoc, Colorado, and Shiprock, New Mexico, a seventy, now serving as president of the Arizona Holbrook Mission. These four men will assume and carry out the responsibilities of General Authorities. These four General Authorities will be presented with the other General Authorities for your vote a little later in the conference.
 
 In February and March of this year, we held area conferences in Sao Paulo, Brazil, and Buenos Aires, Argentina. Then in August we held conferences in Taiwan, Hong Kong, the Philippine Islands, Korea, and Japan. The 114,000 estimated people in the five years of these area conferences could not possibly have come to Salt Lake to general conference, so we are taking the conferences to them.
 
@@ -39,23 +40,23 @@ We had a message from one Japanese brother who said, “Now I have planted a gar
 
 The Lord said, as he planted a garden in Eden,
 
-“... all things which I prepared for the use of man; and man saw that it was good for food.” (Moses 3:8–9.)
+“… all things which I prepared for the use of man; and man saw that it was good for food.” ([[Moses 3.8|Moses 3:8–9]][[Moses 3.9|]].)
 
-“And I, the Lord God, took the man, and put him into the Garden of Eden, to dress it, and to keep it.” (Moses 3:15.)
+“And I, the Lord God, took the man, and put him into the Garden of Eden, to dress it, and to keep it.” ([[Moses 3.15|Moses 3:15]].)
 
 In our own dispensation the Lord spoke:
 
-“The fulness of the earth is yours, the beasts of the field and the fowls of the air, ...
+“The fulness of the earth is yours, the beasts of the field and the fowls of the air, …
 
 “Yea, and the herb, and the good things which come of the earth, whether for food or for raiment, or for houses, or for barns, or for orchards, or for gardens, or for vineyards;
 
-“Yea, all things which come of the earth ... are made for the benefit and the use of man, both to please the eye and to gladden the heart;
+“Yea, all things which come of the earth … are made for the benefit and the use of man, both to please the eye and to gladden the heart;
 
-“Yea, for food and for raiment, for taste and for smell.” (D&C 59:16–19.)
+“Yea, for food and for raiment, for taste and for smell.” ([[D&C 59.16|D&C 59:16–19]][[D&C 59.17|]][[D&C 59.18|]][[D&C 59.19|]].)
 
 A letter from a little girl said, “I am helping my daddy plant a garden, and my little brother is cleaning the yard.”
 
-The Bicentennial project of the Deseret News and the Utah State Institute of Fine Arts, also encouraged by our Utah governor, Calvin L. Rampton, was to plant a million trees for a million people. We hope you will give this serious thought. The trees can beautify and bless, and the fruit trees can help in your living requirements.
+The Bicentennial project of the *Deseret News* and the Utah State Institute of Fine Arts, also encouraged by our Utah governor, Calvin L. Rampton, was to plant a million trees for a million people. We hope you will give this serious thought. The trees can beautify and bless, and the fruit trees can help in your living requirements.
 
 A letter came from a rural area addressed to me. It said, “Following your advice, we appraised our lot and became ashamed of it. It was a pioneer rural home with the usual barn, chicken house, and sheds. The outside fence was broken.
 
@@ -69,9 +70,9 @@ When an administrator in Africa rode out to inspect land that had been devastate
 
 We mention another matter of importance. We note that in our Christian world in many places we still have business establishments open for business on the sacred Sabbath. We are sure the cure of this lies in ourselves, the buying public. Certainly the stores and business houses would not remain open if we, the people, failed to purchase from them. Will you all please reconsider this matter. Take it to your home evenings and discuss it with your children. It would be wonderful if every family determined that henceforth no Sabbath purchase would be made.
 
-The Lord Jesus Christ said with, I think, some sadness, “Why call ye me, Lord, Lord, and do not the things which I say?” (Luke 6:46.)
+The Lord Jesus Christ said with, I think, some sadness, “Why call ye me, Lord, Lord, and do not the things which I say?” ([[Luke 6.46|Luke 6:46]].)
 
-Then we have the scripture from Ezekiel: “They sit before thee as my people, and they hear thy words, but they will not do them.” (Ezek. 33:31.)
+Then we have the scripture from Ezekiel: “They sit before thee as my people, and they hear thy words, but they will not do them.” ([[Ezekiel 33.31|Ezek. 33:31]].)
 
 When we love the Lord, why do we still break his laws? We implore you, then, earnestly, to discontinue the purchase of things on the Sabbath day.
 
@@ -87,7 +88,7 @@ Then we feel that the Lord must have stood in sadness again when he said, “Not
 
 “Many will say to me in that day, Lord, Lord, have we not prophesied in thy name? and in thy name have cast out devils? and in thy name done many wonderful works?
 
-“And then will I profess unto them, I never knew you: depart from me, ye that work iniquity.” (Matt. 7:21–23.)
+“And then will I profess unto them, I never knew you: depart from me, ye that work iniquity.” ([[Matthew 7.21|Matt. 7:21–23]][[Matthew 7.22|]][[Matthew 7.23|]].)
 
 Family stability is fairly well measured by the divorce rate in the community.
 
@@ -95,11 +96,11 @@ We are, for many other important reasons, urging our young people to consider th
 
 We decry abortions and ask our people to refrain from this serious transgression. We have stated the following regarding this sin:
 
-“The Church [vigorously] opposes abortion and counsels its members not to submit to or perform an abortion. ...
+“The Church \[vigorously\] opposes abortion and counsels its members not to submit to or perform an abortion. …
 
 “Abortion must be considered one of the most revolting and sinful practices in this day, when we are witnessing the frightening evidence of permissiveness leading to sexual immorality.
 
-“Members of the Church guilty of being parties to the sin of abortion must be subjected to the disciplinary action of the councils of the Church as circumstances warrant. The Lord stated in the 59th section, ‘Thou shalt not steal; neither commit adultery, nor kill, nor do anything like unto it.’” (Ensign, Mar. 1973, p. 64.)
+“Members of the Church guilty of being parties to the sin of abortion must be subjected to the disciplinary action of the councils of the Church as circumstances warrant. The Lord stated in the 59th section, ‘Thou shalt not steal; neither commit adultery, nor kill, nor do anything like unto it.’” (*Ensign,* Mar. 1973, p. 64.)
 
 A magazine writer recently penned this: “Morality in public life has plunged to the lowest level, the lowest level in history.”
 
@@ -107,7 +108,7 @@ As we witness the growing wave of violence and sex, we are dismayed by the effor
 
 It has been a satisfaction to us to assist somewhat in the placement of the Vietnamese people who came from their homeland to locate here. We personally met the first refugees, and as we saw them in their new surroundings in a foreign world, we remembered our own people of the schooner days and the handcart days as they came into this new land, bringing relatively little or nothing with them. We have several hundred Vietnamese brothers and sisters who are building a new life among us. Some are members; some are not. We have located them without the money that the government offered, but our compensation has been that mentioned by the Savior:
 
-“Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” (Matt. 25:40.)
+“Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.40|Matt. 25:40]].)
 
 We are grateful to the priesthood and Relief Society sisters and other workers who have assisted in finding food, clothing, and shelter for these good people.
 
@@ -117,17 +118,20 @@ We cannot close this general statement without reiterating our stand on morals. 
 
 In other words, as we have frequently said, there should be total chastity of men and women before marriage and total fidelity in marriage. The fact that so-called sex revolutionists would change the order and change the status is repugnant to us. We abhor, with all our power, pornography, permissiveness, and the so-called freedom of the sexes, and we fear that those who have supported, taught, and encouraged the permissiveness that brings about this immoral behavior will someday come to a sad reckoning with Him who has established the standards.
 
-Again we repeat the stirring words of the Savior: “Why call ye me, Lord, Lord, and do not the things which I say?” (Luke 6:46.)
+Again we repeat the stirring words of the Savior: “Why call ye me, Lord, Lord, and do not the things which I say?” ([[Luke 6.46|Luke 6:46]].)
 
-And then again he said, “Say nothing but repentance unto this generation.” (D&C 6:9.)
+And then again he said, “Say nothing but repentance unto this generation.” ([[D&C 6.9|D&C 6:9]].)
 
-“And I will bring distress upon men,” he says, “that they shall walk like blind men, because they have sinned against the Lord: and their blood shall be poured out as dust. ...
+“And I will bring distress upon men,” he says, “that they shall walk like blind men, because they have sinned against the Lord: and their blood shall be poured out as dust. …
 
-“Neither their silver nor their gold shall be able to deliver them in the day of the Lord’s wrath; but the whole land shall be devoured by the fire of his jealousy: for he shall make even a speedy riddance of all that dwell in the land.” (Zeph. 1:17–18.)
+“Neither their silver nor their gold shall be able to deliver them in the day of the Lord’s wrath; but the whole land shall be devoured by the fire of his jealousy: for he shall make even a speedy riddance of all that dwell in the land.” ([[Zephaniah 1.17|Zeph. 1:17–18]][[Zephaniah 1.18|]].)
 
 We continue to warn the people and plead with them, for we are watchmen upon the towers, and in our hands we have a trumpet which we must blow loudly and sound the alarm.
 
-Isaiah said, “For the nation and kingdom that will not serve thee shall perish; yea, those nations shall be utterly wasted.” (Isa. 60:12.)
+Isaiah said, “For the nation and kingdom that will not serve thee shall perish; yea, those nations shall be utterly wasted.” ([[Isaiah 60.12|Isa. 60:12]].)
 
 As we enter into these sessions of this conference, may we invoke the blessings of the Lord upon all the Brethren who will be speaking and upon all you who will be listening, that your hearts may be touched and your testimony may ring in your hearts. Blessed is the nation whose God is the Lord. I invoke the blessings of heaven upon you in the name of Jesus Christ. Amen.
+
+
+
 

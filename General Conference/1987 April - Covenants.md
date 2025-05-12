@@ -1,5 +1,6 @@
 # Covenants
-*By Boyd K. Packer - Of the Quorum of the Twelve Apostles*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
 
@@ -19,13 +20,13 @@ Now, lest there be one whose faith was shaken, believing prayers were not answer
 
 I had intended to tell this at his funeral, but my feelings were too tender that day to speak of it.
 
-One Sunday when Brother Tuttle was at home, confined mostly to his bed, I spent a few hours with him while Marné and the family went to church.
+One Sunday when Brother Tuttle was at home, confined mostly to his bed, I spent a few hours with him while Marné and the family went to church.
 
 He was deeply moved by the outpouring of love from across the world. Each letter extended prayers of faith for his recovery. Many of the messages came from South America, where the Tuttle family had labored for so many years.
 
 That day we reviewed his life, beginning with his birth in Manti, Utah, to an ordinary Latter-day Saint couple. We talked of his father, whom I knew, and of his mother, a faithful temple worker.
 
-He talked of his mission, his college days, his marriage to Marné Whitaker, and his heroic service in the Marines.
+He talked of his mission, his college days, his marriage to Marné Whitaker, and his heroic service in the Marines.
 
 Then we relived our days teaching seminary in Brigham City and supervising the seminaries and institutes of religion.
 
@@ -33,7 +34,7 @@ He talked of his seven faithful children and the flock of grandchildren whom he 
 
 He spoke of his call to the First Quorum of the Seventy and the assignments that followed. Soon the Tuttle family was called to South America. They were hardly settled back home when the Brethren interviewed him about returning.
 
-Others could say, “Of course, if you should call us, we would go.” But not him, nor Marné, for they had made covenants. Without complaint, his wife and family followed him back time after time for a total of seven years.
+Others could say, “Of course, if you should *call* us, we would go.” But not him, nor Marné, for they had made covenants. Without complaint, his wife and family followed him back time after time for a total of seven years.
 
 No matter that he had never recovered from serious physical troubles which began on his first assignment there. That day Brother Tuttle spoke tenderly of the humble people of Latin America. They who have so little had greatly blessed his life.
 
@@ -43,7 +44,7 @@ He said, “I begged the Lord to take back those blessings and give them to othe
 
 Brother Tuttle wanted those blessings from our prayers for those struggling souls whom most of us hardly remember, but whom he could not forget.
 
-The scriptures teach that “the effectual fervent prayer of a righteous man availeth much” (James 5:16).
+The scriptures teach that “the effectual fervent prayer of a righteous man availeth much” ([[James 5.16|James 5:16]]).
 
 Can you not believe that the Lord may have favored the pleadings of this saintly man above our own appeal for his recovery?
 
@@ -61,31 +62,31 @@ He was determined to live through Thanksgiving Day lest his passing cast a shado
 
 Early the next morning, without resistance, with a spirit of quiet anticipation, he slipped away. At that moment, there came into that room a spirit of peace which surpasseth understanding.
 
-Marné had been before, was then, and has been since, a perfect example of serenity and acceptance.
+Marné had been before, was then, and has been since, a perfect example of serenity and acceptance.
 
 Now, to draw a lesson from this experience.
 
-Brother Tuttle served twenty-eight years as a General Authority. He traveled the world. He supervised the work in Europe for a time. But with all the places he would go and all of the things he was to do, he repeatedly said that the crowning experience of his ministry was his service as president of the Provo Temple with his beloved Marné at his side.
+Brother Tuttle served twenty-eight years as a General Authority. He traveled the world. He supervised the work in Europe for a time. But with all the places he would go and all of the things he was to do, he repeatedly said that the crowning experience of his ministry was his service as president of the Provo Temple with his beloved Marné at his side.
 
 Few know the demanding schedule of a temple president. The day may begin at three in the morning and end only too close to that same hour.
 
-It was not that he was presiding over the temple but that the calling allowed him to be in the temple. He would have been quite content to serve under another. His feelings about that assignment were not due so much to his understanding of what a call is, as it was his understanding of what a covenant is.
+It was not that he was presiding *over* the temple but that the calling allowed him to be *in* the temple. He would have been quite content to serve under another. His feelings about that assignment were not due so much to his understanding of what a *call* is, as it was his understanding of what a *covenant* is.
 
-A covenant is a sacred promise, as used in the scriptures, a solemn, enduring promise between God and man. The fulness of the gospel itself is defined as the new and everlasting covenant (see D&C 22:1; D&C 66:2).
+A covenant is a sacred promise, as used in the scriptures, a solemn, enduring promise between God and man. The fulness of the gospel itself is defined as the new and everlasting covenant (see [[D&C 22.1|D&C 22:1]]; [[D&C 66.2|D&C 66:2]]).
 
 Several years ago I installed a stake president in England. In another calling, he is here in the audience today. He had an unusual sense of direction. He was like a mariner with a sextant who took his bearings from the stars. I met with him each time he came to conference and was impressed that he kept himself and his stake on course.
 
 Fortunately for me, when it was time for his release, I was assigned to reorganize the stake. It was then that I discovered what that sextant was and how he adjusted it to check his position and get a bearing for himself and for his members.
 
-He accepted his release, and said, “I was happy to accept the call to serve as stake president, and I am equally happy to accept my release. I did not serve just because I was under call. I served because I am under covenant. And I can keep my covenants quite as well as a home teacher as I can serving as stake president.”
+He accepted his release, and said, “I was happy to accept the call to serve as stake president, and I am equally happy to accept my release. I did not serve just because I was under *call.* I served because I am under *covenant.* And I can keep my covenants quite as well as a home teacher as I can serving as stake president.”
 
-This president understood the word covenant.
+This president understood the word *covenant.*
 
 While he was neither a scriptorian nor a gospel scholar, he somehow had learned that exaltation is achieved by keeping covenants, not by holding high position.
 
 The mariner gets his bearing from light coming from celestial bodies—the sun by day, the stars by night. That stake president did not need a mariner’s sextant to set his course. In his mind there was a sextant infinitely more refined and precise than any mariner’s instrument.
 
-The spiritual sextant, which each of us has, also functions on the principle of light from celestial sources. Set that sextant in your mind to the word covenant or the word ordinance. The light will come through. Then you can fix your position and set a true course in life.
+The spiritual sextant, which each of us has, also functions on the principle of light from celestial sources. Set that sextant in your mind to the word *covenant* or the word *ordinance.* The light will come through. Then you can fix your position and set a true course in life.
 
 No matter what citizenship or race, whether male or female, no matter what occupation, no matter your education, regardless of the generation in which one lives, life is a homeward journey for all of us, back to the presence of God in his celestial kingdom.
 
@@ -107,11 +108,11 @@ There is the tendency on the part of some to regard genealogy work as a tedious,
 
 Be careful! It may well be that those who have that interest in such things have chosen the better part. And I would say to you, if you are called to other service, or do not have an interest in genealogy, do not belittle or stand in the way of those who do. Give them every encouragement; contribute what you can.
 
-The Prophet Joseph Smith said: “The doctrine or sealing power of Elijah is as follows:—If you have power to seal on earth and in heaven, then we should be wise. The first thing you do, go and seal on earth your sons and daughters unto yourself, and yourself unto your fathers in eternal glory” (Teachings of the Prophet Joseph Smith, sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 340).
+The Prophet Joseph Smith said: “The doctrine or sealing power of Elijah is as follows:—If you have power to seal on earth and in heaven, then we should be wise. The first thing you do, go and seal on earth your sons and daughters unto yourself, and yourself unto your fathers in eternal glory” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 340).
 
 The Spirit of Elijah of which the prophets have spoken is very real and accompanies those who seek for the records of their kindred dead.
 
-The more I have to do with genealogical work, the more difficulty I have with that word dead. I know of no adequate substitute. I suppose departed would suit me as well as any. I have had too many sacred experiences, of the kind of which we never speak lightly, to feel that the word dead describes those who have gone beyond the veil.
+The more I have to do with genealogical work, the more difficulty I have with that word *dead.* I know of no adequate substitute. I suppose *departed* would suit me as well as any. I have had too many sacred experiences, of the kind of which we never speak lightly, to feel that the word *dead* describes those who have gone beyond the veil.
 
 Temple and genealogy work are visible testimonies of our belief in the resurrection and atonement of the Lord Jesus Christ. Should we doubt that we live again beyond the veil, what reason would we have to do the things we are doing?
 
@@ -122,4 +123,7 @@ Now what of Brother Tuttle or of his family? I remind you that it is a veil, not
 They who have preceded us in this work and our forebears there, on occasion, are very close to us. I have a testimony of this work; it is a supernal work in the Church. I am a witness that those who go beyond the veil yet live and minister here, to the end that this work might be completed.
 
 God grant that we who have an opportunity to have part in it might seek that opportunity and labor with all our might, in the name of Jesus Christ, amen.
+
+
+
 

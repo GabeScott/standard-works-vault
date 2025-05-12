@@ -1,5 +1,6 @@
 # Family Preparedness
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -7,23 +8,23 @@
 
 Brethren and sisters, I commend to you the excellent addresses that have been given here this morning by Sister Barbara Smith, president of the Relief Society, and the Brethren.
 
-As I listened to their addresses, I kept thinking over and over of something the Savior said, “Why call ye me Lord, Lord, and do not the things which I say?” It rolled over and over and over in my mind: “Why call ye me, Lord, Lord, and do not the things which I say?” (Luke 6:46.)
+As I listened to their addresses, I kept thinking over and over of something the Savior said, “Why call ye me Lord, Lord, and do not the things which I say?” It rolled over and over and over in my mind: “Why call ye me, Lord, Lord, and do not the things which I say?” ([[Luke 6.46|Luke 6:46]].)
 
 There are many people in the Church today who have failed to do, and continue to argue against doing, the things that are requested and suggested by this great organization.
 
-The Lord said also, “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.” (Matt. 7:21.) And I was thinking that there are as many wards and branches in the Church as there are people in this room, one for one. And what great accomplishment there would be if every bishop and every branch president in all the world, wherever it’s possible (of course there are a few places where this is not permitted), had a storage such as has been suggested here this morning—and took to their three or four or five hundred members the same message, quoting scripture and insisting that the people of their wards and branches do the things the Lord has requested, for we know that there are many who are failing.
+The Lord said also, “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.” ([[Matthew 7.21|Matt. 7:21]].) And I was thinking that there are as many wards and branches in the Church as there are people in this room, one for one. And what great accomplishment there would be if every bishop and every branch president in all the world, wherever it’s possible (of course there are a few places where this is not permitted), had a storage such as has been suggested here this morning—and took to their three or four or five hundred members the same message, quoting scripture and insisting that the people of their wards and branches do the things the Lord has requested, for we know that there are many who are failing.
 
 And then I hear them argue, “Well, suppose we do put away a lot and then someone comes and takes it from us, our neighbors who do not believe.” That’s been answered this morning.
 
 And so my feeling is today that we emphasize these two scriptures: “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.” And the other: “Why call ye me, Lord, Lord, and do not the things which I say?”
 
-Think of the number of people represented here this day by the stake presidents, mission presidents, and others who are directors, who have many people under them. Our 750 stakes—all of them including hundreds, sometimes thousands, of members—could show the power that we have, if we go to work and actually push this matter until it is done. We talk about it, we listen to it, but sometimes we do not do the things which the Lord says.
+Think of the number of people represented here this day by the stake presidents, mission presidents, and others who are directors, who have many people under them. Our 750 stakes—all of them including hundreds, sometimes thousands, of members—could show the power that we have, if we go to work and actually push this matter until it is done. We talk about it, we listen to it, but sometimes we do not *do* the things which the Lord says.
 
 Brethren and sisters, we’ve gathered here this morning to consider the important program which we must never forget nor put in the background. As we become more affluent and our bank accounts enlarge, there comes a feeling of security, and we feel sometimes that we do not need the supply that has been suggested by the Brethren. It lies there and deteriorates, we say. And suppose it does? We can reestablish it. We must remember that conditions could change and a year’s supply of basic commodities could be very much appreciated by us or others. So we would do well to listen to what we have been told and to follow it explicitly.
 
 The story came from England during their siege of strikes, power blackouts, and three-day work weeks. A shop in a small British town carried a banner on its front window: “By candle power, battery power, and willpower, we will open six days a week.” That willpower apparently is the most important.
 
-There are some countries which prohibit savings or surpluses. We do not understand it, but it is true. And we honor, obey, and sustain the laws of the country which is ours. (See A of F 1:12.) Where it is permitted, though, which is most of the world, we should listen to the counsel of the Brethren and to the Lord.
+There are some countries which prohibit savings or surpluses. We do not understand it, but it is true. And we honor, obey, and sustain the laws of the country which is ours. (See [[Articles of Faith 1.12|A of F 1:12]].) Where it is permitted, though, which is most of the world, we should listen to the counsel of the Brethren and to the Lord.
 
 Recognizing that the family is the basic unit of both the Church and society generally, we call upon Latter-day Saints everywhere to strengthen and beautify the home with renewed effort in these specific areas: food production, preservation, storage; the production and storage of nonfood items; fixup and cleanup of homes and surroundings. We wish to say another word about this in the next meeting.
 
@@ -39,7 +40,7 @@ We encourage families to have on hand this year’s supply; and we say it over a
 
 Keep in good repair and beautify your homes, your yards, farms, and businesses. Repair the fences. Clean up and paint where needed. Keep your lawns and your gardens well-groomed. Whatever your circumstance, let your premises reflect orderliness, beauty, and happiness. Plan well and carry out your plan in an orderly and systematic manner.
 
-Avoid debt. We used to talk about that a great deal, but today everything is seemingly geared toward debt. “Get your cards, and buy everything on time”: you’re encouraged to do it. But the truth is that we don’t need to do it to live.
+Avoid debt. We used to talk about that a great deal, but today everything is seemingly geared toward debt. “Get your cards, and buy everything on time”: you’re encouraged to do it. But the truth is that we *don’t* need to do it to live.
 
 From local sources seek out reliable information on food and nonfood preservation. If additional information is needed, priesthood and Relief Society leaders may write, “Home Production and Storage,” 50 East North Temple Street, Salt Lake City, Utah 84150, and get all the information you need. We encourage all Latter-day Saint families to become self-reliant and independent. The greatness of a people and of a nation begins in the home. Let us dedicate ourselves to strengthening and beautifying the home in every way we can.
 
@@ -49,9 +50,9 @@ It was Paul who wrote, “Neither did we eat any man’s bread for nought; but w
 
 “For we hear that there are some which walk among you disorderly, working not at all, but are busybodies.
 
-“Now them that are such, we command and exhort by our Lord Jesus Christ, that with quietness they work, and eat their own bread.” (2 Thes. 3:8, 10–12.)
+“Now them that are such, we command and exhort by our Lord Jesus Christ, that with quietness they work, and eat their own bread.” ([[2 Thessalonians 3.8|2 Thes. 3:8, 10–12]][[2 Thessalonians 3.10|]][[2 Thessalonians 3.11|]][[2 Thessalonians 3.12|]].)
 
-“But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse [worse!] than an infidel.” (1 Tim. 5:8.)
+“But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse \[worse!\] than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
 
 I’m so grateful for the inspiration of the Brethren who have helped once again to fasten our attention on the particular matters involved in the Priesthood Welfare Program. I appreciate the long-time devotion and leadership of President Romney in this important cause. I cannot think of the Priesthood Welfare Program and how we would do things without him.
 
@@ -79,13 +80,16 @@ My admiration almost had no bounds one day when a young man from Murray came in 
 
 Through the ages there have been many laws repealed, but we know of no divine repeal of the law of work. From the obscure life organs within the body to the building of the moon landing craft, work is one of the conditions of being alive. We have been told that everyday work is a purposeful activity requiring an expenditure of energy with some sacrifice of leisure.
 
-Sir William Osler, a great physician of Canada, said that work is the master word in ongoing life. It’s the touchstone of progress, the measure of success, and the fount of hope. It is directly responsible, he said, for all advantages in medicine and technology. (See Harvey Cushing, Life of Sir William Osler, vol. 1, ch. 14.)
+Sir William Osler, a great physician of Canada, said that *work* is the master word in ongoing life. It’s the touchstone of progress, the measure of success, and the fount of hope. It is directly responsible, he said, for all advantages in medicine and technology. (See Harvey Cushing, *Life of Sir William Osler,* vol. 1, ch. 14.)
 
 I’m always distressed when I see clerks in stores and banks and offices who complain of their workload and are stingy with their efforts and who fear to give more than their pay would seem to compensate. I know their hours are long and that there are many laws controlling these things nowadays. But at least their attitudes can be right.
 
 Only a week or so ago we sat in a restaurant and for a long time received no attention. Finally we heard one girl say to the other, “Why don’t you wait on those people?” The answer was, “They’re not in my assignment.” But there they were, standing over there, without anything apparently to do.
 
-Perhaps we need the compelling urgency of our forefathers. They had to work hard to survive. We have securities of this and that sort to make sure that we do not starve. Dr. D. Ewen Cameron, a psychiatrist, wrote This Life Is for Living, and in it he said, “For half a century we have heard the most moving of lamentations from employers over the passing of the old-time worker, the fellow who really loved his work, who hung around until he was satisfied that the job was done, who would think out ways to do it better. This kind of worker has not disappeared from the job; it is his kind of job that has done the disappearing.”
+Perhaps we need the compelling urgency of our forefathers. They had to work hard to survive. We have securities of this and that sort to make sure that we do not starve. Dr. D. Ewen Cameron, a psychiatrist, wrote *This Life Is for Living,* and in it he said, “For half a century we have heard the most moving of lamentations from employers over the passing of the old-time worker, the fellow who really loved his work, who hung around until he was satisfied that the job was done, who would think out ways to do it better. This kind of worker has not disappeared from the job; it is his kind of job that has done the disappearing.”
 
 Brethren and sisters, I’m sure it is time that I should close. But I want to commend the words of Sister Smith and the Presiding Bishopric and President Romney to you and say that this is a gospel of action and whatever we learn we should put into action. God bless us that we may have the determination to carry forward all of these commandments of the Lord which have been conveyed to us. I say this in the name of Jesus Christ. Amen.
+
+
+
 

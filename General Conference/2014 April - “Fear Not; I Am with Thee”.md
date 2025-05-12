@@ -1,7 +1,10 @@
 # “Fear Not; I Am with Thee”
-*By By Jean A. Stevens - First Counselor in the Primary General Presidency*
+
+By Jean A. Stevens - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2014 General Conference*
+
+>*As we develop greater faith and trust in the Lord, we can access His power to bless and deliver us.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/04/fear-not-i-am-with-thee?lang=eng)
 
@@ -9,11 +12,11 @@ Few feelings compare with the tender emotions of becoming a parent. There is not
 
 Little Hunter was so dependent. He struggled to gain the strength necessary to live. The strong hand of his loving father often reached for his son’s tiny hand to encourage his vulnerable little child.
 
-And so it is for all of God’s children. Our Father in Heaven reaches out for each of us with His infinite love. He has power over all things and desires to help us learn, grow, and return to Him. This defines our Father’s purpose: “to bring to pass the immortality and eternal life of man.”1
+And so it is for all of God’s children. Our Father in Heaven reaches out for each of us with His infinite love. He has power over all things and desires to help us learn, grow, and return to Him. This defines our Father’s purpose: “to bring to pass the immortality and eternal life of man.”[^1]
 
 As we develop greater faith and trust in the Lord, we can access His power to bless and deliver us.
 
-The Book of Mormon weaves this beautiful theme of the Lord’s power to deliver His children throughout its pages. Nephi introduced it in the very first chapter of the book. In verse 20, we read, “Behold, I, Nephi, will show unto you that the tender mercies of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of deliverance.”2
+The Book of Mormon weaves this beautiful theme of the Lord’s power to deliver His children throughout its pages. Nephi introduced it in the very first chapter of the book. In [[1 Nephi 1.20|verse 20]], we read, “Behold, I, Nephi, will show unto you that the tender mercies of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of deliverance.”[^2]
 
 Many years ago I came to know in a very personal way the truths expressed in this verse. I came to know just how near our Father in Heaven really is and just how much He desires to help us.
 
@@ -37,7 +40,7 @@ As Deric expressed, not every prayer is answered so quickly. But truly our Fathe
 
 We can trust that He will help us, not necessarily in the way we want but in the way that will best help us to grow. Submitting our will to His may be difficult, but it is essential to becoming like Him and finding the peace He offers us.
 
-We can come to feel, as C. S. Lewis described: “I pray because I can’t help myself. ... I pray because the need flows out of me all the time, waking and sleeping. It doesn’t change God. It changes me.”3
+We can come to feel, as C. S. Lewis described: “I pray because I can’t help myself. … I pray because the need flows out of me all the time, waking and sleeping. It doesn’t change God. It changes me.”[^3]
 
 There are many accounts in the scriptures of those who have put their trust in the Lord and who have been helped and delivered by Him. Think of young David, who escaped certain death at the hand of the mighty Goliath by relying on the Lord. Consider Nephi, whose pleadings to God in faith brought deliverance from his brothers who sought to take his life. Remember young Joseph Smith, who prayerfully sought the Lord’s help. He was delivered from the power of darkness and received a miraculous answer. Each faced real and difficult challenges. Each acted in faith and put his trust in the Lord. Each received His help. And still in our day, God’s power and love are manifest in the lives of His children.
 
@@ -51,11 +54,24 @@ The next two months were filled with blessings too numerous to recount. Arn and 
 
 One of their daughters added: “We watched our parents and saw their example. We saw their faith and how they handled it. I would never have asked for this trial, but I would never give it away. We were surrounded with God’s love.”
 
-Of course, Arn’s passing was not the outcome the Gatrells had hoped for. But their crisis was not a crisis of faith. The gospel of Jesus Christ is not a checklist of things to do; rather, it lives in our hearts. The gospel “is not weight; it is wings.”4 It carries us. It carried the Gatrells. They felt peace in the midst of the storm. They held fast to each other and to temple covenants they had made and kept. They grew in their ability to trust in the Lord and were strengthened by their faith in Jesus Christ and in His atoning power.
+Of course, Arn’s passing was not the outcome the Gatrells had hoped for. But their crisis was not a crisis of faith. The gospel of Jesus Christ is not a checklist of things to do; rather, it lives in our hearts. The gospel “is not weight; it is wings.”[^4] It carries us. It carried the Gatrells. They felt peace in the midst of the storm. They held fast to each other and to temple covenants they had made and kept. They grew in their ability to trust in the Lord and were strengthened by their faith in Jesus Christ and in His atoning power.
 
 Wherever we find ourselves on the path of discipleship, whatever our worries and challenges may be, we are not alone. You are not forgotten. Like Deric, the Saints of Africa, and the Gatrell family, we can choose to reach for God’s hand in our need. We can face our challenges with prayer and trust in the Lord. And in the process we become more like Him.
 
-Speaking to each of us, the Lord says, “Fear ... not; ... I am with thee: be not dismayed; for I am thy God: I will strengthen thee; ... I will help thee; yea, I will uphold thee with the right hand of my righteousness.”5
+Speaking to each of us, the Lord says, “Fear … not; … I am with thee: be not dismayed; for I am thy God: I will strengthen thee; … I will help thee; yea, I will uphold thee with the right hand of my righteousness.”[^5]
 
 I share my humble but certain witness that God our Father knows us personally and reaches out to help us. Through His Beloved Son, Jesus Christ, we may overcome the challenges of this world and be safely delivered home. May we have faith to trust in Him, I pray in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Moses 1.39|Moses 1:39]].
+
+[^2]: [[1 Nephi 1.20|1 Nephi 1:20]].
+
+[^3]: Spoken by the character of C. S. Lewis as portrayed in William Nicholson, *Shadowlands* (1989), 103.
+
+[^4]: Harry Emerson Fosdick, *Twelve Tests of Character* (1923), 88.
+
+[^5]: [[Isaiah 41.10|Isaiah 41:10]].
 

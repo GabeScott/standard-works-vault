@@ -1,5 +1,6 @@
 # A Testimony of Christ
-*By Joseph Anderson - Assistant to the Council of the Twelve*
+
+By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -7,55 +8,43 @@
 
 Mankind’s greatest need today is a sincere conviction that Jesus Christ was and is in very deed the Savior and Redeemer of the world; that he is the Son of the Father, the firstborn in the spirit and the Only Begotten in the flesh; that it was necessary and a part of God’s plan before the world was created, that he should come to earth and take upon himself mortality, mend the law broken by Adam and Eve, and provide for us the plan whereby we might resurrect from the grave and return into the presence of our Heavenly Father from whence we came.
 
-We read in the first chapter of the gospel according to John: “In the beginning was the Word, and the Word was with God, and the Word was God. The same was in the beginning with God.” (John 1:1–2.) This would indicate that Christ, Jehovah, the Great I Am, was with the Father in that early state of existence; he was the firstborn of his spirit children. He was taught by the Father during that incalculable time.
+We read in the first chapter of the gospel according to John: “In the beginning was the Word, and the Word was with God, and the Word was God. The same was in the beginning with God.” ([[John 1.1|John 1:1–2]][[John 1.2|]].) This would indicate that Christ, Jehovah, the Great I Am, was with the Father in that early state of existence; he was the firstborn of his spirit children. He was taught by the Father during that incalculable time.
 
 Before we came here we lived in the heavens in the spirit state as children of our Heavenly Father. The poet Wordsworth caught a flash from the eternal semaphore when he wrote:
 
-Our birth is but a sleep and a forgetting:
-
-The soul that rises with us, our life’s star.
-
-Hath had elsewhere its setting,
-
-And cometh from afar:
-
-Not in entire forgetfulness.
-
-And not in utter nakedness.
-
-But trailing clouds of glory do we come
-
-From God, who is our home.
-
-“Ode: Intimations of Immortality from Recollections of Early Childhood”
+>Our birth is but a sleep and a forgetting:
+>The soul that rises with us, our life’s star.
+>Hath had elsewhere its setting,
+>And cometh from afar:
+>Not in entire forgetfulness.
+>And not in utter nakedness.
+>But trailing clouds of glory do we come
+>From God, who is our home.
+>
 
 We knew the Father of our spirits as well as we know our earthly father here. We knew our elder brother Jehovah and we also knew Lucifer, who too was a son of the morning. We lived by sight at that time. That visual knowledge, the remembrance of that estate, has been taken from our minds, and we are now required to live by faith. As stated in the hymn:
 
-For a wise and glorious purpose
-
-Thou hast placed us here on earth
-
-And withheld the recollection
-
-Of our former friends and birth.
-
-Hymns, no. 138
+>For a wise and glorious purpose
+>Thou hast placed us here on earth
+>And withheld the recollection
+>Of our former friends and birth.
+>
 
 It is a glorious program and plan, instituted in the councils of heaven, whereby we might have the blessed privilege of taking upon us mortality, its challenges and its experiences.
 
-In that previous existence we had our free agency. In the councils where consideration was given to the matter of the creation and the peopling of this earth, the Father presented an unselfish plan. It had been used in other worlds. Jehovah said: “Father, thy will be done, and the glory be thine forever.” (Moses 4:2.)
+In that previous existence we had our free agency. In the councils where consideration was given to the matter of the creation and the peopling of this earth, the Father presented an unselfish plan. It had been used in other worlds. Jehovah said: “Father, thy will be done, and the glory be thine forever.” ([[Moses 4.2|Moses 4:2]].)
 
-Lucifer, however, contended for an amendment to the plan whereby we would all be saved by compulsion. This was contrary to free agency. His was an ambitious proposal and one which involved granting to him, Lucifer, the honor that belongs to the Father. The scriptures tell us he said: “Behold, here am I, send me, I will be thy son, and I will redeem all mankind, that one soul shall not be lost, and surely I will do it; wherefore give me thine honor.” (Moses 4:1.) This would destroy the right to free agency and the opportunity for growth and development. It would be contrary to the Father’s purpose in giving his children the opportunity to become like unto him through their own faithfulness and efforts. It was a selfish and presumptive proposal.
+Lucifer, however, contended for an amendment to the plan whereby we would all be saved by compulsion. This was contrary to free agency. His was an ambitious proposal and one which involved granting to him, Lucifer, the honor that belongs to the Father. The scriptures tell us he said: “Behold, here am I, send me, I will be thy son, and I will redeem all mankind, that one soul shall not be lost, and surely I will do it; wherefore give me thine honor.” ([[Moses 4.1|Moses 4:1]].) This would destroy the right to free agency and the opportunity for growth and development. It would be contrary to the Father’s purpose in giving his children the opportunity to become like unto him through their own faithfulness and efforts. It was a selfish and presumptive proposal.
 
 We are given to understand that whereas in the preexistence, in that spiritual estate, the spirits had their free agency, there were different degrees of obedience, various grades of righteousness. Lucifer exercised his free agency when he rebelled against the Father, but he had to pay the penalty for that rebellion and is still doing so, as are those spirits who followed him. They were denied the privilege of taking upon themselves mortality, and this has been a great curse and disappointment to them.
 
-“How art thou fallen from heaven, O Lucifer, son of the morning! ...
+“How art thou fallen from heaven, O Lucifer, son of the morning! …
 
-“For thou hast said in thine heart, I will ascend into heaven. I will exalt my throne above the stars of God: ...
+“For thou hast said in thine heart, I will ascend into heaven. I will exalt my throne above the stars of God: …
 
 “I will ascend above the heights of the clouds: I will be like the most High.
 
-“Yet thou shalt be brought down to hell, to the sides of the pit.” (Isa. 14:12–15.)
+“Yet thou shalt be brought down to hell, to the sides of the pit.” ([[Isaiah 14.12|Isa. 14:12–15]][[Isaiah 14.13|]][[Isaiah 14.14|]][[Isaiah 14.15|]].)
 
 When those spirits who followed Jehovah were sent to earth to take upon themselves mortality, they were by no means of equal capacity nor similar in dispositions. There were different degrees of faithfulness among those who were given the opportunity and blessing of taking upon themselves mortal life. They were, however, considered sufficiently worthy to receive this earth-life experience in order that they might prove whether they would do all things whatsoever the Lord their God should command them. By so doing, by rendering obedience to the plan of life and salvation, they would receive life eternal, they would return into the presence of their Heavenly Father and receive his plaudit and the reward of the faithful.
 
@@ -75,7 +64,7 @@ Upon his appearance to the Nephites, he stretched forth his hand and spoke unto 
 
 “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.
 
-“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.” (3 Ne. 11:10–11.)
+“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.” ([[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]].)
 
 The Church has the further scripture about the Only Begotten and his mission as contained in the Pearl of Great Price. How fortunate we are that we have the biblical account, the Book of Mormon account, and the accounts given to Abraham and Enoch and Moses as related in the Pearl of Great Price regarding the birth and death of the Savior and his great mission.
 
@@ -87,13 +76,16 @@ In The Church of Jesus Christ of Latter-day Saints we worship the living Christ.
 
 Jesus Christ is our Redeemer and Savior. He was begotten of the Father in the spirit, the Firstborn of the Father, and is the Only Begotten of the Father in the flesh. He is our elder brother. He is the second member of the Godhead. He was the Creator of heaven and earth under the direction of the Father. He is the Jehovah of the Old Testament. He is Jesus of Nazareth.
 
-He is the Way, the Truth, and the Life. He is the Light of the world. He is the Author of our salvation. He was chosen before the foundation of the world to be the Lamb slain as an offering for our sins. Ultimately every knee must bow and every tongue confess that he is the Christ. He died on the cross to atone for the sin of Adam, that we might receive forgiveness for our sins if we would accept him and keep the commandments that he has given us, the plan of life and salvation. He arose from the tomb, the first fruits of the resurrection, thereby making possible that all mankind may live again in a resurrected state after mortal death. Yes, “God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.” (John 3:16.)
+He is the Way, the Truth, and the Life. He is the Light of the world. He is the Author of our salvation. He was chosen before the foundation of the world to be the Lamb slain as an offering for our sins. Ultimately every knee must bow and every tongue confess that he is the Christ. He died on the cross to atone for the sin of Adam, that we might receive forgiveness for our sins if we would accept him and keep the commandments that he has given us, the plan of life and salvation. He arose from the tomb, the first fruits of the resurrection, thereby making possible that all mankind may live again in a resurrected state after mortal death. Yes, “God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.” ([[John 3.16|John 3:16]].)
 
-It is his work and his glory to bring to pass the immortality and eternal life of man, which is salvation and exaltation in the presence of God the Father and his Son Jesus Christ. (See Moses 1:39.)
+It is his work and his glory to bring to pass the immortality and eternal life of man, which is salvation and exaltation in the presence of God the Father and his Son Jesus Christ. (See [[Moses 1.39|Moses 1:39]].)
 
 It is our mission and our responsibility to carry this message to the world. It is our work and our glory to assist our Savior in the accomplishment of the mission that he accepted in the council of the heavens before the earth was created.
 
 He will come to earth again, as foretold by the prophets, this time in power and great glory, to reign and rule a thousand years in peace and righteousness.
 
 I testify to the truth of these things. I know that our Redeemer lives, and I bear this testimony in faith and in all sincerity, in the name of our Savior and Redeemer, Jesus Christ. Amen.
+
+
+
 

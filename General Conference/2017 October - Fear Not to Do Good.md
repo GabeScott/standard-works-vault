@@ -1,13 +1,16 @@
 # Fear Not to Do Good
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*
+
+>*The Lord tells us that when we stand with faith upon His rock, doubt and fear are diminished; the desire to do good increases.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/10/fear-not-to-do-good?lang=eng)
 
 My dear brothers and sisters, I pray humbly that the Spirit of the Lord will be with us as I speak today. My heart is full of gratitude to the Lord, whose Church this is, for the inspiration we have felt in fervent prayers, inspired sermons, and angelic singing in this conference.
 
-Last April, President Thomas S. Monson gave a message that stirred hearts across the world, including mine. He spoke of the power of the Book of Mormon. He urged us to study, ponder, and apply its teachings. He promised that if we dedicated time each day to studying and pondering and kept the commandments the Book of Mormon contains, we would have a vital testimony of its truth, and the resultant testimony of the living Christ would see us through to safety in times of trouble. (See “The Power of the Book of Mormon,” Ensign or Liahona, May 2017, 86–87.)
+Last April, President Thomas S. Monson gave a message that stirred hearts across the world, including mine. He spoke of the power of the Book of Mormon. He urged us to study, ponder, and apply its teachings. He promised that if we dedicated time each day to studying and pondering and kept the commandments the Book of Mormon contains, we would have a vital testimony of its truth, and the resultant testimony of the living Christ would see us through to safety in times of trouble. (See “[[2017 April - The Power of the Book of Mormon.md|The Power of the Book of Mormon]],” *Ensign* or *Liahona,* May 2017, 86–87.)
 
 Like many of you, I heard the prophet’s words as the voice of the Lord to me. And, also like many of you, I decided to obey those words. Now, since I was a young boy, I have felt the witness that the Book of Mormon is the word of God, that the Father and the Son appeared and spoke with Joseph Smith, and that ancient Apostles came to the Prophet Joseph to restore priesthood keys to the Lord’s Church.
 
@@ -27,11 +30,11 @@ The Lord promised love for others and courage to the Prophet Joseph Smith and Ol
 
 “Look unto me in every thought; doubt not, fear not.
 
-“Behold the wounds which pierced my side, and also the prints of the nails in my hands and feet; be faithful, keep my commandments, and ye shall inherit the kingdom of heaven” (D&C 6:33–37).
+“Behold the wounds which pierced my side, and also the prints of the nails in my hands and feet; be faithful, keep my commandments, and ye shall inherit the kingdom of heaven” ([[D&C 6.33|D&C 6:33–37]][[D&C 6.34|]][[D&C 6.35|]][[D&C 6.36|]][[D&C 6.37|]]).
 
 The Lord told His leaders of the Restoration, and He tells us, that when we stand with faith upon His rock, doubt and fear are diminished; the desire to do good increases. As we accept President Monson’s invitation to plant in our hearts a testimony of Jesus Christ, we gain the power, the desire, and the courage to go to the rescue of others without concern for our own needs.
 
-I have seen that faith and courage many times when believing Latter-day Saints have faced fearsome trials. For one example, I was in Idaho when the Teton Dam broke on June 5, 1976. A wall of water came down. Thousands fled from their homes. Thousands of homes and businesses were destroyed. Miraculously, fewer than 15 people were killed.
+I have seen that faith and courage many times when believing Latter-day Saints have faced fearsome trials. For one example, I was in Idaho when the Teton Dam broke on June 5, 1976. A wall of water came down. Thousands fled from their homes. Thousands of homes and businesses were destroyed. Miraculously, fewer than 15 people were killed.
 
 What I saw there, I have seen whenever Latter-day Saints stand firmly on the rock of a testimony of Jesus Christ. Because they have no doubt He watches over them, they become fearless. They ignore their own trials to go to the relief of others. And they do so out of love for the Lord, asking no recompense.
 
@@ -61,7 +64,7 @@ Earlier that day, as we pulled away from another site, a man had walked up to th
 
 While the volunteers from Georgia had come to help this man who couldn’t believe it, hundreds of Latter-day Saints from that very devastated part of Florida had gone hundreds of miles south to another place in Florida where they had heard the people were harder hit.
 
-That day I remembered and understood better the prophetic words of the Prophet Joseph Smith: “A man filled with the love of God, is not content with blessing his family alone, but ranges through the whole world, anxious to bless the whole human race” (Teachings of Presidents of the Church: Joseph Smith [2007], 426).
+That day I remembered and understood better the prophetic words of the Prophet Joseph Smith: “A man filled with the love of God, is not content with blessing his family alone, but ranges through the whole world, anxious to bless the whole human race” (** \[2007\], 426).
 
 We see such love in the lives of Latter-day Saints everywhere. Each time there is a tragic event anywhere in the world, Latter-day Saints donate and volunteer to the Church’s humanitarian efforts. An appeal is seldom needed. In fact, on some occasions, we have had to ask would-be volunteers to wait to travel to the recovery site until those directing the work are prepared to receive them.
 
@@ -75,9 +78,9 @@ We cannot foresee the details, but we know the larger picture. We know that in t
 
 So, as much as we have already built faith and courage in our hearts, the Lord expects more from us—and from the generations after us. They will need to be stronger and braver because they will do even greater and harder things than we have done. And they will face increasing opposition from the enemy of our souls.
 
-The way to optimism as we go forward was given by the Lord: “Look unto me in every thought; doubt not, fear not” (D&C 6:36). President Monson told us how to do that. We are to ponder and apply the Book of Mormon and the words of prophets. Pray always. Be believing. Serve the Lord with all our heart, might, mind, and strength. We are to pray with all the energy of our hearts for the gift of charity, the pure love of Christ (see Moroni 7:47–48). And above all, we are to be consistent and persistent in following prophetic counsel.
+The way to optimism as we go forward was given by the Lord: “Look unto me in every thought; doubt not, fear not” ([[D&C 6.36|D&C 6:36]]). President Monson told us how to do that. We are to ponder and apply the Book of Mormon and the words of prophets. Pray always. Be believing. Serve the Lord with all our heart, might, mind, and strength. We are to pray with all the energy of our hearts for the gift of charity, the pure love of Christ (see [[Moroni 7.47|Moroni 7:47–48]][[Moroni 7.48|]]). And above all, we are to be consistent and persistent in following prophetic counsel.
 
-When the way is difficult, we can rely on the Lord’s promise—the promise President Monson has reminded us of when he has often quoted these words of the Savior: “Whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” (D&C 84:88).
+When the way is difficult, we can rely on the Lord’s promise—the promise President Monson has reminded us of when he has often quoted these words of the Savior: “Whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” ([[D&C 84.88|D&C 84:88]]).
 
 I testify that the Lord goes before your face whenever you are on His errand. Sometimes you will be the angel the Lord sends to bear others up. Sometimes you will be the one surrounded by angels who bear you up. But always you will have His Spirit to be in your heart, as you have been promised in every sacrament service. You have only to keep His commandments.
 
@@ -86,4 +89,7 @@ The best days are ahead for the kingdom of God on the earth. Opposition will str
 I bear my witness that God the Father lives and wants you to come home to Him. This is the true Church of the Lord Jesus Christ. He knows you; He loves you; He watches over you. He atoned for your sins and mine and the sins of all of Heavenly Father’s children. Following Him in your life and in your service to others is the only way to eternal life.
 
 I so testify and leave you my blessing and my love. In the sacred name of Jesus Christ, amen.
+
+
+
 

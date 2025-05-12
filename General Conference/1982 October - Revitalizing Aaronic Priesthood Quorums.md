@@ -1,5 +1,6 @@
 # Revitalizing Aaronic Priesthood Quorums
-*By Robert L. Backman - Of the First Quorum of the Seventy*
+
+By Elder Robert L. Backman - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -17,7 +18,7 @@ When we contemplate the purposes for which priesthood quorums are organized—to
 
 Is the presidency in place, schooled in their duties, and aware of their responsibility to lead all of the young men in their age group? Is the presidency meeting weekly to plan and carry out a meaningful quorum activity program?
 
-The Aaronic Priesthood Quorum Guidebook has been published to provide training materials for the quorum presidency and their adviser. Quorum advisers should teach the ten training sessions in the guidebook as part of the quorum presidency meetings, which should be held weekly.
+The *Aaronic Priesthood Quorum Guidebook* has been published to provide training materials for the quorum presidency and their adviser. Quorum advisers should teach the ten training sessions in the guidebook as part of the quorum presidency meetings, which should be held weekly.
 
 As the presidency learns their duties, they will include the quorum members in planning and implementing the quorum program, including the activation of those who need special attention, using the active quorum members to apply positive peer pressure, surrounding the inactives with their protective love and concern.
 
@@ -47,7 +48,7 @@ Our young men will respond almost overnight to a man who really shows he cares. 
 
 The advisers need training to be effective.
 
-Once again, the Aaronic Priesthood Quorum Guidebook provides information, material, and a timetable for such training to be given by the bishopric. Please see that this is done.
+Once again, the *Aaronic Priesthood Quorum Guidebook* provides information, material, and a timetable for such training to be given by the bishopric. Please see that this is done.
 
 Third, the Lord has called the bishop to be the president of the Aaronic Priesthood. President Kimball has reminded the bishops that this is their first and foremost responsibility. All bearers of the Aaronic Priesthood should know that the Lord has assigned the bishop to be their champion and exemplar, that it should be safe for each of them to follow the bishop’s example in every activity of his life.
 
@@ -63,7 +64,7 @@ At a recent encampment planned and directed by stake and ward priesthood leaders
 
 Note that the Lord called the bishop to personally serve as president of the priests quorum. By virtue of that presidency, the bishop holds the keys of that office, which may not be delegated to another. The Lord requires that the bishop become the friend of each priest, that he be sensitive to personal and group needs at all times, that there be a feeling of brotherhood and fellowship between him and his priests. No priest should ever go astray if the bishop, through the exercise of his keys of presidency, helped him hold on to the doctrines and practices of the Church.
 
-In words carefully selected to impress upon a bishop the importance of his calling and appointment as president of the priests quorum, President David O. McKay said, “Bishop, what is your priests quorum but an opportunity for you as president of that quorum to get these young men around you as your bodyguard, young men who crave the social atmosphere of the ward and whom you may lead in paths of honor, trustworthiness, and faith?”
+In words carefully selected to impress upon a bishop the importance of his calling and appointment as president of the priests quorum, President David O. McKay said, “Bishop, what is your priests quorum but an opportunity for you as president of that quorum to get these young men around you as your bodyguard, young men who crave the social atmosphere of the ward and whom you may lead in paths of honor, trustworthiness, and faith?”
 
 Please, bishops, interview each priest at least twice a year, and each deacon and each teacher at least once a year, for worthiness and spiritual progress. Help him set goals, help teach him to understand the oath and covenant of the Melchizedek Priesthood, and help prepare him for a mission and for temple marriage. Include the inactive boys in these interviews and challenge them to participate actively in the quorum. See that your counselors interview those deacons and teachers at least once a year.
 
@@ -71,7 +72,7 @@ Personalize those interviews. Make them meaningful. Show you care. Those one-to-
 
 We’re so anxious to have your great influence on the youth, and we can promise you that your mark will be on them for eternity if you demonstrate your love for them.
 
-Fourth, the program of the Aaronic Priesthood quorum should not only provide opportunities for learning the doctrines of the Church in the classroom, but also for translating the doctrine into real-life experiences through balanced activities having a priesthood purpose. The Aaronic Priesthood Quorum Guidebook tells us how to plan effectively to have successful experiences.
+Fourth, the program of the Aaronic Priesthood quorum should not only provide opportunities for learning the doctrines of the Church in the classroom, but also for translating the doctrine into real-life experiences through balanced activities having a priesthood purpose. The *Aaronic Priesthood Quorum Guidebook* tells us how to plan effectively to have successful experiences.
 
 All of the young men’s activities should be an outgrowth of the quorum—quorum led, quorum planned.
 
@@ -95,19 +96,22 @@ Later in his youth he directed a theater-in-the-round production in the ward. To
 
 Please give our young men the opportunity to stretch their souls in service. Too often we only entertain, leaving our young men in the role of spectators. They will grow as they are involved, and they will develop love for their fellowmen, at the same time forgetting their own weaknesses and frailties as they serve. The sooner our young men have experiences in meaningful service, the sooner they will understand their priesthood responsibilities and their own capacity to truly be their brother’s keeper, and the sooner they will discover the key to lasting happiness. In service every quorum member will know that he is needed. Even the most inactive will respond to an invitation to bless someone’s life.
 
-All of these activities provide a wholesome environment where relationships can be cemented. Is this important? President David O. McKay reminded us, “The spirituality of a ward will be commensurate with the activity of the youth of that ward.”
+All of these activities provide a wholesome environment where relationships can be cemented. Is this important? President David O. McKay reminded us, “The spirituality of a ward will be commensurate with the activity of the youth of that ward.”
 
 I must say something about costs. Our presiding brethren have instructed us to be very careful how we spend the Saints’ money. We who deal with the youth recognize that a good portion of stake and ward budgets, and much of the out-of-pocket Church expenses of our families, are related to youth activities such as athletics, Scouting, dances, plays, and youth conferences. They do cost money.
 
-Yet it was never intended to do away with youth activities. If we do, we will be making a sad mistake. As President Gordon B. Hinckley spoke on the subject in general conference, he said: “We do not mean to be parsimonious. [That means stingy.] We mean to be judicious.” I plead with you to weigh the worth of a young man against the dollar spent: use good judgment.
+Yet it was never intended to do away with youth activities. If we do, we will be making a sad mistake. As President Gordon B. Hinckley spoke on the subject in general conference, he said: “We do not mean to be parsimonious. \[That means stingy.\] We mean to be judicious.” I plead with you to weigh the worth of a young man against the dollar spent: use good judgment.
 
 It’s not necessary to spend a lot of money to meet the needs of our youth. Even a high adventure does not need to be an exotic, expensive trip. High adventures can be had close to home when well planned. Youth conferences need not be held in faraway places to serve their purposes. And what’s wrong in letting our young men earn their money for Scouting, athletics, and other programs? They will learn some valuable lessons about the realities of life as they do.
 
-Just before his death, Elder S. Dilworth Young appeared before our Young Men General Board and told us about the dangers of giving boys everything. He spread out in front of us patterns for making tents, backpacks, sleeping bags, stoves, cooking utensils; and then he talked about the pride and the growth experienced by his young men as they enjoyed building them for themselves.
+Just before his death, Elder S. Dilworth Young appeared before our Young Men General Board and told us about the dangers of giving boys everything. He spread out in front of us patterns for making tents, backpacks, sleeping bags, stoves, cooking utensils; and then he talked about the pride and the growth experienced by his young men as they enjoyed building them for themselves.
 
 As we use all the resources available to us to vitalize the Aaronic Priesthood quorums we will be successful in reaching our young men. Further, we will be awakening the Melchizedek Priesthood quorums as these stalwart young men come of age, taking the oath and covenant of the Melchizedek Priesthood and transferring their faith, devotion, and loyalty to their elders quorums. And all the programs of the Church will be affirmatively affected.
 
 As the Presidency of the Young Men of the Church, we challenge you stake presidents, bishops, advisers and adult leaders, and quorum presidencies and quorum members: select three quorum members who are presently inactive. If the quorum is small, select three nonmembers on whom you will focus your efforts. Use every resource available to activate, convert, and involve these three young men in the next year—that’s only one every four months. Three young men per quorum in the next year? That’s not much from where you sit, but Churchwide we would have close to 100,000 young men active and participating in the quorums who are now fumbling in darkness without the quorum.
 
 As I was called to be the President of the Young Men of the Church, I was given the “challenge to provide a program which will prepare this generation of youth to meet the Savior when He comes.” I pass that challenge on to all of you, adult leaders and young men, bearing my witness that this generation of youth is a royal generation with very special things to do. May God help all of us to give the time, attention, and tender, loving care we need to give, to prepare these noble young men for the rich adventures and the singular missions that lie ahead of them, I pray in the sacred name of Jesus Christ, amen.
+
+
+
 

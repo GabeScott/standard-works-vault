@@ -1,5 +1,6 @@
 # Rated A
-*By Marvin J. Ashton - Of the Council of the Twelve*
+
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -23,7 +24,7 @@ And so it goes on and on in almost everything we do in life. We have a tendency 
 
 In spite of this inborn desire to achieve, there remains an area where the attainment of high or good ratings seems to be ignored. I speak of the growing numbers of movies, books, magazines, theatrical productions, and television programs where efforts to glorify immorality or violence have become predominant. “Rated R” or “Rated X” has replaced the idealism of being “Rated A.”
 
-I know that free expression is a vital part of the eternal principle of free agency and must be preserved and protected. I also know how certain forces use the freedom of speech to degrade or debase, and this constitutes perversion and enslavement. Because I recognize that there will always be opposition in all things, I suspect that we will not soon see the day when obscenity in its various forms will be entirely eliminated. But I have faith that it can be fully eliminated in the lives of quality individuals. I firmly believe that most thinking people can be inspired to strive for the A rating by choosing wholesome, worthwhile literature, art, and habits.
+I know that free expression is a vital part of the eternal principle of free agency and must be preserved and protected. I also know how certain forces use the freedom of speech to degrade or debase, and this constitutes perversion and enslavement. Because I recognize that there will always be opposition in all things, I suspect that we will not soon see the day when obscenity in its various forms will be entirely eliminated. But I have faith that it can be fully eliminated in the lives of quality individuals. I firmly believe that most thinking people can be inspired to strive for the *A* rating by choosing wholesome, worthwhile literature, art, and habits.
 
 As each of us uses our free agency to choose the material that enters our lives, we ought to recognize that the battle between “Rated A” and “Rated X” is part of the war that began in heaven and is still being fought today. The enemy seeks any strategic or tactical foothold he can gain, and any bridgehead he attains becomes the launching point for the next encounter. The number of victories we allow him can seriously affect the final outcome of the struggle.
 
@@ -37,13 +38,13 @@ The scriptures help us understand the strategy and tactics of the enemy. Nephi i
 
 “For behold, at that day shall he rage in the hearts of the children of men, and stir them up to anger against that which is good.
 
-“And others will he pacify, and lull them away into carnal security. ...
+“And others will he pacify, and lull them away into carnal security. …
 
-“And behold, others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance.” (2 Ne. 28:20–22.)
+“And behold, others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance.” ([[2 Nephi 28.20|2 Ne. 28:20–22]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
 
-The great prophet Mormon, viewing his own fallen people, wrote his son Moroni a very telling indictment when he said that because of wickedness his people were “past feeling.” (See Moro. 9:20.) How tragic to reach the point where the Spirit must withdraw, and we become unable to sense or feel right from wrong.
+The great prophet Mormon, viewing his own fallen people, wrote his son Moroni a very telling indictment when he said that because of wickedness his people were “past feeling.” (See [[Moroni 9.20|Moro. 9:20]].) How tragic to reach the point where the Spirit must withdraw, and we become unable to sense or feel right from wrong.
 
-If we continue to lose skirmishes in the battle with Satan, the ultimate chains with which he grasps us will be as awful as the scriptures indicate. How awful this state is might be indicated by the words a dictionary uses to describe the word obscenity. Obscenity, it indicates, defiles, nauseates, offends, perverts, impairs, corrupts, distorts, infects, misleads, poisons, warps, weakens, and spoils. When I think of these words and then remember that the Prophet Joseph Smith admonished us to seek for things that are “virtuous, lovely, or of good report, or praiseworthy” (A of F 1:13), I shudder at the blindness of so many.
+If we continue to lose skirmishes in the battle with Satan, the ultimate chains with which he grasps us will be as awful as the scriptures indicate. How awful this state is might be indicated by the words a dictionary uses to describe the word *obscenity.* Obscenity, it indicates, defiles, nauseates, offends, perverts, impairs, corrupts, distorts, infects, misleads, poisons, warps, weakens, and spoils. When I think of these words and then remember that the Prophet Joseph Smith admonished us to seek for things that are “virtuous, lovely, or of good report, or praiseworthy” ([[Articles of Faith 1.13|A of F 1:13]]), I shudder at the blindness of so many.
 
 In olden times the call to battle was the sure sound of a trumpet. The call to battle that I sound is a call to find so much that is wholesome or “Rated A” that there is no time or inclination for the carnal. It is a call to strive for a rating that can be remembered with joy forever.
 
@@ -65,7 +66,10 @@ My plea is that we will strive to be “Rated A” in all we do in life. We want
 
 The desire to achieve has been placed in us by a loving Creator who honors our free agency but nonetheless beckons to us to do well. He it is who will grade our eternal report card. The adversary would weaken and dull our senses so we lose sight of the final time of rating or judging. We are in a battle with evil powers who are cunning and crafty. They can lull us and pacify us through carnal things if we are not careful. But if we take the offense in the contest and seek those things which are praiseworthy, we can build an armor that will not be pierced.
 
-So now, in the midst of this battle, let us sound our trumpets for that which is “Rated A”: A for pure actions, A for achievement, and A for approbation, even that approbation from Him whose voice can say to you: “Well done, thou good and faithful servant ... enter thou into the joy of thy Lord.” (Matt. 25:21.)
+So now, in the midst of this battle, let us sound our trumpets for that which is “Rated A”: *A* for pure actions, *A* for achievement, and *A* for approbation, even that approbation from Him whose voice can say to you: “Well done, thou good and faithful servant … enter thou into the joy of thy Lord.” ([[Matthew 25.21|Matt. 25:21]].)
 
 For this I humbly pray in the worthy name of Jesus Christ, our Savior and Redeemer. Amen.
+
+
+
 

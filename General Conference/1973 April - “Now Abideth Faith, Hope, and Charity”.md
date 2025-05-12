@@ -1,5 +1,6 @@
 # “Now Abideth Faith, Hope, and Charity”
-*By By Bishop Vaughn J. Featherstone - Second Counselor in the Presiding Bishopric*
+
+By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -9,15 +10,15 @@ President Romney recently said, “Welfare is not a program of the Church; it is
 
 Now the scriptures are replete with verses bearing witness to what President Romney has said. In Mosiah, King Benjamin said:
 
-“... and ye will not suffer that the beggar putteth up his petition to you in vain. ...
+“… and ye will not suffer that the beggar putteth up his petition to you in vain. …
 
-“Perhaps thou shalt say: The man has brought upon himself his misery; therefore I will stay my hand, and will not give unto him of my food, nor impart unto him of my substance ... for his punishments are just—
+“Perhaps thou shalt say: The man has brought upon himself his misery; therefore I will stay my hand, and will not give unto him of my food, nor impart unto him of my substance … for his punishments are just—
 
-“But ... whosoever doeth this the same hath great cause to repent; and except he repenteth of that which he hath done he perisheth forever, and hath no interest in the kingdom of God.
+“But … whosoever doeth this the same hath great cause to repent; and except he repenteth of that which he hath done he perisheth forever, and hath no interest in the kingdom of God.
 
-“For behold, are we not all beggars? ...” (Mosiah 4:16–18.)
+“For behold, are we not all beggars? …” ([[Mosiah 4.16|Mosiah 4:16–18]][[Mosiah 4.17|]][[Mosiah 4.18|]].)
 
-And then clearly Paul said: “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal.” (1 Cor. 13:1.)
+And then clearly Paul said: “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal.” ([[1 Corinthians 13.1|1 Cor. 13:1]].)
 
 And then, of course, the great Savior of heaven and earth, in one of his great parables, taught us a most profound lesson. He said:
 
@@ -45,95 +46,59 @@ And then, of course, the great Savior of heaven and earth, in one of his great p
 
 “And he said, Nay, father Abraham; but if one went unto them from the dead, they will repent.
 
-“And he said unto him, If they hear not Moses and the prophets, neither will they be persuaded, though one rose from the dead.” (Luke 16:19–31.)
+“And he said unto him, If they hear not Moses and the prophets, neither will they be persuaded, though one rose from the dead.” ([[Luke 16.19|Luke 16:19–31]][[Luke 16.20|]][[Luke 16.21|]][[Luke 16.22|]][[Luke 16.23|]][[Luke 16.24|]][[Luke 16.25|]][[Luke 16.26|]][[Luke 16.27|]][[Luke 16.28|]][[Luke 16.29|]][[Luke 16.30|]][[Luke 16.31|]].)
 
 I believe the Savior here teaches us a great lesson. There are those who have want, and in his great charitable way he will provide, for I believe the pure love of Christ is welfare. I believe it seeks out beyond the dimensions of that which we do. I think it is charity in its purest form.
 
 Myra Brooks Welch in her great poem, “The Touch of the Master’s Hand,” said:
 
-“’Twas battered and scarred, and the auctioneer
-
-Thought it scarcely worth his while
-
-To waste much time on the old violin,
-
-But held it up with a smile:
-
-‘What am I bidden, good folks,’ he cried,
-
-‘Who’ll start the bidding for me?’
-
-‘A dollar, a dollar’; then, ‘Two!’ ‘Only two?
-
-Two dollars, and who’ll make it three?
-
-Three dollars, once; three dollars, twice;
-
-Going for three—’ But no,
-
-From the room, far back, a gray-haired man
-
-Came forward and picked up the bow;
-
-Then, wiping the dust from the old violin,
-
-And tightening the loose strings,
-
-He played a melody pure and sweet
-
-As sweet as a caroling angel sings.
-
-“The music ceased, and the auctioneer,
-
-With a voice that was quiet and low,
-
-Said, ‘What am I bid for the old violin?’
-
-And he held it up with the bow.
-
-‘A thousand dollars, and who’ll make it two?
-
-Two thousand! And who’ll make it three?
-
-Three thousand, once, three thousand, twice,
-
-And going, and gone!’ said he.
-
-The people cheered, but some of them cried,
-
-‘We do not quite understand
-
-What changed its worth.’ Swift came the reply:
-
-‘The touch of a master’s hand.’
-
-“And many a man with life out of tune,
-
-And battered and scarred with sin,
-
-Is auctioned cheap to the thoughtless crowd,
-
-Much like the old violin.
-
-A ‘mess of pottage,’ a glass of wine;
-
-A game—and he travels on.
-
-He’s ‘going’ once, and ‘going’ twice,
-
-He’s ‘going’ and almost ‘gone.’
-
-But the Master comes, and the foolish crowd
-
-Never can quite understand
-
-The worth of a soul and the change that’s wrought
-
-By the touch of the Master’s hand.”
+>“’Twas battered and scarred, and the auctioneer
+>Thought it scarcely worth his while
+>To waste much time on the old violin,
+>But held it up with a smile:
+>‘What am I bidden, good folks,’ he cried,
+>‘Who’ll start the bidding for me?’
+>‘A dollar, a dollar’; then, ‘Two!’ ‘Only two?
+>Two dollars, and who’ll make it three?
+>Three dollars, once; three dollars, twice;
+>Going for three—’ But no,
+>From the room, far back, a gray-haired man
+>Came forward and picked up the bow;
+>Then, wiping the dust from the old violin,
+>And tightening the loose strings,
+>He played a melody pure and sweet
+>As sweet as a caroling angel sings.
+>
+>“The music ceased, and the auctioneer,
+>With a voice that was quiet and low,
+>Said, ‘What am I bid for the old violin?’
+>And he held it up with the bow.
+>‘A thousand dollars, and who’ll make it two?
+>Two thousand! And who’ll make it three?
+>Three thousand, once, three thousand, twice,
+>And going, and gone!’ said he.
+>The people cheered, but some of them cried,
+>‘We do not quite understand
+>What changed its worth.’ Swift came the reply:
+>‘The touch of a master’s hand.’
+>
+>“And many a man with life out of tune,
+>And battered and scarred with sin,
+>Is auctioned cheap to the thoughtless crowd,
+>Much like the old violin.
+>A ‘mess of pottage,’ a glass of wine;
+>A game—and he travels on.
+>He’s ‘going’ once, and ‘going’ twice,
+>He’s ‘going’ and almost ‘gone.’
+>But the Master comes, and the foolish crowd
+>Never can quite understand
+>The worth of a soul and the change that’s wrought
+>By the touch of the Master’s hand.”
+>
 
 I believe that is what it is. It is more than just physical welfare. It is the social and emotional needs furnished and provided and trained and taught in the Church. It is taking care of the health of those who have twisted bodies. I believe we have a great and sacred responsibility in this area. I think President Lee probably said it more beautifully in our day than any I have read. In 1946 in the October conference, he said:
 
-“I know there are powers that can draw close to one who fills his heart with ... love. ... I came to a night, some years ago, when on my bed, I realized that before I could be worthy of the high place to which I had been called, I must love and forgive every soul that walked the earth, and in that time I came to know and I received a peace and a direction, and a comfort, and an inspiration, that told me things to come and gave me impressions that I knew were from a divine source.” (Conference Report, October 1946, p. 146.)
+“I know there are powers that can draw close to one who fills his heart with … love. … I came to a night, some years ago, when on my bed, I realized that before I could be worthy of the high place to which I had been called, I must love and forgive every soul that walked the earth, and in that time I came to know and I received a peace and a direction, and a comfort, and an inspiration, that told me things to come and gave me impressions that I knew were from a divine source.” (*Conference Report,* October 1946, p. 146.)
 
 Isn’t it having the prophet feel the responsibility of caring for every living soul on the earth, loving and forgiving them?
 
@@ -185,11 +150,14 @@ Isn’t that what the Lord would want us to do if he were here to show us the wa
 
 “Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls.
 
-“For my yoke is easy, and my burden is light.” (Matt. 11:28–30.)
+“For my yoke is easy, and my burden is light.” ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].)
 
 Who received the greater blessing? Was it the elders who went out into the field and harvested Brother Goates’ load of beets? I want you to know they received a great blessing.
 
-And now in conclusion, you remember the words of Paul. He said: “And now abideth faith, hope, charity, these three; but the greatest of these is charity.” (1 Cor. 13:13.)
+And now in conclusion, you remember the words of Paul. He said: “And now abideth faith, hope, charity, these three; but the greatest of these is charity.” ([[1 Corinthians 13.13|1 Cor. 13:13]].)
 
 And I pray that the charity of Jesus Christ will be with and abide with each one of us, that we will understand the total dimension of welfare services in the Church, in the name of Jesus Christ, our Master. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Fundamentals of Enduring Family Relationships
-*By Ezra Taft Benson - President of the Quorum of the Twelve Apostles*
+
+By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -43,7 +44,7 @@ The family is the most effective place to instill lasting values in its members.
 
 My message this morning is to return to the God-ordained fundamentals that will ensure love, stability, and happiness in our homes. May I offer three fundamentals to happy, enduring family relationships.
 
-First: A husband and wife must attain righteous unity and oneness in their goals, desires, and actions.
+First: *A husband and wife must attain righteous unity and oneness in their goals, desires, and actions.*
 
 Marriage itself must be regarded as a sacred covenant before God. A married couple have an obligation not only to each other, but to God. He has promised blessings to those who honor that covenant.
 
@@ -53,11 +54,11 @@ Husbands and wives who love each other will find that love and loyalty are recip
 
 Hear these simple admonitions from the Lord which may be applied to the marriage covenant.
 
-First: “See that ye love one another; cease to be covetous; learn to impart one to another as the gospel requires. ... Cease to be unclean; cease to find fault one with another.” (D&C 88:123–24.)
+First: “See that ye love one another; cease to be covetous; learn to impart one to another as the gospel requires. … Cease to be unclean; cease to find fault one with another.” ([[D&C 88.123|D&C 88:123–24]][[D&C 88.124|]].)
 
-Second: “Thou shalt love thy wife with all thy heart, and shalt cleave unto her and none else. ... Thou shalt not commit adultery.” (D&C 42:22, 24.)
+Second: “Thou shalt love thy wife with all thy heart, and shalt cleave unto her and none else. … Thou shalt not commit adultery.” ([[D&C 42.22|D&C 42:22, 24]][[D&C 42.24|]].)
 
-Third: “He that hath the spirit of contention is not of me, but is of the devil, who is the father of contention.” (3 Ne. 11:29.)
+Third: “He that hath the spirit of contention is not of me, but is of the devil, who is the father of contention.” ([[3 Nephi 11.29|3 Ne. 11:29]].)
 
 And there are many more scriptural admonitions.
 
@@ -67,13 +68,13 @@ Prayer in the home and prayer with each other will strengthen your union. Gradua
 
 Rely on the Lord, the teachings of the prophets, and the scriptures for guidance and help, particularly when there may be disagreements and problems.
 
-Spiritual growth comes by solving problems together—not by running from them. Today’s inordinate emphasis on individualism brings egotism and separation. Two individuals becoming “one flesh” is still the Lord’s standard. (See Gen. 2:24.)
+Spiritual growth comes by solving problems together—not by running from them. Today’s inordinate emphasis on individualism brings egotism and separation. Two individuals becoming “one flesh” is still the Lord’s standard. (See [[Genesis 2.24|Gen. 2:24]].)
 
 The secret of a happy marriage is to serve God and each other. The goal of marriage is unity and oneness, as well as self-development. Paradoxically, the more we serve one another, the greater is our spiritual and emotional growth.
 
 The first fundamental, then, is to work toward righteous unity.
 
-Second: Nurture your children with love and the admonitions of the Lord.
+Second: *Nurture your children with love and the admonitions of the Lord.*
 
 Rearing happy, peaceful children is no easy challenge in today’s world, but it can be done, and it is being done.
 
@@ -99,7 +100,7 @@ Family study of the scriptures should be the practice in our homes each Sabbath 
 
 Daily devotionals are also a commendable practice, where scripture reading, singing of hymns, and family prayer are a part of our daily routine.
 
-Third: Parents must prepare their children for the ordinances of the gospel.
+Third: *Parents must prepare their children for the ordinances of the gospel.*
 
 The most important teachings in the home are spiritual. Parents are commanded to prepare their sons and daughters for the ordinances of the gospel: baptism, confirmation, priesthood ordinations, and temple marriage. They are to teach them to respect and honor the Sabbath day, to keep it holy. Most importantly, parents are to instill within their children a desire for eternal life and to earnestly seek that goal above all else.
 
@@ -107,15 +108,18 @@ Eternal life may be obtained only by obedience to the laws and ordinances of the
 
 When parents themselves have complied with the ordinances of salvation, when they have set the example of a temple marriage, not only is their own marriage more likely to succeed, but their children are far more likely to follow their example.
 
-Parents who provide such a home will have, as the Lord has said, “a house of prayer, a house of fasting, a house of faith, a house of learning, ... a house of order, a house of God.” (D&C 88:119.) Regardless of how modest or humble that home may be, it will have love, happiness, peace, and joy. Children will grow up in righteousness and truth and will desire to serve the Lord.
+Parents who provide such a home will have, as the Lord has said, “a house of prayer, a house of fasting, a house of faith, a house of learning, … a house of order, a house of God.” ([[D&C 88.119|D&C 88:119]].) Regardless of how modest or humble that home may be, it will have love, happiness, peace, and joy. Children will grow up in righteousness and truth and will desire to serve the Lord.
 
 One past Church President gave this counsel to parents:
 
-“The home is what needs reforming. Try today, and tomorrow, to make a change in your home by praying twice a day with your family. ... Ask a blessing upon every meal you eat. Spend ten minutes ... reading a chapter from the words of the Lord in the [scriptures]. ... Let love, peace, and the Spirit of the Lord, kindness, charity, sacrifice for others, abound in your families. Banish harsh words, ... and let the Spirit of God take possession of your hearts. Teach to your children these things, in spirit and power. ... Not one child in a hundred would go astray, if the home environment, example and training, were in harmony with ... the gospel of Christ.” (Joseph F. Smith, Gospel Doctrine, 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 302.)
+“The home is what needs reforming. Try today, and tomorrow, to make a change in your home by praying twice a day with your family. … Ask a blessing upon every meal you eat. Spend ten minutes … reading a chapter from the words of the Lord in the \[scriptures\]. … Let love, peace, and the Spirit of the Lord, kindness, charity, sacrifice for others, abound in your families. Banish harsh words, … and let the Spirit of God take possession of your hearts. Teach to your children these things, in spirit and power. … Not one child in a hundred would go astray, if the home environment, example and training, were in harmony with … the gospel of Christ.” (Joseph F. Smith, *Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 302.)
 
 I testify that, by following these precepts and practices, serious problems with the family can and will be avoided.
 
 Thank God for the joys of family life. I have often said there can be no genuine happiness separate and apart from a good home. The sweetest influences and associations of life are there.
 
 God bless us to strengthen our homes with love and unity and by following his precepts, I pray in the name of Jesus Christ, amen.
+
+
+
 

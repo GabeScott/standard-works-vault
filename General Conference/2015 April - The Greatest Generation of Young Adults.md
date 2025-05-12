@@ -1,7 +1,10 @@
 # The Greatest Generation of Young Adults
-*By M. Russell Ballard - Of the Quorum of the Twelve Apostles*
+
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
+
+>*What we need now is the greatest generation of young adults in the history of the Church. We need your whole heart and soul.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/04/the-greatest-generation-of-young-adults?lang=eng)
 
@@ -9,9 +12,9 @@ One of the great pleasures I enjoy as I travel throughout the world is the oppor
 
 During the October 2002 general priesthood meeting, I challenged bishops, parents, and prospective missionaries to “raise the bar” for full-time missionary service.
 
-I then said that “what we need ... is the greatest generation of missionaries in the history of the Church. We need worthy, qualified, spiritually energized missionaries. ...
+I then said that “what we need … is the greatest generation of missionaries in the history of the Church. We need worthy, qualified, spiritually energized missionaries. …
 
-“... We need your whole heart and soul. We need vibrant, thinking, passionate missionaries who know how to listen to and respond to the whisperings of the Holy Spirit.”1
+“… We need your whole heart and soul. We need vibrant, thinking, passionate missionaries who know how to listen to and respond to the whisperings of the Holy Spirit.”[^1]
 
 In many ways the world today is more challenging than it was 13 years ago. Our young men and young women have many more distractions to sidetrack them in their preparations for both a mission and a future happy life. Technology has expanded, and almost everyone has access to handheld devices that can capture the attention of the human family of God for both great good and unconscionable ill.
 
@@ -23,7 +26,7 @@ Fortunately the Lord has provided ways for us to reach out to you. For example, 
 
 Your photograph comes up on a computer screen, together with key information provided by your bishop and stake president. When your picture appears, we look into your eyes and review your answers to the missionary recommendation questions. For that brief moment, it seems as if you are present and responding to us directly.
 
-As we look at your photograph, we trust that you have cleared in every way the “raised bar” required today to be a faithful, successful missionary. Then, by the power of the Spirit of the Lord and under the direction of President Thomas S. Monson, we assign you to one of the Church’s 406 worldwide missions.
+As we look at your photograph, we trust that you have cleared in every way the “raised bar” required today to be a faithful, successful missionary. Then, by the power of the Spirit of the Lord and under the direction of President Thomas S. Monson, we assign you to one of the Church’s 406 worldwide missions.
 
 No, it isn’t the same as a personal, face-to-face interview. But it’s close.
 
@@ -35,37 +38,37 @@ For my part, I will imagine that I am looking into your eyes and listening caref
 
 In other words, it’s time to raise the bar not only for missionaries but also for returned missionaries and for your entire generation. To that end, please ponder in your heart your answers to these questions:
 
-Do you search the scriptures regularly?
+1. Do you search the scriptures regularly?
 
-Do you kneel in prayer to talk with your Heavenly Father each morning and each night?
+2. Do you kneel in prayer to talk with your Heavenly Father each morning and each night?
 
-Do you fast and donate a fast offering each month—even if you are a poor, struggling student who can’t afford to donate much?
+3. Do you fast and donate a fast offering each month—even if you are a poor, struggling student who can’t afford to donate much?
 
-Do you think deeply about the Savior and His atoning sacrifice for you when you are asked to prepare, bless, pass, or partake of the sacrament?
+4. Do you think deeply about the Savior and His atoning sacrifice for you when you are asked to prepare, bless, pass, or partake of the sacrament?
 
-Do you attend your meetings and strive to keep the Sabbath day holy?
+5. Do you attend your meetings and strive to keep the Sabbath day holy?
 
-Are you honest at home, school, church, and work?
+6. Are you honest at home, school, church, and work?
 
-Are you mentally and spiritually clean? Do you avoid viewing pornography or looking at websites, magazines, movies, or apps, including Tinder and Snapchat photos, that would embarrass you if your parents, Church leaders, or the Savior Himself saw you?
+7. Are you mentally and spiritually clean? Do you avoid viewing pornography or looking at websites, magazines, movies, or apps, including Tinder and Snapchat photos, that would embarrass you if your parents, Church leaders, or the Savior Himself saw you?
 
-Are you careful with your time—avoiding inappropriate technology and social media, including video games, which can dull your spiritual sensitivity?
+8. Are you careful with your time—avoiding inappropriate technology and social media, including video games, which can dull your spiritual sensitivity?
 
-Is there anything in your life you need to change and fix, beginning tonight?
+9. Is there anything in your life you need to change and fix, beginning tonight?
 
 Thank you for this short personal visit. I hope you answered each one of these questions honestly and thoughtfully. If you find yourself lacking in any of these simple principles, then I urge you to courageously repent and bring your life back in line with gospel standards of righteous discipleship.
 
 Now, brethren, may I offer additional counsel that will help you get your testimony of the gospel deep in your hearts and your souls?
 
-I remind you returned missionaries that your preparation for life and for a family should be continuous. “RM” doesn’t mean “retired Mormon”! As a returned missionary, you “should be anxiously engaged in a good cause, and do many things of [your] own free will, and bring to pass much righteousness.”2
+I remind you returned missionaries that your preparation for life and for a family should be continuous. “RM” doesn’t mean “retired Mormon”! As a returned missionary, you “should be anxiously engaged in a good cause, and do many things of \[your\] own free will, and bring to pass much righteousness.”[^2]
 
 Please use the skills you learned on your mission to bless the lives of people around you every day. Do not shift your focus from serving others to focusing exclusively on school, work, or social activities. Instead, balance your life with spiritual experiences that remind and prepare you for continued, daily ministering to others.
 
 During your missions you learned the importance of visiting people in their homes. I would hope that all of our young adults, whether or not you served full-time missions, understand the importance of visiting with people who are lonely, sick, or discouraged—not only as an assignment but also because of the genuine love you have for Heavenly Father and His children.
 
-Those of you in high school preparing for missions, I encourage you to participate in and graduate from seminary. You young adults should enroll in an institute of religion.3 If you are attending a Church school, consistently include a class each semester in religious education. During this important season of preparation for a mission, eternal marriage, and life as an adult, you must continue to find ways to learn and grow and receive inspiration and guidance through the Holy Ghost. A careful, prayerful study of the gospel through seminary, institute, or religious education classes can assist you in that goal.
+Those of you in high school preparing for missions, I encourage you to participate in and graduate from seminary. You young adults should enroll in an institute of religion.[^3] If you are attending a Church school, consistently include a class each semester in religious education. During this important season of preparation for a mission, eternal marriage, and life as an adult, you must continue to find ways to learn and grow and receive inspiration and guidance through the Holy Ghost. A careful, prayerful study of the gospel through seminary, institute, or religious education classes can assist you in that goal.
 
-Whether you attend a Church school or not, whether you attend college or not, do not think that you are too busy to study the gospel. Seminary, institute, or religion classes will provide balance to your life and add to your secular education by giving you another opportunity to spend time studying the scriptures and the teachings of the prophets and apostles. There are four outstanding new courses that I would encourage every young adult to look into and to attend.4
+Whether you attend a Church school or not, whether you attend college or not, do not think that you are too busy to study the gospel. Seminary, institute, or religion classes will provide balance to your life and add to your secular education by giving you another opportunity to spend time studying the scriptures and the teachings of the prophets and apostles. There are four outstanding new courses that I would encourage every young adult to look into and to attend.[^4]
 
 And don’t forget that classes and activities offered at your local institute or through your young single adult ward or stake will also be a place where you can be with other young men and young women and lift and inspire one another as you learn and grow spiritually and socialize together. Brethren, if you will set aside your cell phone and actually look around a little, you may even find your future companion at the institute.
 
@@ -75,9 +78,22 @@ Now, brethren, I testify to you that the Lord Jesus Christ can help us fix anyth
 
 This evening, as we prepare to celebrate Easter Sunday tomorrow, please pause with me to remember the gift of Christ’s Atonement. Remember that our Heavenly Father and our Savior, Jesus Christ, know you best and love you the most.
 
-Through the Atonement, the Redeemer took upon Himself our troubles, pains, and sins. The Savior of the world came to understand each of us individually by experiencing our dashed hopes, challenges, and tragedies through His suffering in Gethsemane and on the cross.5 He died as one final act of love for us and was buried in a new tomb on that fateful night.
+Through the Atonement, the Redeemer took upon Himself our troubles, pains, and sins. The Savior of the world came to understand each of us individually by experiencing our dashed hopes, challenges, and tragedies through His suffering in Gethsemane and on the cross.[^5] He died as one final act of love for us and was buried in a new tomb on that fateful night.
 
 On Sunday morning, Jesus rose from the dead—promising new life for each of us. The risen Lord then commissioned His disciples to teach everyone to have faith in Christ, repent of sin, be baptized, receive the gift of the Holy Ghost, and endure to the end. Brethren, we know that God our Father and His Beloved Son appeared to the Prophet Joseph Smith and restored through him the fulness of the everlasting gospel of Jesus Christ.
 
 Be strong, brethren. Keep the commandments of God. The Lord Jesus Christ promises that all things we desire to do in righteousness will be ours. Church leaders are counting on you. We need every one of you young adults to prepare to marry, to serve, and to lead in the days ahead, for which I humbly pray in the name of the Lord Jesus Christ, amen.
+
+
+
+
+[^1]: M. Russell Ballard, “The Greatest Generation of Missionaries,” *Ensign* or *Liahona,* Nov. 2002, 47.
+
+[^2]: [[D&C 58.27|Doctrine and Covenants 58:27]].
+
+[^3]: See First Presidency letter, Apr. 21, 2011.
+
+[^4]: See “New Religion Classes to Be Offered at Church Universities and Institutes of Religion,” [lds.org/topics/education/new-religion-classes](https://www.lds.org/topics/education/new-religion-classes).
+
+[^5]: See [[Mosiah 3.5|Mosiah 3:5–13]][[Mosiah 3.6|]][[Mosiah 3.7|]][[Mosiah 3.8|]][[Mosiah 3.9|]][[Mosiah 3.10|]][[Mosiah 3.11|]][[Mosiah 3.12|]][[Mosiah 3.13|]].
 

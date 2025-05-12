@@ -1,5 +1,6 @@
 # What He Would Have Us Do
-*By Thomas S. Monson - Second Counselor in the First Presidency*
+
+By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1994 General Conference*
 
@@ -16,4 +17,7 @@ As we leave for our homes, may we travel in peace and safety. May we be obedient
 I like the thought, “Before Easter, there must be a cross.” And many have heavy crosses to bear. With the birth of the Babe in Bethlehem, there emerged a great endowment—a power stronger than weapons, a wealth more lasting than the coins of Caesar. He may come to us as one unknown, without a name, as by the lakeside He came to those men who knew Him not. He speaks to us the same words, “Follow thou me,” and sets us to the task which He has to fulfill for our time. He commands, and to those who obey Him, whether they be wise or simple, He will reveal Himself in the toils, the conflicts, the sufferings that they shall pass through in His fellowship; and they shall learn in their own experience who He is.
 
 May we praise His name, follow His example, and incorporate His truths into our lives, and then this conference will have been successful. That such may be our experience, I pray in His worthy name—even Jesus Christ—amen.
+
+
+
 

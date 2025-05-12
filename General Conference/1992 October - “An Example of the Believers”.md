@@ -1,23 +1,24 @@
 # “An Example of the Believers”
-*By Thomas S. Monson - Second Counselor in the First Presidency*
+
+By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1992 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1992/10/an-example-of-the-believers?lang=eng)
 
-This has been a beautiful and rewarding meeting. I endorse the counsel provided by President Howard W. Hunter and that given by each of the sisters who has addressed us. As I contemplate the vast audience assembled tonight, I ponder the words of President Heber J. Grant, who declared: “I have often felt that a photograph of our dear sisters, with the intelligent, Godlike faces they possess, would be a testimony to all the world of the integrity of our people.”1
+This has been a beautiful and rewarding meeting. I endorse the counsel provided by President Howard W. Hunter and that given by each of the sisters who has addressed us. As I contemplate the vast audience assembled tonight, I ponder the words of President Heber J. Grant, who declared: “I have often felt that a photograph of our dear sisters, with the intelligent, Godlike faces they possess, would be a testimony to all the world of the integrity of our people.”[^1]
 
 We would certainly need the widest wide-angle lens to include all of you in one photograph. Such is not available to us, but with God, all things are possible. In His infinite vision, He literally can view all of us and bless all of us. All we need do is to so live that we merit the blessings ever predicated on our faithfulness to His commandments.
 
-Said President George Albert Smith: “I desire to impress on you daughters of God ... that if this world is to endure, you must keep the faith. If this world is to be happy, you will have to set the pace for that happiness. ... If we are to maintain our physical strength and mental power and spiritual joy, it will have to be on the Lord’s terms.” (Relief Society Magazine, Dec. 1945, p. 719.) Perhaps a young lady had this thought in mind when she spoke the feelings of her yearning heart: “What we really and truly need is less criticism and more models to follow.”
+Said President George Albert Smith: “I desire to impress on you daughters of God … that if this world is to endure, you must keep the faith. If this world is to be happy, you will have to set the pace for that happiness. … If we are to maintain our physical strength and mental power and spiritual joy, it will have to be on the Lord’s terms.” (*Relief Society Magazine,* Dec. 1945, p. 719.) Perhaps a young lady had this thought in mind when she spoke the feelings of her yearning heart: “What we really and truly need is less criticism and more models to follow.”
 
-Frequently we are too quick to criticize, too prone to judge, and too ready to abandon an opportunity to help, to lift, and, yes, even to save. Some point the accusing finger at the wayward or unfortunate and in derision say, “Oh, she will never change. She has always been a bad one.” A few see beyond the outward appearance and recognize the true worth of a human soul. When they do, miracles occur. The downtrodden, the discouraged, the helpless become “no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.” (Eph. 2:19.) True love can alter human lives and change human nature.
+Frequently we are too quick to criticize, too prone to judge, and too ready to abandon an opportunity to help, to lift, and, yes, even to save. Some point the accusing finger at the wayward or unfortunate and in derision say, “Oh, she will never change. She has always been a bad one.” A few see beyond the outward appearance and recognize the true worth of a human soul. When they do, miracles occur. The downtrodden, the discouraged, the helpless become “no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.” ([[Ephesians 2.19|Eph. 2:19]].) True love can alter human lives and change human nature.
 
-This truth was portrayed so beautifully on the stage in My Fair Lady. Eliza Doolittle, the flower girl, spoke to one for whom she cared: “You see, really and truly, apart from the things anyone can pick up—the dressing and the proper way of speaking—the difference between a lady and a flower girl is not how she behaves, but how she’s treated. I shall always be a flower girl to Professor Higgins because he always treats me as a flower girl and always will; but I know I can be a lady to you because you always treat me as a lady and always will.”
+This truth was portrayed so beautifully on the stage in *My Fair Lady.* Eliza Doolittle, the flower girl, spoke to one for whom she cared: “You see, really and truly, apart from the things anyone can pick up—the dressing and the proper way of speaking—the difference between a lady and a flower girl is not how she behaves, but how she’s treated. I shall always be a flower girl to Professor Higgins because he always treats me as a flower girl and always will; but I know I can be a lady to you because you always treat me as a lady and always will.”
 
-The Apostle Paul wrote an epistle to his beloved companion Timothy in which he provided inspired counsel equally as applicable to you and me today as it was to Timothy. Listen carefully to his words: “Neglect not the gift that is in thee,” “but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.” (1 Tim. 4:14, 12.)
+The Apostle Paul wrote an epistle to his beloved companion Timothy in which he provided inspired counsel equally as applicable to you and me today as it was to Timothy. Listen carefully to his words: “Neglect not the gift that is in thee,” “but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.” ([[1 Timothy 4.14|1 Tim. 4:14, 12]][[1 Timothy 4.12|]].)
 
-We need not wait for a cataclysmic event, a dramatic occurrence in the world in which we live, or a special invitation to be an example—even a model to follow. Our opportunities lie before us here and now. But they are perishable. Likely they will be found in our own homes and in the everyday actions of our lives. Our Lord and Master marked the way: “[He] went about doing good.” (Acts 10:38.) He in very deed was a model to follow—even an example of the believers.
+We need not wait for a cataclysmic event, a dramatic occurrence in the world in which we live, or a special invitation to be an example—even a model to follow. Our opportunities lie before us here and now. But they are perishable. Likely they will be found in our own homes and in the everyday actions of our lives. Our Lord and Master marked the way: “\[He\] went about doing good.” ([[Acts 10.38|Acts 10:38]].) He in very deed was a model to follow—even an example of the believers.
 
 Are we?
 
@@ -49,9 +50,14 @@ Then one year, as the perennial question was asked, “What do you want, Lois, f
 
 As Lois continued, I noticed tears brimming in her eyes. She said, “You know Flip always wears cowboy boots. At the end of each day he would sit in the chair before the fireplace, where he would take off his boots and then read the paper. He would never put away the boots, no matter how many times I mentioned the subject. Years ago that would bother me. But not anymore. Today I just love those boots. Tender are my feelings and full is my heart as I willingly and lovingly pick them up and put them away each evening.”
 
-Now tears were brimming in my eyes. Unexpectedly, Lois Harmon was asked to come to the podium, where she was given signal honor for her silent service. A beautiful bouquet of red roses was presented to her. Flip was asked to respond. His expression was from his heart. It was as though the two of them were alone in the large hotel dining area. “Lois is the light of my life. She’s my eternal partner.” (The word partner seemed to fit with the cowboy boots.) “We’ll be together forever.” Patience was rewarded. Love was expressed. Heaven was near.
+Now tears were brimming in my eyes. Unexpectedly, Lois Harmon was asked to come to the podium, where she was given signal honor for her silent service. A beautiful bouquet of red roses was presented to her. Flip was asked to respond. His expression was from his heart. It was as though the two of them were alone in the large hotel dining area. “Lois is the light of my life. She’s my eternal partner.” (The word *partner* seemed to fit with the cowboy boots.) “We’ll be together forever.” Patience was rewarded. Love was expressed. Heaven was near.
 
 My dear sisters, young and those just a bit older, though your circumstances may differ and your opportunities may vary, you can be models to follow, even “examples of the believers.”
 
 In the Holy Temple just east of the Tabernacle on Temple Square in Salt Lake City, a beautiful tribute was paid to two of our sisters serving in the nursery. They, of course, were dressed in white, as were the children who had, that evening, been sealed to their parents. As the sisters bade their farewell to the children, one tiny girl, from a faith-filled heart, said to them, “Good night, angels.” May I borrow her words and say to you sisters worldwide, “Good night, angels.” In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: *Gospel Standards,* comp. G. Homer Durham (Salt Lake City: Improvement Era, 1941), p. 150.
 

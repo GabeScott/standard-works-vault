@@ -1,11 +1,12 @@
 # Know the Shepherd
-*By Robert E. Wells - Of the First Quorum of the Seventy*
+
+By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1980/10/know-the-shepherd?lang=eng)
 
-I once heard President Hugh B. Brown relate this inspiring story: Sometime ago a great actor in the city of New York gave a wonderful performance in a large theatre, at the close of which there were rounds of applause. He was called back again and again. Finally someone called to him, “Would you do for us the Twenty-third Psalm?”
+I once heard President Hugh B. Brown relate this inspiring story: Sometime ago a great actor in the city of New York gave a wonderful performance in a large theatre, at the close of which there were rounds of applause. He was called back again and again. Finally someone called to him, “Would you do for us the Twenty-third Psalm?”
 
 “Why, yes. I know the Twenty-third Psalm.”
 
@@ -25,11 +26,11 @@ Then changing to address the Savior directly and intimately:
 
 “Thou preparest a table before me in the presence of mine enemies: thou anointest my head with oil: my cup runneth over.
 
-“Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the Lord for ever.” [Ps. 23:1–6.]
+“Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the Lord for ever.” \[[[Psalms 23.1|Ps. 23:1–6]][[Psalms 23.2|]][[Psalms 23.3|]][[Psalms 23.4|]][[Psalms 23.5|]][[Psalms 23.6|]].\]
 
-When the old man finished, there was no applause, but there was not a dry eye in that house. The actor came to the front of the stage. He, too, was wiping his eyes. And he said, “Ladies and gentlemen, I know the words of the Twenty-third Psalm, but this man knows the Shepherd.” (Adapted from Hugh B. Brown, The Quest, Salt Lake City: Deseret Book Co., 1961, pp. 335–36.)
+When the old man finished, there was no applause, but there was not a dry eye in that house. The actor came to the front of the stage. He, too, was wiping his eyes. And he said, “Ladies and gentlemen, I know the *words* of the Twenty-third Psalm, but this man *knows the Shepherd.*” (Adapted from Hugh B. Brown, *The Quest,* Salt Lake City: Deseret Book Co., 1961, pp. 335–36.)
 
-President Benson has given us a key so that we might become as one who knows the Shepherd. He has told us: “To learn of Christ necessitates the study of the scriptures and the [study of the] testimonies of those who know him. We come to know him through prayer and the inspiration and revelation that God has promised to those who keep his commandments.” (God, Family, Country: Our Three Great Loyalties, Salt Lake City: Deseret Book Co., 1974, p. 156.)
+President Benson has given us a key so that we might become as one who knows the Shepherd. He has told us: “To learn of Christ necessitates the study of the scriptures and the \[study of the\] testimonies of those who know him. We come to know him through prayer and the inspiration and revelation that God has promised to those who keep his commandments.” (*God, Family, Country: Our Three Great Loyalties,* Salt Lake City: Deseret Book Co., 1974, p. 156.)
 
 There is a silver-haired Argentine sister who knows the Shepherd. She has given a long life of service to the Lord, his Church, and her fellowmen.
 
@@ -43,9 +44,9 @@ With her spiritual eyes and her knowledge of the Shepherd acquired through study
 
 She exemplifies to me the admonition which many have followed: “Fill your mind with thoughts of Christ, your heart with love of Christ, and your life with service to Christ.” Today there stands a lovely chapel, presided over by a well-trained lay bishopric, where Sister Mellor first attended church about thirty years ago.
 
-There is one man above all other men that I feel truly knew the Shepherd. He was the first living prophet on the earth after many centuries. He wrote an account of the first time he saw the Savior in vision: “I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me. ... When the light rested upon me, I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—This is My Beloved Son. Hear Him!” (JS—H 1:16–17.)
+There is one man above all other men that I feel truly knew the Shepherd. He was the first living prophet on the earth after many centuries. He wrote an account of the first time he saw the Savior in vision: “I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me. … When the light rested upon me, I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.16|JS—H 1:16–17]][[Joseph Smith History 1.17|]].)
 
-The young prophet continues describing this unprecedented and heaven-opening event: “My object in going to inquire of the Lord was to know which of all the [churches] was right, that I might know which to join. No sooner, therefore, did I get possession of myself, so as to be able to speak, than I asked the Personages who stood above me in the light, which of all the [churches] was right—and which I should join. I was answered that I must join none of them.” (JS—H 1:18–19.)
+The young prophet continues describing this unprecedented and heaven-opening event: “My object in going to inquire of the Lord was to know which of all the \[churches\] was right, that I might know which to join. No sooner, therefore, did I get possession of myself, so as to be able to speak, than I asked the Personages who stood above me in the light, which of all the \[churches\] was right—and which I should join. I was answered that I must join none of them.” ([[Joseph Smith History 1.18|JS—H 1:18–19]][[Joseph Smith History 1.19|]].)
 
 For a period of ten years Joseph, the Prophet, was taught by resurrected beings, by ancient prophets who returned, and by angels from beyond the veil. Then, 150 years ago, he was instructed by the Savior to formally organize His Church: The Church of Jesus Christ of Latter-day Saints. Subsequently, the Prophet had other mighty visions of the Master, the resurrected Redeemer. Listen to his description of one such manifestation:
 
@@ -53,11 +54,14 @@ For a period of ten years Joseph, the Prophet, was taught by resurrected beings,
 
 “We saw the Lord standing upon the breastwork of the pulpit, before us; and under his feet was a paved work of pure gold, in color like amber.
 
-“His eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters, ... saying:
+“His eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters, … saying:
 
-“I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father.” (D&C 110:1–4.) The Prophet who wrote that description knew the Shepherd.
+“I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father.” ([[D&C 110.1|D&C 110:1–4]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]].) The Prophet who wrote that description knew the Shepherd.
 
-The Prophet Joseph Smith met a martyr’s death. He died for his testimony, sealing his witness with his blood. We pay tribute to him as the first prophet of this dispensation and the most important prophet of all dispensations of time. He “has done more, save Jesus only, for the salvation of men in this world, than any other man that ever lived” (D&C 135:3). We honor Joseph Smith this 150th anniversary year of the founding of the Church as a prophet who knew the Shepherd intimately.
+The Prophet Joseph Smith met a martyr’s death. He died for his testimony, sealing his witness with his blood. We pay tribute to him as the first prophet of this dispensation and the most important prophet of all dispensations of time. He “has done more, save Jesus only, for the salvation of men in this world, than any other man that ever lived” ([[D&C 135.3|D&C 135:3]]). We honor Joseph Smith this 150th anniversary year of the founding of the Church as a prophet who knew the Shepherd intimately.
 
-We should each ask, “Am I loving enough, am I studying enough, am I serving enough to know the Shepherd?” May we all come to know the Savior, through obeying his commandments, that when we meet him face to face, we each can say, “I know thee; thou art my Shepherd.” This I testify in the name of Jesus Christ, our loving Shepherd, amen.
+We should each ask, “Am I loving enough, am I studying enough, am I serving enough to *know* the Shepherd?” May we all come to know the Savior, through obeying his commandments, that when we meet him face to face, we each can say, “I know thee; thou art my Shepherd.” This I testify in the name of Jesus Christ, our loving Shepherd, amen.
+
+
+
 

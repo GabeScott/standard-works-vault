@@ -1,7 +1,10 @@
 # And a Little Child Shall Lead Them
-*By Boyd K. Packer - President of the Quorum of the Twelve Apostles*
+
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
+
+>*Husbands and wives should understand that their first calling—from which they will never be released—is to one another and then to their children.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/04/and-a-little-child-shall-lead-them?lang=eng)
 
@@ -9,7 +12,7 @@ Years ago on a cold night in a train station in Japan, I heard a tap on the wind
 
 I will never forget that starving little boy left standing in the cold, holding up an empty tin can. Nor can I forget how helpless I felt as the train slowly pulled away and left him standing on the platform.
 
-Some years later in Cusco, a city high in the Andes of Peru, Elder A. Theodore Tuttle and I held a sacrament meeting in a long, narrow room that opened onto the street. It was night, and while Elder Tuttle spoke, a little boy, perhaps six years old, appeared in the doorway. He wore only a ragged shirt that went about to his knees.
+Some years later in Cusco, a city high in the Andes of Peru, Elder A. Theodore Tuttle and I held a sacrament meeting in a long, narrow room that opened onto the street. It was night, and while Elder Tuttle spoke, a little boy, perhaps six years old, appeared in the doorway. He wore only a ragged shirt that went about to his knees.
 
 On our left was a small table with a plate of bread for the sacrament. This starving street orphan saw the bread and inched slowly along the wall toward it. He was almost to the table when a woman on the aisle saw him. With a stern toss of her head, she banished him out into the night. I groaned within myself.
 
@@ -17,7 +20,7 @@ Later the little boy returned. He slid along the wall, glancing from the bread t
 
 Then, as something symbolic, I set him on Elder Tuttle’s chair. After the closing prayer the hungry little boy darted out into the night.
 
-When I returned home, I told President Spencer W. Kimball about my experience. He was deeply moved and told me, “You were holding a nation on your lap.” He said to me more than once, “That experience has far greater meaning than you have yet come to know.”
+When I returned home, I told President Spencer W. Kimball about my experience. He was deeply moved and told me, “You were holding a nation on your lap.” He said to me more than once, “That experience has far greater meaning than you have yet come to know.”
 
 As I have visited Latin American countries nearly 100 times, I have looked for that little boy in the faces of the people. Now I do know what President Kimball meant.
 
@@ -27,11 +30,11 @@ One boy had no coat. He bounced about very rapidly to stave off the chill. He di
 
 At night, when I pull the covers over me, I offer a prayer for those who have no warm bed to go to.
 
-I was stationed in Osaka, Japan, when World War II closed. The city was rubble, and the streets were littered with blocks, debris, and bomb craters. Although most of the trees had been blasted away, some few of them still stood with shattered limbs and trunks and had the courage to send forth a few twigs with leaves.
+I was stationed in Osaka, Japan, when World War II closed. The city was rubble, and the streets were littered with blocks, debris, and bomb craters. Although most of the trees had been blasted away, some few of them still stood with shattered limbs and trunks and had the courage to send forth a few twigs with leaves.
 
-A tiny girl dressed in a ragged, colored kimono was busily gathering yellow sycamore leaves into a bouquet. The little child seemed unaware of the devastation that surrounded her as she scrambled over the rubble to add new leaves to her collection. She had found the one beauty left in her world. Perhaps I should say she was the beautiful part of her world. Somehow, to think of her increases my faith. Embodied in the child was hope.
+A tiny girl dressed in a ragged, colored kimono was busily gathering yellow sycamore leaves into a bouquet. The little child seemed unaware of the devastation that surrounded her as she scrambled over the rubble to add new leaves to her collection. She had found the one beauty left in her world. Perhaps I should say *she* was the beautiful part of her world. Somehow, to think of her increases my faith. Embodied in the child was hope.
 
-Mormon taught that “little children are alive in Christ”1 and need not repent.
+Mormon taught that “little children are alive in Christ”[^1] and need not repent.
 
 Around the turn of the previous century, two missionaries were laboring in the mountains of the southern United States. One day, from a hilltop, they saw people gathering in a clearing far below. The missionaries did not often have many people to whom they might preach, so they made their way down to the clearing.
 
@@ -45,7 +48,7 @@ I have some sympathy for that preacher. He was doing the best he could with such
 
 The elders came as comforters, as teachers, as servants of the Lord, as authorized ministers of the gospel of Jesus Christ.
 
-These children of whom I spoke represent all of our Heavenly Father’s children. “Children are an heritage of the Lord: and ... happy is the man that hath his quiver full of them.”2
+These children of whom I spoke represent all of our Heavenly Father’s children. “Children are an heritage of the Lord: and … happy is the man that hath his quiver full of them.”[^2]
 
 The creation of life is a great responsibility for a married couple. It is the challenge of mortality to be a worthy and responsible parent. Neither man nor woman can bear children alone. It was meant that children have two parents—both a father and a mother. No other pattern or process can replace this one.
 
@@ -59,31 +62,31 @@ I told them, “At least you want children, and that desire will weigh heavily i
 
 Still others remain unmarried and therefore childless. Some, due to circumstances beyond their control, are raising children as single mothers or single fathers. These are temporary states. In the eternal scheme of things—not always in mortality—righteous yearning and longing will be fulfilled.
 
-“If in this life only we have hope in Christ, we are of all men most miserable.”3
+“If in this life only we have hope in Christ, we are of all men most miserable.”[^3]
 
 The ultimate end of all activity in the Church is to see a husband and his wife and their children happy at home, protected by the principles and laws of the gospel, sealed safely in the covenants of the everlasting priesthood. Husbands and wives should understand that their first calling—from which they will never be released—is to one another and then to their children.
 
-One of the great discoveries of parenthood is that we learn far more about what really matters from our children than we ever did from our parents. We come to recognize the truth in Isaiah’s prophecy that “a little child shall lead them.”4
+One of the great discoveries of parenthood is that we learn far more about what really matters from our children than we ever did from our parents. We come to recognize the truth in Isaiah’s prophecy that “a little child shall lead them.”[^4]
 
 In Jerusalem, “Jesus called a little child unto him, and set him in the midst of them,
 
 “And said, Verily I say unto you, Except ye be converted, and become as little children, ye shall not enter into the kingdom of heaven.
 
-“Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven.”5
+“Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven.”[^5]
 
 “Jesus said, Suffer little children, and forbid them not, to come unto me: for of such is the kingdom of heaven.
 
-“And he laid his hands on them, and departed thence.”6
+“And he laid his hands on them, and departed thence.”[^6]
 
 We read in the Book of Mormon of the visit of Jesus Christ to the New World. He healed and blessed the people and commanded that the little children should be brought to Him.
 
-Mormon records, “They brought their little children and set them down upon the ground round about him, and Jesus stood in the midst; and the multitude gave way till they had all been brought unto him.”7
+Mormon records, “They brought their little children and set them down upon the ground round about him, and Jesus stood in the midst; and the multitude gave way till they had all been brought unto him.”[^7]
 
 He then commanded the people to kneel. With the children around Him, the Savior knelt and offered a prayer to our Father in Heaven. After the prayer the Savior wept, “and he took their little children, one by one, and blessed them, and prayed unto the Father for them.
 
-“And when he had done this he wept again.”8
+“And when he had done this he wept again.”[^8]
 
-I can understand the feelings expressed by the Savior toward children. There is much to be learned from following His example in seeking to pray for, bless, and teach “those little ones.”9
+I can understand the feelings expressed by the Savior toward children. There is much to be learned from following His example in seeking to pray for, bless, and teach “those little ones.”[^9]
 
 I was number 10 in a family of 11 children. So far as I know, neither my father nor my mother served in a prominent calling in the Church.
 
@@ -97,7 +100,7 @@ Finally I could see and understand that it may have been because of that circums
 
 There are many things about living the gospel of Jesus Christ that cannot be measured by that which is counted or charted in records of attendance. We busy ourselves with buildings and budgets and programs and procedures. In so doing, it is possible to overlook the very spirit of the gospel of Jesus Christ.
 
-Too often someone comes to me and says, “President Packer, wouldn’t it be nice if ... ?”
+Too often someone comes to me and says, “President Packer, wouldn’t it be nice if … ?”
 
 I usually stop them and say no, because I suspect that what follows will be a new activity or program that is going to add a burden of time and financial means on the family.
 
@@ -112,4 +115,25 @@ Both times this brought the response from us that we would give our lives if our
 Now in the sunset of our lives, Sister Packer and I understand and witness that our families can be forever. As we obey the commandments and live the gospel fully, we will be protected and blessed. With our children and grandchildren and great-grandchildren, our prayer is that each one of our growing family will have that same devotion toward those precious little ones.
 
 Fathers and mothers, next time you cradle a newborn child in your arms, you can have an inner vision of the mysteries and purposes of life. You will better understand why the Church is as it is and why the family is the basic organization in time and in eternity. I bear witness that the gospel of Jesus Christ is true, that the plan of redemption, which has been called the plan of happiness, is a plan for families. I pray the Lord that the families of the Church will be blessed, parents and children, that this work will roll forth as the Father intends. I bear this witness in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Moroni 8.12|Moroni 8:12]].
+
+[^2]: [[Psalms 127.3|Psalm 127:3, 5]][[Psalms 127.5|]].
+
+[^3]: [[1 Corinthians 15.19|1 Corinthians 15:19]].
+
+[^4]: [[Isaiah 11.6|Isaiah 11:6]].
+
+[^5]: [[Matthew 18.2|Matthew 18:2–4]][[Matthew 18.3|]][[Matthew 18.4|]].
+
+[^6]: [[Matthew 19.14|Matthew 19:14–15]][[Matthew 19.15|]].
+
+[^7]: [[3 Nephi 17.12|3 Nephi 17:12]].
+
+[^8]: [[3 Nephi 17.21|3 Nephi 17:21–22]][[3 Nephi 17.22|]].
+
+[^9]: [[3 Nephi 17.24|3 Nephi 17:24]].
 

@@ -1,5 +1,6 @@
 # The “Little Things” and Eternal Life
-*By Angel Abrea - Of the First Quorum of the Seventy*
+
+By Elder Angel Abrea - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -13,9 +14,9 @@ This incident made me think about what often happens in our own lives. I thought
 
 The Prophet Joseph Smith said:
 
-“Here, then, is eternal life—to know the only wise and true God; and you have got to learn how to be Gods yourselves, and to be kings and priests to God, the same as all Gods have done before you, namely, by going from one small degree to another, and from a small capacity to a great one; from grace to grace, from exaltation to exaltation, until you attain to the resurrection of the dead, and are able to dwell in everlasting burnings, and to sit in glory, as do those who sit enthroned in everlasting power. ...
+“Here, then, is eternal life—to know the only wise and true God; and you have got to learn how to be Gods yourselves, and to be kings and priests to God, the same as all Gods have done before you, namely, by going from one small degree to another, and from a small capacity to a great one; from grace to grace, from exaltation to exaltation, until you attain to the resurrection of the dead, and are able to dwell in everlasting burnings, and to sit in glory, as do those who sit enthroned in everlasting power. …
 
-“... [You] shall be heirs of God and joint heirs with Jesus Christ. What is it? To inherit the same power, the same glory and the same exaltation, until you arrive at the station of a God, and ascend the throne of eternal power, the same as those who have gone before.” (Teachings of the Prophet Joseph Smith, sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, pp. 346–47.)
+“… \[You\] shall be heirs of God and joint heirs with Jesus Christ. What is it? To inherit the same power, the same glory and the same exaltation, until you arrive at the station of a God, and ascend the throne of eternal power, the same as those who have gone before.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, pp. 346–47.)
 
 How many times do we allow little “butterflies” to reduce, restrain, or restrict our immense potential from guiding us to exaltation?
 
@@ -23,13 +24,13 @@ Proportionately they are relatively few, those who are detained in their journey
 
 To better illustrate this concept, I would like to mention some of those “road hazards” that become obstacles in our marvelous journey to the celestial kingdom.
 
-Have we thought about the tremendous spiritual deterioration that results from not keeping the Sabbath day holy? This commandment involves much more than just resting from our labors. Keeping the Sabbath day holy inherently builds spiritual character and prepares us for what is to come. By observing this commandment, we will have power over evil; we will be more capable of keeping the commandments of the Lord and maintaining ourselves unspotted from the sins of the world. (See D&C 59:9.)
+Have we thought about the tremendous spiritual deterioration that results from not keeping the Sabbath day holy? This commandment involves much more than just resting from our labors. Keeping the Sabbath day holy inherently builds spiritual character and prepares us for what is to come. By observing this commandment, we will have power over evil; we will be more capable of keeping the commandments of the Lord and maintaining ourselves unspotted from the sins of the world. (See [[D&C 59.9|D&C 59:9]].)
 
 More specifically, speaking about the Sabbath day, have we thought about the spiritual malnourishment that results from not attending our sacrament meetings, or attending them with a wrong attitude? The sacred covenant made by the members of the Church at baptism should be the prevailing thought and feeling in our hearts and minds as we partake of the sacrament. If we can achieve this, we will always have the Spirit of the Lord with us.
 
 No member of the Church can ignore or simply put aside the weekly renewal of this covenant and pretend to maintain the Spirit. If we really understand the purpose of our sacrament meetings, we will attend them not just to hear someone speak, which is of course important, but to renew the sacred covenants made with our Father in Heaven in the name of his son, Jesus Christ. Those who make a habit of not attending this weekly service, and fail to repent, put in great danger their spiritual stability and welfare.
 
-Have we ever stopped to think what it means to our salvation when we neglect prayer, or don’t develop daily from our prayers repeatedly gratifying experiences? We are continually referring to the “power of prayer,”. but are we always willing to pay the price so that the promise we find in 3 Nephi 18:18–20 may be fulfilled?
+Have we ever stopped to think what it means to our salvation when we neglect prayer, or don’t develop daily from our prayers repeatedly gratifying experiences? We are continually referring to the “power of prayer,”. but are we always willing to pay the price so that the promise we find in [[3 Nephi 18.18|3 Nephi 18:18–20]][[3 Nephi 18.19|]][[3 Nephi 18.20|]] may be fulfilled?
 
 “Behold, verily, verily, I say unto you, ye must watch and pray always lest ye enter into temptation; for Satan desireth to have you, that he may sift you as wheat.
 
@@ -37,9 +38,9 @@ Have we ever stopped to think what it means to our salvation when we neglect pra
 
 “And whatsoever ye shall ask the Father in my name, which is right, believing that ye shall receive, behold it shall be given unto you.”
 
-Another example: do we realize that every time that we sustain the leaders of the Church we are duty bound to support them? The raised hand becomes a symbol of the covenant we make to support them. Each time we criticize or condemn them, we become literally covenant breakers. President Joseph F. Smith made the following comment about this problem:
+Another example: do we realize that every time that we sustain the leaders of the Church we are duty bound to support them? The raised hand becomes a symbol of the covenant we make to support them. Each time we criticize or condemn them, we become literally covenant breakers. President Joseph F. Smith made the following comment about this problem:
 
-“The moment a man says he will not submit to the legally constituted authority of the Church, whether it be the teachers, the bishopric, the high council, his quorum, or the First Presidency, and in his heart confirms it and carries it out, that moment he cuts himself off from the privileges and blessings of the Priesthood and Church, and severs himself from the people of God, for he ignores the authority that the Lord has instituted in his Church.” (Gospel Doctrine, 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 45.)
+“The moment a man says he will not submit to the legally constituted authority of the Church, whether it be the teachers, the bishopric, the high council, his quorum, or the First Presidency, and in his heart confirms it and carries it out, that moment he cuts himself off from the privileges and blessings of the Priesthood and Church, and severs himself from the people of God, for he ignores the authority that the Lord has instituted in his Church.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, p. 45.)
 
 I have had innumerable experiences listening to the reasons people have for not paying their tithing, most of which are just cases of a simple lack of faith.
 
@@ -59,9 +60,12 @@ Up until now, I have mentioned only a few of the problems arising from the littl
 
 It is highly probable that we will never lose our status as members of the Church simply for not adhering to one or more of the aforementioned commandments. Nevertheless, whether individually or collectively, these little “butterflies” affect our spiritual development and, fundamentally, the real capability of each individual.
 
-“For the power is in them, wherein they are agents unto themselves. And inasmuch as men do good they shall in nowise lose their reward.” (D&C 58:28.)
+“For the power is in them, wherein they are agents unto themselves. And inasmuch as men do good they shall in nowise lose their reward.” ([[D&C 58.28|D&C 58:28]].)
 
-The Lord hasn’t sent us to the world to fail. We have been invested with all of the talents and abilities necessary for the journey to arrive, to be once again in His presence. Our greatest challenge is to use faithfully and decidedly all that He has given us to reach our exaltation. If such is our accomplishment—if we “live by every word that proceedeth forth from the mouth of God” (D&C 84:44)—at the end of our journey we will once again be part of a glorious experience such as we had at the start, when “all the sons of God shouted for joy.” (Job 38:7.)
+The Lord hasn’t sent us to the world to fail. We have been invested with all of the talents and abilities necessary for the journey to arrive, to be once again in His presence. Our greatest challenge is to use faithfully and decidedly all that He has given us to reach our exaltation. If such is our accomplishment—if we “live by every word that proceedeth forth from the mouth of God” ([[D&C 84.44|D&C 84:44]])—at the end of our journey we will once again be part of a glorious experience such as we had at the start, when “all the sons of God shouted for joy.” ([[Job 38.7|Job 38:7]].)
 
 I know that the Lord has made this possible and that he blesses us and will continue to bless us as we progress to our glorious destination. In the name of Jesus Christ, amen.
+
+
+
 

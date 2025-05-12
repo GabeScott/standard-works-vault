@@ -1,7 +1,10 @@
 # Glimpses of Heaven
-*By Spencer W. Kimball - Acting President of the Council of the Twelve*
+
+By President Spencer W. Kimball - *Acting President of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
+
+>*Address delivered Sunday morning, October 3, 1971*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1971/10/glimpses-of-heaven?lang=eng)
 
@@ -23,7 +26,7 @@ My answer seemed to be a shock of equal magnitude to him as I said without hesit
 
 “Yes. Just an hour ago. It was in the holy temple across the way. The sealing room was shut off from the noisy world by its thick, white-painted walls; the drapes, light and warm; the furniture, neat and dignified; the mirrors on two opposite walls seeming to take one in continuous likenesses on and on into infinity; and the beautiful stained-glass window in front of me giving such a peaceful glow. All the people in the room were dressed in white. Here were peace and harmony and eager anticipation. A well-groomed young man and an exquisitely gowned young woman, lovely beyond description, knelt across the altar. Authoritatively, I pronounced the heavenly ceremony which married and sealed them for eternity on earth and in the celestial worlds. The pure in heart were there. Heaven was there.
 
-“When the eternal marriage was solemnized, and as the subdued congratulations were extended, a happy father, radiant in his joy, offered his hand and said, ‘Brother Kimball, my wife and I are common people and have never been successful, but we are immensely proud of our family.’ He continued, ‘This is the last of our eight children to come into this holy house for temple marriage. They, with their companions, are here to participate in the marriage of this, the youngest. This is our supremely happy day, with all of our eight children married properly. They are faithful to the Lord in church service, and the older ones are already rearing families in righteousness.’
+“When the eternal marriage was solemnized, and as the subdued congratulations were extended, a happy father, radiant in his joy, offered his hand and said, ‘Brother Kimball, my wife and I are common people and have never been successful, but we *are* immensely proud of our family.’ He continued, ‘This is the last of our eight children to come into this holy house for temple marriage. They, with their companions, are here to participate in the marriage of this, the youngest. This is our supremely happy day, with all of our eight children married properly. They are faithful to the Lord in church service, and the older ones are already rearing families in righteousness.’
 
 “I looked at his calloused hands, his rough exterior, and thought to myself, ‘Here is a real son of God fulfilling his destiny.’
 
@@ -74,4 +77,7 @@ In due time it was placed with those of others of the Brethren in the Council of
 The gospel of Jesus Christ teaches men to live righteously, to make the family supreme, the home inviolate. It moves the characters of its adherents toward faultlessness. It is the true way. If lived rightly it will ennoble men toward Godhood.
 
 May the true gospel of the Master reach into the lives of all of us, I pray. In the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Lengthening Your Stride as a Missionary
-*By Franklin D. Richards - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -9,11 +10,11 @@ My dear brothers and sisters, I rejoice with you in the spirit of this conferenc
 
 One of the last charges the Savior gave His apostles was, “Go ye into all the world, and preach the gospel to every creature.
 
-“He that believeth and is baptized shall be saved; but he that believeth not shall be damned.” (Mark 16:15–16.)
+“He that believeth and is baptized shall be saved; but he that believeth not shall be damned.” ([[Mark 16.15|Mark 16:15–16]][[Mark 16.16|]].)
 
-God’s church has always been a missionary church, and we are required by modern revelation to take the restored gospel to every nation, kindred, tongue, and people. (See D&C 133:37.)
+God’s church has always been a missionary church, and we are required by modern revelation to take the restored gospel to every nation, kindred, tongue, and people. (See [[D&C 133.37|D&C 133:37]].)
 
-We have also been told that “there are many yet on the earth among all sects, parties, and denominations, who are blinded by the subtle craftiness of men, whereby they lie in wait to deceive, and who are only kept from the truth because they know not where to find it.” (D&C 123:12.)
+We have also been told that “there are many yet on the earth among all sects, parties, and denominations, who are blinded by the subtle craftiness of men, whereby they lie in wait to deceive, and who are only kept from the truth because they know not where to find it.” ([[D&C 123.12|D&C 123:12]].)
 
 We invite those who are seeking truth and a better way of life to sincerely investigate our message. It will answer the questions “What is the purpose of life?” “Where did we come from?” and “What is there after death?” The restored gospel brings peace, happiness, and growth and development into the lives of those that accept it and live according to its teachings.
 
@@ -23,11 +24,11 @@ First, too much of the missionaries’ time is spent in finding people to teach.
 
 A three-point formula for members to be successful finding and fellowshipping missionaries consists of:
 
-Living the gospel principles. Thousands join the Church each year as they are attracted to the Church by the life of a good member.
+1. Living the gospel principles. Thousands join the Church each year as they are attracted to the Church by the life of a good member.
 
-Beginning a gospel conversation by asking your friends and neighbors what they know about the Church. Whether they know little or much, we can follow with another question: “Would you like to know more?” If they would like to know more, invite them into your home to be taught the gospel by the missionaries. If it is impossible to invite them into your home, send their names to the missionaries so that they can follow up. Many of these referrals can give the missionaries the names of other interested persons, and this can go on indefinitely, if pursued with enthusiasm.
+2. Beginning a gospel conversation by asking your friends and neighbors what they know about the Church. Whether they know little or much, we can follow with another question: “Would you like to know more?” If they would like to know more, invite them into your home to be taught the gospel by the missionaries. If it is impossible to invite them into your home, send their names to the missionaries so that they can follow up. Many of these referrals can give the missionaries the names of other interested persons, and this can go on indefinitely, if pursued with enthusiasm.
 
-Inviting your friends and neighbors to Church meetings, socials, and other events. When they are fellowshipped, it is much easier for them to make the necessary social transition.
+3. Inviting your friends and neighbors to Church meetings, socials, and other events. When they are fellowshipped, it is much easier for them to make the necessary social transition.
 
 When the referral and fellowshipping program is effective, it makes it possible for the missionaries to spend more time teaching, resulting in more convert baptisms.
 
@@ -51,13 +52,16 @@ With the reorganization of the First Quorum of the Seventy by President Kimball 
 
 Another area that must not be overlooked is our men and women that are serving in the military. It may surprise you to know there are some 20,000 members of the Church in the military service. These men and women can be, and many are, real missionaries. As they live their religion, they are respected and admired by their associates. This group can be instrumental in bringing untold numbers of converts into the Church and developing thousands of referrals each year for the missionaries.
 
-Yes, the “every member a missionary” program is inspired. As these suggestions I have made and others are utilized, Church members can find the people for the missionaries to teach; and as they are being taught, the members can fellowship them before and after their baptism. And truly as the apostle Paul wrote to the Ephesians, “Ye are no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.” (Eph. 2:19.)
+Yes, the “every member a missionary” program is inspired. As these suggestions I have made and others are utilized, Church members can find the people for the missionaries to teach; and as they are being taught, the members can fellowship them before and after their baptism. And truly as the apostle Paul wrote to the Ephesians, “Ye are no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.” ([[Ephesians 2.19|Eph. 2:19]].)
 
 May we get the vision of more than 3 1/2 million member missionaries bringing souls into the kingdom of God and feeling the joy and happiness that comes from missionary work.
 
 And again, to all seekers of truth: A new life-style awaits those who accept the restored gospel and let it work in their lives; truly they will find the answer to their question, “What is the purpose of life?” We encourage you to investigate “Mormonism”—The Church of Jesus Christ of Latter-day Saints.
 
-My brothers and sisters, we are engaged in building the kingdom of God. I bear you my witness that God the Father and His Son Jesus Christ did appear to the Prophet Joseph Smith, that God lives, and that Jesus is the Christ. The gospel in its fulness has been restored through the instrumentality of the Prophet Joseph Smith, and it is our privilege and responsibility to share it with others. Joseph Smith was a great prophet, and we have a great prophet at the head of the Church today, our beloved President Spencer W. Kimball.
+My brothers and sisters, we are engaged in building the kingdom of God. I bear you my witness that God the Father and His Son Jesus Christ did appear to the Prophet Joseph Smith, that God lives, and that Jesus is the Christ. The gospel in its fulness has been restored through the instrumentality of the Prophet Joseph Smith, and it is our privilege and responsibility to share it with others. Joseph Smith was a great prophet, and we have a great prophet at the head of the Church today, our beloved President Spencer W. Kimball.
 
 Let us increase our effectiveness in missionary work in order that the kingdom of God may go forth at an accelerated rate, so that the kingdom of heaven may come. In the name of Jesus Christ, amen.
+
+
+
 

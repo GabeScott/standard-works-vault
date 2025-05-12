@@ -1,5 +1,6 @@
 # It Was a Miracle!
-*By Mark E. Petersen - Of the Council of the Twelve*
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -13,7 +14,7 @@ Joseph was the instrument through whom the true Church and kingdom of God were a
 
 He received numerous revelations from the Lord, which have been published in the Doctrine and Covenants, the Pearl of Great Price, and our Church history. He gathered thousands of Latter-day Saints from abroad to establish a great city at Nauvoo, Illinois, with shops and fertile farms, churches, schools, and a university. He projected the westward migration of the Latter-day Saints and the settlement of the Great Basin, a work carried out later by his legal successor, President Brigham Young.
 
-He lived great, and he died great, a martyr to the cause of Christ; and, like most of the Lord’s anointed in ancient times, he sealed his mission and his testimony with his life’s blood. (See D&C 135:3.)
+He lived great, and he died great, a martyr to the cause of Christ; and, like most of the Lord’s anointed in ancient times, he sealed his mission and his testimony with his life’s blood. (See [[D&C 135.3|D&C 135:3]].)
 
 He left a name and a fame that will never die, and as the years roll on and the Church continues taking the gospel to every nation, kindred, tongue, and people, his name will be magnified even further, honored and blessed by the millions of faithful who come to know how truly great his calling really was. He was foreordained in heaven to this mighty work in latter days. He fulfilled his mission with honor and inspiration, a beacon to all who follow him, giving glory always to God on high, for whom he labored.
 
@@ -43,7 +44,7 @@ The book was of metal having the appearance of gold. It consisted of metallic pa
 
 I pause here to ask if at that time there was any known parallel to such a record which could be pointed to for corroboration. The answer is no. There was none. But what of today, now, in 1977? The answer is yes—a resounding yes.
 
-For example, archaeologists have now found the engraved gold and silver records of King Sargon II of Assyria, dating to about 750 b.c., buried in the ground in a stone box. The same thing is true of the gold plates of King Darius, who put Daniel in the lions’ den. Both sets of ancient records have been translated and published.
+For example, archaeologists have now found the engraved gold and silver records of King Sargon II of Assyria, dating to about 750 b.c., buried in the ground in a stone box. The same thing is true of the gold plates of King Darius, who put Daniel in the lions’ den. Both sets of ancient records have been translated and published.
 
 Another similar set of metal plates, bound together like a book, has been found in Korea and may be seen in the museum at Seoul, and still another has been found in Italy. So, you see, it was not unusual that ancient records were preserved in this way.
 
@@ -57,11 +58,11 @@ So it was that they sought to take the divine stamp away from his translation of
 
 In their effort to “humanize” his work of translation they grudgingly gave him credit for knowledge and skills which he did not have, saying that he plagiarized parts of the Bible and literally took whole chapters out of it to compose his Book of Mormon—all of which claims, of course, were untrue and ridiculous.
 
-Joseph Smith declared that he wrote only under the gift and power of God. Oliver Cowdery, his scribe, said the same thing, adding, “I wrote with my own pen the entire Book of Mormon (save a few pages) as it fell from the lips of the Prophet [Joseph Smith] as he translated it by the gift and power of God.” (“Journal of Reuben Miller,” 21 Oct. 1848.)
+Joseph Smith declared that he wrote only under the gift and power of God. Oliver Cowdery, his scribe, said the same thing, adding, “I wrote with my own pen the entire Book of Mormon (save a few pages) as it fell from the lips of the Prophet \[Joseph Smith\] as he translated it by the gift and power of God.” (“Journal of Reuben Miller,” 21 Oct. 1848.)
 
 Martin Harris, another assistant scribe, bore the same testimony. And Emma Smith, the beloved wife of the prophet, who literally lived in and with and through this translation period, and assisted at times as a scribe, bore this testimony:
 
-“I am satisfied that no man could have dictated the writing of the manuscripts unless he was inspired. For when [I acted] as his scribe, [Joseph] would dictate to me hour after hour; and when returning after meals or after interruptions, he would at once begin where he had left off, without either seeing the manuscript or having any portion of it read to him. ... It would have been improbable that a learned man could do this, and for one so ... unlearned as he was, it was simply impossible.” (Saints’ Herald, 1879, 26:290.)
+“I am satisfied that no man could have dictated the writing of the manuscripts unless he was inspired. For when \[I acted\] as his scribe, \[Joseph\] would dictate to me hour after hour; and when returning after meals or after interruptions, he would at once begin where he had left off, without either seeing the manuscript or having any portion of it read to him. … It would have been improbable that a learned man could do this, and for one so … unlearned as he was, it was simply impossible.” (*Saints’ Herald,* 1879, 26:290.)
 
 Then how can critics truthfully say that Joseph Smith, in his youth, was so scholarly that he could or would deliberately take passages from the Bible and skillfully make it appear that they were part of the Book of Mormon manuscript?
 
@@ -79,7 +80,7 @@ Mormon was a mature and inspired prophet. Joseph was but an unlearned farm boy. 
 
 This young man was faithful to his charge. He did not tamper with the work of Mormon, the sermons of Jesus, the marvelous defense of Abinadi, or the writings of Malachi or Isaiah. He was strictly a translator, not an editor or a composer; nor was he a thief plagiarizing someone else’s work.
 
-The whole task of translation was a miracle. The book is “a marvellous work and a wonder,” as Isaiah said. (Isa. 29:14.)
+The whole task of translation was a miracle. The book is “a marvellous work and a wonder,” as Isaiah said. ([[Isaiah 29.14|Isa. 29:14]].)
 
 But, the critics ask, how do we explain the similarity of certain passages in both the Book of Mormon and the Bible? It is very simple. When I lived in England a few years ago I went to the British Museum in London and studied the history of the King James Version of the Bible. I learned that its translators fasted and prayed for inspiration in their work. I am convinced that they received it.
 
@@ -96,4 +97,7 @@ So out of Joseph Smith’s humble beginning came this new volume of scripture, a
 So let us remember, and let our critics remember, that it was Isaiah who said that Joseph Smith would bring forth that book as an unlearned man, and that it would be a miracle, “a marvellous work and a wonder.” And so it is.
 
 To this I bear my humble but solemn testimony in the sacred name of the Lord Jesus Christ. Amen.
+
+
+
 

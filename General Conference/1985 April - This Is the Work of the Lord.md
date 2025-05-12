@@ -1,5 +1,6 @@
 # This Is the Work of the Lord
-*By Waldo P. Call - Of the First Quorum of the Seventy*
+
+By Elder Waldo P. Call - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
 
@@ -9,7 +10,10 @@ My dear brothers and sisters, this is, as our missionaries would say, an awesome
 
 I am grateful for my wife. Throughout the many years we have been together, I have known that she has loved me. It is because of this love I have felt for my family, and they have felt for me, that I am here today.
 
-I am grateful for President Kimball. I was watching some young people sitting in front of me as we were singing “We Thank Thee, O God, for a Prophet” (Hymns, no. 196), and I imagine they would have liked to have come up and sat beside President Kimball where I sat just now.
+I am grateful for President Kimball. I was watching some young people sitting in front of me as we were singing “We Thank Thee, O God, for a Prophet” (*Hymns,* no. 196), and I imagine they would have liked to have come up and sat beside President Kimball where I sat just now.
 
 I know that this is the work of the Lord. I know that he lives. I know this. I know that these men, the First Presidency and the Quorum of the Twelve, are prophets and Apostles, seers and revelators, and if we will follow them, we will have eternal life. I say this in the name of Jesus Christ, amen.
+
+
+
 

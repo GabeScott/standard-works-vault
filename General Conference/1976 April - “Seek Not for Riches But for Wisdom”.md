@@ -1,5 +1,6 @@
 # “Seek Not for Riches But for Wisdom”
-*By Franklin D. Richards - Assistant to the Council of the Twelve*
+
+By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -13,7 +14,7 @@ Recently, two young people and one older man have come to me and explained that,
 
 I told them that the Lord had already answered that question when he said:
 
-“Seek not for riches but for wisdom, and behold, the mysteries of God shall be unfolded unto you, and then shall you be made rich. Behold, he that hath eternal life is rich.” (D&C 6:7.)
+“Seek not for riches but for wisdom, and behold, the mysteries of God shall be unfolded unto you, and then shall you be made rich. Behold, he that hath eternal life is rich.” ([[D&C 6.7|D&C 6:7]].)
 
 I suggested that they probably needed to change their priorities in life and seek after wisdom rather than after so many material things and pleasures.
 
@@ -31,7 +32,7 @@ In order to teach and reactivate larger numbers, I have found that teaching and 
 
 This missionary approach, in my opinion, should be one of our major efforts in accomplishing our objectives, particularly as study is so vital in obtaining a knowledge of the gospel and in seeking wisdom.
 
-The Lord has told us to “seek ... out of the best books words of wisdom; seek learning, even by study and also by faith,” and also to “teach one another words of wisdom.” (D&C 88:118; see also D&C 109:7.)
+The Lord has told us to “seek … out of the best books words of wisdom; seek learning, even by study and also by faith,” and also to “teach one another words of wisdom.” ([[D&C 88.118|D&C 88:118]]; see also [[D&C 109.7|D&C 109:7]].)
 
 In studying the gospel, we learn of a preexistent state, we learn of the purpose of this life and of a life hereafter: yes, as the scripture promises, we obtain wisdom, and the mysteries of God are unfolded unto us.
 
@@ -45,7 +46,7 @@ As a part of teaching, training, and fellowshipping prospective elders, we shoul
 
 Brethren, make certain that prospective elders and new converts have opportunities to become involved in Church activities.
 
-It might be interesting to note that frequently, even when we seek after wisdom rather than riches, the Lord blesses us with wisdom and riches as he did King Solomon. When this occurs, we have the great opportunity and responsibility to use our material wealth in the building up of the kingdom of God.
+It might be interesting to note that frequently, even when we seek after wisdom rather than riches, the Lord blesses us with wisdom *and* riches as he did King Solomon. When this occurs, we have the great opportunity and responsibility to use our material wealth in the building up of the kingdom of God.
 
 The prospective elder program is only one of the challenges so important to the priesthood today. Let me very briefly comment on others.
 
@@ -55,7 +56,7 @@ Another matter of real concern to us is that of the minority groups in the Churc
 
 The Melchizedek Priesthood Department also administers the Military Relations program. In the military, there are many strong Church members that set a course of righteousness and follow it, and, in addition, find time to share with others and provide examples of courage and integrity for many who sorely need that assistance. Yes, in the far reaches of distant lands, home teaching is faithfully performed. We are vitally interested in and proud of the examples and contributions of our faithful members in the military service.
 
-Home teaching is another priesthood function we are concerned with. The Lord has told us the duty of a priesthood home teacher is to “visit the house of each member, exhorting them to pray vocally and in secret and attend to all family duties ... to watch over the church always, and be with and strengthen them.” (D&C 20:51, 53.)
+Home teaching is another priesthood function we are concerned with. The Lord has told us the duty of a priesthood home teacher is to “visit the house of each member, exhorting them to pray vocally and in secret and attend to all family duties … to watch over the church always, and be with and strengthen them.” ([[D&C 20.51|D&C 20:51, 53]][[D&C 20.53|]].)
 
 Brethren, let each of us magnify our callings as home teachers, and the families we visit as well as our own will be blessed and strengthened.
 
@@ -77,5 +78,8 @@ I know that my confused friends and all of us as we seek not for riches but for 
 
 May we so live that we may be worthy of these blessings.
 
-I bear you my witness that I know that God lives and that Jesus is the Christ. And I know that the Prophet Joseph Smith was the instrument in the hands of the Lord in restoring the gospel of Jesus Christ in its fulness as well as the power to act in the name of God. I also bear witness that President Spencer W. Kimball is a prophet of God. May the Lord sustain and magnify him, and may we also sustain him in every way, I pray in the name of Jesus Christ. Amen.
+I bear you my witness that I know that God lives and that Jesus is the Christ. And I know that the Prophet Joseph Smith was the instrument in the hands of the Lord in restoring the gospel of Jesus Christ in its fulness as well as the power to act in the name of God. I also bear witness that President Spencer W. Kimball is a prophet of God. May the Lord sustain and magnify him, and may we also sustain him in every way, I pray in the name of Jesus Christ. Amen.
+
+
+
 

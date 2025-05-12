@@ -1,5 +1,6 @@
 # Draw Nearer to Christ
-*By By Alejandra Hernández - Federal Heights Ward, Salt Lake Emigration Stake*
+
+By Alejandra Hernández - *Federal Heights Ward, Salt Lake Emigration Stake*
 
 *Given in the April session of the 1997 General Conference*
 
@@ -18,4 +19,7 @@ I now have my medallion, and I think it was worth the effort. To me, it is more 
 I am so grateful for the opportunity we have been given to choose between right and wrong, and I am also grateful for the opportunity to learn from our mistakes. The joy I now feel when I feel the love of Christ through my service to others and the knowledge of my worth has no comparison with my feelings of being popular in school. By now probably nobody in my junior high school remembers me, but I feel happy to know that Christ knows me and knows of my love for Him.
 
 I know we can overcome the challenges that come our way because we are daughters of a Heavenly Father who loves us, and He will not let us be tempted more than we can resist. I know that Joseph Smith was a true prophet, just like President Hinckley is a prophet. I say these things in the name of Jesus Christ, amen.
+
+
+
 

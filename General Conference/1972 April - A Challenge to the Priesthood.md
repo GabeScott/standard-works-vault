@@ -1,5 +1,6 @@
 # A Challenge to the Priesthood
-*By By Bishop Vaughn J. Featherstone - Of the Presiding Bishopric*
+
+By Bishop Vaughn J. Featherstone - *Of the Presiding Bishopric*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -23,7 +24,7 @@ I am more grateful to my wife than I could ever express to you. She has to be th
 
 I have two other boys at home—Joe and Scott—who are also Eagle Scouts, and we are very proud of them, and they are following and being obedient as they should be. Then I have a young son, eleven, Lawrence, who I believe has the stature of Mormon. He is a large and mighty young man, and I am very proud of him. Then we have one daughter, after the five boys, Jill, and I am sure she was sent as a special angel into our home.
 
-I am grateful for the confidence of Bishop [Victor L.] Brown. As I have considered this past week—and it’s the longest week I have ever lived in my life—as I have considered the great souls that I know across the Church and the powerful influence and the great direction they have and the great willingness to follow the Lord, I am humble that he would call one such as I, or that the Lord would call me through him.
+I am grateful for the confidence of Bishop \[Victor L.\] Brown. As I have considered this past week—and it’s the longest week I have ever lived in my life—as I have considered the great souls that I know across the Church and the powerful influence and the great direction they have and the great willingness to follow the Lord, I am humble that he would call one such as I, or that the Lord would call me through him.
 
 May I bear testimony to you. I should first mention that sweet mother of mine, and my in-laws. These are wonderful people. My sweet mother has pretty well raised our family alone. She has given the guidance and mental and physical ambition; she has bred this into us and wanted us to make something of ourselves, and I am so proud of her.
 
@@ -31,13 +32,16 @@ In closing let me just quote to you the words of the prophet in the book of Alma
 
 “And it came to pass that after Aaron had expounded these things unto him, the king said: What shall I do that I may have this eternal life of which thou hast spoken? Yea, what shall I do that I may be born of God, having this wicked spirit rooted out of my breast, and receive his Spirit, that I may be filled with joy, that I may not be cast off at the last day? Behold, said he, I will give up all that I possess, yea, I will forsake my kingdom, that I may receive this great joy.
 
-“But Aaron said unto him; If thou desirest this thing, if thou wilt bow down before God, yea, if thou wilt repent of all thy sins, and will bow down before God, ... believing that ye shall receive, then shalt thou receive the hope which thou desirest.
+“But Aaron said unto him; If thou desirest this thing, if thou wilt bow down before God, yea, if thou wilt repent of all thy sins, and will bow down before God, … believing that ye shall receive, then shalt thou receive the hope which thou desirest.
 
 “And it came to pass that when Aaron had said these words, the king did bow down before the Lord, upon his knees; yea, even he did prostrate himself upon the earth, and cried mightily, saying:
 
-“O God, Aaron hath told me that there is a God; and if there is a God, and if thou art God, wilt thou make thyself known unto me, and I will give away all my sins to know thee. ...” (Alma 22:15–18.)
+“O God, Aaron hath told me that there is a God; and if there is a God, and if thou art God, wilt thou make thyself known unto me, and I will give away all my sins to know thee. …” ([[Alma 22.15|Alma 22:15–18]][[Alma 22.16|]][[Alma 22.17|]][[Alma 22.18|]].)
 
 There is a great host of Aaronic Priesthood bearers who would give away all their sins, they would give away all that the world would offer, and they would give away their riches, if they but knew that he was there. Our solemn responsibility today is to help these Aaronic Priesthood bearers understand and know the great callings, know that God does live, which I testify he does, and that we have living prophets upon the earth.
 
 During those twenty years I have watched our beloved prophet and the Council of the Twelve come in, I know these are inspired men, these are holy men; they are prophets. I so testify in the name of Jesus Christ. Amen.
+
+
+
 

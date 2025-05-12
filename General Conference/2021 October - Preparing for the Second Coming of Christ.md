@@ -1,15 +1,18 @@
 # Preparing for the Second Coming of Christ
-*By Christoffel Golden - Of the Seventy*
+
+By Elder Christoffel Golden - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
 
+>*More than ever before, we are required to confront the reality that we are getting ever closer to the Second Coming of Jesus Christ.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2021/10/27golden?lang=eng)
 
-As recorded in the Book of Mormon, six years before the birth of Jesus Christ, Samuel, a righteous Lamanite, prophesied to a Nephite people, who by then had become mostly apostate,1 of the signs that would accompany our Savior’s birth. Tragically, most Nephites rejected those signs because it was “not reasonable that such a being as a Christ [should] come.”2
+As recorded in the Book of Mormon, six years before the birth of Jesus Christ, Samuel, a righteous Lamanite, prophesied to a Nephite people, who by then had become mostly apostate,[^1] of the signs that would accompany our Savior’s birth. Tragically, most Nephites rejected those signs because it was “not reasonable that such a being as a Christ \[should\] come.”[^2]
 
-Regrettably, according to the scriptural record, many of the Jews, in like manner, could not accept that a man named Jesus, from the little-regarded province of Galilee, was indeed the long-awaited Messiah.3 Jesus, who had indeed come to fulfill the many prophecies made by Hebrew prophets, was rejected and even crucified because, as the Book of Mormon prophet Jacob taught, the Jews were “looking beyond the mark.” Consequently, Jacob testified that “God hath taken away his plainness from them, and delivered unto them many things which they cannot understand, because they desired it. And because they desired it God hath done it, that they may stumble.”4
+Regrettably, according to the scriptural record, many of the Jews, in like manner, could not accept that a man named Jesus, from the little-regarded province of Galilee, was indeed the long-awaited Messiah.[^3] Jesus, who had indeed come to fulfill the many prophecies made by Hebrew prophets, was rejected and even crucified because, as the Book of Mormon prophet Jacob taught, the Jews were “looking beyond the mark.” Consequently, Jacob testified that “God hath taken away his plainness from them, and delivered unto them many things which they cannot understand, because they desired it. And because they desired it God hath done it, that they may stumble.”[^4]
 
-Strange as it may seem, no teaching, no miracle, and no appearance even of a heavenly angel, as witnessed by Laman and Lemuel,5 appears to have the persuasive power to convince some individuals to alter their course, outlook, or belief that something is true. This is especially the case when teachings or miracles do not agree with an individual’s preconceived whims, wishes, or ideas.
+Strange as it may seem, no teaching, no miracle, and no appearance even of a heavenly angel, as witnessed by Laman and Lemuel,[^5] appears to have the persuasive power to convince some individuals to alter their course, outlook, or belief that something is true. This is especially the case when teachings or miracles do not agree with an individual’s preconceived whims, wishes, or ideas.
 
 Please contrast for a moment the following two scriptures, the first from the Apostle Paul speaking of the latter days, describing the ways of man, and the second from Alma the prophet showing how God does His work among mankind. First from Paul:
 
@@ -19,15 +22,15 @@ Please contrast for a moment the following two scriptures, the first from the Ap
 
 “Without natural affection, trucebreakers, false accusers, incontinent, fierce, despisers of those that are good,
 
-“Traitors, heady, highminded, lovers of pleasures more than lovers of God; ...
+“Traitors, heady, highminded, lovers of pleasures more than lovers of God; …
 
-“Ever learning, and never able to come to the knowledge of the truth.”6
+“Ever learning, and never able to come to the knowledge of the truth.”[^6]
 
-And now from Alma, stating a foundational principle of the gospel of Jesus Christ: “Now ye may suppose that this is foolishness in me; but behold I say unto you, that by small and simple things are great things brought to pass; and small means in many instances doth confound the wise.”7
+And now from Alma, stating a foundational principle of the gospel of Jesus Christ: “Now ye may suppose that this is foolishness in me; but behold I say unto you, that by small and simple things are great things brought to pass; and small means in many instances doth confound the wise.”[^7]
 
-We live in a modern world filled with great knowledge and much prowess. Nonetheless, these things too often camouflage the unsteady foundation upon which they are built. Consequently, they do not lead to real truth and on toward God and the power to receive revelation, acquire spiritual knowledge, and develop faith in Jesus Christ that leads to salvation.8
+We live in a modern world filled with great knowledge and much prowess. Nonetheless, these things too often camouflage the unsteady foundation upon which they are built. Consequently, they do not lead to real truth and on toward God and the power to receive revelation, acquire spiritual knowledge, and develop faith in Jesus Christ that leads to salvation.[^8]
 
-We are profoundly reminded of our Lord’s words to Thomas and the other Apostles on the eve of His atoning sacrifice: “Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.”9
+We are profoundly reminded of our Lord’s words to Thomas and the other Apostles on the eve of His atoning sacrifice: “Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.”[^9]
 
 For those who have eyes to see, ears to hear, and hearts to feel, more than ever before we are required to confront the reality that we are getting ever closer to the Second Coming of Jesus Christ. True, great difficulties yet await those on the earth at His return, but in this regard, the faithful need not fear.
 
@@ -41,11 +44,11 @@ Now I quote for a moment from the Church’s Gospel Topics under the heading “
 
 “‘And the earth shall be given unto them for an inheritance; and they shall multiply and wax strong, and their children shall grow up without sin unto salvation.
 
-“‘For the Lord shall be in their midst, and his glory shall be upon them, and he will be their king and their lawgiver’ (Doctrine and Covenants 45:57–59).”10
+“‘For the Lord shall be in their midst, and his glory shall be upon them, and he will be their king and their lawgiver’ ([[D&C 45.57|Doctrine and Covenants 45:57–59]][[D&C 45.58|]][[D&C 45.59|]]).”[^10]
 
-In our preparation for the Second Coming of Jesus Christ, I provide a vital, comforting note for the faithful taken from the Old Testament prophet Amos: “Surely the Lord God will do nothing, until he revealeth his secret unto his servants the prophets.”11
+In our preparation for the Second Coming of Jesus Christ, I provide a vital, comforting note for the faithful taken from the Old Testament prophet Amos: “Surely the Lord God will do nothing, until he revealeth his secret unto his servants the prophets.”[^11]
 
-In this spirit, today’s prophet of the Lord to the world, President Russell M. Nelson, has given us this recent inspiring counsel: “The gospel of Jesus Christ is a gospel of repentance. Because of the Savior’s Atonement, His gospel provides an invitation to keep changing, growing, and becoming more pure. It is a gospel of hope, of healing, and of progress. Thus, the gospel is a message of joy! Our spirits rejoice with every small step forward we take.”12
+In this spirit, today’s prophet of the Lord to the world, President Russell M. Nelson, has given us this recent inspiring counsel: “The gospel of Jesus Christ *is* a gospel of repentance. Because of the Savior’s Atonement, His gospel provides an invitation to keep changing, growing, and becoming more pure. It is a gospel of hope, of healing, and of progress. Thus, the gospel is a message of *joy*! Our spirits rejoice with every small step forward we take.”[^12]
 
 I unreservedly testify of and attest to the reality of God and the miracles in the everyday life of countless people from both the low and high stations of life. True, many sacred experiences are rarely spoken of, in part because of their divine origin and the resulting possibility of ridicule by some who do not know better.
 
@@ -55,7 +58,38 @@ In this regard, the last of the Book of Mormon prophets, Moroni, reminds us:
 
 “Behold I say unto you, he that denieth these things knoweth not the gospel of Christ; yea, he has not read the scriptures; if so, he does not understand them.
 
-“For do we not read that God is the same yesterday, today, and forever, and in him there is no variableness neither shadow of changing?”13
+“For do we not read that God is the same yesterday, today, and forever, and in him there is no variableness neither shadow of changing?”[^13]
 
-I conclude my remarks with a truly inspiring prophetic declaration from the Prophet Joseph Smith, given near the end of his ministry as he looked forward to the Second Coming of Jesus Christ: “Shall we not go on in so great a cause? Go forward and not backward. Courage, brethren [and, may I add, sisters]; and on, on to the victory! Let your hearts rejoice, and be exceedingly glad.”14 To which I add my witness in the name of Jesus Christ, amen.
+I conclude my remarks with a truly inspiring prophetic declaration from the Prophet Joseph Smith, given near the end of his ministry as he looked forward to the Second Coming of Jesus Christ: “Shall we not go on in so great a cause? Go forward and not backward. Courage, brethren \[and, may I add, sisters\]; and on, on to the victory! Let your hearts rejoice, and be exceedingly glad.”[^14] To which I add my witness in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See [[Helaman 13.12|Helaman 13:12]].
+
+[^2]: [[Helaman 16.18|Helaman 16:18]].
+
+[^3]: See [[John 7.47|John 7:47–52]][[John 7.48|]][[John 7.49|]][[John 7.50|]][[John 7.51|]][[John 7.52|]].
+
+[^4]: [[Jacob 4.14|Jacob 4:14]].
+
+[^5]: See [[1 Nephi 3.29|1 Nephi 3:29–31]][[1 Nephi 3.30|]][[1 Nephi 3.31|]].
+
+[^6]: [[2 Timothy 3.1|2 Timothy 3:1–4, 7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.7|]].
+
+[^7]: [[Alma 37.6|Alma 37:6]].
+
+[^8]: See [[Helaman 5.12|Helaman 5:12]].
+
+[^9]: [[John 14.6|John 14:6]].
+
+[^10]: Gospel Topics, “[Second Coming of Jesus Christ](https://churchofjesuschrist.org/study/manual/gospel-topics/second-coming-of-jesus-christ?lang=eng),” topics.ChurchofJesusChrist.org.
+
+[^11]: Joseph Smith Translation, Amos 3:7 (in [[Amos 3.7|Amos 3:7]], footnote *a*).
+
+[^12]: Russell M. Nelson, “[[2021 April - Welcome Message.md|Welcome Message]],” *Liahona*, May 2021, 7.
+
+[^13]: [[Mormon 9.7|Mormon 9:7–9]][[Mormon 9.8|]][[Mormon 9.9|]].
+
+[^14]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 

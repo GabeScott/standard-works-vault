@@ -1,7 +1,10 @@
 # Opening the Windows of Heaven
-*By James E. Faust - Second Counselor in the First Presidency*
+
+By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1998 General Conference*
+
+>*Tithing is a principle that is fundamental to the personal happiness and well-being of the Church members worldwide, both rich and poor.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/10/opening-the-windows-of-heaven?lang=eng)
 
@@ -9,53 +12,86 @@ It is always an overpowering responsibility to come to this pulpit. I do so in h
 
 I wish to speak about opening the windows of heaven. As a boy I learned a great lesson of faith and sacrifice as I worked on my grandfather’s farm during the terrible economic depression of the 1930s. The taxes on the farm were delinquent, and Grandfather, like so many, had no money. There was a drought in the land, and some cows and horses were dying for lack of grass and hay. One day when we were harvesting what little hay there was in the field, Grandfather told us to take the wagon to the corner of the field where the best stand of hay stood and fill the wagon as full as we could and take it to the tithing yard as payment of his tithing in kind.
 
-I wondered how Grandfather could use the hay to pay tithing when some of the cows that we were depending upon to sustain us might starve. I even questioned if the Lord expected that much sacrifice from him. Ultimately, I marveled at his great faith that somehow the Lord would provide. The legacy of faith he passed on to his posterity was far greater than money, because he established in the minds of his children and grandchildren that above all he loved the Lord and His holy work over other earthly things. He never became wealthy, but he died at peace with the Lord and with himself.
+I wondered how Grandfather could use the hay to pay tithing when some of the cows that we were depending upon to sustain us might starve. I even questioned if the Lord expected that much sacrifice from him. Ultimately, I marveled at his great faith that somehow the Lord would provide. The legacy of faith he passed on to his posterity was far greater than money, because he established in the minds of his children and grandchildren that above all, he loved the Lord and His holy work over other earthly things. He never became wealthy, but he died at peace with the Lord and with himself.
 
 I was taught more about the spirit of tithing by President Henry D. Moyle, who lived in my ward when I was serving as a young bishop. One tithing settlement, President Moyle came in and declared, “Bishop, this is a full tithe and a little bit more, because that’s the way we have been blessed.”
 
 Tithing is a principle that is fundamental to the personal happiness and well-being of the Church members worldwide, both rich and poor. Tithing is a principle of sacrifice and a key to the opening of the windows of heaven. In Primary I memorized the tithing poem: “What is tithing? I will tell you every time. Ten cents from a dollar, and a penny from a dime.” But I did not understand it fully until it was taught by Grandfather and President Henry D. Moyle.
 
-The law of tithing is simple: we pay one-tenth of our individual increase annually.1 Increase has been interpreted by the First Presidency to mean income.2 What amounts to 10 percent of our individual income is between each of us and our Maker. There are no legalistic rules. As a convert in Korea once said: “With tithing, it doesn’t matter whether you are rich or poor. You pay 10 percent, and you don’t have to be ashamed if you haven’t earned very much. If you make lots of money, you pay 10 percent. If you make very little, you still pay 10 percent. Heavenly Father will love you for it. You can hold your head up proud.”3
+The law of tithing is simple: we pay one-tenth of our individual increase annually.[^1] Increase has been interpreted by the First Presidency to mean income.[^2] What amounts to 10 percent of our individual income is between each of us and our Maker. There are no legalistic rules. As a convert in Korea once said: “With tithing, it doesn’t matter whether you are rich or poor. You pay 10 percent, and you don’t have to be ashamed if you haven’t earned very much. If you make lots of money, you pay 10 percent. If you make very little, you still pay 10 percent. Heavenly Father will love you for it. You can hold your head up proud.”[^3]
 
-Why should members worldwide, many of whom may not have enough for their daily needs, be encouraged to keep the Lord’s law of tithing? As President Hinckley said in Cebu in the Philippine Islands, if members “even living in poverty and misery ... will accept the gospel and live it, pay their tithes and offerings, even though those be meager, ... they will have rice in their bowls and clothing on their backs and shelter over their heads. I do not see any other solution.”4
+Why should members worldwide, many of whom may not have enough for their daily needs, be encouraged to keep the Lord’s law of tithing? As President Hinckley said in Cebu in the Philippine Islands, if members, “even living in poverty and misery, … will accept the gospel and live it, pay their tithes and offerings, even though those be meager, … they will have rice in their bowls and clothing on their backs and shelter over their heads. I do not see any other solution.”[^4]
 
-Some may feel that they cannot afford to pay tithing, but the Lord has promised that He would prepare a way for us to keep all of His commandments.5 To pay tithing takes a leap of faith in the beginning, but as Jesus said, “If any man will do his will, he shall know of the doctrine.”6 We learn about tithing by paying it. Indeed, I believe it is possible to break out of poverty by having the faith to give back to the Lord part of what little we have.
+Some may feel that they cannot afford to pay tithing, but the Lord has promised that He would prepare a way for us to keep all of His commandments.[^5] To pay tithing takes a leap of faith in the beginning, but as Jesus said, “If any man will do his will, he shall know of the doctrine.”[^6] We learn about tithing by paying it. Indeed, I believe it is possible to break out of poverty by having the faith to give back to the Lord part of what little we have.
 
-Members of the Church who do not tithe do not lose their membership; they only lose blessings. Through Malachi the Lord asks: “Will a man rob God? ... But ye say, Wherein have we robbed thee? In tithes and offerings.”7 If we will trust in the Lord, He will open the windows of heaven to us as we give back to Him the one-tenth He asks of us. His promise is sure: “I will ... pour you out a blessing, that there shall not be room enough to receive it.”8 Although tithing carries with it both temporal and spiritual blessings, the only absolute promise to the faithful is “ye shall have the riches of eternity.”9
+Members of the Church who do not tithe do not lose their membership; they only lose blessings. Through Malachi the Lord asks: “Will a man rob God? … But ye say, Wherein have we robbed thee? In tithes and offerings.”[^7] If we will trust in the Lord, He will open the windows of heaven to us as we give back to Him the one-tenth He asks of us. His promise is sure: “I will … pour you out a blessing, that there shall not be room enough to receive it.”[^8] Although tithing carries with it both temporal and spiritual blessings, the only absolute promise to the faithful is, “Ye shall have the riches of eternity.”[^9]
 
-President Heber J. Grant put it in context when he said: “Prosperity comes to those who observe the law of tithing. When I say prosperity I am not thinking of it in terms of dollars and cents alone. ... What I count as real prosperity ... is the growth in a knowledge of God, and in a testimony, and in the power to live the gospel and to inspire our families to do the same. That is prosperity of the truest kind.”10
+President Heber J. Grant put it in context when he said: “Prosperity comes to those who observe the law of tithing. When I say prosperity I am not thinking of it in terms of dollars and cents alone. … What I count as real prosperity … is the growth in a knowledge of God, and in a testimony, and in the power to live the gospel and to inspire our families to do the same. That is prosperity of the truest kind.”[^10]
 
 Sister Yaeko Seki experienced part of this precious promise. She writes:
 
-“My family and I were spending a day at the Japan Alps National Park . ... I was pregnant with our fourth child and was feeling rather tired, so I lay down under the trees. ... I began thinking about our financial problems. My heart became overwhelmed, and I burst into tears. ‘Lord, we are full-tithe payers. We have sacrificed so much. When will the windows of heaven open unto us and our burdens be lightened?’
+“My family and I were spending a day at the Japan Alps National Park. … I was pregnant with our fourth child and was feeling rather tired, so I lay down under the trees. … I began thinking about our financial problems. My heart became overwhelmed, and I burst into tears. ‘Lord, we are full-tithe payers. We have sacrificed so much. When will the windows of heaven open unto us and our burdens be lightened?’
 
-“I prayed with all my heart. Then I turned to watch my husband and children playing and laughing together. ... Suddenly, the Spirit testified to me that my blessings were abundant and that my family was the greatest blessing Heavenly Father could give me.”11
+“I prayed with all my heart. Then I turned to watch my husband and children playing and laughing together. … Suddenly, the Spirit testified to me that my blessings were abundant and that my family was the greatest blessing Heavenly Father could give me.”[^11]
 
 Many of us have had the windows of heaven open up for us, so we do not look upon tithing as a sacrifice but rather a blessing and even a privilege.
 
 One of the great blessings the people of this Church have is to meet with the bishop once each year, settle their tithing, and report that what they have paid in contributions constitutes a tithe. It is also a great blessing for the bishops to have this experience. I remember a man in our ward who had a large family who would bring all of his children with him when he came to tithing settlement. Starting with the youngest, he would ask each one to report to the bishop as to whether their contributions constituted a tithe. When all of the children had reported, he would report for his wife and his family. This family was abundantly blessed for their faithfulness.
 
-Rest assured that the tithes of this Church are administered as set forth in the revelation given in 1838 to the Prophet Joseph Smith. The 18 Church leaders designated in the 120th section of the Doctrine and Covenants meet together to administer these sacred funds. Those of us who sit on that council know that this sacred responsibility is done in accordance with the Lord’s “voice unto them.”12
+Rest assured that the tithes of this Church are administered as set forth in the revelation given in 1838 to the Prophet Joseph Smith. The 18 Church leaders designated in the 120th section of the Doctrine and Covenants meet together to administer these sacred funds. Those of us who sit on that council know that this sacred responsibility is done in accordance with the Lord’s “voice unto them.”[^12]
 
-President Hinckley has announced the building of more temples than there ever have been at any time in history. The need for temples all over the world is great. This is because they are spiritual sanctuaries. Those who attend the temples can find protection against Satan and his desire to destroy them and their families. To Church members in isolated communities of the Church who want to have a temple in their midst, I would suggest that you first show your faith by paying your tithing so that you are worthy to receive temple blessings. As the Lord revealed to the elders of the Church in Kirtland, “Now it is called today until the coming of the Son of Man, and verily it is a day of sacrifice, and a day for the tithing of my people.”13
+President Hinckley has announced the building of more temples than there ever have been at any time in history. The need for temples all over the world is great. This is because they are spiritual sanctuaries. Those who attend the temples can find protection against Satan and his desire to destroy them and their families. To Church members in isolated communities of the Church who want to have a temple in their midst, I would suggest that you first show your faith by paying your tithing so that you are worthy to receive temple blessings. As the Lord revealed to the elders of the Church in Kirtland, “Now it is called today until the coming of the Son of Man, and verily it is a day of sacrifice, and a day for the tithing of my people.”[^13]
 
 The Lord speaks of offerings in the plural. He expects us, as a condition of faithfulness, to pay our tithing and our fast offerings to help the poor and the needy. But we are privileged to make other offerings, not by way of assignment, assessment, or ecclesiastical direction. Among these are donations to the General Missionary Fund, Humanitarian Aid Fund, and the Book of Mormon Fund. We are also privileged to voluntarily contribute to building the new temples President Hinckley has announced.
 
 Recently I received an anonymous letter from a person who made a substantial sacrifice for the General Temple Fund of the Church. She said: “I decided when I wanted to spend any money on myself I would forgo it and put the money into the temple fund. This meant no new clothes or shoes, books, hair appointments, necklaces, or anything of a personal nature until I reached my goal. I thought this would be a sacrifice, but instead I have found joy in it. It has been a rewarding and fulfilling experience.”
 
-The Prophet Joseph Smith once said, “A religion that does not require the sacrifice of all things never has power sufficient to produce the faith necessary unto life and salvation.” He continues, “Those who do not make the sacrifice cannot enjoy this faith, because men are dependent upon this sacrifice in order to obtain this faith.”14
+The Prophet Joseph Smith once said, “A religion that does not require the sacrifice of all things never has power sufficient to produce the faith necessary unto life and salvation.” He continues, “Those who do not make the sacrifice cannot enjoy this faith, because men are dependent upon this sacrifice in order to obtain this faith.”[^14]
 
 Our donations are made holy by our faith. Recently I attended sacrament meeting in my own ward. Before the meeting began, a few people handed contribution envelopes to the members of the bishopric. They came with a smile and a happy countenance. These envelopes contained their tithes and other offerings which they were joyfully paying as a humble expression of their gratitude for the Lord’s blessings. This was a testament of their faith.
 
 The work of God is moving forward in many parts of the world like it never has before, particularly in countries where the economic standards are not high and new members are still learning the principle of faith and how it relates to blessings. To be faithful members of this Church requires sacrifice and consecration. It means that worldly pleasures and earthly possessions should not be our principal aim in life, because the gift of eternal life requires a willingness to sacrifice all we have and are in order to obtain it.
 
-In Old Testament times the Lord sent a pestilence upon Israel, and many people died. He commanded David to offer a sacrifice at the threshing floor of Araunah the Jebusite. When David went to see Araunah, and Araunah found out why he had come, he generously offered to give him whatever was needed for the sacrifice. David’s response was profound: “I will surely buy it of thee at a price: neither will I offer burnt offerings unto the Lord my God of that which doth cost me nothing.”15 He bought the threshing floor, offered the sacrifice, and the plague ceased.
+In Old Testament times the Lord sent a pestilence upon Israel, and many people died. He commanded David to offer a sacrifice at the threshing floor of Araunah the Jebusite. When David went to see Araunah, and Araunah found out why he had come, he generously offered to give him whatever was needed for the sacrifice. David’s response was profound: “I will surely buy it of thee at a price: neither will I offer burnt offerings unto the Lord my God of that which doth cost me nothing.”[^15] He bought the threshing floor, offered the sacrifice, and the plague ceased.
 
 In our time we are surfeited with a pestilence of violence, evil, and wickedness in so many forms. Those who keep their covenants and pay their tithes and offerings will have some extra defense against these virulent modern-day forms of evil. But this protection will not come with a sacrifice which costs us nothing.
 
 I say this because the world’s religious drift is obvious. If something can be had cheaply, without exertion or sacrifice, people do not mind having a little bit of it. In contrast, the blessings of membership in The Church of Jesus Christ of Latter-day Saints require both exertion and sacrifice. Receiving the blessings requires the payment of tithes and offerings. Ours is not a Sunday-only religion. It demands exemplary conduct and effort every day of the week. It involves accepting calls and serving with fidelity in those callings. It means strength of character, integrity, and honesty to the Lord and our fellowmen. It means that our homes need to be places of sanctuary and love. It means a relentless battle against the bombardment of worldly evils. It means, at times, being unpopular and politically incorrect.
 
-I feel honored and privileged to have a small part in this holy work. It is a great time of vast spiritual outreach all over the world. It is marvelous to behold. It is the work of God. It is directed by the head of this Church who is our Lord and Savior, Jesus the Christ. President Gordon B. Hinckley is His prophet, seer, and revelator. I believe President Hinckley’s inspired leadership blesses all mankind.
+I feel honored and privileged to have a small part in this holy work. It is a great time of vast spiritual outreach all over the world. It is marvelous to behold. It is the work of God. It is directed by the head of this Church, who is our Lord and Savior, Jesus the Christ. President Gordon B. Hinckley is His prophet, seer, and revelator. I believe President Hinckley’s inspired leadership blesses all mankind.
 
-The ultimate offering was that offered by the Savior Himself in giving His very life. It causes each of us to wonder, How many drops of blood were shed for me? I witness that Jesus is the Christ, the holy Son of God, the healer of our souls, our Savior and Redeemer of mankind. Of this I testify in His holy name, even Jesus Christ, amen.
+The ultimate offering was that offered by the Savior Himself in giving His very life. It causes each of us to wonder, *How many drops of blood were shed for me?* I witness that Jesus is the Christ, the holy Son of God, the healer of our souls, our Savior and Redeemer of mankind. Of this I testify in His holy name, even Jesus Christ, amen.
+
+
+
+
+[^1]: See [[D&C 119.4|D&C 119:4]].
+
+[^2]: See *General Handbook of Instructions* (1989), sec. 9, p. 1.
+
+[^3]: Letter from D. Brent Clement, president of the Korea Seoul Mission, 1981.
+
+[^4]: “Inspirational Thoughts,” *Ensign,* Aug. 1997, 7.
+
+[^5]: See [[1 Nephi 3.7|1 Ne. 3:7]].
+
+[^6]: [[John 7.17|John 7:17]].
+
+[^7]: [[Malachi 3.8|Mal. 3:8]].
+
+[^8]: [[Malachi 3.10|Mal. 3:10]].
+
+[^9]: [[D&C 38.39|D&C 38:39]].
+
+[^10]: *Gospel Standards,* comp. G. Homer Durham (1941), 58.
+
+[^11]: “The Windows of Heaven,” *Tambuli,* Mar. 1992, 17.
+
+[^12]: [[D&C 120.1|D&C 120]].
+
+[^13]: [[D&C 64.23|D&C 64:23]].
+
+[^14]: *Lectures on Faith* (1985), 69, 70.
+
+[^15]: [[2 Samuel 24.24|2 Sam. 24:24]]; see [[2 Samuel 24.15|vv. 15–25]][[2 Samuel 24.16|]][[2 Samuel 24.17|]][[2 Samuel 24.18|]][[2 Samuel 24.19|]][[2 Samuel 24.20|]][[2 Samuel 24.21|]][[2 Samuel 24.22|]][[2 Samuel 24.23|]][[2 Samuel 24.24|]][[2 Samuel 24.25|]].
 

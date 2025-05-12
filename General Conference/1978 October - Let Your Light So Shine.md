@@ -1,5 +1,6 @@
 # Let Your Light So Shine
-*By Joseph B. Wirthlin - Of the First Quorum of the Seventy*
+
+By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -11,11 +12,11 @@ Over 1,200 people, Saints and investigators, came from far and near to hear the 
 
 There was scarcely a dry eye in that packed audience as President Kimball spoke. He not only blessed and inspired the large congregation, and the brother on the stepladder, but also a sister in a wheelchair, as well. Sister Margarete Hellmann had suffered an ailment of the hip since youth. As the years came and went, the affliction brought her an ever-increasing burden of pain. Finally, she could walk only with the aid of a pair of crutches. To facilitate her travel from place to place, and to alleviate the terrible pain she keenly felt with every single step, some of the Saints contributed money and bought her a wheelchair. But this relief was short-lived. Soon, even sitting in her wheelchair was accompanied by almost unbearable pain. Then an inflammation of the nerves on the left side of her face further intensified her suffering. One day she heard the heartening news: the prophet of the Lord was to be in Dresden. She had one all-consuming desire—to attend the conference and touch the prophet.
 
-She had faith and the absolute conviction that the prophet would not even have to take the time to lay his hands upon her head and give her a blessing. She felt assured that it would be with her as it was with a certain woman who, according to St. Mark, had suffered for twelve years and still grew worse. And “when she had heard of Jesus, ... she said, If I may touch but his clothes, I shall be whole.” This she did, and Jesus “said unto her, Daughter, thy faith hath made thee whole; go in peace.” (See Mark 5:25–34.)
+She had faith and the absolute conviction that the prophet would not even have to take the time to lay his hands upon her head and give her a blessing. She felt assured that it would be with her as it was with a certain woman who, according to St. Mark, had suffered for twelve years and still grew worse. And “when she had heard of Jesus, … she said, If I may touch but his clothes, I shall be whole.” This she did, and Jesus “said unto her, Daughter, thy faith hath made thee whole; go in peace.” (See [[Mark 5.25|Mark 5:25–34]][[Mark 5.26|]][[Mark 5.27|]][[Mark 5.28|]][[Mark 5.29|]][[Mark 5.30|]][[Mark 5.31|]][[Mark 5.32|]][[Mark 5.33|]][[Mark 5.34|]].)
 
 Sister Hellmann had asked her grandson, Frank, to bring her to the service at an early hour and position her wheelchair near the aisle where the prophet was to pass. This statement from her letter tells the rest of the story in her tender words: “When our prophet came close to me,” she wrote, “he warmly shook my hand and looked at me in the spirit of love, as did those who were with him. After that, I did not feel any more pain—not then, nor any to this day. That is the greatest testimony of my life!”
 
-After the benediction on that memorable day, as we moved through the crowd, the congregation sang, with great fervor, that beautiful hymn, “Auf Wiedersehen.” It was an unforgettable experience and a powerful testimony of faith and the power of God.
+After the benediction on that memorable day, as we moved through the crowd, the congregation sang, with great fervor, that beautiful hymn, *“Auf Wiedersehen.”* It was an unforgettable experience and a powerful testimony of faith and the power of God.
 
 Brethren, my fervent hope is for every one of us to be as willing as the man on the ladder to inconvenience ourselves for the sake of the gospel. And I would pray that each one of us could develop a faith as strong as that of the sister in the wheelchair.
 
@@ -31,39 +32,35 @@ In working together as husbands, wives, sons, and daughters, we can achieve the 
 
 “Neither do men light a candle, and put it under a bushel, but on a candlestick; and it giveth light unto all that are in the house.
 
-“Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.” (Matt. 5:14–16.)
+“Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.” ([[Matthew 5.14|Matt. 5:14–16]][[Matthew 5.15|]][[Matthew 5.16|]].)
 
-If we live the principles of the gospel, we are the fulfillment of the Savior’s pronouncement: “Ye are the light of the world” (Matt. 5:14). And possessing this light, we can shine among our fellowmen through our lives and deeds, influencing them to glorify our Father in Heaven.
+If we live the principles of the gospel, we are the fulfillment of the Savior’s pronouncement: “Ye are the light of the world” ([[Matthew 5.14|Matt. 5:14]]). And possessing this light, we can shine among our fellowmen through our lives and deeds, influencing them to glorify our Father in Heaven.
 
 Jesus wants every one of us to know him because of the transforming power of that knowledge and because of the indescribable joy it brings into our lives. But the influence of the gospel is to extend beyond each individual. It is to be as a light that dispels the darkness from the lives of those around us. No one of us is saved solely and simply for himself alone, just as no lamp is lighted merely for its own benefit.
 
-Today there are far too many so-called Christian leaders who are divided over the most fundamental of all Christian doctrines, one about which no faithful member of our church in all the world has the slightest doubt. This schism is dramatically set forth in a recent issue of Time magazine and is entitled “New Debate Over Jesus’ Divinity.” Many modern scholars express the view that “Jesus did not proclaim himself as the eternal Son of God, nor did the early Christians.” Seven university theologians in England published a book contending that Jesus was not really God at all. In America much of the same is going on. An eminent clergyman expressed the conviction of many “that Jesus never claimed to be God, nor to be related to him as son.” In summarizing, Time said that “in view of the new Christology (of the so-called Christian advocates) Christ is not as divine as he used to be.” (Time, 27 Feb. 1978.)
+Today there are far too many so-called Christian leaders who are divided over the most fundamental of all Christian doctrines, one about which no faithful member of our church in all the world has the slightest doubt. This schism is dramatically set forth in a recent issue of *Time* magazine and is entitled “New Debate Over Jesus’ Divinity.” Many modern scholars express the view that “Jesus did not proclaim himself as the eternal Son of God, nor did the early Christians.” Seven university theologians in England published a book contending that Jesus was not really God at all. In America much of the same is going on. An eminent clergyman expressed the conviction of many “that Jesus never claimed to be God, nor to be related to him as son.” In summarizing, *Time* said that “in view of the new Christology (of the so-called Christian advocates) Christ is not as divine as he used to be.” (*Time,* 27 Feb. 1978.)
 
-Such a twisted and compromising viewpoint sounds a clarion call for the priesthood and the sisters, pillars of the Church whose example “is like unto leaven” (Matt. 13:33), to make an even greater effort to move in and fill the tragic void. On the divinity of our Lord and Savior Jesus Christ, the position of the restored church and its members is eloquently stated by Elder James E. Talmage in these words:
+Such a twisted and compromising viewpoint sounds a clarion call for the priesthood and the sisters, pillars of the Church whose example “is like unto leaven” ([[Matthew 13.33|Matt. 13:33]]), to make an even greater effort to move in and fill the tragic void. On the divinity of our Lord and Savior Jesus Christ, the position of the restored church and its members is eloquently stated by Elder James E. Talmage in these words:
 
-“The solemn testimonies of millions dead and of millions living unite in proclaiming Him as divine, the Son of the Living God, the Redeemer and Savior of the human race, the Eternal Judge of the souls of men, the Chosen and Anointed of the Father—in short, the Christ.” (Jesus the Christ, 3rd ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1916, pp. 1–2.)
+“The solemn testimonies of millions dead and of millions living unite in proclaiming Him as divine, the Son of the Living God, the Redeemer and Savior of the human race, the Eternal Judge of the souls of men, the Chosen and Anointed of the Father—in short, the Christ.” (*Jesus the Christ,* 3rd ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1916, pp. 1–2.)
 
 Our church does not and will not in any way compromise its position! It never at any time or place falters, hesitates, or shows any reluctance to bear unwavering testimony to the divinity of Jesus Christ. The state of the world being what it is, each priesthood bearer must take advantage of every opportunity to testify of the Savior and teach and exemplify gospel truth, letting his light so shine before friends and strangers alike to perpetuate the truth concerning our Savior, Jesus Christ.
 
-In closing I bear deep and solemn testimony of my absolute conviction of the Savior as expressed in these words from a simple and beautiful poem by Elder Bruce R. McConkie, entitled “I Believe in Christ.”
+In closing I bear deep and solemn testimony of my absolute conviction of the Savior as expressed in these words from a simple and beautiful poem by Elder Bruce R. McConkie, entitled “I Believe in Christ.”
 
-I believe in Christ—my Lord, my God—
-
-My feet he plants on gospel sod;
-
-I’ll worship him with all my might;
-
-He is the source of truth and light.
-
-I believe in Christ; so come what may,
-
-With him I’ll stand in that great day
-
-When on this earth he comes again,
-
-To rule among the sons of men.
-
-(“The Testimony of Jesus,” Ensign, July 1972, p. 109.)
+>I believe in Christ—my Lord, my God—
+>My feet he plants on gospel sod;
+>I’ll worship him with all my might;
+>He is the source of truth and light.
+>
+>I believe in Christ; so come what may,
+>With him I’ll stand in that great day
+>When on this earth he comes again,
+>To rule among the sons of men.
+>
 
 I testify to you that President Kimball is indeed a mighty prophet of the Lord. His divinely inspired words and example convey the certainty of an unwavering testimony. Upon us he pronounces rich blessings and unbounded love and encouragement. May we follow his great leadership, I pray in the name of Jesus Christ. Amen.
+
+
+
 

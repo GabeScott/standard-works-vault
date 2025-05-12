@@ -1,11 +1,12 @@
 # A People of Sound Judgment
-*By Mark E. Petersen - Of the Council of the Twelve*
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/04/a-people-of-sound-judgment?lang=eng)
 
-It was most fitting, my brethren and sisters, that we sing the glorious hymn that we have just sung [“We Thank Thee, O God, for a Prophet”], because we have just listened to the voice of the prophet of God.
+It was most fitting, my brethren and sisters, that we sing the glorious hymn that we have just sung \[“We Thank Thee, O God, for a Prophet”\], because we have just listened to the voice of the prophet of God.
 
 He has spoken as the divinely appointed mouthpiece of the Lord here on earth.
 
@@ -15,17 +16,17 @@ People who are not members of this church may not sense the great significance a
 
 The Almighty has said of him and the other prophets of this church:
 
-“... they shall speak as they are moved upon by the Holy Ghost.
+“… they shall speak as they are moved upon by the Holy Ghost.
 
-“And whatsoever they shall speak when moved upon by the Holy Ghost shall be scripture, shall be the will of the Lord, shall be the mind of the Lord, shall be the word of the Lord, shall be the voice of the Lord, and the power of God unto salvation.” (D&C 68:3–4.)
+“And whatsoever they shall speak when moved upon by the Holy Ghost shall be scripture, shall be the will of the Lord, shall be the mind of the Lord, shall be the word of the Lord, shall be the voice of the Lord, and the power of God unto salvation.” ([[D&C 68.3|D&C 68:3–4]][[D&C 68.4|]].)
 
 President Smith is a prophet in the same sense as were Moses and Isaiah, Ezekiel, Jeremiah, Paul and Peter, and others who ministered anciently.
 
-Every faithful person will agree that there were prophets in Israel during Old Testament times. Prophets also were a part of the church as established by the Savior in his day. They too were like Moses and Isaiah, but they were even more—they were Christian prophets, chosen by the Lord for the Christian ministry to properly teach the saints and to protect them from false doctrines that could lead them astray.
+Every faithful person will agree that there were prophets in Israel during Old Testament times. Prophets also were a part of the church as established by the Savior in his day. They too were like Moses and Isaiah, but they were even more—they were *Christian* prophets, chosen by the Lord for the Christian ministry to properly teach the saints and to protect them from false doctrines that could lead them astray.
 
 Few modern people, whether Jewish or Christian, realize that there are living prophets on earth today, men who hold the same gifts and powers that characterized the prophets of old. But they are here, alive and alert. They are modern men, well educated and fully oriented to present-day conditions. They give the word of God as it is received now, just as Moses and Isaiah, Peter and Paul ministered in their day.
 
-Try to realize it if you will. God does speak to us now. He manifests himself through prophets whom he has raised up for this day—for 1972—for present-day people—to help them to successfully combat the seductions of a decadent and blinded world.
+Try to realize it if you will. God does speak to us *now.* He manifests himself through prophets whom he has raised up for this day—for 1972—for present-day people—to help them to successfully combat the seductions of a decadent and blinded world.
 
 Every one of you may have the full benefit of his heavenly guidance if you will but accept it. You can know God’s will pertaining to your own self, given now—not two thousand years ago, but here and now.
 
@@ -61,9 +62,9 @@ It is admitted that for centuries revelation did stop. There were no more apostl
 
 But the flow of revelation stopped only for the same reason that it ceased occasionally in Old Testament times. Isaiah explained it in this way:
 
-“... the Lord’s hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear:
+“… the Lord’s hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear:
 
-“But your iniquities have separated between you and your God, and your sins have hid his face from you. ...” (Isa. 59:1–2.)
+“But your iniquities have separated between you and your God, and your sins have hid his face from you. …” ([[Isaiah 59.1|Isa. 59:1–2]][[Isaiah 59.2|]].)
 
 However, in spite of wickedness, the scripture says that in the latter days there would come this new revelation of which we speak. Angels also were to visit the earth once more, giving divine direction to wandering mankind.
 
@@ -103,9 +104,9 @@ The Air National Guard recently conferred upon the president of our church the t
 
 And speaking of the liberation of women, be it known that Mormon women were among the first of all women everywhere and anywhere to receive the franchise to vote. This was conferred on them in the days of Brigham Young, one hundred and two years ago.
 
-One organization of our women numbers nearly a half million. It is devoted to improving the status of women and children and operates in sixty-three nations of the world. Its president, Mrs. Belle S. Spafford, recently served as president of the National Council of Women of the United States. She also represented America as a delegate to the World Council of Women, in which council she also occupies a prominent position.
+One organization of our women numbers nearly a half million. It is devoted to improving the status of women and children and operates in sixty-three nations of the world. Its president, Mrs. Belle S. Spafford, recently served as president of the National Council of Women of the United States. She also represented America as a delegate to the World Council of Women, in which council she also occupies a prominent position.
 
-We have still another organization for younger women and teenage girls, which has a membership of some 400,000 devoted to the betterment of girls of that age. Its president, Mrs. Florence S. Jacobsen, has served also as a United States delegate to meetings of the World Council of Women.
+We have still another organization for younger women and teenage girls, which has a membership of some 400,000 devoted to the betterment of girls of that age. Its president, Mrs. Florence S. Jacobsen, has served also as a United States delegate to meetings of the World Council of Women.
 
 Our men and women have taken active part in the White House conference for the betterment of children and are still engaged in that work.
 
@@ -130,4 +131,7 @@ It is past time to become realistic about our condition and to recognize that on
 We testify that God lives, that we are his servants duly appointed by divine power, and that we are commissioned of heaven to preach his revealed word to all mankind by the power of modern prophecy.
 
 We appeal to you: Do not let prejudice blind you to the truth; open your hearts to this new revelation from God; study it and learn to live by its principles. We testify to you that it is indeed the way of life and salvation brought back to earth by God himself and by repeated angelic ministrations. And we bear you this testimony in the sacred name of the Lord Jesus Christ. Amen.
+
+
+
 

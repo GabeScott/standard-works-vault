@@ -1,5 +1,6 @@
 # Strength in the Savior
-*By By Chieko N. Okazaki - First Counselor in the Relief Society General Presidency*
+
+By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1993 General Conference*
 
@@ -7,13 +8,13 @@
 
 My dear sisters, aloha! What a joy it is to meet with you this evening and to feel connected to all of our sisters throughout the Church in service, just as the video shows, with the support and direction of our priesthood leaders. I am grateful for the guidance that comes to us from prophets, Apostles, and other Church leaders.
 
-Tonight, I want to share with you some ideas about strengthening families. If I were to ask you what the Church teaches about strengthening families, I know that you would say things like “spend time together, have family prayer, hold family home evening, and regular scripture study.” In addition to these important things, I want to talk about building stronger families by building a stronger you—strong in your faith of the Savior. That’s where strong families come from—from strong individuals.
+Tonight, I want to share with you some ideas about strengthening families. If I were to ask you what the Church teaches about strengthening families, I know that you would say things like “spend time together, have family prayer, hold family home evening, and regular scripture study.” In addition to these important things, I want to talk about building stronger families by building a stronger you—strong in your faith of the Savior. *That’s* where strong families come from—from strong individuals.
 
 President Gordon B. Hinckley has said:
 
-“The strength of the Church is not in its thousands of houses of worship across the world nor in its universities or seminaries and institutes. These are all facilities, desirable means to an end, but only auxiliary to that which is the true strength. The strength of this Church lies in the hearts of its people, in the individual testimony and conviction of the truth of this work.”1
+“The strength of the Church is not in its thousands of houses of worship across the world nor in its universities or seminaries and institutes. These are all facilities, desirable means to an end, but only auxiliary to that which is the true strength. The strength of this Church lies in the hearts of its people, in the individual testimony and conviction of the truth of this work.”[^1]
 
-All of us women have an image of the ideal family—a marriage in the temple to an active priesthood holder, and children who are obedient and faithful. But President Ezra Taft Benson has pointed out that only 14 percent of American households in 1980 match the traditional image of a family—working husband, full-time mother with children still in the home.2 Reliable statistics indicate that only one out of five LDS families in the United States have a husband and wife married in the temple with children in their home.3
+All of us women have an image of the ideal family—a marriage in the temple to an active priesthood holder, and children who are obedient and faithful. But President Ezra Taft Benson has pointed out that only 14 percent of American households in 1980 match the traditional image of a family—working husband, full-time mother with children still in the home.[^2] Reliable statistics indicate that only one out of five LDS families in the United States have a husband and wife married in the temple with children in their home.[^3]
 
 As Elder M. Russell Ballard has already reminded us, there is great diversity in LDS homes. But all of these homes can be righteous homes where individuals love each other, love the Lord, and strengthen each other.
 
@@ -25,7 +26,7 @@ Well, there’s not one right way to be a quilt as long as the pieces are stitch
 
 All of us face different family circumstances and home situations. All of us need strength in dealing with them. This strength comes from faith in the Savior’s love and in the power of his atonement. If we trustingly put our hand in the Savior’s, we can claim the promise of the sacramental prayer to always have his Spirit with us. All problems are manageable with that strength, and all other problems are secondary in urgency to maintaining a strong spiritual life.
 
-If we have faith, we will desire to pray often and sincerely, and his Spirit will teach us what to pray for (see Rom. 8:26–27). We will have the sensitivity to serve compassionately. We will have the wisdom that we need for our Church callings. We can build a loving and respectful partnership with our husbands, children, parents, and friends. If we always have Christ’s Spirit with us, we will have a wise consultant when we are perplexed by our children’s needs. We will receive help in making correct decisions and strength in carrying them out. We will give and receive loyal friendship, and feel in ourselves when the advice we receive from others is truly suited to our needs. We will hold a clear vision of gospel ideals and aspire toward them even as we deal patiently with the limitations of reality. Through faith in the Savior, we can magnify our opportunities, cope with our problems, and keep both of them in perspective.
+If we have faith, we will desire to pray often and sincerely, and his Spirit will teach us what to pray for (see [[Romans 8.26|Rom. 8:26–27]][[Romans 8.27|]]). We will have the sensitivity to serve compassionately. We will have the wisdom that we need for our Church callings. We can build a loving and respectful partnership with our husbands, children, parents, and friends. If we always have Christ’s Spirit with us, we will have a wise consultant when we are perplexed by our children’s needs. We will receive help in making correct decisions and strength in carrying them out. We will give and receive loyal friendship, and feel in ourselves when the advice we receive from others is truly suited to our needs. We will hold a clear vision of gospel ideals and aspire toward them even as we deal patiently with the limitations of reality. Through faith in the Savior, we can magnify our opportunities, cope with our problems, and keep both of them in perspective.
 
 Strong families build strong individuals who, in turn, strengthen other family members. We take turns in lifting each other. I have seen this process at work in my own life.
 
@@ -45,17 +46,17 @@ I never appreciated the strength of my sons more than last year, when my husband
 
 I have used the example of my own family, because I have seen for myself that it is to our families that we first turn in such crises. But whatever your family circumstances, I believe the strength we need can always be there because it comes from the Savior and his love. Sometimes our own faith enables us to draw on that love. Sometimes it is the faith and love of others that strengthen us.
 
-We do not know the challenges and adversities that life will give us. But the scriptures promise us that “with God nothing shall be impossible” (Luke 1:37), and we can say with the Apostle Paul, “I can do all things through Christ which strengtheneth me” (Philip. 4:13).
+We do not know the challenges and adversities that life will give us. But the scriptures promise us that “with God nothing shall be impossible” ([[Luke 1.37|Luke 1:37]]), and we can say with the Apostle Paul, “I can do all things through Christ which strengtheneth me” ([[Philippians 4.13|Philip. 4:13]]).
 
 The scriptures are filled with testimonies of the strength that comes from the Savior. I always feel a lift of the heart that comes to me when I read these rejoicings of the prophets:
 
-Moses exulted, “The Lord is my strength and song, and he is become my salvation” (Ex. 15:2).
+Moses exulted, “The Lord is my strength and song, and he is become my salvation” ([[Exodus 15.2|Ex. 15:2]]).
 
-David sang, “God is my strength and power: and he maketh my way perfect” (2 Sam. 22:33).
+David sang, “God is my strength and power: and he maketh my way perfect” ([[2 Samuel 22.33|2 Sam. 22:33]]).
 
-To Isaiah, the Lord promised, “Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness” (Isa. 41:10).
+To Isaiah, the Lord promised, “Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness” ([[Isaiah 41.10|Isa. 41:10]]).
 
-How can we build this kind of faith in the strength of the Savior? David had counsel for the people of his time that I repeat to you: “Seek the Lord and his strength ... continually” (1 Chr. 16:11). “Blessed is the man [or woman] whose strength is in thee. ... Go from strength to strength” (Ps. 84:5, 7).
+How can we build this kind of faith in the strength of the Savior? David had counsel for the people of his time that I repeat to you: “Seek the Lord and his strength … continually” ([[1 Chronicles 16.11|1 Chr. 16:11]]). “Blessed is the man \[or woman\] whose strength is in thee. … Go from strength to strength” ([[Psalms 84.5|Ps. 84:5, 7]][[Psalms 84.7|]]).
 
 Sisters, strengthen yourselves by seeking the source of true strength—the Savior. Come unto him. He loves you. He desires your happiness and exults in your desires for righteousness. Make him your strength, your daily companion, your rod and your staff. Let him comfort you. There is no burden we need bear alone. His grace compensates for our deficiencies.
 
@@ -66,4 +67,13 @@ Through the years, my circumstances have changed. I was a single woman, then the
 My dear sisters, our circumstances will not always be ideal, but we can still strive to live up to them. From the bottom of my heart and from more than fifty years of experience in the Church, I testify that the Savior extends to us all the same mercy, the same healing power, and the same perfect love. He has assured us that it is his work and glory to bring to pass our immortality and eternal life. What joy it gives us to contemplate eternal life with our families as part of the great family of God.
 
 I say this in the name of our Savior Jesus Christ, amen.
+
+
+
+
+[^1]: *Ensign,* July 1993, pp. 4–5.
+
+[^2]: *Ensign,* Nov. 1982, p. 59.
+
+[^3]: Tim B. Heaton, “Vital Statistics,” *Encyclopedia of Mormonism* (New York: Macmillan, 1992), 4:1532.
 

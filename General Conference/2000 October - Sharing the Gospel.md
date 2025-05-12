@@ -1,13 +1,16 @@
 # Sharing the Gospel
-*By Robert C. Oaks - Of the Seventy*
+
+By Elder Robert C. Oaks - *Of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
 
+>*Given the importance of the message, the help offered by the Spirit, the number of the missionaries and the size of the field that is ready to harvest, 300,000 new converts per year is not nearly enough.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2000/10/sharing-the-gospel?lang=eng)
 
-I thrill to hear the prophet stand at this pulpit and declare how he sees the work of the Lord rolling forth to fill the earth like that stone, cut without hands, that Daniel saw in his vision (see Dan. 2:34–35).
+I thrill to hear the prophet stand at this pulpit and declare how he sees the work of the Lord rolling forth to fill the earth like that stone, cut without hands, that Daniel saw in his vision (see [[Daniel 2.34|Dan. 2:34–35]][[Daniel 2.35|]]).
 
-This work is driven by the Spirit of the Lord and through the operation of priesthood authority given to man. But it moves forward on the wheels of missionary work by those who have responded to the Lord’s call to “go ye into all the world, and preach the gospel to every creature” (Mark 16:15).
+This work is driven by the Spirit of the Lord and through the operation of priesthood authority given to man. But it moves forward on the wheels of missionary work by those who have responded to the Lord’s call to “go ye into all the world, and preach the gospel to every creature” ([[Mark 16.15|Mark 16:15]]).
 
 The gospel of Jesus Christ with all of its purity, beauty, and simplicity has been restored to the earth in these latter days through the great prophet of this dispensation, Joseph Smith.
 
@@ -17,19 +20,19 @@ But this is not enough. Given the importance of the message, the help offered by
 
 In fact, last year President Hinckley challenged Church members to significantly increase the number of converts. We are not yet on that prophetically prompted track.
 
-This is what prophets do; they help us reach up to new heights. President David O. McKay advised, “Every member a missionary”;1 President Kimball: “Lengthen your stride”2 and “Do it now”;3 President Benson: “Flood ... the earth with the Book of Mormon”;4 and now President Hinckley: Increase the number of converts and retain them. Do we need more specific instructions?
+This is what prophets do; they help us reach up to new heights. President David O. McKay advised, “Every member a missionary”;[^1] President Kimball: “Lengthen your stride”[^2] and “Do it now”;[^3] President Benson: “Flood the earth with the Book of Mormon”;[^4] and now President Hinckley: Increase the number of converts and retain them. Do we need more specific instructions?
 
 Let me review the four-step instructions we have received regarding member-missionary work:
 
-Identify prayerfully your friends and neighbors who would be the most receptive to the gospel message.
+1. Identify prayerfully your friends and neighbors who would be the most receptive to the gospel message.
 
-Introduce the identified individuals to the missionaries.
+2. Introduce the identified individuals to the missionaries.
 
-Involve yourself in the teaching of the gospel, preferably in your home.
+3. Involve yourself in the teaching of the gospel, preferably in your home.
 
-Integrate your friends and any other new members into the Church by being attentive and helpful.
+4. Integrate your friends and any other new members into the Church by being attentive and helpful.
 
-Through this simple, compact process we can increase the number of converts, and, more importantly, we can help the new converts achieve full fellowship. Increased member involvement is the only way to increase our current conversion rate.
+Through this simple, compact process we *can* increase the number of converts, and, more importantly, we can help the new converts achieve full fellowship. Increased member involvement is the only way to increase our current conversion rate.
 
 We have heard all of this many times. Why don’t we do better in providing referrals? It is not laziness, because Latter-day Saints are not lazy people. I believe that the fear of rejection or the fear of hurting a friendship are the more common restraints to sharing the gospel.
 
@@ -60,4 +63,15 @@ If you are retired, or retirement eligible, and wondering what useful things you
 Today, take your spouse by the hand and see if you don’t agree that the best thing for all concerned, including your grandchildren, would be for you to accept an assignment to serve the Lord as missionaries. This is His work, and He beckons us to join Him in it.
 
 I testify that God, our Eternal Father, and His Only Begotten Son, Jesus Christ, live. Christ came to earth and fulfilled His calling as the Redeemer of all mankind. I testify that His gospel has been restored in its fulness and that there is a living prophet, Gordon B. Hinckley, guiding this work under the direction of the Father and of the Son. And I so do, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: In Conference Report, Apr. 1959, 122.
+
+[^2]: In Conference Report, Apr. 1978, 4; or *Ensign,* May 1978, 4.
+
+[^3]: “Always a Convert Church,” *Ensign,* Sept. 1975, 3.
+
+[^4]: In Conference Report, Oct. 1988, 4; or *Ensign,* Nov. 1988, 5.
 

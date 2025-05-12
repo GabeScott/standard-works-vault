@@ -1,7 +1,10 @@
 # Help Them on Their Way Home
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2010 General Conference*
+
+>*We help God’s children best by providing ways to build faith in Jesus Christ and His restored gospel when they are young.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/04/help-them-on-their-way-home?lang=eng)
 
@@ -21,9 +24,9 @@ So you and I can expect a nearly continuous opportunity to help travelers among 
 
 “Enter ye in at the strait gate; for wide is the gate, and broad is the way, which leadeth to destruction, and many there be who go in thereat;
 
-“Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.”
+“Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.”[^1]
 
-Foreseeing the needs of His children, a loving Heavenly Father placed directions and rescuers along their way. He sent His Son, Jesus Christ, to make safe passage possible and visible. He called as His prophet in these times President Thomas S. Monson. Since his youth President Monson has taught not only how to stay on the path but also how to rescue those who have been led away into sorrow.
+Foreseeing the needs of His children, a loving Heavenly Father placed directions and rescuers along their way. He sent His Son, Jesus Christ, to make safe passage possible and visible. He called as His prophet in these times President Thomas S. Monson. Since his youth President Monson has taught not only how to stay on the path but also how to rescue those who have been led away into sorrow.
 
 Heavenly Father has assigned us to a great variety of stations to strengthen and, when needed, to lead travelers to safety. Our most important and powerful assignments are in the family. They are important because the family has the opportunity at the start of a child’s life to put feet firmly on the path home. Parents, brothers and sisters, grandparents, aunts and uncles are made more powerful guides and rescuers by the bonds of love that are the very nature of a family.
 
@@ -51,11 +54,11 @@ The Lord has placed a pattern of rescue and rescuers in His kingdom. In His wisd
 
 You know of two powerful programs provided by the Lord. One, for young women, is called Personal Progress. The other, for Aaronic Priesthood holders, is called Duty to God. We encourage young people in the rising generation to see their own potential to build great spiritual strength. And we plead with those who care about those young people to rise to what the Lord requires of us to help them. And since the future of the Church depends upon them, all of us care.
 
-The two programs have been improved, but their purpose remains unchanged. President Monson put it this way: we must “learn what we should learn, do what we should do, and be what we should be.”
+The two programs have been improved, but their purpose remains unchanged. President Monson put it this way: we must “learn what we should learn, do what we should do, and be what we should be.”[^2]
 
-The Personal Progress booklet for young women makes the purpose clear for them: “The Personal Progress program uses the eight Young Women values to help you understand more fully who you are, why you are here on the earth, and what you should be doing as a daughter of God to prepare for the day you go to the temple to make sacred covenants.”
+The *Personal Progress* booklet for young women makes the purpose clear for them: “The Personal Progress program uses the eight Young Women values to help you understand more fully who you are, why you are here on the earth, and what you should be doing as a daughter of God to prepare for the day you go to the temple to make sacred covenants.”
 
-It goes on to say that young women will “make commitments, carry them out, and report your progress to a parent or leader.” It also promises that “the patterns you establish as you work on Personal Progress—such as prayer, scripture study, service, and journal keeping—will become personal daily habits. These habits will strengthen your testimony and help you learn and improve throughout your life.”
+It goes on to say that young women will “make commitments, carry them out, and report your progress to a parent or leader.” It also promises that “the patterns you establish as you work on Personal Progress—such as prayer, scripture study, service, and journal keeping—will become personal daily habits. These habits will strengthen your testimony and help you learn and improve throughout your life.”[^3]
 
 The Duty to God program for young men in the Aaronic Priesthood has been strengthened and focused. It will be contained in one simple book for all three Aaronic Priesthood offices. The young men and their leaders will receive a copy of this new book. It is a powerful tool. It will strengthen the testimonies of young men and their relationship with God. It will help them learn and want to fulfill their priesthood duties. It will strengthen their relationships with their parents, among quorum members, and with their leaders.
 
@@ -75,7 +78,18 @@ The best counsel for us to give young people is that they can arrive back to Hea
 
 The example they most need from us is to do what they must do. We need to pray for the gifts of the Spirit. We need to ponder in the scriptures and in the words of living prophets. We need to make plans which are not only wishes but covenants. And then we need to keep our promises to the Lord. And we need to lift others by sharing with them the blessings of the Atonement which have come in our lives.
 
-And we need to exemplify in our own lives the steady and prolonged faithfulness that the Lord expects of them. As we do, we will help them feel from the Spirit an assurance that if they will persist, they will hear the words from a loving Savior and Heavenly Father: “Well done, thou good and faithful servant: thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy lord.” And we who help them along the way will hear those words with joy.
+And we need to exemplify in our own lives the steady and prolonged faithfulness that the Lord expects of them. As we do, we will help them feel from the Spirit an assurance that if they will persist, they will hear the words from a loving Savior and Heavenly Father: “Well done, thou good and faithful servant: thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy lord.”[^4] And we who help them along the way will hear those words with joy.
 
-I testify that the Lord loves you and every child of God. This is His kingdom, restored with priesthood keys through the Prophet Joseph Smith. Thomas S. Monson is the Lord’s prophet today. I promise each of you, as you follow inspired direction in this, the true Church of Jesus Christ, that our youth and we who help and love them can be delivered safely to our home with Heavenly Father and the Savior to live in families and in joy forever. In the name of Jesus Christ, amen.
+I testify that the Lord loves you and every child of God. This is His kingdom, restored with priesthood keys through the Prophet Joseph Smith. Thomas S. Monson is the Lord’s prophet today. I promise each of you, as you follow inspired direction in this, the true Church of Jesus Christ, that our youth and we who help and love them can be delivered safely to our home with Heavenly Father and the Savior to live in families and in joy forever. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[3 Nephi 14.13|3 Nephi 14:13–14]][[3 Nephi 14.14|]].
+
+[^2]: Thomas S. Monson, in Conference Report, Oct. 2008, 65; or *Ensign,* Nov. 2008, 67.
+
+[^3]: *Young Women Personal Progress* (booklet, 2009), 6.
+
+[^4]: [[Matthew 25.21|Matthew 25:21]].
 

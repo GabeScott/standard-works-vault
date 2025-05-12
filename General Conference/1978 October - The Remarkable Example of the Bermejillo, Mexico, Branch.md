@@ -1,27 +1,28 @@
 # The Remarkable Example of the Bermejillo, Mexico, Branch
-*By By Bishop Victor L. Brown - Presiding Bishop*
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1978 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1978/10/the-remarkable-example-of-the-bermejillo-mexico-branch?lang=eng)
 
-My brothers and sisters, this morning I would like to share with you a presentation which dramatically illustrates what can happen when Church leaders and members begin to apply the basic principles of welfare services in their lives. This is a factual account of the accomplishments of a small branch of the Church in the village of Bermejillo, near Torreón, Mexico.
+My brothers and sisters, this morning I would like to share with you a presentation which dramatically illustrates what can happen when Church leaders and members begin to apply the basic principles of welfare services in their lives. This is a factual account of the accomplishments of a small branch of the Church in the village of Bermejillo, near Torreón, Mexico.
 
 Come with me to Bermejillo, a typical village in north central Mexico, with dusty streets and adobe buildings.
 
-Eight years ago a small branch of the Church was established here. Church meetings have been held in one room of this rented building [slide shown], which the members call “the prayer house.”
+Eight years ago a small branch of the Church was established here. Church meetings have been held in one room of this rented building \[slide shown\], which the members call “the prayer house.”
 
 A majority of the men in the branch work in the fields on land assigned to them by the government. Their crops consist mainly of cotton, corn, and beans. Their harvest is sent through a small co-op bank, which in return pays them approximately $3.00 to $5.00 a day, hardly enough to take care of only basic needs.
 
-The strength of this small branch rests in the Castañeda family. The mother, her six sons, and one daughter accepted baptism when the gospel was first brought to Bermejillo eight years ago. Since that time, the boys have married and brought their wives into the Church. The family is currently making plans to be sealed in the Arizona Temple.
+The strength of this small branch rests in the Castañeda family. The mother, her six sons, and one daughter accepted baptism when the gospel was first brought to Bermejillo eight years ago. Since that time, the boys have married and brought their wives into the Church. The family is currently making plans to be sealed in the Arizona Temple.
 
-Julian Castañeda has served as branch president for the past five years and has given direction to the temporal and spiritual affairs of this branch.
+Julian Castañeda has served as branch president for the past five years and has given direction to the temporal and spiritual affairs of this branch.
 
 Since 1975, welfare services missionaries have been visiting Bermejillo on a weekly basis. They teach discussions to the leaders and members on such subjects as personal hygiene and nutrition and serve as a resource to the branch president in welfare services–related matters.
 
-In the years following the welfare services missionaries’ arrival, President Castañeda has met frequently with his welfare services committee. Several projects have been undertaken to help members in the areas of personal and family preparedness.
+In the years following the welfare services missionaries’ arrival, President Castañeda has met frequently with his welfare services committee. Several projects have been undertaken to help members in the areas of personal and family preparedness.
 
-A couple serving as welfare services missionaries were asked to assist members in planting family gardens. Seeds were obtained by President Castañeda through community resources and distributed to the members. He took the lead by planting the first garden. Almost all of the members followed his example.
+A couple serving as welfare services missionaries were asked to assist members in planting family gardens. Seeds were obtained by President Castañeda through community resources and distributed to the members. He took the lead by planting the first garden. Almost all of the members followed his example.
 
 It was soon found that in order to raise a garden, provisions had to be made to keep the pigs from running loose. Pens also had to be constructed for the chickens; it seemed that they were able to scratch out the seeds and young plants faster than they could grow.
 
@@ -29,7 +30,7 @@ In addition to the gardens, storage also became a part of the program. Members w
 
 As cleanliness and sanitation were emphasized, the members began building bathrooms adjacent to their homes. Prior to the project, members in Bermejillo had no bathrooms.
 
-In this small building [slide shown], the first flush toilet in Bermejillo was installed with a septic tank dug in the courtyard to contain the waste. A shower was also built. It consisted of a fifty-gallon drum on the roof which was filled with water in the morning, warmed by the sun during the day, and was ready for a warm shower in the evening.
+In this small building \[slide shown\], the first flush toilet in Bermejillo was installed with a septic tank dug in the courtyard to contain the waste. A shower was also built. It consisted of a fifty-gallon drum on the roof which was filled with water in the morning, warmed by the sun during the day, and was ready for a warm shower in the evening.
 
 Gardens and bathrooms became a reality. Dirty, neglected homes with dirt floors and no beds—where cooking was done inside on open fires of twigs and sticks with no stovepipe or chimney—now have cement floors, cooking stoves with proper ventilation or an outside cooking house, clean tables and chairs, and orderly rooms.
 
@@ -69,7 +70,7 @@ The missionaries have found that just by being an example to the children they t
 
 Nonmembers have been influenced by the example of members in Bermejillo, and a number have been taught the gospel.
 
-As the branch grew, the rented facilities became too small for them. So President Castañeda obtained permission for the use of this plot of land [slide shown], upon which to build a chapel. Other branches in the mission had met with extreme difficulty in obtaining such permission, but the village officials in Bermejillo were aware of the accomplishments of the branch and were pleased at the prospect of having a chapel built here.
+As the branch grew, the rented facilities became too small for them. So President Castañeda obtained permission for the use of this plot of land \[slide shown\], upon which to build a chapel. Other branches in the mission had met with extreme difficulty in obtaining such permission, but the village officials in Bermejillo were aware of the accomplishments of the branch and were pleased at the prospect of having a chapel built here.
 
 A small, temporary, adobe chapel has been erected on the property and is now serving while the Saints raise their share of the funds for their new meeting place, which they have been authorized to build.
 
@@ -88,4 +89,7 @@ The principles of love, service, work, self-reliance, consecration, and stewards
 I am persuaded that any ward or stake in the Church can experience the same kind of success as the branch in Bermejillo. It will come as a result of organizing welfare services committees and of teaching and living the basic principles of welfare services. Many wards and stakes have their own resource people to call on, but where local resource people are not available, welfare services missionaries may be called through proper channels to assist Church units in emerging areas where temporal problems are critical.
 
 May each of us catch the vision of welfare services as these Saints have in Bermejillo. By working together we can fully establish the latter-day Zion. That we may do this, I pray in the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # God Will Not Be Mocked
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -23,7 +24,7 @@ We are not satisfied or boastful, but keep in mind constantly what the Savior ha
 
 “If ye continue in my word, then are ye my disciples indeed;
 
-“And ye shall know the truth, and the truth shall make you free.” (John 8:31–32.)
+“And ye shall know the truth, and the truth shall make you free.” ([[John 8.31|John 8:31–32]][[John 8.32|]].)
 
 We must remember the Lord’s great prayer:
 
@@ -31,7 +32,7 @@ We must remember the Lord’s great prayer:
 
 “They are not of the world, even as I am not of the world.
 
-“Sanctify them through thy truth: thy word is truth.” (John 17:15–17.)
+“Sanctify them through thy truth: thy word is truth.” ([[John 17.15|John 17:15–17]][[John 17.16|]][[John 17.17|]].)
 
 Now, brothers and sisters, we have launched a cleanup campaign. We are a throw-away people. Trash piles grow faster than population by far. Now we ask you to clean up your homes and your farms. “Man is the keeper of the land, and not its possessor.”
 
@@ -41,9 +42,9 @@ We have asked leaders of youth groups, auxiliary organizations, and priesthood q
 
 The Lord said:
 
-“The earth is the Lord’s, and the fulness thereof.” (Ps. 24:1.)
+“The earth is the Lord’s, and the fulness thereof.” ([[Psalms 24.1|Ps. 24:1]].)
 
-“And I the Lord God, took the man [Adam], and put him into the Garden of Eden, to dress it, and to keep it.” (Moses 3:15.)
+“And I the Lord God, took the man \[Adam\], and put him into the Garden of Eden, to dress it, and to keep it.” ([[Moses 3.15|Moses 3:15]].)
 
 Therefore, we urge each of you to dress and keep in a beautiful state the property that is in your hands.
 
@@ -53,11 +54,11 @@ We warn you against the so-called polygamy cults which would lead you astray. Re
 
 We urge you to teach your children honor and integrity and honesty. Is it possible that some of our children do not know how sinful it is to steal? It is unbelievable—the extent of vandalism, thievery, robbery, stealing. Protect your family against it by proper teaching.
 
-Brothers and sisters, we teach all of our people to be loyal. “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.” (A of F 1:12.) Be loyal and true.
+Brothers and sisters, we teach all of our people to be loyal. “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.” ([[Articles of Faith 1.12|A of F 1:12]].) Be loyal and true.
 
 Perhaps one of the most distinguishing features of the Church is the fact that its people abstain from liquor, tea, coffee, and tobacco. Of course, there are some who apparently have not the courage nor the testimony to follow this program, but numerous thousands observe it strictly.
 
-One of the many revelations of God through a living prophet was the 89th section of the Doctrine and Covenants, giving what is known as the Word of Wisdom. For 141 years now we have been practicing this great truth embodied in that revelation that we would abstain from wine and strong drinks, that tea and coffee are not for the body, and that we should not use tobacco in any form, that it is good only for bruises and all sick cattle. (See D&C 89:8.)
+One of the many revelations of God through a living prophet was the 89th section of the Doctrine and Covenants, giving what is known as the Word of Wisdom. For 141 years now we have been practicing this great truth embodied in that revelation that we would abstain from wine and strong drinks, that tea and coffee are not for the body, and that we should not use tobacco in any form, that it is good only for bruises and all sick cattle. (See [[D&C 89.8|D&C 89:8]].)
 
 We noted recently of a community in Minnesota which set up a “D-Day” in which, through all their agencies, they persuaded people to give up smoking. In their January 7 “D-Day,” they reported 271 smokers who gave up that habit. We commend such an awake community and its leaders.
 
@@ -85,7 +86,7 @@ Should evil times come, many might wish they had filled all their fruit bottles 
 
 The Lord planned that we would be independent of every creature, but we note even many farmers buy their milk from dairies and home owners buy their garden vegetables from the store. And should the trucks fail to fill the shelves of the stores, many would go hungry.
 
-We believe in work. We remember the fourth of the Ten Commandments says, “Six days shalt thou labour, and do all thy work” (Ex. 20:9), and we are not sure that the rapidly decreasing work week is beneficial to mankind. We think the Lord knew what he was talking about. It would seem that we are play-conscious, travel-conscious, and our economy seems to be providing for the traveling public and the gaming public and the drinking public.
+We believe in work. We remember the fourth of the Ten Commandments says, “Six days shalt thou labour, and do all thy work” ([[Exodus 20.9|Ex. 20:9]]), and we are not sure that the rapidly decreasing work week is beneficial to mankind. We think the Lord knew what he was talking about. It would seem that we are play-conscious, travel-conscious, and our economy seems to be providing for the traveling public and the gaming public and the drinking public.
 
 We are also concerned with the great waste from our homes and stores and restaurants and otherwise. After the usual banquet, enough is carried out in the garbage to feed numerous mouths that have been drooling for a bite to eat in less-favored countries. Many are starving, and we throw away much and waste much.
 
@@ -93,7 +94,7 @@ We have always encouraged the members to own their own homes. We seem to see a d
 
 Food costs are high, we know, but how much better off you are than if your employment were to terminate or incomes be greatly reduced.
 
-When we go to places of entertainment and mingle among people, we are shocked at the blasphemy that seems to be acceptable among them. The commandment says, “Thou shalt not take the name of the Lord thy God in vain.” (Ex. 20:7.) Except in prayers and proper sermons, we must not use the name of the Lord. Blasphemy used to be a crime punishable by heavy fines. Profanity is the effort of a feeble brain to express itself forcibly.
+When we go to places of entertainment and mingle among people, we are shocked at the blasphemy that seems to be acceptable among them. The commandment says, “Thou shalt not take the name of the Lord thy God in vain.” ([[Exodus 20.7|Ex. 20:7]].) Except in prayers and proper sermons, we must not use the name of the Lord. Blasphemy used to be a crime punishable by heavy fines. Profanity is the effort of a feeble brain to express itself forcibly.
 
 We hope that our parents and leaders will not tolerate pornography. It is really garbage, but today is peddled as normal and satisfactory food. Many writers seem to take delight in polluting the atmosphere with it. Seemingly, it cannot be stopped by legislation. There is a link between pornography and the low, sexual drives and perversions. We live in a culture which venerates the orgasm, streaking, trading wives, and similar crazes. How low can humans plunge! We pray with our Lord that we may be kept from being in the world. It is sad that decent people are thrown into a filthy area of mental and spiritual pollution. We call upon all of our people to do all in their power to offset this ugly revolution.
 
@@ -111,19 +112,19 @@ Paul identified it:
 
 “Unto the pure all things are pure: but unto them that are defiled and unbelieving is nothing pure; but even their mind and conscience is defiled.
 
-“They profess that they know God; but in works they deny him, being abominable, and disobedient, and unto every good work reprobate.” (Titus 1:15–16.)
+“They profess that they know God; but in works they deny him, being abominable, and disobedient, and unto every good work reprobate.” ([[Titus 1.15|Titus 1:15–16]][[Titus 1.16|]].)
 
 The home is the teaching situation. Every father should talk to his son, every mother to her daughter. Then it would leave them totally without excuse should they ignore the counsel they have received.
 
 The number of parents who go astray astounds us. The numbers of divorces that were the result, in whole or part, of the infidelity bring us back to our basic theme as quoted in the Doctrine and Covenants:
 
-“Thou shalt not ... commit adultery, ... nor do anything like unto it.” (D&C 59:6.)
+“Thou shalt not … commit adultery, … nor do anything like unto it.” ([[D&C 59.6|D&C 59:6]].)
 
 We say to all: Stay clean in mind and body, and let nothing lead you into the bypaths which will bring ruin and great distress to you. As the Lord said:
 
 “Ye have heard that it was said by them of old time, Thou shalt not commit adultery:
 
-“But I say unto you, That whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart.” (Matt. 5:27–28.)
+“But I say unto you, That whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart.” ([[Matthew 5.27|Matt. 5:27–28]][[Matthew 5.28|]].)
 
 Now the lust of the heart and the lust of the eyes and the lust of the body bring us to the major sin. Let every man remain at home with his affections. Let every woman sustain her husband and keep her heart where it belongs—at home with her family. Let every youth keep himself from the compromising approaches and then with great control save himself from the degrading and life-damaging experience of sexual impurity. There must be an early and total and continuing repentance.
 
@@ -131,7 +132,7 @@ Every form of homosexuality is sin. Pornography is one of the approaches to that
 
 Some people are ignorant or vicious and apparently attempting to destroy the concept of masculinity and femininity. More and more girls dress, groom, and act like men. More and more men dress, groom, and act like women. The high purposes of life are damaged and destroyed by the growing unisex theory. God made man in his own image, male and female made he them. With relatively few accidents of nature, we are born male or female. The Lord knew best. Certainly, men and women who would change their sex status will answer to their Maker.
 
-We hope this is another trumpet call. President J. Reuben Clark, Jr., said: “Our very civilization itself is based upon chastity, the sanctity of marriage, and the holiness of the home. Destroy these and Christian man becomes a brute.” (Conference Report, Oct. 1938, p. 137.)
+We hope this is another trumpet call. President J. Reuben Clark, Jr., said: “Our very civilization itself is based upon chastity, the sanctity of marriage, and the holiness of the home. Destroy these and Christian man becomes a brute.” (*Conference Report,* Oct. 1938, p. 137.)
 
 Beloved brothers and sisters, you are facing a trial of your faith. Will you listen to your leaders?
 
@@ -143,7 +144,7 @@ We say again: We members of the Church marry. All normal people should marry. (T
 
 “Whoso forbiddeth to marry is not ordained of God, for marriage is ordained of God unto man.
 
-“Wherefore, it is lawful that he should have one wife, and they twain shall be one flesh, and all this that the earth might answer the end of its creation.” (D&C 49:15–16.)
+“Wherefore, it is lawful that he should have one wife, and they twain shall be one flesh, and all this that the earth might answer the end of its creation.” ([[D&C 49.15|D&C 49:15–16]][[D&C 49.16|]].)
 
 The earth cannot justify nor continue its life without marriage and the family. Sex without marriage, for all people, young or older, is an abomination to the Lord, and it is most unfortunate that many people have blinded their eyes to these great truths.
 
@@ -151,11 +152,11 @@ We have discoursed many times about these worldly and pernicious things. May we 
 
 Husbands and wives should love and cherish their spouses. They must not break up their homes with divorce, and especially through infidelity and immorality.
 
-A higher and higher percentage of children grow up with only one parent. This is certainly not the way of the Lord. He expected for a father and a mother to rear their children. Certainly any who deprive their children of a parent will have some very stiff questions to answer. The Lord used parents in the plural and said if children were not properly trained “the sin be upon the heads of the parents.” (D&C 68:25.) That makes it a bit hard to justify broken homes. Numerous of the divorces are the result of selfishness. The day of judgment is approaching, and parents who abandon their families will find that excuses and rationalizations will hardly satisfy the Great Judge.
+A higher and higher percentage of children grow up with only one parent. This is certainly not the way of the Lord. He expected for a father and a mother to rear their children. Certainly any who deprive their children of a parent will have some very stiff questions to answer. The Lord used parents in the plural and said if children were not properly trained “the sin be upon the heads of the parents.” ([[D&C 68.25|D&C 68:25]].) That makes it a bit hard to justify broken homes. Numerous of the divorces are the result of selfishness. The day of judgment is approaching, and parents who abandon their families will find that excuses and rationalizations will hardly satisfy the Great Judge.
 
 May we repeat: Sex perversions of men and women can never replenish the earth and are definitely sin without excuse, and rationalizations are very weak; God will not tolerate it.
 
-As to abortions, we deplore the reported million unborn children who will lose their lives in this country this year. Certainly the women who yield to this ugly sin and the sin which often generated it, and those who assist them, should remember that retribution is sure. It is sure.
+As to abortions, we deplore the reported million unborn children who will lose their lives in this country this year. Certainly the women who yield to this ugly sin and the sin which often generated it, and those who assist them, should remember that retribution is *sure.* It is *sure.*
 
 We marry for eternity. We are serious about this. We become parents and bring wanted children into the world and rear and train them to righteousness.
 
@@ -163,11 +164,14 @@ We are aghast at the reports of young people going to surgery to limit their fam
 
 Why do we take our destiny in our own hands? From the building of the first colonial cabin, the home and family have been the center of true civilization. Any distortion of the God-given program will bring dire consequences. The families worked together, played together, and worshiped God together.
 
-Could it be possible that many of us, like a cork in a stream, have been swept off our destiny line by false concepts, perilous ways, and doctrines of devils? By whom are we enticed? Have we accepted the easy way and veered off from the “strait and narrow” way to the easy and comfortable way and the broad way which leads to sorrowful ends? (See Matt. 7:13–14.) We know better than we do. Will you listen? Will you follow the advice and counsel of your leaders, local and general? Or will you choose your own paths though they lead you into the dark wilderness?
+Could it be possible that many of us, like a cork in a stream, have been swept off our destiny line by false concepts, perilous ways, and doctrines of devils? By whom are we enticed? Have we accepted the easy way and veered off from the “strait and narrow” way to the easy and comfortable way and the broad way which leads to sorrowful ends? (See [[Matthew 7.13|Matt. 7:13–14]][[Matthew 7.14|]].) We know better than we do. Will you listen? Will you follow the advice and counsel of your leaders, local and general? Or will you choose your own paths though they lead you into the dark wilderness?
 
 God bless you, our beloved people. Listen to the words of heaven. God is true. He is just. He is a righteous judge, but justice must come before sympathy and forgiveness and mercy.
 
-Remember, God is in his heavens. He knew what he was doing when he organized the earth. He knows what he is doing now. Those of us who break his commandments will regret and suffer in remorse and pain. God will not be mocked. Man has his free agency, it is sure, but remember, GOD WILL NOT BE MOCKED. (See D&C 63:58.)
+Remember, God is in his heavens. He knew what he was doing when he organized the earth. He knows what he is doing now. Those of us who break his commandments will regret and suffer in remorse and pain. God will not be mocked. Man has his free agency, it is sure, but remember, GOD WILL NOT BE MOCKED. (See [[D&C 63.58|D&C 63:58]].)
 
 Our counsel then to you is to live strictly the laws of your Heavenly Father. In the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # Turning Hearts to the Family
-*By By Margaret D. Nadauld - Young Women General President*
+
+By Margaret D. Nadauld - *Young Women General President*
 
 *Given in the April session of the 1998 General Conference*
+
+>*Heavenly Father has a plan for His children and … families are the central part of that plan.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/04/turning-hearts-to-the-family?lang=eng)
 
@@ -17,7 +20,7 @@ Oh, you learn a lot of things in a family, don’t you? And they’re important 
 
 Many of you young women have written and shared with us your family experiences and some of the things you are learning as you have turned your hearts to your families. Twelve-year-old Katie Quinn wrote:
 
-“My mother was expecting a baby. ... She was bedridden much of the time ... and all of a sudden there was a ton of responsibility on my shoulders because I am the oldest. I was also just starting middle school and had loads of homework.
+“My mother was expecting a baby. … She was bedridden much of the time … and all of a sudden there was a ton of responsibility on my shoulders because I am the oldest. I was also just starting middle school and had loads of homework.
 
 “I knew I needed to help a lot, and I even prayed to know what I should do. I felt an answer came when my grandmother, who was staying with us for a few weeks, told me a story about one of my ancestors who at age 11 had driven a covered wagon by himself across the plains to the Salt Lake Valley. His parents had died along the way, and he was left to care for four younger sisters, including a baby, and take them to Zion. This story made me realize that I could be like my great-great-great-grandfather and push forward.
 
@@ -25,7 +28,7 @@ Many of you young women have written and shared with us your family experiences 
 
 “I gathered my younger sisters and brother every morning before school and carried on our family scripture reading, even though my father had left earlier for work and my mother was too sick to lead us.
 
-“My family ... grew closer together because [we] had to help each other. The greatest blessing happened on May 1, 1997, when Hannah Ada Quinn was born” (personal letter in author’s possession).
+“My family … grew closer together because \[we\] had to help each other. The greatest blessing happened on May 1, 1997, when Hannah Ada Quinn was born” (personal letter in author’s possession).
 
 Thank you for the letter, Katie.
 
@@ -45,7 +48,10 @@ Now, let us consider your part in Heavenly Father’s family. You are a remarkab
 
 It is a divine and priceless blessing to be born a woman. Your Heavenly Father blessed you, His daughters, with some very precious qualities in extra capacity—qualities such as sensitivity, spirituality, a loving, nurturing nature. Please take opportunities to develop these divine gifts and then use them to bless others. Be happy. Scatter a little sunshine. You could observe faithful women you admire and then adopt into your own life the qualities that make these women successful, happy daughters of God. He will help you do that because He wants you to be the best you can be.
 
-Because we were sent here to earth to be tested and to prove ourselves, there may be some things in life that won’t turn out exactly as we have planned. That’s the way with earthly life. But remember this: when you work hard and prepare yourself to make contributions and keep covenants you make at baptism and in the temple, you can meet any of the challenges of life with faith and hope and courage! As part of His plan, Heavenly Father provided a Savior who will help us in this life, and He will help us return back home to Him. He said, “This is my work and my glory—to bring to pass the immortality and eternal life of man” (Moses 1:39). He loves you. He wants you to be successful. And He will help you succeed in your life’s mission.
+Because we were sent here to earth to be tested and to prove ourselves, there may be some things in life that won’t turn out exactly as we have planned. That’s the way with earthly life. But remember this: when you work hard and prepare yourself to make contributions and keep covenants you make at baptism and in the temple, you can meet any of the challenges of life with faith and hope and courage! As part of His plan, Heavenly Father provided a Savior who will help us in this life, and He will help us return back home to Him. He said, “This is my work and my glory—to bring to pass the immortality and eternal life of man” ([[Moses 1.39|Moses 1:39]]). He loves you. He wants you to be successful. And He will help you succeed in your life’s mission.
 
 As I began talking to you tonight, I was remembering the family I grew up in. In closing, let me tell you something else I remember about that family. When I was only nine years old, our one-day-old baby brother died. We were so sad and disappointed and crying so hard. And do you know what our father did? He gathered us together, and we knelt in family prayer. He thanked Heavenly Father for this little baby that we’d had such a short time, and then he asked the Lord to bless this little baby, David, who was now in heaven. Daddy asked Heavenly Father to bless our mom, who was very sick. Mother regained her health, and we’ve all tried to live so that we can be reunited as a family with David one day. I always pray for David. He will always be my brother. We are an eternal family because our parents were married in the temple. You can give your children that same gift, the blessing of belonging to an eternal family. It is the most priceless gift you could ever provide for them. Plan to do it. Prepare to do it. Live worthy of it. May He bless you to do so, I pray in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # That We May All Sit Down in Heaven Together
-*By By Kathleen H. Hughes - First Counselor in the Relief Society General Presidency*
+
+By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2005 General Conference*
+
+>*When we become instruments in the hands of God, we are used by Him to do His work.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2005/10/that-we-may-all-sit-down-in-heaven-together?lang=eng)
 
@@ -9,9 +12,9 @@ Sisters, tonight we are gathered in a general Relief Society meeting. You look w
 
 Mortality is the time for each one of us to become that instrument.
 
-I love the message of Sister Lucy Mack Smith, who, frail and failing with age, rose to speak to her sisters in an early Relief Society meeting in Nauvoo. I want you to remember, she is a woman who had been a powerhouse—a great leader. She was very much the kind of woman I see in Relief Society today. But that day she said, “We must cherish one another, watch over one another, comfort one another and gain instruction that we may all sit down in heaven together.”1
+I love the message of Sister Lucy Mack Smith, who, frail and failing with age, rose to speak to her sisters in an early Relief Society meeting in Nauvoo. I want you to remember, she is a woman who had been a powerhouse—a great leader. She was very much the kind of woman I see in Relief Society today. But that day she said, “We must cherish one another, watch over one another, comfort one another and gain instruction that we may all sit down in heaven together.”[^1]
 
-Those words speak of the sisters becoming “instruments in the hands of God.”2 Which one of us does not long to be cherished, watched over, comforted, and instructed in the things of God? How does it happen? One kindness, one expression of love, one thoughtful gesture, one willing hand at a time. But my message is not to those who receive such acts of charity but to all of us who must practice such holiness every day. To become like Jesus Christ, the Prophet Joseph taught, “you must enlarge your souls toward others.”3
+Those words speak of the sisters becoming “instruments in the hands of God.”[^2] Which one of us does not long to be cherished, watched over, comforted, and instructed in the things of God? How does it happen? One kindness, one expression of love, one thoughtful gesture, one willing hand at a time. But my message is not to those who receive such acts of charity but to all of us who must practice such holiness every day. To become like Jesus Christ, the Prophet Joseph taught, “you must enlarge your souls toward others.”[^3]
 
 All of us long to possess Christ’s pure love, called charity, but our humanness—the “natural woman” in us—gets in our way. We get angry, we become frustrated, we berate ourselves and others—and when we do, we cannot be the conduit of love we need to be if we are to become an instrument in Heavenly Father’s hands. Being willing to forgive ourselves and others becomes an integral part of our ability to have the love of the Lord in our lives and to do His work.
 
@@ -27,15 +30,30 @@ When we become instruments in the hands of God, we are used by Him to do His wor
 
 In 1856, Julia and Emily Hill, sisters who had joined the Church as teenagers in England and been disowned by their family, had finally earned passage for their way to America and had almost reached their longed-for Zion. They were crossing the American plains with the Willie handcart company when they and many others were stranded on the trail by an early October storm. Sister Deborah Christensen, a great-granddaughter of Julia Hill, experienced this touching dream about them. She said:
 
-“I could see Julia and Emily stranded in the snow on the windy summit of Rocky Ridge with the rest of the Willie handcart company. They had no heavy clothing to keep them warm. Julia was sitting in the snow, shaking. She could not carry on. Emily, who was freezing as well, knew that if she did not help Julia stand up, Julia would die. As Emily wrapped her arms around her sister to help her up, Julia began to cry—but no tears came, only soft whimpering sounds. Together they walked slowly to their handcart. Thirteen died that terrible night. Julia and Emily survived.”4
+“I could see Julia and Emily stranded in the snow on the windy summit of Rocky Ridge with the rest of the Willie handcart company. They had no heavy clothing to keep them warm. Julia was sitting in the snow, shaking. She could not carry on. Emily, who was freezing as well, knew that if she did not help Julia stand up, Julia would die. As Emily wrapped her arms around her sister to help her up, Julia began to cry—but no tears came, only soft whimpering sounds. Together they walked slowly to their handcart. Thirteen died that terrible night. Julia and Emily survived.”[^4]
 
-Sisters, without each other, these women probably would not have lived. In addition, they helped others survive this devastating portion of the journey, including a young mother and her children. It was Emily Hill Woodmansee who later wrote the beautiful words to the song “As Sisters in Zion.” The verse “We’ll comfort the weary and strengthen the weak”5 takes on new meaning when you imagine her experience on the snow-packed plains.
+Sisters, without each other, these women probably would not have lived. In addition, they helped others survive this devastating portion of the journey, including a young mother and her children. It was Emily Hill Woodmansee who later wrote the beautiful words to the song “As Sisters in Zion.” The verse “We’ll comfort the weary and strengthen the weak”[^5] takes on new meaning when you imagine her experience on the snow-packed plains.
 
 As with the Hill sisters, many of us will not survive our tests in mortality without help from others. And just as true: in helping others we keep our own spirits alive.
 
 Lucy Mack Smith and the sisters of the early Relief Society experienced the pure love of Christ, charity that knows no bounds. They had the truths of the gospel to guide their lives; they had a living prophet; they had a Father in Heaven who listened and answered their prayers. Sisters, so do we. At baptism we took the name of Jesus Christ upon us. We carry that name with us each day, and the Spirit prompts us to live in concert with the Savior’s teachings. As we do, we become instruments in the hands of God. And the Spirit lifts us to higher levels of goodness.
 
-The greatest manifestation of charity is the Atonement of Jesus Christ, granted to us as a gift. Our diligent seeking for this gift requires that we not only are willing to receive it but are willing to share it as well. As we share this love with others, we emerge as “instruments in the hands of God to do this great work.”6 We will be prepared to sit down with our sisters in heaven—together.
+The greatest manifestation of charity is the Atonement of Jesus Christ, granted to us as a gift. Our diligent seeking for this gift requires that we not only are willing to receive it but are willing to share it as well. As we share this love with others, we emerge as “instruments in the hands of God to do this great work.”[^6] We will be prepared to sit down with our sisters in heaven—together.
 
 I bear testimony of the Savior, that He lives and that He loves us. He knows what we can become—in spite of our imperfections now. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Relief Society Minutes, Mar. 24, 1842, Archives of The Church of Jesus Christ of Latter-day Saints, 18–19.
+
+[^2]: [[Alma 26.3|Alma 26:3]].
+
+[^3]: Relief Society Minutes, Apr. 28, 1842, 39.
+
+[^4]: Debbie J. Christensen, “Julia and Emily: Sisters in Zion,” *Ensign,* June 2004, 34.
+
+[^5]: *Hymns,* no. 309.
+
+[^6]: [[Alma 26.3|Alma 26:3]].
 

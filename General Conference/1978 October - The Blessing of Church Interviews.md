@@ -1,5 +1,6 @@
 # The Blessing of Church Interviews
-*By N. Eldon Tanner - First Counselor in the First Presidency*
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -11,7 +12,7 @@ We are all gathered to be directed by the President of the Church, a prophet of 
 
 I think of this vast body of priesthood holders, all engaged in the work of the Lord, trying to promote the cause of truth and righteousness and build the kingdom of God; and we each have an individual responsibility to help do this.
 
-We all know that this is the church of Jesus Christ, and that he directs the work of this church through the prophet of God, even Spencer W. Kimball. I hope we do all know that.
+We all know that this is the church of Jesus Christ, and that he directs the work of this church through the prophet of God, even Spencer W. Kimball. I hope we do all know that.
 
 Think what it means to know that this church is the only church which has the priesthood of God—the Aaronic Priesthood, which is so important that John the Baptist himself was sent to bestow this priesthood upon Joseph and Oliver; and the Melchizedek Priesthood, which was conferred upon Joseph and Oliver by Peter, James, and John by the laying on of hands.
 
@@ -57,7 +58,7 @@ With all this evil present in the world today, it is most important that those w
 
 Let us always remember that our main purpose, assignment, and responsibility is to save souls.
 
-It is important that those we interview realize that they are spirit children of God and that we love them, and let them know that we love them and are interested in their welfare and in helping them succeed in life.
+It is important that those we interview realize that they are *spirit children of God* and that *we love them,* and *let them know that we love them* and are interested in their welfare and in helping them succeed in life.
 
 It is a great responsibility for a bishop or a stake president to conduct a worthiness interview. There is equal responsibility, however, upon the member who is interviewed. Careful, searching interviews need to be conducted always individually and privately.
 
@@ -85,7 +86,7 @@ You bishops and stake presidents might approach an interview for a temple recomm
 
 “You have come to me for a recommend to enter the temple. I have the responsibility of representing the Lord in interviewing you. At the conclusion of the interview there is provision for me to sign your recommend; but mine is not the only important signature on your recommend. Before the recommend is valid, you must sign it yourself.
 
-“When you sign your recommend, you make a commitment to the Lord that you are worthy of the privileges granted to those who hold such a recommend. There are several standard questions that I will ask [because you are instructed to do that]. You are to respond honestly to each one.”
+“When you sign your recommend, you make a commitment to the Lord that you are worthy of the privileges granted to those who hold such a recommend. There are several standard questions that I will ask \[because you are instructed to do that\]. You are to respond honestly to each one.”
 
 An associate of mine mentioned that some years ago, when he held a position in his ward, he went to the bishop for a temple recommend.
 
@@ -95,7 +96,7 @@ This member responded: “Bishop, don’t you have the responsibility to ask tho
 
 And so it is. The Lord gives the privilege to members of the Church to respond to those questions in such interviews. Then if there is something amiss, the member can get his life in order so that he may qualify for the priesthood advancement, for a mission, or for a temple recommend.
 
-Now, after you have put those required questions to the applicant, you may wish to add something like this: “One who goes into the house of the Lord must be free from any unclean, unholy, impure, or unnatural practice.”
+Now, after you have put those required questions to the applicant, you may wish to add something like this: “One who goes into the house of the Lord must be free from any *unclean, unholy, impure, or unnatural practice.*”
 
 Brethren, we who lead the Church are responsible to see that you are taught in plainness. I, therefore, must make reference to a matter that otherwise I would not present in a meeting such as this.
 
@@ -137,5 +138,8 @@ We frequently hear accounts of how bishops and stake presidents, motivated by co
 
 Again I say, what a blessing that we have discernment and revelation and inspiration to guide us in our main purpose, which is to save souls, yes, even our own, and to help prepare our members to understand the purpose of their mission here upon the earth, and to prepare themselves to go back into the presence of our Heavenly Father!
 
-Now, brethren, we are about to hear from our beloved president, Spencer W. Kimball, a prophet of God through whom the Lord himself directs this church. May we all listen, believe, and follow him, I humbly pray in the name of Jesus Christ. Amen.
+Now, brethren, we are about to hear from our beloved president, Spencer W. Kimball, a prophet of God through whom the Lord himself directs this church. May we all listen, believe, and follow him, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

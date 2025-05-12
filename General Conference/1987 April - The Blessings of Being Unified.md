@@ -1,5 +1,6 @@
 # The Blessings of Being Unified
-*By Hugh W. Pinnock - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder Hugh W. Pinnock - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
 
@@ -11,19 +12,19 @@ They are from the teachings of the Master, where he stated:
 
 “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.
 
-“This is the first and great commandment.
+“This is the *first* and great commandment.
 
-“And the second is like unto it, Thou shalt love thy neighbour as thyself” (Matt. 22:37–39; italics added).
+“And the second is like unto it, Thou shalt love thy neighbour as thyself” ([[Matthew 22.37|Matt. 22:37–39]][[Matthew 22.38|]][[Matthew 22.39|]]; italics added).
 
-“The third?” you ask. “If ye love me, keep my commandments” (John 14:15).
+“The third?” you ask. “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]).
 
-And the fourth, “If ye are not one ye are not mine” (D&C 38:27).
+And the fourth, “If ye are not one ye are not mine” ([[D&C 38.27|D&C 38:27]]).
 
 It is the fourth, the concept of unity, of which I would like to speak.
 
 We first might ask, “Are we one with our families? Is there truly peace at home?”
 
-A man in a distant city was struggling to make a living, raise a family and attend to his Church callings. His debts were piling up, there was discontent at home, and his children seemed to be misbehaving increasingly, with everyone going a different direction. Suddenly his job was threatened, and the pressures mounted.
+A man in a distant city was struggling to make a living, raise a family, and attend to his Church callings. His debts were piling up, there was discontent at home, and his children seemed to be misbehaving increasingly, with everyone going a different direction. Suddenly his job was threatened, and the pressures mounted.
 
 About the time when he didn’t know if he could take any more, his teenage daughter, who had been noticing his frustration and pain, said, “Dad, as a family we can do anything. Hey, let’s work together! I have a wonderful job after school, and Bill has found a paper route. Besides, isn’t it about time we started to eat from our food supply in the basement?”
 
@@ -31,7 +32,7 @@ Well, the entire family caught the spirit. They concentrated their efforts. With
 
 Can you see father Lehi gathering his loved ones around him near the end of his life? As a loving patriarch who had been tested and tried, he asked his family to leave their comfortable home and travel to a distant place in a new world. There they encountered dire circumstances, dangers, and contentions. He spoke to his family:
 
-“And now that my soul might have joy in you, and that my heart might leave this world with gladness because of you, that I might not be brought down with grief and sorrow to the grave, arise from the dust, my sons ... and be determined in one mind and in one heart, united in all things, that ye may not come down into captivity” (2 Ne. 1:21).
+“And now that my soul might have joy in you, and that my heart might leave this world with gladness because of you, that I might not be brought down with grief and sorrow to the grave, arise from the dust, my sons, … and be determined in one mind and in one heart, united in all things, that ye may not come down into captivity” ([[2 Nephi 1.21|2 Ne. 1:21]]).
 
 As a loving father, he knew that if they were to flourish they must be one.
 
@@ -77,21 +78,24 @@ He told me that as a young man he had walked those hills but had never seen so m
 
 I went back a few weeks later and saw huge earth-moving equipment going back and forth, almost as if by some predetermined melody, digging a channel. Men and boys worked with shovels; people worked together. A miracle was being performed as a canal was dug twenty-three miles long in a matter of several days. The communities were saved. Yes, some of the farms were injured, but a whole area was now safe. How? Why? Because of the unity of courageous people doing what needed to be done together. No one person could have done it. No small group of men or women could have accomplished the task. But with the unity which that stake president helped to create, we saw the National Guard, construction companies (not knowing if or when they would be paid), and men from near and far loaning their valuable equipment so that a valley could be rescued. It was a latter-day miracle brought about by unity.
 
-I was speaking with a remarkable business leader and teacher of Christianity in New York City a few weeks ago—a man who is actively working with some 220 different Christian denominations. He continued to comment upon the effectiveness of the Latter-day Saint church. He said many wonderful things about our members, about their dedication and the certainty of their beliefs.
+I was speaking with a remarkable business leader and teacher of Christianity in New York City a few weeks ago—a man who is actively working with some 220 different Christian denominations. He continued to comment upon the effectiveness of the Latter-day Saint Church. He said many wonderful things about our members, about their dedication and the certainty of their beliefs.
 
 He reported, “One of the most remarkable characteristics of The Church of Jesus Christ of Latter-day Saints is that you seem to be working together. You are headed in the same direction. As one, you concentrate upon doing that which you believe Jesus wants you to do. You all study the same doctrine. You respond to your leaders. You are unified.”
 
 That was a great lesson! Even though I already realized much of what he said, to hear it from a man who had more contact with other churches than almost anyone added special meaning to the importance of our like-mindedness and the bonds of our harmony.
 
-You see, one of the facets that makes us different is that we strive for compatibility. We sustain our leaders and generally follow their counsel and direction. There are many reasons to be unified, but perhaps the greatest reason is that we have been asked to be one. In the Doctrine and Covenants, the Lord asks us to assemble ourselves together to agree upon his word (see D&C 41:2). Joseph Smith stated, “Unity is power” (History of the Church, 6:198), when speaking about stability in governments. Just so, unity adds power in the Church and in our families.
+You see, one of the facets that makes us different is that we strive for compatibility. We sustain our leaders and generally follow their counsel and direction. There are many reasons to be unified, but perhaps the greatest reason is that we have been asked to be one. In the Doctrine and Covenants, the Lord asks us to assemble ourselves together to agree upon his word (see [[D&C 41.2|D&C 41:2]]). Joseph Smith stated, “Unity is power” (*History of the Church,* 6:198), when speaking about stability in governments. Just so, unity adds power in the Church and in our families.
 
-Let us turn again to the Book of Mormon, where the Savior is preaching to his other sheep. Jesus is praying with those in the Western Hemisphere, “And now Father, I pray unto thee for them, and also for all those who shall believe on their words” (3 Ne. 19:23). He was not only praying for the believers and those that would be missionaries who were gathered there but for those they would be teaching, “that they may believe in me, that I may be in them as thou, Father, art in me, that we may be one” (3 Ne. 19:23; italics added).
+Let us turn again to the Book of Mormon, where the Savior is preaching to his other sheep. Jesus is praying with those in the Western Hemisphere, “And now Father, I pray unto thee for them, and also for all those who shall believe on their words” ([[3 Nephi 19.23|3 Ne. 19:23]]). He was not only praying for the believers and those that would be missionaries who were gathered there but for those they would be teaching, “that they may believe in me, that I may be in *them* as thou, Father, art in me, that we may be one” ([[3 Nephi 19.23|3 Ne. 19:23]]; italics added).
 
-Yes, we can almost see Jesus standing before those ancient Americans as he continues, “Father, I pray not for the world, but for those whom thou hast given me out of the world, because of their faith, that they may be purified in me, that I may be in them as thou, Father, art in me, that we may be one, that I may be glorified in them” (3 Ne. 19:29). It was this same Jesus, as Jehovah of the Old Testament, who inspired these words, “Behold, how good and how pleasant it is for brethren to dwell together in unity!” (Ps. 133:1).
+Yes, we can almost see Jesus standing before those ancient Americans as he continues, “Father, I pray not for the world, but for those whom thou hast given me out of the world, because of their faith, that they may be purified in me, that I may be in them as thou, Father, art in me, that we may be one, that I may be glorified in them” ([[3 Nephi 19.29|3 Ne. 19:29]]). It was this same Jesus, as Jehovah of the Old Testament, who inspired these words, “Behold, how good and how pleasant it is for brethren to dwell together in unity!” ([[Psalms 133.1|Ps. 133:1]]).
 
-How do we glorify Jesus? How do we say thank you for the Atonement? How do we state gratitude for the ordinances and the covenants? How do we express appreciation for his teachings? Of course, we do it by loving God, by loving our neighbor, by living the commandments, and also by being one. We adapt to the Master’s teachings. We place him and others with us into one: “One Lord, one faith, one baptism,” as Paul taught (Eph. 4:5). We accept those called over us as our leaders without creating a fuss. Our leaders know of our loyalty because we do what they call us to do.
+How do we glorify Jesus? How do we say thank you for the Atonement? How do we state gratitude for the ordinances and the covenants? How do we express appreciation for his teachings? Of course, we do it by loving God, by loving our neighbor, by living the commandments, and also by being one. We adapt to the Master’s teachings. We place him and others with us into one: “One Lord, one faith, one baptism,” as Paul taught ([[Ephesians 4.5|Eph. 4:5]]). We accept those called over us as our leaders without creating a fuss. Our leaders know of our loyalty because we do what they call us to do.
 
 May we be one in this great work, brothers and sisters. May we in loving and sensitive ways work with those who are not yet members of the Church so that they will understand. May we also seek out those that have wandered away to help them come back so that they may be one with us. May our children observe this solidarity and a genuine desire to be one that enhances our lives with peace and with power.
 
 With gratitude in my heart, brothers and sisters, for you and for that which we are doing together, I pray that we may each resolve, in this era of social problems and economic difficulty, to follow as one our prophet-leader and others who have been called to direct us. May we avoid the pain and problems that come to families, neighborhoods, and institutions when they are not one, in the name of Jesus Christ, our Redeemer, amen.
+
+
+
 

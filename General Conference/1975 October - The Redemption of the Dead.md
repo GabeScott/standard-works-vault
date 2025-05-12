@@ -1,5 +1,6 @@
 # The Redemption of the Dead
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -7,13 +8,13 @@
 
 I have reason, my brother and sisters, to feel very deeply about the subject that I have chosen for today, and to feel more than the usual need for your sustaining prayers, because of its very sacred nature.
 
-When the Lord was upon the earth He made it very clear that there was one way, and one way only, by which man may be saved. “I am the way, the truth, and the life: no man cometh unto the Father, but by me.” (John 14:6.) To proceed on that way, these two things emerge as being very fixed. First, in His name rests the authority to secure the salvation of mankind. “For there is none other name under heaven given ... whereby we must be saved.” (Acts 4:12.) And next, there is an essential ordinance—baptism—standing as a gate through which every soul must pass to obtain eternal life.
+When the Lord was upon the earth He made it very clear that there was one way, and one way only, by which man may be saved. “I am the way, the truth, and the life: no man cometh unto the Father, but by me.” ([[John 14.6|John 14:6]].) To proceed on that way, these two things emerge as being very fixed. First, in His name rests the authority to secure the salvation of mankind. “For there is none other name under heaven given … whereby we must be saved.” ([[Acts 4.12|Acts 4:12]].) And next, there is an essential ordinance—baptism—standing as a gate through which every soul must pass to obtain eternal life.
 
 The Lord was neither hesitant nor was He apologetic in proclaiming exclusive authority over those processes, all of them in total, by which we may return to the presence of our Heavenly Father. This ideal was clear in the minds of His apostles also, and their preaching provided for one way, and one way only, for men to save themselves.
 
 Over the centuries men saw that many, indeed most, never found that way. This became very hard to explain. Perhaps they thought it to be generous to admit that there are other ways. So they tempered or tampered with the doctrine.
 
-This rigid emphasis on “one Lord and one baptism,” was thought to be too restrictive, and too exclusive, even though the Lord Himself had described it as being narrow, for, “Strait is the gate, and narrow is the way, which leadeth unto life.” (Matt. 7:14.)
+This rigid emphasis on “one Lord and one baptism,” was thought to be too restrictive, and too exclusive, even though the Lord Himself had described it as being narrow, for, “Strait is the gate, and narrow is the way, which leadeth unto life.” ([[Matthew 7.14|Matt. 7:14]].)
 
 Since baptism is essential there must be an urgent concern to carry the message of the gospel of Jesus Christ to every nation, kindred, tongue, and people. That came as a commandment from Him.
 
@@ -47,31 +48,31 @@ Those who admit in puzzled frustration that they have no answer to this cannot l
 
 Since they had no answer concerning the fate of those who had not been baptized, Christians came to believe that baptism itself was not critical in importance, and that the name of Christ may not be all that essential. There must, they supposed, be other names whereby man could be saved.
 
-The answer to that puzzling challenge could not be invented by men, but was revealed. I underline the word revealed. Revelation too is an essential characteristic of His Church. Communication with Him through revelation was established when the Church was established. It has not ceased and it is constant in the Church today.
+The answer to that puzzling challenge could not be invented by men, but was *revealed.* I underline the word *revealed.* Revelation too is an essential characteristic of His Church. Communication with Him through revelation was established when the Church was established. It has not ceased and it is constant in the Church today.
 
 As I address myself to the question of those who died without baptism, I do so with the deepest reverence, for it touches on a sacred work. Little known to the world, we move obediently forward in a work that is so marvelous in its prospects, transcendent above what man might have dreamed of, supernal, inspired, and true. In it lies the answer.
 
 In the earliest days of the Church the Prophet was given direction through revelation that work should commence on the building of a temple, akin to the temples that had been constructed anciently. There was revealed ordinance work to be performed there for the salvation of mankind.
 
-Then another ancient scripture, ignored or overlooked by the Christian world in general, was understood and moved into significant prominence: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” (1 Cor. 15:29.)
+Then another ancient scripture, ignored or overlooked by the Christian world in general, was understood and moved into significant prominence: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
 
 Here then, was the answer. With proper authority an individual could be baptized for and in behalf of someone who had never had the opportunity. That individual would then accept or reject the baptism, according to his own desire.
 
 This work came as a great reaffirmation of something very basic that the Christian world now only partly believes: and that is that there is life after death. Mortal death is no more an ending than birth was a beginning. The great work of redemption goes on beyond the veil as well as here in mortality.
 
-The Lord said, “Verily, verily, I say unto you, The hour is coming, and now is, when the dead shall hear the voice of the Son of God: and they that hear shall live.” (John 5:25.)
+The Lord said, “Verily, verily, I say unto you, The hour is coming, and now is, when the dead shall hear the voice of the Son of God: and they that hear shall live.” ([[John 5.25|John 5:25]].)
 
-On October 3, 1918, President Joseph F. Smith was pondering on the scriptures, including this one from Peter: “For this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.” (1 Pet. 4:6.)
+On October 3, 1918, President Joseph F. Smith was pondering on the scriptures, including this one from Peter: “For this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.” ([[1 Peter 4.6|1 Pet. 4:6]].)
 
 There was opened to him a marvelous vision. In it he saw the concourses of the righteous. And he saw Christ ministering among them. Then he saw those who had not had the opportunity, and those who had not been valiant. And he saw the work for their redemption. And I quote his record of this vision:
 
-“I perceived that the Lord went not in person among the wicked and the disobedient who had rejected the truth, to teach them; but behold, from among the righteous he organized his forces and appointed messengers, clothed with power and authority, and commissioned them to go forth and carry the light of the gospel to them that were in darkness, even to all the spirits of men. And thus was the gospel preached to the dead.” (“Vision of the Redemption of the Dead,” The Utah Genealogical and Historical Magazine, Jan. 1919, p. 3.) [D&C 138:29–30]
+“I perceived that the Lord went not in person among the wicked and the disobedient who had rejected the truth, to teach them; but behold, from among the righteous he organized his forces and appointed messengers, clothed with power and authority, and commissioned them to go forth and carry the light of the gospel to them that were in darkness, even to all the spirits of men. And thus was the gospel preached to the dead.” (“Vision of the Redemption of the Dead,” *The Utah Genealogical and Historical Magazine,* Jan. 1919, p. 3.) \[[[D&C 138.29|D&C 138:29–30]][[D&C 138.30|]]\]
 
 We have been authorized to perform baptisms vicariously so that when they hear the gospel preached and desire to accept it, that essential ordinance will have been performed. They need not ask for any exemption from that essential ordinance. Indeed, the Lord Himself was not exempted from it.
 
 Here and now then, we move to accomplish the work to which we are assigned. We are busily engaged in that kind of baptism. We gather the records of our kindred dead, indeed, the records of the entire human family; and in sacred temples in baptismal fonts designed as those were anciently, we perform these sacred ordinances.
 
-“Strange,” one may say. It is passing strange. It is transcendent and supernal. The very nature of the work testifies that He is our Lord, that baptism is essential, that He taught the truth.
+“Strange,” one may say. It *is* passing strange. It is transcendent and supernal. The very nature of the work testifies that He is our Lord, that baptism is essential, that He taught the truth.
 
 And so the question may be asked, “You mean you are out to provide baptism for all who have ever lived?”
 
@@ -109,11 +110,14 @@ I say that no point of doctrine sets this church apart from the other claimants 
 
 But we have the revelations. We have those sacred ordinances. The revelation that places upon us the obligation for this baptism for the dead is section 128 in the Doctrine and Covenants. And I should like to read in closing two or three of the closing verses of that section.
 
-“Brethren, shall we not go on in so great a cause? Go forward and not backward. Courage, brethren; and on, on to the victory! Let your hearts rejoice, and be exceedingly glad. Let the earth break forth into singing. Let the dead speak forth anthems of eternal praise to the King Immanuel, who hath ordained, before the world was, that which would enable us to redeem them out of their prison; ...
+“Brethren, shall we not go on in so great a cause? Go forward and not backward. Courage, brethren; and on, on to the victory! Let your hearts rejoice, and be exceedingly glad. Let the earth break forth into singing. Let the dead speak forth anthems of eternal praise to the King Immanuel, who hath ordained, before the world was, that which would enable us to redeem them out of their prison; …
 
-“Let the mountains shout for joy, and all ye valleys cry aloud; and all ye seas and dry lands tell the wonders of your Eternal King! And ye rivers, and brooks, and rills, flow down with gladness. Let the woods and all the trees of the field praise the Lord; and ye solid rocks weep for joy! ...
+“Let the mountains shout for joy, and all ye valleys cry aloud; and all ye seas and dry lands tell the wonders of your Eternal King! And ye rivers, and brooks, and rills, flow down with gladness. Let the woods and all the trees of the field praise the Lord; and ye solid rocks weep for joy! …
 
-“Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in his holy temple ... a book containing the records of our dead, which shall be worthy of all acceptation.” (D&C 128:22–24.)
+“Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in his holy temple … a book containing the records of our dead, which shall be worthy of all acceptation.” ([[D&C 128.22|D&C 128:22–24]][[D&C 128.23|]][[D&C 128.24|]].)
 
 I bear witness that this work is true, that God lives, that Jesus is the Christ, that there is on this earth today a prophet of God to lead modern Israel in this great obligation. I know that the Lord lives and that He broods anxiously over the work for the redemption of the dead, in the name of Jesus Christ. Amen.
+
+
+
 

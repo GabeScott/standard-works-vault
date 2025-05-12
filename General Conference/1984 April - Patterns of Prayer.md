@@ -1,5 +1,6 @@
 # Patterns of Prayer
-*By Bruce R. McConkie - Of the Quorum of the Twelve Apostles*
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
 
@@ -11,7 +12,7 @@ I am quite overwhelmed by deep feelings of thanksgiving and rejoicing for the go
 
 He has permitted me to suffer pain, feel anxiety, and taste his healing power. I am profoundly grateful for the faith and prayers of many people, for heartfelt petitions that have ascended to the throne of grace on my behalf.
 
-It is pleasing to that God whose we are when we fast and pray and seek his blessings; when we plead with all the energy of our souls for those things we so much desire; when, as Paul says, we “come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need.” (Heb. 4:16.)
+It is pleasing to that God whose we are when we fast and pray and seek his blessings; when we plead with all the energy of our souls for those things we so much desire; when, as Paul says, we “come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need.” ([[Hebrews 4.16|Heb. 4:16]].)
 
 Prayer is the way and means, given us by our Creator, whereby we can counsel and communicate with him. It is one of the chief cornerstones of pure and perfect worship.
 
@@ -33,7 +34,7 @@ Father, we ask thee, in the name of Jesus Christ, to hear the words of our mouth
 
 We feel it is a great privilege to come into thy presence, to bow before thy throne, to address thee as Father; and we know thou wilt hear our cries. May we speak by the power of thy Holy Ghost.
 
-Then, in thanking the Lord for the blessings of mortal life, and the hope of immortality and eternal life, we might properly say such things as:
+*Then, in thanking the Lord for the blessings of mortal life, and the hope of immortality and eternal life, we might properly say such things as:*
 
 Father, we thank thee for life itself, for this mortal probation in which we as pilgrims, far from our heavenly home, are gaining experiences that could be gained in no other way.
 
@@ -47,7 +48,7 @@ We thank thee, O our Father, that thou gavest thine Only Begotten Son so that we
 
 O how we love the Lord Jesus, who is called Christ and who is the Holy Messiah; who also is our Lord, our God, and our King, whom we worship in the full majesty of his godhood; and in whose blood we shall yet wash our garments, so as to stand spotless before him and thee in that great day!
 
-With reference to the restoration of the glorious gospel in our day, prayers might include expressions along these lines:
+*With reference to the restoration of the glorious gospel in our day, prayers might include expressions along these lines:*
 
 And now, O thou God of our Fathers, we are grateful and rejoice in what thou hast done for us in our day.
 
@@ -59,7 +60,7 @@ We marvel that thou didst send Moroni to reveal the Book of Mormon; Moses to emp
 
 How grateful we are that Elias brought back the gospel of Abraham, so that we, as children of the covenant, might have a continuation of the family unit in eternity!
 
-Of our reconciliation with the Father, through the atonement of his Son, it would be proper to say such things as:
+*Of our reconciliation with the Father, through the atonement of his Son, it would be proper to say such things as:*
 
 Father, thou hast given us the word of reconciliation and hast poured out revelations and visions upon us. We are thy people, and we desire to be worthy of the calling and election that is ours.
 
@@ -69,7 +70,7 @@ For all these things we are grateful beyond any measure of expression, and becau
 
 We confess our sins before thee and seek remission thereof, lest anything stand between us and thee in receiving a free flow of thy Spirit.
 
-With reference to building up the kingdom of God on earth, our needs might be expressed somewhat along this line:
+*With reference to building up the kingdom of God on earth, our needs might be expressed somewhat along this line:*
 
 Wilt thou bless thy Church and kingdom on earth. May we be effective instruments in thy hands to build anew the Zion of old, even the New Jerusalem that is to be.
 
@@ -81,7 +82,7 @@ Let us fulfill our divine commission to prepare a people for the coming of thy S
 
 O have mercy on us; bear with us in our weakness, for our trust is in thee. Thou art our God, and there is none other like unto thee; and it is unto thee we turn in worship and adoration and thanksgiving.
 
-As to our own temporal needs, I would feel no hesitancy in saying such things as:
+*As to our own temporal needs, I would feel no hesitancy in saying such things as:*
 
 We cry unto thee over our flocks and our herds, over the fruits of our fields and the increase of our vines and trees. Wilt thou temper the elements and preserve us from disasters, that our basket and store may be full.
 
@@ -89,7 +90,7 @@ We need food, clothing, and shelter; we need schooling and proper employment; we
 
 Grant us according to our needs, giving us neither poverty nor riches, but feeding us with food convenient for us.
 
-As to the personal blessings that prepare us for salvation, our thoughts might be couched in expressions along this line:
+*As to the personal blessings that prepare us for salvation, our thoughts might be couched in expressions along this line:*
 
 Bless us in our families that husbands and wives may love each other and cleave unto each other; that parents may bring up their children in light and truth; that children, thus brought up in the nurture and admonition of the Lord, may honor their fathers and their mothers by living as their righteous ancestors lived.
 
@@ -107,7 +108,7 @@ O Father, we rejoice in the gifts of the Spirit and seek them in greater abundan
 
 Let us know the wonders of eternity, even those things which eye has not seen, nor ear heard, nor have yet entered into the heart of man.
 
-And then by way of capstone, covenant, and petition, it would be appropriate for us to choose words that express these thoughts:
+*And then by way of capstone, covenant, and petition, it would be appropriate for us to choose words that express these thoughts:*
 
 And finally, Father, we would be one with thy Son, even as he is one with thee. We seek salvation; we desire eternal life; we long to return to thy presence, and there, sitting down with Abraham, Isaac, and Jacob, and all the prophets and holy men of old, go no more out forever.
 
@@ -122,4 +123,7 @@ Language along these lines sets forth feelings and desires that well might be ex
 It is my faith that all who join in such choruses of praise and petition, of adoration and thanksgiving, and who strive to live as they pray, will gain peace in this life and eternal life in the world to come.
 
 And such is my prayer for myself and my family and for all Israel. In the name of the Lord Jesus Christ, amen.
+
+
+
 

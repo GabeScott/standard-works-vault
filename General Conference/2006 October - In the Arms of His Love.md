@@ -1,11 +1,14 @@
 # In the Arms of His Love
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2006 General Conference*
 
+>*This is the greatest women’s organization in all the world. It is a God-given creation.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/10/in-the-arms-of-his-love?lang=eng)
 
-My dear sisters, what a tremendous opportunity is afforded me in speaking to you in this great Relief Society conference. We have listened tonight to wonderful discourses given by women of great faith and ability. I wish the presidency of the Relief Society to know that we have complete confidence in them. We appreciate them in every way. We are grateful for the theme they have chosen from the Book of Mormon, from 2 Nephi—“Encircled Eternally in the Arms of His Love” (see 2 Nephi 1:15). The women of the Relief Society are literally encircled eternally in the arms of our Lord.
+My dear sisters, what a tremendous opportunity is afforded me in speaking to you in this great Relief Society conference. We have listened tonight to wonderful discourses given by women of great faith and ability. I wish the presidency of the Relief Society to know that we have complete confidence in them. We appreciate them in every way. We are grateful for the theme they have chosen from the Book of Mormon, from 2 Nephi—“Encircled Eternally in the Arms of His Love” (see [[2 Nephi 1.15|2 Nephi 1:15]]). The women of the Relief Society are literally encircled eternally in the arms of our Lord.
 
 In my judgment, this is the greatest women’s organization in all the world. It is a God-given creation. Joseph Smith spoke and acted as a prophet when he organized the Relief Society in 1842. At that time he said, “The organization of the Church of Christ was never perfect until the women were organized” (Sarah M. Kimball, “Early Relief Society Reminiscences,” Mar. 17, 1882, Relief Society Record, 1880–92, Archives of The Church of Jesus Christ of Latter-day Saints, 30).
 
@@ -21,13 +24,13 @@ Relief Society stands for education. It is the obligation of every woman of this
 
 Last week I received a letter from a single mother, a part of which I wish to read to you. She says as follows:
 
-“It has been 10 years since you mentioned our family in October conference in 1996. ... The words of counsel and encouragement that you gave to me and other single sisters have been a pattern used in my daily life. The phrase that has become my motto and watchword [is] ‘Do the very best you can,’ and that is indeed what my sons and I are trying to do.
+“It has been 10 years since you mentioned our family in October conference in 1996. … The words of counsel and encouragement that you gave to me and other single sisters have been a pattern used in my daily life. The phrase that has become my motto and watchword \[is\] ‘Do the very best you can,’ and that is indeed what my sons and I are trying to do.
 
-“All four of my sons graduated from high school and seminary. Two of them served full-time missions. We are all working to provide for ourselves and continue to be true and faithful in the gospel. It is a great feeling to know that we have made it on our own for the past several years. ... There is a certain feeling of accomplishment when you can once again stand on your own two feet and provide for your family’s needs. ...
+“All four of my sons graduated from high school and seminary. Two of them served full-time missions. We are all working to provide for ourselves and continue to be true and faithful in the gospel. It is a great feeling to know that we have made it on our own for the past several years. … There is a certain feeling of accomplishment when you can once again stand on your own two feet and provide for your family’s needs. …
 
-“I was encouraged to go back to college. ... It is a real challenge to work full-time and attend classes at night. It has broadened my perspective on life and helped me to be a better person. My family, ward members, and co-workers have been very supportive. I will graduate this December.
+“I was encouraged to go back to college. … It is a real challenge to work full-time and attend classes at night. It has broadened my perspective on life and helped me to be a better person. My family, ward members, and co-workers have been very supportive. I will graduate this December.
 
-“As I pondered my patriarchal blessing and made it a matter of fasting and prayer, I was able to set some realistic goals in my life that have been used as a road map to keep me on track with the principles of the gospel. I attend my meetings, pray daily, and pay my tithing. I ... take my calling as a visiting teacher very seriously. ...
+“As I pondered my patriarchal blessing and made it a matter of fasting and prayer, I was able to set some realistic goals in my life that have been used as a road map to keep me on track with the principles of the gospel. I attend my meetings, pray daily, and pay my tithing. I … take my calling as a visiting teacher very seriously. …
 
 “The Church is true, and it is an honor and a privilege to be counted as a worthy and blessed member of The Church of Jesus Christ of Latter-day Saints. We are led by inspiration from a loving Heavenly Father, who knows us and wants us to progress and grow. I thank you for your kind words of encouragement 10 years ago, and for the many continuing words of inspiration that come from the Lord through His servants. I know I am a child of God and my life is blessed by my membership in His Church.”
 
@@ -35,21 +38,17 @@ Relief Society stands for self-reliance. The best food storage is not in welfare
 
 Relief Society means sacrifice. I am always moved by this simple verse of Anne Campbell, written in behalf of her child. Said she:
 
-You are the trip I did not take;
-
-You are the pearls I cannot buy;
-
-You are my blue Italian lake;
-
-You are my piece of foreign sky.
-
-(“To My Child,” quoted in Charles L. Wallis, ed., The Treasure Chest [1965], 54)
+>You are the trip I did not take;
+>You are the pearls I cannot buy;
+>You are my blue Italian lake;
+>You are my piece of foreign sky.
+>
 
 Many of you are mothers. You are responsible for the nurture and upbringing of your children. When you grow old and your hair turns white, you will not ask about the fancy clothes you once wore, the cars you drove, or the large house in which you lived. Your burning question will be, “How have my children turned out?”
 
 If they have turned out well, you will be grateful. If otherwise, there will be only small consolation for you.
 
-I have written elsewhere: “God bless you, mothers. When all the victories and defeats of men’s efforts are tallied, when the dust of life’s battles begins to settle, when all for which we labor so hard in this world of conquest fades before our eyes, you will be there, you must be there, as the strength for a new generation, the ever-improving onward movement of the race” (One Bright, Shining Hope [2006], 18).
+I have written elsewhere: “God bless you, mothers. When all the victories and defeats of men’s efforts are tallied, when the dust of life’s battles begins to settle, when all for which we labor so hard in this world of conquest fades before our eyes, you will be there, you must be there, as the strength for a new generation, the ever-improving onward movement of the race” (*One Bright, Shining Hope* \[2006\], 18).
 
 Some years ago in the Salt Lake Tabernacle, Elder Marion D. Hanks conducted a panel discussion. Included in that panel was an attractive and able young woman, divorced, the mother of seven children then ranging in ages from 7 to 16. She said that one evening she went across the street to deliver something to a neighbor. Listen to her words, as I recall them:
 
@@ -89,7 +88,7 @@ I received just the other day a letter from a dear friend. Her name is Helen, an
 
 “Today Charlie and I spoke at our sacrament meeting. In my talk I related the advice you gave me when I graduated from Idaho Falls High School and had made plans to attend Ricks College. You told me that I should attend the Church College of Hawaii, where I would have a better chance to meet and marry a young man of Chinese ancestry.
 
-“I took your advice and went to CCH, where I met Charlie and married him. We have been married 37 years and have five children. All of our five children have served missions. ... Three of our children married in the Hawaiian temple. We have two single children, and we hope they will find worthy individuals to take to the temple soon. We have six adorable grandchildren and two more on the way.
+“I took your advice and went to CCH, where I met Charlie and married him. We have been married 37 years and have five children. All of our five children have served missions. … Three of our children married in the Hawaiian temple. We have two single children, and we hope they will find worthy individuals to take to the temple soon. We have six adorable grandchildren and two more on the way.
 
 “I have been blessed to have a faithful husband who honors his priesthood and has been worthy to serve the Lord as bishop, stake president, and mission president. It has been my privilege to support him in all his Church assignments. I have served as stake Relief Society president for almost five years.
 
@@ -100,4 +99,7 @@ This is what the Relief Society does for women. It gives them opportunity for gr
 What a glorious organization Relief Society is. There is nothing to compare with it in all the world.
 
 May the Lord bless each of you with these marvelous qualities that come of activity in the great Relief Society organization. For this I humbly pray, in the sacred name of Jesus Christ, amen.
+
+
+
 

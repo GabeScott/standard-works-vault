@@ -1,7 +1,10 @@
 # Faith, Service, Constancy
-*By David S. Baxter - Of the Seventy*
+
+By Elder David S. Baxter - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
+
+>*As we cultivate our faith, grow through service, and stay constant and true come what may, so we feel the Savior’s love.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/10/faith-service-constancy?lang=eng)
 
@@ -17,13 +20,13 @@ As faith flows, we become sensitively attuned to the whisperings of the Spirit. 
 
 Faith fuels hope. Our perspective changes; our vision becomes clearer. We begin to look for the best, not the worst, in life and in others. We gain a deeper sense of life’s purpose and meaning. Despair gives way to joy.
 
-Faith such as this is a heavenly gift, but it can be sought and cultivated. As our Bible Dictionary suggests, often “faith is kindled by hearing the testimony of those who have faith.” Faith is then nurtured as we allow ourselves to believe. Like all other virtues, faith is strengthened as we practice it, as we live and act as if our faith were already deep. Faith is the product of righteous desire, belief, and obedience.
+Faith such as this is a heavenly gift, but it can be sought and cultivated. As our Bible Dictionary suggests, often “faith is kindled by hearing the testimony of those who have faith.”[^1] Faith is then nurtured as we allow ourselves to believe. Like all other virtues, faith is strengthened as we practice it, as we live and act as if our faith were already deep. Faith is the product of righteous desire, belief, and obedience.
 
-Thus the Book of Mormon example of the father of King Lamoni, who heard the testimony of Aaron and was willing to believe and to act so that he was led to say in humble prayer, “If there is a God, and if thou art God, wilt thou make thyself known unto me, and I will give away all my sins to know thee.”
+Thus the Book of Mormon example of the father of King Lamoni, who heard the testimony of Aaron and was willing to believe and to act so that he was led to say in humble prayer, “If there is a God, and if thou art God, wilt thou make thyself known unto me, and I will give away all my sins to know thee.”[^2]
 
 So it can be for us as we allow ourselves to be touched by the spirit of testimony, as we exercise belief, as we desire, ponder, seek—as we cultivate our faith.
 
-Second, as we serve we grow. President George Albert Smith taught, “It is not what we receive that enriches our lives, it is what we give.”
+Second, as we serve we grow. President George Albert Smith taught, “It is not what we receive that enriches our lives, it is what we give.”[^3]
 
 Selfless service is a wonderful antidote to the ills that flow from the worldwide epidemic of self-indulgence. Some grow bitter or anxious when it seems that not enough attention is being paid to them, when their lives would be so enriched if only they paid more attention to the needs of others.
 
@@ -43,33 +46,44 @@ The Savior’s parable of the wise man who built his house upon a rock has power
 
 In his description of a pilgrim’s, or disciple’s, progress, John Bunyan wrote:
 
-Who would true valour see,
+>Who would true valour see,
+>Let him come hither!
+>One here will constant be,
+>Come wind, come weather;
+>There’s no discouragement
+>Shall make him once relent
+>His first avowed intent
+>To be a pilgrim.[^4]
+>
 
-Let him come hither!
-
-One here will constant be,
-
-Come wind, come weather;
-
-There’s no discouragement
-
-Shall make him once relent
-
-His first avowed intent
-
-To be a pilgrim.
-
-The Apostle Paul urged the Colossians to “continue in the faith grounded and settled, and be not moved away from the hope of the gospel, which ye have heard.”
+The Apostle Paul urged the Colossians to “continue in the faith grounded and settled, and be not moved away from the hope of the gospel, which ye have heard.”[^5]
 
 To the people of Corinth came this powerful testimony:
 
 “We are troubled on every side, yet not distressed; we are perplexed, but not in despair;
 
-“Persecuted, but not forsaken; cast down, but not destroyed.”
+“Persecuted, but not forsaken; cast down, but not destroyed.”[^6]
 
-What made such a perspective possible? Paul gave the reason: “For God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ.”
+What made such a perspective possible? Paul gave the reason: “For God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ.”[^7]
 
 It is my witness that as we cultivate our faith, grow through service, and stay constant and true come what may, so we feel the Savior’s love. We place ourselves in the position where we can access the breadth and depth of the blessings of the Atonement. Our membership is transformed into discipleship. We are strengthened, cleansed, refreshed, spiritually and emotionally healed.
 
 Of this I testify in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Bible Dictionary, “Faith,” 669.
+
+[^2]: [[Alma 22.18|Alma 22:18]].
+
+[^3]: In Conference Report, Apr. 1935, 46.
+
+[^4]: *The Pilgrim’s Progress* (1997), 295.
+
+[^5]: [[Colossians 1.23|Colossians 1:23]].
+
+[^6]: [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
+
+[^7]: [[2 Corinthians 4.6|2 Corinthians 4:6]].
 

@@ -1,19 +1,20 @@
 # The Resurrected Christ
-*By David B. Haight - Of the Quorum of the Twelve Apostles*
+
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1985/04/the-resurrected-christ?lang=eng)
 
-On this glorious Easter morning, I rejoice with you and untold millions of people throughout the world whose hearts are turned to Jesus of Nazareth. To the Samaritan woman at Jacob’s Well who said, “I know that Messias cometh ... : when he is come, he will tell us all things” came Christ’s declaration, “I that speak unto thee am he.” (John 4:25–26.)
+On this glorious Easter morning, I rejoice with you and untold millions of people throughout the world whose hearts are turned to Jesus of Nazareth. To the Samaritan woman at Jacob’s Well who said, “I know that Messias cometh … : when he is come, he will tell us all things” came Christ’s declaration, “I that speak unto thee am he.” ([[John 4.25|John 4:25–26]][[John 4.26|]].)
 
 Many of the heavenly directed events leading up to and following the crucifixion of our Lord have been narrated by the early Apostles and other witnesses.
 
 According to these accounts, Joseph, a rich man from the village of Arimathaea and one of the Sanhedrin, did not openly declare his belief in Jesus, as he feared the Jewish authorities. But now sorrow, as well as indignation, aroused his courage. He asked Pilate if he could take away Jesus’ body. Pilate gave permission.
 
-Nicodemus—a noble disciple who had visited Jesus at night lest someone might see them together—assisted Joseph. They wrapped Jesus’ body in fine linen, together with spices, according to the Jewish custom of preparing a body for burial. They laid the body reverently in the rocky niche of a tomb in a garden that belonged to Joseph. The tomb had never been used. It was the day before the Jewish Sabbath. (See John 19:38–42.)
+Nicodemus—a noble disciple who had visited Jesus at night lest someone might see them together—assisted Joseph. They wrapped Jesus’ body in fine linen, together with spices, according to the Jewish custom of preparing a body for burial. They laid the body reverently in the rocky niche of a tomb in a garden that belonged to Joseph. The tomb had never been used. It was the day before the Jewish Sabbath. (See [[John 19.38|John 19:38–42]][[John 19.39|]][[John 19.40|]][[John 19.41|]][[John 19.42|]].)
 
-The next day Pilate gave permission for the tomb to be carefully guarded until the third day, so the disciples could not steal the body and then tell the people that Jesus had risen from the dead, as had been prophesied. The chief priests and Pharisees made the tomb secure, sealing the stone and leaving a guard on watch. (See Matt. 27:62–66.)
+The next day Pilate gave permission for the tomb to be carefully guarded until the third day, so the disciples could not steal the body and then tell the people that Jesus had risen from the dead, as had been prophesied. The chief priests and Pharisees made the tomb secure, sealing the stone and leaving a guard on watch. (See [[Matthew 27.62|Matt. 27:62–66]][[Matthew 27.63|]][[Matthew 27.64|]][[Matthew 27.65|]][[Matthew 27.66|]].)
 
 Before daylight the next morning, Mary Magdalene and Mary the mother of James, having prepared fresh spices and ointments, went to the tomb of Jesus and found that the stone had been rolled away. Looking in and not finding the body, they hurried to find Peter and the Apostles and told them what they had found. Peter and John hastened at once to the tomb. John outran his older companion. Stooping down, he gazed in silent wonder into the empty tomb. Entering, Peter saw the burial clothes lying where the body of Jesus once lay. And then John followed him. And in spite of fear, there dawned upon them the hope, which later would become an absolute knowledge, that Christ had indeed risen, but as yet no one had seen him. The two wondering Apostles returned to their brethren.
 
@@ -21,11 +22,11 @@ Mary stayed at the tomb and was grieving at the entrance when someone approached
 
 Jesus himself was standing before her, but he did not appear as she had known him; he was now risen and glorified. She then recognized our Lord and must have attempted to embrace him, for he said, “Touch me not; for I am not yet ascended to my Father: but go to my brethren, and say unto them, I ascend unto my Father, and your Father; and to my God, and your God.”
 
-Filled with amazement, she hastened to obey and repeated that glorious message which would give hope through all future ages and to which she added her personal declaration that she had seen the Lord. (See John 20:1–18.)
+Filled with amazement, she hastened to obey and repeated that glorious message which would give hope through all future ages and to which she added her personal declaration that she had seen the Lord. (See [[John 20.1|John 20:1–18]][[John 20.2|]][[John 20.3|]][[John 20.4|]][[John 20.5|]][[John 20.6|]][[John 20.7|]][[John 20.8|]][[John 20.9|]][[John 20.10|]][[John 20.11|]][[John 20.12|]][[John 20.13|]][[John 20.14|]][[John 20.15|]][[John 20.16|]][[John 20.17|]][[John 20.18|]].)
 
-Later, women carrying spices for the final preparation of the body for burial looked in the tomb and witnessed angels, who said, “Ye seek Jesus of Nazareth, which was crucified. Why seek ye the living among the dead? He is not here, but is risen.” (Mark 16:6; Luke 24:6.)
+Later, women carrying spices for the final preparation of the body for burial looked in the tomb and witnessed angels, who said, “Ye seek Jesus of Nazareth, which was crucified. Why seek ye the living among the dead? He is not here, but is risen.” ([[Mark 16.6|Mark 16:6]]; [[Luke 24.6|Luke 24:6]].)
 
-The angels told the women to go and notify the disciples, but the men believed them not. (See Mark 16:7; Luke 24:9–11.)
+The angels told the women to go and notify the disciples, but the men believed them not. (See [[Mark 16.7|Mark 16:7]]; [[Luke 24.9|Luke 24:9–11]][[Luke 24.10|]][[Luke 24.11|]].)
 
 The Gospel according to Luke relates that on that same day two of Jesus’ followers were on their way to a village called Emmaus, about eight miles from Jerusalem, and they were discussing with sad and anxious hearts the things that had happened in the past two days.
 
@@ -51,7 +52,7 @@ So he stayed with them. As he ate the simple meal with them, he took the bread a
 
 They said in amazement to each other, “Did not our hearts burn within us when he talked to us on the road and explained the scriptures to us?”
 
-They hurried back to Jerusalem, where they found ten of the Apostles and other disciples gathered together, with the doors closed for fear of the Jews. (See John 20:19.) They declared, “The Lord is risen indeed, and hath appeared to Simon.”
+They hurried back to Jerusalem, where they found ten of the Apostles and other disciples gathered together, with the doors closed for fear of the Jews. (See [[John 20.19|John 20:19]].) They declared, “The Lord is risen indeed, and hath appeared to Simon.”
 
 The two men then explained what had happened on the road and how they had recognized the Lord when he broke the bread.
 
@@ -61,11 +62,11 @@ They were terrified and supposed that they were seeing a spirit, but he said to 
 
 “Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have.”
 
-He showed them his hands and his feet. They still could not believe as they were so full of joy and wonderment, so he asked them, “Have ye here any meat? And they gave him a piece of a broiled fish, and ... honeycomb. And he took it, and did eat before them.”
+He showed them his hands and his feet. They still could not believe as they were so full of joy and wonderment, so he asked them, “Have ye here any meat? And they gave him a piece of a broiled fish, and … honeycomb. And he took it, and did eat before them.”
 
 Then he said to them, “These are the words which I spake unto you, while I was yet with you, that all things must be fulfilled, which were written in the law of Moses, and in the prophets, and in the psalms, concerning me.”
 
-Then he opened their minds to understand the scriptures and said to them, “Thus it is written, and thus it behoved Christ to suffer, and to rise from the dead the third day: And that repentance and remission of sins should be preached in his name among all nations, beginning at Jerusalem.” And then he reminded them, “Ye are witnesses of these things.” (See Luke 24:13–48.)
+Then he opened their minds to understand the scriptures and said to them, “Thus it is written, and thus it behoved Christ to suffer, and to rise from the dead the third day: And that repentance and remission of sins should be preached in his name among all nations, beginning at Jerusalem.” And then he reminded them, “Ye are witnesses of these things.” (See [[Luke 24.13|Luke 24:13–48]][[Luke 24.14|]][[Luke 24.15|]][[Luke 24.16|]][[Luke 24.17|]][[Luke 24.18|]][[Luke 24.19|]][[Luke 24.20|]][[Luke 24.21|]][[Luke 24.22|]][[Luke 24.23|]][[Luke 24.24|]][[Luke 24.25|]][[Luke 24.26|]][[Luke 24.27|]][[Luke 24.28|]][[Luke 24.29|]][[Luke 24.30|]][[Luke 24.31|]][[Luke 24.32|]][[Luke 24.33|]][[Luke 24.34|]][[Luke 24.35|]][[Luke 24.36|]][[Luke 24.37|]][[Luke 24.38|]][[Luke 24.39|]][[Luke 24.40|]][[Luke 24.41|]][[Luke 24.42|]][[Luke 24.43|]][[Luke 24.44|]][[Luke 24.45|]][[Luke 24.46|]][[Luke 24.47|]][[Luke 24.48|]].)
 
 One of the Twelve, named Thomas, was not with them when Jesus came, so the other disciples told him, “We have seen the Lord.” Thomas said to them, “Except I shall see in his hands the print of the nails, and put my finger into the print of the nails, and thrust my hand into his side, I will not believe.”
 
@@ -75,29 +76,32 @@ I have often pictured in my own mind the skeptical Thomas’ depth of remorse th
 
 Thomas’ only answer unto him was, “My Lord and my God.”
 
-And Jesus said unto him, “Thomas, because thou hast seen me, thou hast believed: blessed are they that have not seen, and yet have believed.” (See John 20:25–29.)
+And Jesus said unto him, “Thomas, because thou hast seen me, thou hast believed: blessed are they that have not seen, and yet have believed.” (See [[John 20.25|John 20:25–29]][[John 20.26|]][[John 20.27|]][[John 20.28|]][[John 20.29|]].)
 
-Perhaps no clearer declaration of fact has ever been made than those which tell of the literal resurrection of Christ. The record of appearances to the Apostles during the forty days following his resurrection—as a group or separately, to teach them “the things pertaining to the kingdom of God” (Acts 1:3)—leaves no cause for doubt. John informs us that “there are also many other things which Jesus did, the which, if they should be written, ... even the world itself could not contain the books that should be written.” (John 21:25.)
+Perhaps no clearer declaration of fact has ever been made than those which tell of the literal resurrection of Christ. The record of appearances to the Apostles during the forty days following his resurrection—as a group or separately, to teach them “the things pertaining to the kingdom of God” ([[Acts 1.3|Acts 1:3]])—leaves no cause for doubt. John informs us that “there are also many other things which Jesus did, the which, if they should be written, … even the world itself could not contain the books that should be written.” ([[John 21.25|John 21:25]].)
 
-Shortly after Jesus’ appearance to the disciples on the Eastern Hemisphere, he appeared to the Nephites on the Western Hemisphere. God himself introduced his Son to the multitude: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” (3 Ne. 11:7.)
+Shortly after Jesus’ appearance to the disciples on the Eastern Hemisphere, he appeared to the Nephites on the Western Hemisphere. God himself introduced his Son to the multitude: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].)
 
-“The people beheld a Man, clothed in a white robe, who descended and stood among them. He spake, saying: ‘Behold, I am Jesus Christ, whom the prophets testified shall come into the world; and behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.’ [3 Ne. 11:10–11.] The multitude [knelt] in adoration for they remembered that their prophets had foretold that the Lord would appear among them after His resurrection and ascension.
+“The people beheld a Man, clothed in a white robe, who descended and stood among them. He spake, saying: ‘Behold, I am Jesus Christ, whom the prophets testified shall come into the world; and behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.’ \[[[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]].\] The multitude \[knelt\] in adoration for they remembered that their prophets had foretold that the Lord would appear among them after His resurrection and ascension.
 
-“As He directed, the people arose, and one by one came to Him, and did see and feel the prints of the nails in His hands and feet and the spear-wound in His side. ... With one accord they cried: “Hosanna! blessed be the name of the Most High God!” [3 Ne. 11:17.] Then, falling at the feet of Jesus, they worshiped Him.” (James E. Talmage, Jesus the Christ, Salt Lake City: Deseret Book Co., 1916, p. 725.)
+“As He directed, the people arose, and one by one came to Him, and did see and feel the prints of the nails in His hands and feet and the spear-wound in His side. … With one accord they cried: “Hosanna! blessed be the name of the Most High God!” \[[[3 Nephi 11.17|3 Ne. 11:17]].\] Then, falling at the feet of Jesus, they worshiped Him.” (James E. Talmage, *Jesus the Christ,* Salt Lake City: Deseret Book Co., 1916, p. 725.)
 
-When Joseph Smith was visited by the Father and the resurrected Christ in 1820, the latter was introduced by the Father, “This is My Beloved Son. Hear Him!” (JS—H 1:17), thus ushering in the marvelous events of the restoration of the gospel of Jesus Christ.
+When Joseph Smith was visited by the Father and the resurrected Christ in 1820, the latter was introduced by the Father, “This is My Beloved Son. Hear Him!” ([[Joseph Smith History 1.17|JS—H 1:17]]), thus ushering in the marvelous events of the restoration of the gospel of Jesus Christ.
 
-Our resurrected Lord was seen in a vision by Joseph Smith and Sidney Rigdon in 1832. Joseph recorded: “The Lord touched the eyes of our understandings, ...
+Our resurrected Lord was seen in a vision by Joseph Smith and Sidney Rigdon in 1832. Joseph recorded: “The Lord touched the eyes of our understandings, …
 
 “And we beheld the glory of the Son, on the right hand of the Father, and received of his fulness;
 
 “And saw the holy angels, and them who are sanctified before his throne, worshiping God, and the Lamb, who worship him forever and ever.
 
-“And now, after the many testimonies which have been given of him, this is the testimony ... which we give of him: That he lives!
+“And now, after the many testimonies which have been given of him, this is the testimony … which we give of him: That he lives!
 
 “For we saw him, even on the right hand of God; and we heard the voice bearing record that he is the Only Begotten of the Father—
 
-“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” (D&C 76:19–24.)
+“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” ([[D&C 76.19|D&C 76:19–24]][[D&C 76.20|]][[D&C 76.21|]][[D&C 76.22|]][[D&C 76.23|]][[D&C 76.24|]].)
 
-Now, these fragmentary events which I have briefly portrayed bear record and witness that resurrection and eternal life come to us because of what Christ our Lord did for each of us. He declared, “I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live: And whosoever liveth and believeth in me shall never die.” (John 11:25–26.) To this declaration of truth I bear my solemn witness, in the holy name of Jesus Christ, amen.
+Now, these fragmentary events which I have briefly portrayed bear record and witness that resurrection and eternal life come to us because of what Christ our Lord did for each of us. He declared, “I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live: And whosoever liveth and believeth in me shall never die.” ([[John 11.25|John 11:25–26]][[John 11.26|]].) To this declaration of truth I bear my solemn witness, in the holy name of Jesus Christ, amen.
+
+
+
 

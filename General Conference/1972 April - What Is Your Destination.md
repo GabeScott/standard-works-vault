@@ -1,5 +1,6 @@
 # What Is Your Destination?
-*By Marvin J. Ashton - Of the Council of the Twelve*
+
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -25,17 +26,17 @@ Have you arrived when you go to the temple? Is temple marriage your destination?
 
 To qualify one’s self to go to the temple is a lofty ambition, a worthy achievement. We need to remind ourselves of its eternal purposes. However, we have not arrived when we share the blessings of the temple. Oftentimes there are real dangers in our lives when we allow lofty ideals and goals, such as temple marriage, to become an end instead of a means. All of our priorities must be properly placed within the framework of eternity if we are to avoid the stagnations of arriving.
 
-I think it was Louis J. Halle who said, “To snatch the passing moment and examine it for signs of eternity is the noblest of occupations.” To gain exaltation after celestial marriage, continued devotion and righteousness are required. It is a continuing process, not a state of arrival.
+I think it was Louis J. Halle who said, “To snatch the passing moment and examine it for signs of eternity is the noblest of occupations.” To gain exaltation after celestial marriage, continued devotion and righteousness are required. It is a continuing process, not a state of arrival.
 
 Have you arrived when you receive your call to serve in the mission field? Have you reached your destination when you have completed an honorable mission? May we emphatically state that a worthily completed mission is a signal accomplishment along life’s journey. It should be fortification for greater personal service and strength. It should more firmly entrench the feet of the missionary in the paths that continue onward and upward to eternal happiness. It should prepare him for the enjoyment of pure religion.
 
-“Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.” (James 1:27.)
+“Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.” ([[James 1.27|James 1:27]].)
 
 I am reminded of a missionary friend who had difficulty remaining busily engaged the last six months of his mission. He had been assigned to labor in a district as a senior companion after having been an assistant to the mission president. In his own words, “I reached my goal when I held that high position of assistant to the president.” He had lost his effectiveness temporarily because he had allowed himself to think he had arrived.
 
 What an important day it is in the life of a missionary when he realizes that an honorable release is a commencement. To our fellow missionaries, past and present, we humbly pray that you will never allow yourselves the dangerous luxury of self-declaring, “I have given my two years to the Church.” If a returned missionary will set his sights high for life, he will generally take the proper steps to get there. A mission can be the happiest two years in a missionary’s life if he not only serves his God and fellowmen selflessly but if he is also walking in truth and preparing himself for eternal progress, which I declare is underway today.
 
-“I have no greater joy than to hear that my children walk in truth.” (3 Jn. 1:4.)
+“I have no greater joy than to hear that my children walk in truth.” ([[3 John 1.4|3 Jn. 1:4]].)
 
 May we emphasize that the joy is in the walking and in the traveling in truth, and not in anticipated arrival.
 
@@ -47,7 +48,7 @@ Satan and his forces were never more strongly arrayed than today. He is cunning.
 
 “And thus he flattereth them, and leadeth them along until he draggeth their souls down to hell; and thus he causeth them to catch themselves in their own snare.
 
-“And thus he goeth up and down, to and fro in the earth, seeking to destroy the souls of men.” (D&C 10:26–27.)
+“And thus he goeth up and down, to and fro in the earth, seeking to destroy the souls of men.” ([[D&C 10.26|D&C 10:26–27]][[D&C 10.27|]].)
 
 Since my recent call to serve as a member of the Council of the Twelve Apostles, a number of friends associated with my father, who passed away some years ago, have commented: “Your father must be smiling with a great deal of pleasure at your appointment.” To this, I have often thought, “If I know my father, and I think I do, he would take more time to suggest, ‘Son, you have not arrived. You have not reached your destination. Your great test lies ahead of you. Strive to live worthy of the great trust placed in you.’”
 
@@ -73,9 +74,12 @@ Contrast this, if you will, with another conversation with a member of the same 
 
 I humbly bear witness to you today that an honorably completed mission, a celestial marriage, a valued testimony, a position of major responsibility in the Church are not destinations in the lives of true Latter-day Saints. They can be important aids in eternal progression. They will not save you and me in the kingdom of God. Only living the life of a faithful Latter-day Saint will make that possible.
 
-“If thou wilt do good, yea, and hold out faithful to the end, thou shalt be saved in the kingdom of God, which is the greatest of all the gifts of God; for there is no gift greater than the gift of salvation.” (D&C 6:13.)
+“If thou wilt do good, yea, and hold out faithful to the end, thou shalt be saved in the kingdom of God, which is the greatest of all the gifts of God; for there is no gift greater than the gift of salvation.” ([[D&C 6.13|D&C 6:13]].)
 
 As we pursue our journeys, let us ever bear in mind that in train travel and in life, there are stations, there are departures, calls, schedules, and opportunities for being side-tracked and diverted. Wise is the individual who follows in his, the Savior’s, paths. Safety and joy belong to those who will come and follow him. I bear witness to you today that God is eternal. We are eternal, and God never intended for us to travel alone.
 
 What is your destination? I humbly pray our Heavenly Father to help each one of us realize it is eternal life, exaltation in our Father’s kingdom. I bear you my witness that the gift of salvation is possible through this, the gospel of Jesus Christ, as we continue faithful, and I say it in the name of Jesus Christ. Amen.
+
+
+
 

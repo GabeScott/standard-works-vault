@@ -1,5 +1,6 @@
 # Go For It!
-*By Thomas S. Monson - Second Counselor in the First Presidency*
+
+By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1989 General Conference*
 
@@ -7,7 +8,7 @@
 
 Brethren, you are an inspiring sight to behold. It is awesome to realize that in thousands of chapels throughout the world at this hour, your fellow holders of the priesthood of God are receiving this broadcast by way of satellite transmission. Your nationalities vary, and your languages are many, but a common thread binds us together. We have been entrusted to bear the priesthood and to act in the name of God. We are the recipients of a sacred trust. Much is expected of us.
 
-Long ago, the renowned author Charles Dickens wrote of opportunities that await. In his classic volume entitled Great Expectations, Dickens described a boy by the name of Philip Pirrip, more commonly known as “Pip.” Pip was born in unusual circumstances. He was an orphan. He never met his mother or father. He never saw a picture of them. Yet he had all the normal desires of a boy. He wished with all his heart that he were a scholar. He wished that he were a gentleman. He wished that he were less ignorant. Yet all of his ambitions and all of his hopes seemed doomed to failure. Do you young men sometimes feel that way? Do those of us who are older entertain these same thoughts?
+Long ago, the renowned author Charles Dickens wrote of opportunities that await. In his classic volume entitled *Great Expectations,* Dickens described a boy by the name of Philip Pirrip, more commonly known as “Pip.” Pip was born in unusual circumstances. He was an orphan. He never met his mother or father. He never saw a picture of them. Yet he had all the normal desires of a boy. He wished with all his heart that he were a scholar. He wished that he were a gentleman. He wished that he were less ignorant. Yet all of his ambitions and all of his hopes seemed doomed to failure. Do you young men sometimes feel that way? Do those of us who are older entertain these same thoughts?
 
 Then one day a London lawyer by the name of Jaggers approached little Pip and told him that an unknown benefactor had bequeathed to him a fortune. The lawyer put his arm around the shoulder of Pip and said to him, “My boy, you have great expectations.”
 
@@ -15,13 +16,13 @@ Tonight, as I look at you young men and realize who you are and what you may bec
 
 All of us, before the period known as mortality, lived as spirit children of our Heavenly Father. In His wisdom, He has given us a record, in the book of Abraham, which tells us something of that existence:
 
-“Now the Lord had shown unto me, Abraham, the intelligences that were organized before the world was; and among all these there were many of the noble and great ones; ...
+“Now the Lord had shown unto me, Abraham, the intelligences that were organized before the world was; and among all these there were many of the noble and great ones; …
 
 “And there stood one among them that was like unto God, and he said unto those who were with him: We will go down, for there is space there, and we will take of these materials, and we will make an earth whereon these may dwell;
 
 “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them;
 
-“And they who keep their first estate shall be added upon; and they who keep not their first estate shall not have glory in the same kingdom with those who keep their first estate; and they who keep their second estate shall have glory added upon their heads for ever and ever.” (Abr. 3:22, 24–26.)
+“And they who keep their first estate shall be added upon; and they who keep not their first estate shall not have glory in the same kingdom with those who keep their first estate; and they who keep their second estate shall have glory added upon their heads for ever and ever.” ([[Abraham 3.22|Abr. 3:22, 24–26]][[Abraham 3.24|]][[Abraham 3.25|]][[Abraham 3.26|]].)
 
 As we journey through mortality, let us remember from whence we came; let us be true to the trust vested in us. Let us remember who we are and what God expects us to become.
 
@@ -39,13 +40,13 @@ Then the boy concluded, “Who is the other man?”
 
 The mother spoke more softly, yet she was still audible to Brother Winder: “Oh, he’s nobody.”
 
-Remember, my young friends, you are somebody! You are a child of promise. You are a man of might. You are a son of God, endowed with faith, gifted with courage, and guided by prayer. Your eternal destiny is before you. The Apostle Paul speaks to you today as he spoke to Timothy long years ago: “Neglect not the gift that is in thee. ... O Timothy, keep that which is committed to thy trust.” (1 Tim. 4:14; 1 Tim. 6:20.)
+Remember, my young friends, you are somebody! You are a child of promise. You are a man of might. You are a son of God, endowed with faith, gifted with courage, and guided by prayer. Your eternal destiny is before you. The Apostle Paul speaks to you today as he spoke to Timothy long years ago: “Neglect not the gift that is in thee. … O Timothy, keep that which is committed to thy trust.” ([[1 Timothy 4.14|1 Tim. 4:14]]; [[1 Timothy 6.20|6:20]].)
 
 As you define your goals and plan for their achievement, ponder the thought: The past is behind—learn from it; the future is ahead—prepare for it; the present is here—live in it.
 
 At times, all of us let that enemy of achievement—even the culprit, self-defeat—dwarf our aspirations, smother our dreams, cloud our vision, and wreck our lives. The enemy’s voice whispers in our ears, “I can’t do it.” “I’m too little.” “Everyone is watching.” “I’m nobody.” This is when we need to reflect on the counsel of Maxwell Maltz, who declared:
 
-“The most realistic self-image of all is to conceive of yourself as made in the image of God.” You cannot sincerely hold this conviction without experiencing a profound new sense of strength and power.
+“The most … realistic self-image of all is to conceive of yourself as ‘made in the image of God.’” You cannot sincerely hold this conviction without experiencing a profound new sense of strength and power. (*Psycho-Cybernetics,* Englewood Cliffs, N.J.: Prentice-Hall, 1960, p. 245.)
 
 This is good medicine for all of us—young and old. After all, men are but boys grown older. One wife said of her husband, as he admiringly gazed at his new boat, “The bigger the boy, the bigger the toy!”
 
@@ -61,25 +62,21 @@ As though it were just yesterday, I remember the moment when all that changed in
 
 This one experience bolstered my confidence, inspired my desire to practice, and led me from that last-to-be-chosen place to become a real contributor to the team.
 
-We can experience that burst of confidence. We can feel that pride of performance. A three-word formula will help us: Never Give Up.
+We can experience that burst of confidence. We can feel that pride of performance. A three-word formula will help us: *Never Give Up.*
 
 Opposition is ever with us. The temptation to detour from our chosen path is at times a daily confrontation. Joseph L. Townsend wrote the words of a hymn which we sing frequently:
 
-Choose the right when a choice is placed before you.
+>Choose the right when a choice is placed before you.
+>In the right the Holy Spirit guides;
+>And its light is forever shining o’er you,
+>When in the right your heart confides.
+>
 
-In the right the Holy Spirit guides;
-
-And its light is forever shining o’er you,
-
-When in the right your heart confides.
-
-(Hymns, 1985, no. 239.)
-
-A wise father, speaking to his son, placed the question of choice in a direct setting. He counseled, “Son, if you ever find yourself in a place you shouldn’t ought to be—get out!” Good advice for a son. Good advice for a father, too.
+A wise father, speaking to his son, placed the question of choice in a direct setting. He counseled, “Son, if you ever find yourself in a place you shouldn’t ought to be—*get out!*” Good advice for a son. Good advice for a father, too.
 
 Altogether too frequently, we are prone to place the blame on Lucifer for every temptation we encounter or every sin we commit. The words of the Apostle Paul place in perspective such thinking. To the Corinthians, Paul counseled,
 
-“There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it.” (1 Cor. 10:13.)
+“There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it.” ([[1 Corinthians 10.13|1 Cor. 10:13]].)
 
 As priesthood holders, we have a responsibility to “stand up and be counted.” Some years back, when David Kennedy was appointed as Secretary of the Treasury, a reporter attempted to entrap him with the question: “Mr. Kennedy, do you believe in prayer?”
 
@@ -109,7 +106,7 @@ Just a few weeks ago, in Guatemala City, Guatemala, I witnessed a modern miracle
 
 At a regional conference, almost twelve thousand members filled the Estadio del Ejercito, the local soccer stadium. The sun bathed with its rays the large gathering, while the Spirit of the Lord filled every heart. This was a day of thanksgiving, marking the forty-second anniversary of the arrival of the first missionaries to that land. John Forres O’Donnal spoke to the vast throng. He it was who, in 1946, stood alone as the only member of the Church in that nation. Personally importuning then President George Albert Smith, Brother O’Donnal facilitated the entry of the first missionaries. His wife, Carmen Galvez de O’Donnal, became the first convert and was baptized on November 13, 1948. This day of conference, as throughout the years of their marriage, she sat by her husband’s side.
 
-While President O’Donnal spoke, my thoughts drifted back to the many missionaries who had come to this land and the hardships they endured, the sacrifices they made, and the lives they blessed. The experience of one describes the devotion of all. While I have, on a previous occasion, mentioned the experience of this missionary, following my recent visit to Guatemala, I felt impressed to share it with you once again.
+While President O’Donnal spoke, my thoughts drifted back to the many missionaries who had come to this land and the hardships they endured, the sacrifices they made, and the lives they blessed. The experience of one describes the devotion of all. While I have, on a previous occasion, mentioned the experience of this missionary, following my recent visit to Guatemala I felt impressed to share it with you once again.
 
 While serving in Guatemala as a missionary for The Church of Jesus Christ of Latter-day Saints, Randall Ellsworth survived a devastating earthquake, which hurled a beam down on his back, paralyzing his legs and severely damaging his kidneys. He was the only American injured in the quake, which claimed the lives of some eighteen thousand persons.
 
@@ -119,7 +116,7 @@ The answer, “Not yet, but I will.”
 
 “Do you think you will be able to complete your mission?”
 
-Came the reply: “Others think not, but I will. With the President of my church praying for me, and through the prayers of my family, my friends, and my missionary companions, I will walk and I will return to Guatemala. The Lord wanted me to preach the gospel there for two years, and that’s what I intend to do.”
+Came the reply: “Others think not, but I will. With the President of my church praying for me, and through the prayers of my family, my friends, and my missionary companions, I will walk, and I will return to Guatemala. The Lord wanted me to preach the gospel there for two years, and that’s what I intend to do.”
 
 There followed a lengthy period of therapy, punctuated by silent yet heroic courage. Little by little, the feeling began to return to the almost lifeless limbs. More therapy, more courage, more prayer.
 
@@ -136,4 +133,7 @@ Forres O’Donnal visited my office not long ago and, in his modest manner, reco
 This is the cane given to me. It serves as a silent witness of our Heavenly Father’s ability to hear our prayers and to bless our lives. It is a symbol of faith. It is a reminder of courage.
 
 Brethren of the priesthood, like the Charles Dickens character Philip Pirrip, we have great expectations. The goal of eternal life awaits. May we strive unflinchingly for its attainment. In the language of the young men assembled tonight, “Let’s go for it!” In the name of Jesus Christ, amen.
+
+
+
 

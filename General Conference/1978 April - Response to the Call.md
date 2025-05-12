@@ -1,5 +1,6 @@
 # Response to the Call
-*By Rex C. Reeve - Of the First Quorum of the Seventy*
+
+By Elder Rex C. Reeve - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -16,4 +17,7 @@ I am grateful for the opportunity I have had to serve in the mission field. If t
 I have committed myself—recommitted myself—to the Lord, to give everything that I have. And here before you, I commit myself to do everything that I’m asked to do by these great men whom I love. Our lives have been blessed by President Kimball for thirty years. He has been a giant in our lives, and he loves us. Now I can feel your love. I can feel the love of the people, and I am so grateful for that love. As missionaries we have known what it means to have three-and-a-half million people praying for us, and I am so grateful for that.
 
 Now I leave you my witness that God lives and commit to you that I will do everything that I can as long as I have breath and beyond that. In the name of Jesus Christ, the Lord, amen.
+
+
+
 

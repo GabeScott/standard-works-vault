@@ -1,11 +1,12 @@
 # Pursuing Excellence
-*By By Peter Vidmar - UCLA Ward, Los Angeles California Stake*
+
+By Peter Vidmar - *UCLA Ward, Los Angeles California Stake*
 
 *Given in the April session of the 1985 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1985/04/pursuing-excellence?lang=eng)
 
-I’ve been asked to address my remarks to the young men this evening. It is my humble prayer that I may further instill upon them the desire to pursue excellence and to dedicate themselves to serving our Heavenly Father.
+I’ve been asked to address my remarks to the young men this evening. It is my humble prayer that I may further instill in them the desire to pursue excellence and to dedicate themselves to serving our Heavenly Father.
 
 I am very honored and proud to have represented my country in the 1984 Olympic Games in Los Angeles. Participating in that great competition is an event that I will always cherish and remember. My involvement in gymnastics, however, has taught me qualities that go beyond athletics. The qualities, characteristics, and keys to success in sports are factors that carry over to all other aspects of our lives.
 
@@ -13,11 +14,11 @@ For those of us who, in any way, had the opportunity to view the Olympic Games, 
 
 But how did they do it? What makes a great athlete? I remember a great Olympic champion who once addressed this question. He named some important factors such as great coaching, good equipment, good athletes to train with, or just pure natural talent. All of these ingredients can go into the recipe for a great athlete, and each will help in its own way. But there is one quality that rises above all, and without it, the athlete is not complete. That ingredient is desire.
 
-The athlete with the greatest desire to succeed will stand a greater chance of reaching his or her goal. The same holds true for the student or the musician or whatever it is that you young men aspire to be. A five-year study of many of the United States’ top athletes, musicians, and scholars has recently concluded that “drive and determination, not great natural talent, led to their extraordinary success.” (Los Angeles Times, 17 Feb. 1985.)
+The athlete with the greatest desire to succeed will stand a greater chance of reaching his or her goal. The same holds true for the student or the musician or whatever it is that you young men aspire to be. A five-year study of many of the United States’ top athletes, musicians, and scholars has recently concluded that “drive and determination, not great natural talent, led to their extraordinary success.” (*Los Angeles Times,* 17 Feb. 1985.)
 
 In determined athletes, we can see the difference between knowing and doing. Those who really desire to reach their goals will do whatever they must do in order to achieve them.
 
-Our great prophet, Spencer W. Kimball, has in his office a little motto that simply reads: “Do it.” In Matthew 21:28–31 we read:
+Our great prophet, Spencer W. Kimball, has in his office a little motto that simply reads: “Do it.” In [[Matthew 21.28|Matthew 21:28–31]][[Matthew 21.29|]][[Matthew 21.30|]][[Matthew 21.31|]] we read:
 
 “But what think ye? A certain man had two sons; and he came to the first, and said, Son, go work today in my vineyard.
 
@@ -25,7 +26,7 @@ Our great prophet, Spencer W. Kimball, has in his office a little motto that sim
 
 “And he came to the second, and said likewise. And he answered and said, I go, sir: and went not.
 
-“Whether of them twain did the will of his father?” [Matt. 21:28–31]
+“Whether of them twain did the will of his father?”
 
 Let’s not just talk about what we want to be. Let’s not just dream about what we want to be. Let’s just do it, whatever it takes. To reach your goals, you may have to work harder than you have ever worked before in your entire life.
 
@@ -76,4 +77,7 @@ Just imagine what it’s like to be an Olympic champion! Imagine the feeling of 
 I have a testimony of the gospel of Jesus Christ. I know that Christ lives. I know that Spencer W. Kimball is a living prophet of God. I have so much to be thankful for. My temple marriage to my beautiful wife is worth more than all the gold in the world.
 
 I know I have a long way to go, but I pray that I may always improve and someday be found worthy of all the blessings that Heavenly Father has in store for those that truly serve him, in the name of our Lord and Savior, Jesus Christ, amen.
+
+
+
 

@@ -1,15 +1,16 @@
 # The Lord’s Wind
-*By John H. Groberg - Of the Seventy*
+
+By Elder John H. Groberg - *Of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1993/10/the-lords-wind?lang=eng)
 
-The fourth article of faith states: “We believe that the first principles and ordinances of the Gospel are: first, Faith in the Lord Jesus Christ; second, Repentance; third, Baptism by immersion for the remission of sins; fourth, Laying on of hands for the gift of the Holy Ghost.” [A of F 1:4]
+The [[Articles of Faith 1.4|fourth article of faith]] states, “We believe that the first principles and ordinances of the Gospel are: first, Faith in the Lord Jesus Christ; second, Repentance; third, Baptism by immersion for the remission of sins; fourth, Laying on of hands for the gift of the Holy Ghost.”
 
 If we think deeply, we realize that the first principle—faith in the Lord Jesus Christ—underlies all else; that is, it takes faith in Christ to repent or be baptized or perform any other ordinances of the gospel. Jesus made saving repentance possible and He made baptism meaningful. If we have faith in Him, we will repent and be baptized. If we do not repent, or refuse to be baptized, or are unwilling to keep His commandments, it is because we do not have sufficient faith in Him. Thus, repentance, baptism, and all other principles and ordinances are not entirely separate but are actually extensions of our faith in Christ. Without faith in Him, we do little of eternal value. With faith in Him, our lives become focused on doing things of eternal value.
 
-It takes deep and abiding faith in Christ to endure faithfully to the end of our mortal lives. Sometimes we pray for the strength to endure yet resist the very things that would give us that strength. Too often we seek the easy way, forgetting that strength comes from overcoming things that require us to put forth more effort than we normally would be inclined to do. The Apostle Paul said, “I can do all things through Christ which strengtheneth me” (Philip. 4:13). Let me give an example:
+It takes deep and abiding faith in Christ to endure faithfully to the end of our mortal lives. Sometimes we pray for the strength to endure yet resist the very things that would give us that strength. Too often we seek the easy way, forgetting that strength comes from overcoming things that require us to put forth more effort than we normally would be inclined to do. The Apostle Paul said, “I can do all things through Christ which strengtheneth me” ([[Philippians 4.13|Philip. 4:13]]). Let me give an example:
 
 Years ago, as a young missionary, I was assigned to a group of seventeen small islands in the South Pacific. At that time, the only means of travel between islands was by sailboat. Because of misunderstandings and traditions, it was difficult to find people willing to listen to us. However, one day a member told us that if we would be at a certain harbor on a particular island when the sun set the next day, a family would meet us there and listen to the discussions.
 
@@ -19,7 +20,7 @@ Early the next morning the five of us started out. There was a nice breeze that 
 
 We made good progress for a few hours, but as the sun climbed higher and the boat got farther from land, the wind began to play out and soon quit altogether, leaving us bobbing aimlessly on a smooth ocean.
 
-Those familiar with sailing know that to get anywhere, you need wind. Sometimes there are good breezes without storms and heavy seas, but often they go together. Sailors do not fear storms, for they contain the lifeblood of sailing—wind. What sailors fear is no wind, or being becalmed.
+Those familiar with sailing know that to get anywhere, you need wind. Sometimes there are good breezes without storms and heavy seas, but often they go together. Sailors do not fear storms, for they contain the lifeblood of sailing—wind. What sailors fear is *no* wind, or being becalmed.
 
 Time passed. The sun got higher, the sea calmer. Nothing moved. We soon realized that unless something changed, we would not arrive by sundown. I suggested that we pray and plead with the Lord to send some wind. What more righteous desire could a group of men have? I offered a prayer. When I finished, things seemed calmer than ever. We continued drifting.
 
@@ -37,7 +38,7 @@ I answered, “What are you doing? There is hardly room for two people in that t
 
 “Don’t waste any time or effort. Just get in. I am going to row you to shore, and we need to leave now to make it by sundown.”
 
-I looked at him incredulously, “Row me where?”
+I looked at him incredulously, “Row me *where?*”
 
 “To the family that wants to hear the gospel. We have an assignment from the Lord. Get in.”
 
@@ -51,7 +52,7 @@ The glazed surface of the ocean was disturbed by the intrusion of this small boa
 
 The old man bent his back and began to row. Dip. Pull. Lift. Dip. Pull. Lift. Each dip of the oar seemed to break the resolve of the mirrorlike ocean. Each pull of the oar moved the tiny skiff forward, separating the glassy seas to make way for the Lord’s messenger. Dip. Pull. Lift. The old man did not look up, rest, or talk, but hour after hour he rowed and rowed and rowed. The muscles of his back and arms, strengthened by faith and moved by unalterable determination, flexed in a marvelous cadence like a fine-tuned watch. It was beautiful. We moved quietly, relentlessly toward an inevitable destiny. The old man concentrated his efforts and energy on fulfilling the calling he had from the Lord—to get a missionary to a family that wanted to hear the gospel. He was the Lord’s wind that day.
 
-Just as the sun dipped into the ocean, the skiff touched the shore of the harbor. A family was waiting. The old man spoke for the first time in hours and said, “Go. Teach them the truth. I’ll wait here.”
+Just as the sun dipped into the ocean, the skiff touched the shore of the harbor. A family *was* waiting. The old man spoke for the first time in hours and said, “Go. Teach them the truth. I’ll wait here.”
 
 I waded ashore, met the family, went to their home, and taught them the gospel. As I bore testimony of the power of God in this church, my mind saw an old Tongan man rowing to a distant harbor and waiting patiently there. I testified with a fervor as great as any I have ever felt that God does give power to men and women to do His will if they will have faith in Him. I told the family, “When we exercise faith in the Lord Jesus Christ, we can do things we could not otherwise do. When our hearts are determined to do right, the Lord gives us the power to do so.”
 
@@ -68,4 +69,7 @@ I’ll never forget that old man.
 I pray that we may always have increasing faith in the Lord Jesus Christ and demonstrate that faith by our actions. I know He lives and loves. I know He strengthens and encourages. I know He helps and heals. I know He forgives and saves.
 
 In the name of Jesus Christ, amen.
+
+
+
 

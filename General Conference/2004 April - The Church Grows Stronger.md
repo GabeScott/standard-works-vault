@@ -1,11 +1,14 @@
 # The Church Grows Stronger
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2004 General Conference*
 
+>*There is much more yet to be done, but what has been accomplished is truly phenomenal.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2004/04/the-church-grows-stronger?lang=eng)
 
-My beloved brethren and sisters, we warmly welcome you to another worldwide conference of the Church. We are now a great international family, living in many nations and speaking many languages. To me, it is a marvelous and miraculous thing that you are able to see us and hear us across the globe.
+My beloved brethren and sisters, we warmly welcome you to another worldwide conference of the Church. We are now a great international family, living in many nations and speaking many languages. To me it is a marvelous and miraculous thing that you are able to see us and hear us across the globe.
 
 During my life as a General Authority, we have moved from the time when we thought it a remarkable thing that we could speak in the Salt Lake Tabernacle and be heard by radio throughout the state of Utah. Now we are assembled in this great and magnificent Conference Center, and our images and words are available to 95 percent of the membership of the Church.
 
@@ -31,7 +34,10 @@ How deeply grateful I feel to each of you and all of you for your dedicated and 
 
 God bless you, my dear associates. How I love you. How I pray for you. How I thank you.
 
-May heaven smile upon you. May there be love and harmony, peace and goodness in your homes. May you be preserved from harm and evil. May our Father’s “great plan of happiness” (Alma 42:8) become the standard by which you live. I ask it humbly and gratefully in the sacred name of Jesus Christ, amen.
+May heaven smile upon you. May there be love and harmony, peace and goodness in your homes. May you be preserved from harm and evil. May our Father’s “great plan of happiness” ([[Alma 42.8|Alma 42:8]]) become the standard by which you live. I ask it humbly and gratefully in the sacred name of Jesus Christ, amen.
 
 It will now be our pleasure to hear from our beloved associate Elder David B. Haight of the Quorum of the Twelve, who is now 97 years of age. Elder Haight, come up here and speak to your multitudinous friends.
+
+
+
 

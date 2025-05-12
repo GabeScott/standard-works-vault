@@ -1,5 +1,6 @@
 # Solving Emotional Problems in the Lord’s Own Way
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -11,9 +12,9 @@ My message, therefore, is to the subject: solving emotional problems in the Lord
 
 Fortunately, the principles of temporal welfare apply to emotional problems as well.
 
-The Church was two years old when the Lord revealed that “the idler shall not have place in the church, except he repent and mend his ways.” (D&C 75:29.)
+The Church was two years old when the Lord revealed that “the idler shall not have place in the church, except he repent and mend his ways.” ([[D&C 75.29|D&C 75:29]].)
 
-The Welfare handbook instructs: “[We must] earnestly teach and urge Church members to be self-sustaining to the full extent of their powers. No true Latter-day Saint will ... voluntarily shift from himself the burden of his own support. So long as he can, under the inspiration of the Almighty and with his own labors, he will supply himself with the necessities of life.” (1952, p. 2.)
+The Welfare handbook instructs: “\[We must\] earnestly teach and urge Church members to be self-sustaining to the full extent of their powers. No true Latter-day Saint will … voluntarily shift from himself the burden of his own support. So long as he can, under the inspiration of the Almighty and with his own labors, he will supply himself with the necessities of life.” (1952, p. 2.)
 
 We have succeeded fairly well in teaching Latter-day Saints that they should take care of their own material needs and then contribute to the welfare of those who cannot provide for themselves.
 
@@ -21,13 +22,13 @@ If a member is unable to sustain himself, then he is to call upon his own family
 
 We have counseled bishops and stake presidents to be very careful to avoid abuses in the welfare program.
 
-When people are able but unwilling to take care of themselves, we are responsible to employ the dictum of the Lord that the idler shall not eat the bread of the laborer. (See D&C 42:42.)
+When people are *able* but *unwilling* to take care of themselves, we are responsible to employ the dictum of the Lord that the idler shall not eat the bread of the laborer. (See [[D&C 42.42|D&C 42:42]].)
 
 The simple rule has been to take care of one’s self. This couplet of truth has been something of a model: “Eat it up, wear it out, make it do, or do without.”
 
 When the Church welfare program was first announced in 1936, the First Presidency said:
 
-“Our primary purpose was to set up, in so far as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self respect be once more established amongst our people. The aim of the Church is to help people help themselves.” (Conference Report, Oct. 1936, p. 3; italics added.)
+“Our primary purpose was to set up, in so far as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self respect be once more established amongst our people. *The aim of the Church is to help people help themselves.*” (*Conference Report,* Oct. 1936, p. 3; italics added.)
 
 Occasionally someone is attracted to the Church because of our welfare program. They see material security.
 
@@ -39,21 +40,21 @@ It is a self-help system, not a quick handout system. It requires a careful inve
 
 It is not an unkind or an unfeeling bishop who requires a member to work to the fullest extent he can for what he receives from Church welfare.
 
-There should not be the slightest embarrassment for any member to be assisted by the Church. Provided, that is that he has contributed all that he can.
+There should not be the slightest embarrassment for any member to be assisted by the Church. *Provided,* that is that he has contributed all that he can.
 
 President Romney has emphasized, “To care for people on any other basis is to do them more harm than good.
 
-“The purpose of Church welfare is not to relieve [a Church member] from taking care of himself.” (Conference Report, Oct. 1974, p. 166; italics added.)
+“The purpose of Church welfare is *not* to relieve \[a Church member\] from taking care of himself.” (*Conference Report,* Oct. 1974, p. 166; italics added.)
 
 The principle of self-reliance or personal independence is fundamental to the happy life. In too many places, in too many ways, we are getting away from it.
 
 The substance of what I want to say is this: The same principle self-reliance—has application to the spiritual and to the emotional.
 
-We have been taught to store a year’s supply of food, clothing, and, if possible, fuel—at home. There has been no attempt to set up storerooms in every chapel. We know that in the crunch our members may not be able to get to the chapel for supplies.
+We have been taught to store a year’s supply of food, clothing, and, if possible, fuel—*at home.* There has been no attempt to set up storerooms in every chapel. We know that in the crunch our members may not be able to get to the chapel for supplies.
 
 Can we not see that the same principle applies to inspiration and revelation, the solving of problems, to counsel, and to guidance?
 
-We need to have a source of it stored in every home, not just in the bishop’s office.
+We need to have a source of it *stored in every home,* not just in the bishop’s office.
 
 If we do not do that, we are quite as threatened spiritually as we should be were we to assume that the Church should supply all material needs.
 
@@ -91,9 +92,9 @@ If we are not careful, we can lose the power of individual revelation. What the 
 
 “But, behold, I say unto you, that you must study it out in your mind; then you must ask me if it be right, and if it is right I will cause that your bosom shall burn within you; therefore, you shall feel that it is right.
 
-“But if it be not right you shall have no such feelings, but you shall have a stupor of thought that shall cause you to forget the thing which is wrong.” (D&C 9:7–9.)
+“But if it be not right you shall have no such feelings, but you shall have a stupor of thought that shall cause you to forget the thing which is wrong.” ([[D&C 9.7|D&C 9:7–9]][[D&C 9.8|]][[D&C 9.9|]].)
 
-Spiritual independence and self-reliance is a sustaining power in the Church. If we rob the members of that, how can they get revelation for themselves? How will they know there is a prophet of God? How can they get answers to prayers? How can they know for sure for themselves?
+Spiritual independence and self-reliance is a sustaining power in the Church. If we rob the members of that, how can they get revelation for themselves? How will they know there is a prophet of God? How can they get answers to prayers? How can they know for *sure* for themselves?
 
 It is not an unfeeling bishop who requires those coming to him for counsel to exhaust every personal and family resource before helping them.
 
@@ -117,25 +118,25 @@ In order to help with the very difficult problems, the Church has established so
 
 The first category includes those services that ordinarily require a license from the local, state, or national government. The licensed services include:
 
-adoptions,
+- adoptions,
 
-the care of unwed mothers,
+- the care of unwed mothers,
 
-the foster care of children,
+- the foster care of children,
 
-and, the Indian Placement Program.
+- and, the Indian Placement Program.
 
 In July of 1977 the First Presidency issued a letter giving some instruction and caution to priesthood leaders, with reference to licensed services.
 
-Our purpose here will be to review principles that apply to the services offered under the heading clinical.
+Our purpose here will be to review principles that apply to the services offered under the heading *clinical.*
 
 Clinical services are offered (again, through proper channels only) in three successive steps:
 
-First: consultation, where a priesthood leader consults with an LDS Social Services representative about a member with serious problems. Only the priesthood leader meets with the member.
+First: *consultation,* where a priesthood leader consults with an LDS Social Services representative about a member with serious problems. Only the priesthood leader meets with the member.
 
-The next step is evaluation, wherein a priesthood leader and the member meet together with an LDS Social Services practitioner to evaluate the problem. Ordinarily this is one meeting only. Thereafter, the priesthood leader continues to help the member.
+The next step is *evaluation,* wherein a priesthood leader and the member meet together with an LDS Social Services practitioner to evaluate the problem. Ordinarily this is one meeting only. Thereafter, the priesthood leader continues to help the member.
 
-In difficult and persistent cases, there is therapy. The member (and, when possible, the bishop) meets with an LDS Social Services practitioner for counseling. The bishop gives continuing help after termination of these sessions.
+In difficult and persistent cases, there is *therapy.* The member (and, when possible, the bishop) meets with an LDS Social Services practitioner for counseling. The bishop gives continuing help after termination of these sessions.
 
 Bishops and stake presidents can exemplify self-reliance by resolving these problems locally. Ultimately it is the member who must solve them.
 
@@ -199,7 +200,7 @@ Do not be too quick to take over from me the job of raising my children.
 
 Do not be too quick to counsel them and solve all of the problems. Get me involved. It is my ministry.
 
-We live in a day when the adversary stresses on every hand the philosophy of instant gratification. We seem to demand instant everything, including instant solutions to our problems.
+We live in a day when the adversary stresses on every hand the philosophy of instant gratification. We seem to demand *instant* everything, including instant solutions to our problems.
 
 We are indoctrinated that somehow we should always by instantly emotionally comfortable. When that is not so, some become anxious—and all too frequently seek relief from counseling, from analysis, and even from medication.
 
@@ -211,69 +212,41 @@ There is great purpose in our struggle in life.
 
 There is great meaning in these word entitled “The Lesson.”
 
-Yes, my fretting,
-
-Frowning child,
-
-I could cross
-
-The room to you
-
-More easily.
-
-But I’ve already
-
-Learned to walk,
-
-So I make you
-
-Come to me.
-
-Let go now
-
-There!
-
-You see?
-
-Oh, remember
-
-This simple lesson,
-
-Child,
-
-And when
-
-In later years
-
-You cry out
-
-With tight fists
-
-And tears
-
-“Oh, help me,
-
-God—please.”
-
-Just listen
-
-And you’ll hear
-
-A silent voice:
-
-“I would, child,
-
-I would.
-
-But it’s you,
-
-Not I,
-
-Who needs to try
-
-Godhood.”
-
-(Carol Lynn Pearson, “The Lesson,” Beginnings, New York: Doubleday and Co., 1975, p. 18)
+>Yes, my fretting,
+>Frowning child,
+>I could cross
+>The room to you
+>More easily.
+>But I’ve already
+>Learned to walk,
+>So I make you
+>Come to me.
+>
+>Let go now
+>There!
+>You see?
+>
+>Oh, remember
+>This simple lesson,
+>Child,
+>And when
+>In later years
+>You cry out
+>With tight fists
+>And tears
+>“Oh, help me,
+>God—please.”
+>Just listen
+>And you’ll hear
+>A silent voice:
+>
+>“I would, child,
+>I would.
+>But it’s you,
+>Not I,
+>Who needs to try
+>Godhood.”
+>
 
 Bishop, those who come to you are children of God. Counsel them in the Lord’s own way. Teach them to ponder it in their minds, then to pray over their problems.
 
@@ -283,15 +256,18 @@ Now, from the Book of Mormon, this closing thought: The prophet Alma faced a wei
 
 Mosiah wisely turned the problem back to him, saying:
 
-“... Behold, I judge them not; therefore I deliver them into thy hands to be judged.
+“… Behold, I judge them not; therefore I deliver them into thy hands to be judged.
 
 “And now the spirit of Alma was again troubled; and he went and inquired of the Lord what he should do concerning this matter, for he feared that he should do wrong in the sight of God.
 
-“And it came to pass that after he had poured out his whole soul to God, the voice of the Lord came to him. ...” (Mosiah 26:12–14.)
+“And it came to pass that after he had poured out his whole soul to God, the voice of the Lord came to him. …” ([[Mosiah 26.12|Mosiah 26:12–14]][[Mosiah 26.13|]][[Mosiah 26.14|]].)
 
 That voice will speak to you, bishop. That is your privilege. I bear witness of that, for I know that He lives.
 
 May God bless you, bishop, the inspired judge in Israel, and those who come to you, as you counsel them in the Lord’s own way.
 
 In the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Keep the Faith
-*By F. Arthur Kay - Released member of the Second Quorum of the Seventy*
+
+By Elder F. Arthur Kay - *Released member of the Second Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
 
@@ -19,13 +20,16 @@ Within thirty days, in Melbourne, Australia, there came a medical announcement o
 
 My brothers and sisters, these are only two instances of times I have seen God’s power at work. I want you to know that my testimony came when I was a little boy at the feet of my parents. I loved my parents. They taught me in the way of truth and righteousness. I was taught the story of the Restoration, which I believed with all of my heart because I believed my parents.
 
-In the forty-sixth section of the Doctrine and Covenants, the Lord says: “To some it is given by the Holy Ghost to know that Jesus is the Son of God. ... To others it is given to believe on their words.” (D&C 46:13–14.) I was one of those who believed on my parents’ words. To me, the teachings of the First Vision, the visits of Moroni and others were as real as if they had been personal experiences of my own. I have never had a day in my life that I can remember when I haven’t known these things are true.
+In the forty-sixth section of the Doctrine and Covenants, the Lord says: “To some it is given by the Holy Ghost to know that Jesus is the Son of God. … To others it is given to believe on their words.” ([[D&C 46.13|Vs. 13–14]][[D&C 46.14|]].) I was one of those who believed on my parents’ words. To me, the teachings of the First Vision, the visits of Moroni and others were as real as if they had been personal experiences of my own. I have never had a day in my life that I can remember when I haven’t known these things are true.
 
-I pay tribute this day to my wife of some fifty years who has been at my side, encouraging, sustaining, supporting, and enduring when the going was tough. I want her and my children to know that I love her and them with all of my heart.
+I pay tribute this day to my wife of some fifty years, who has been at my side, encouraging, sustaining, supporting, and enduring when the going was tough. I want her and my children to know that I love her and them with all of my heart.
 
 In the past two or three weeks, I have greeted most of my grandchildren, and I have shaken their hands and looked into their eyes and have said, “Keep the faith, my child. It’s true.” Almost invariably there has come the response, “I will, Grandpa, I will.”
 
 Their words, “Yes, Grandpa, I will,” have caused me to reflect. My greatest desire is to continue faithful as an example to my family. I trust that one day the response will be, “Yes, Grandpa, I have.”
 
 I bear you my witness that Jesus is the Christ, the Son of the living God. Joseph Smith was a prophet of God. Ezra Taft Benson is a prophet of God. I leave that testimony with you in the name of Jesus Christ, amen.
+
+
+
 

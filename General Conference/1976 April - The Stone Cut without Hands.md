@@ -1,5 +1,6 @@
 # The Stone Cut without Hands
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -25,7 +26,7 @@ We envelop much of the vast world which we inhabit with congregations in South A
 
 Our General Authorities cover the world constantly and spend their energies trying to take to the new areas and peoples the training and teachings that are necessary for new members of the Church.
 
-Our work for the dead has greatly increased, and with 16 temples the work continues unabated and ever increasing. New temples have been announced for São Paulo, Brazil; Tokyo, Japan; Seattle, Washington. There will be additional edifices built for the continuation of this great work for the living and for the dead.
+Our work for the dead has greatly increased, and with 16 temples the work continues unabated and ever increasing. New temples have been announced for São Paulo, Brazil; Tokyo, Japan; Seattle, Washington. There will be additional edifices built for the continuation of this great work for the living and for the dead.
 
 We are most grateful for the excellent response by the people of the Church to our urging that gardens be planted and that fruit trees be cultivated and our places cleaned up and made more livable. We fully endorse the program of Governor Calvin Rampton in Salt Lake City calling for the planting of a million trees for a million people.
 
@@ -45,7 +46,7 @@ From another member in a rural area comes this: “The old, leaning, half-fallen
 
 Another party writes, “We live in a large forest area. I got my boss to go in with me, and we rented a large vacant lot not far away that had no trees. We had it plowed, disked, fertilized, and did we ever have a garden!”
 
-In the National Geographic magazine last month, we clipped a picture of a woman bringing bottled and canned fruit to her storage room, which was full of the products of her labors and was neat and tidy. That’s the way the Lord planned that we should prepare and eat our vegetables.
+In the *National Geographic* magazine last month, we clipped a picture of a woman bringing bottled and canned fruit to her storage room, which was full of the products of her labors and was neat and tidy. That’s the way the Lord planned that we should prepare and eat our vegetables.
 
 On the whole, we are very proud of the success. We learned that 51 percent of the households in the United States plan a garden for this year, 1976; and there will be plenty of lids and canning jars this season. The garden fever has attacked many people.
 
@@ -71,9 +72,9 @@ It is amazing what our youth can do when given assignments and direction.
 
 President Brigham Young said:
 
-“My faith does not lead me to think the Lord will provide us with roast pigs, bread already buttered, etc.; he will give us the ability to raise the grain, to obtain the fruits of the earth, to make habitations, to procure a few boards to make a box, and when harvest comes, giving us the grain, it is for us to preserve it—to save the wheat until we have one, two, five, or seven years’ provisions on hand, until there is enough of the staff of life saved by the people to bread themselves and those who will come here seeking for safety. ...
+“My faith does not lead me to think the Lord will provide us with roast pigs, bread already buttered, etc.; he will give us the ability to raise the grain, to obtain the fruits of the earth, to make habitations, to procure a few boards to make a box, and when harvest comes, giving us the grain, it is for us to preserve it—to save the wheat until we have one, two, five, or seven years’ provisions on hand, until there is enough of the staff of life saved by the people to bread themselves and those who will come here seeking for safety. …
 
-“Let Nothing Go To Waste,” he counseled. “Take things calm and easy, pick up everything, let nothing go to waste. ...
+“Let Nothing Go To Waste,” he counseled. “Take things calm and easy, pick up everything, let nothing go to waste. …
 
 “Be prudent, save everything, and what you get more than you can take care of yourselves, ask your neighbors to help you consume.
 
@@ -85,23 +86,23 @@ President Brigham Young said:
 
 “If you wish to get rich, save what you get. A fool can earn money; but it takes a wise man to save and dispose of it to his own advantage.
 
-“It is to our advantage to take good care of the blessings God bestows upon us; if we pursue the opposite course, we cut off the power and glory God designs we should inherit. It is through our own carefulness, frugality, and judgment which God has given us, that we are enabled to preserve our grain, our flocks and herds, wives and children, houses and lands, and increase them around us, continually gaining power and influence for ourselves as individuals and for the Kingdom of God as a whole.” (Discourses of Brigham Young, Deseret Book, 1966 ed., pp. 291–92.)
+“It is to our advantage to take good care of the blessings God bestows upon us; if we pursue the opposite course, we cut off the power and glory God designs we should inherit. It is through our own carefulness, frugality, and judgment which God has given us, that we are enabled to preserve our grain, our flocks and herds, wives and children, houses and lands, and increase them around us, continually gaining power and influence for ourselves as individuals and for the Kingdom of God as a whole.” (*Discourses of Brigham Young,* Deseret Book, 1966 ed., pp. 291–92.)
 
 With regard to debts, Brigham Young said this:
 
 “Pay your debts, we will help you to do so, but do not run into debt any more.
 
-“Be prompt in everything, and especially to pay your debts.” (Discourses, p. 303.)
+“Be prompt in everything, and especially to pay your debts.” (*Discourses,* p. 303.)
 
 We used to preach much about the paying of debts, but these days we have come into a position where we are encouraged to spend, to buy on time, to buy ahead of time—take next year to pay.
 
-In 1830, in Doctrine and Covenants 19:35, the Lord gave a revelation to Martin Harris: “Pay the debt thou hast contracted with the printer. Release thyself from bondage.”
+In 1830, in [[D&C 19.35|Doctrine and Covenants 19:35]], the Lord gave a revelation to Martin Harris: “Pay the debt thou hast contracted with the printer. Release thyself from bondage.”
 
 “A man who will run into debt, when he has no prospect of paying it back again, does not understand the principles that should prevail in a well regulated community, or he is wilfully dishonest.
 
 “A man who will not pay his honest debts is no Latter-day Saint, if he has the means to pay them.
 
-“It is bad enough, quite bad enough, to borrow from an enemy and not to repay him; to do this is beneath the character of any human being; but all who will borrow from a friend, and especially from the poor, are undeserving the fellowship of the Saints if they do not repay.” (Discourses, pp. 303–4.)
+“It is bad enough, quite bad enough, to borrow from an enemy and not to repay him; to do this is beneath the character of any human being; but all who will borrow from a friend, and especially from the poor, are undeserving the fellowship of the Saints if they do not repay.” (*Discourses,* pp. 303–4.)
 
 In a letter pertaining to a divorce clearance, the following appeared:
 
@@ -111,11 +112,11 @@ Yet they had such difficulty getting along financially that they sought to termi
 
 We talked to you last conference about a carefully planned budget for every family. Such will save many family quarrels and much misunderstanding.
 
-“And why call ye me, Lord, Lord, and do not the things which I say?” (Luke 6:46.)
+“And why call ye me, Lord, Lord, and do not the things which I say?” ([[Luke 6.46|Luke 6:46]].)
 
 This, a question from the Lord himself, is very strong and important to us.
 
-Some may wonder why General Authorities speak of the same things from conference to conference. As I study the utterances of the prophets through the centuries, their pattern is very clear. We seek, in the words of Alma, to teach people “an everlasting hatred against sin and iniquity.” We preach “repentance, and faith on the Lord Jesus Christ.” (Alma 37:32, 33.) We praise humility. We seek to teach people “to withstand every temptation of the devil, with their faith on the Lord Jesus Christ.” (Alma 37:33.) We teach our people “to never be weary of good works.” (Alma 37:34.)
+Some may wonder why General Authorities speak of the same things from conference to conference. As I study the utterances of the prophets through the centuries, their pattern is very clear. We seek, in the words of Alma, to teach people “an everlasting hatred against sin and iniquity.” We preach “repentance, and faith on the Lord Jesus Christ.” ([[Alma 37.32|Alma 37:32, 33]][[Alma 37.33|]].) We praise humility. We seek to teach people “to withstand every temptation of the devil, with their faith on the Lord Jesus Christ.” ([[Alma 37.33|Alma 37:33]].) We teach our people “to never be weary of good works.” ([[Alma 37.34|Alma 37:34]].)
 
 Prophets say the same things because we face basically the same problems. Brothers and sisters, the solutions to these problems have not changed. It would be a poor lighthouse that gave off a different signal to guide every ship entering a harbor. It would be a poor mountain guide who, knowing the safe route up a mountainside, took his trusting charges up unpredictable and perilous paths from which no traveler returns.
 
@@ -137,7 +138,7 @@ Baptism into Christ’s true church by proper authority opens the doors for exal
 
 The gospel of Jesus Christ is a gospel for all the world and for all people. We proclaim the fatherhood of God and the brotherhood of all mankind. We proclaim the divine sonship of Jesus Christ and him crucified, that his divine sacrifice was a ransom for all mankind. We bear witness of his resurrection and that he lives today, standing at the right hand of God, to guide the affairs of his earthly kingdom.
 
-As you investigate the Church of Jesus Christ, you will find it is not a religion claiming succession from those who shared Christ’s earthly ministry; nor is it a Protestant religion. It is a divine restoration of Christ’s earthly kingdom, organized, as was his primitive church, with “apostles, prophets, pastors, teachers, evangelists, etc.” (A of F 1:6.)
+As you investigate the Church of Jesus Christ, you will find it is not a religion claiming succession from those who shared Christ’s earthly ministry; nor is it a Protestant religion. It is a divine restoration of Christ’s earthly kingdom, organized, as was his primitive church, with “apostles, prophets, pastors, teachers, evangelists, etc.” ([[Articles of Faith 1.6|A of F 1:6]].)
 
 In your study of this restored church, you will find herein the divinely restored powers and authorities of the holy priesthood. By this divine authority, and in no other way, the saving ordinances of the gospel are performed and are made binding for all time and eternity. I testify this to all of you who hear my voice.
 
@@ -149,15 +150,15 @@ We invite all to heed the message of the Latter-day Saint missionaries. No messa
 
 The rewards are priceless for those honest in heart who seek the truth.
 
-The Lord said: “Hearken, O ye people ... to whom the kingdom has been given; hearken ye and give ear to him who laid the foundation of the earth, who made the heavens and all the hosts thereof, and by whom all things were made which live, and move, and have a being.
+The Lord said: “Hearken, O ye people … to whom the kingdom has been given; hearken ye and give ear to him who laid the foundation of the earth, who made the heavens and all the hosts thereof, and by whom all things were made which live, and move, and have a being.
 
 “And again I say, hearken unto my voice, lest death shall overtake you; in an hour when ye think not the summer shall be past, and the harvest ended, and your souls not saved.
 
-“Listen to him who is the advocate with the Father, who is pleading your cause before him. ...
+“Listen to him who is the advocate with the Father, who is pleading your cause before him. …
 
 “And even so I have sent mine everlasting covenant into the world, to be a light to the world, and to be a standard for my people, and for the Gentiles to seek to it, and to be a messenger before my face to prepare the way before me.
 
-“Wherefore, come ye unto it, and with him that cometh I will reason as with men in days of old, and I will show unto you my strong reasoning.” (D&C 45:1–3, 9, 10.)
+“Wherefore, come ye unto it, and with him that cometh I will reason as with men in days of old, and I will show unto you my strong reasoning.” ([[D&C 45.1|D&C 45:1–3, 9, 10]][[D&C 45.2|]][[D&C 45.3|]][[D&C 45.9|]][[D&C 45.10|]].)
 
 This is the restored church. This is the kingdom of God upon the earth, for it is Jesus Christ who organized this kingdom.
 
@@ -165,7 +166,7 @@ You will remember the incident when history was young, when it was in the making
 
 King Nebuchadnezzar, the king of Babylon, had besieged Jerusalem and had taken prisoner the people of Jerusalem. Among the captives were Daniel and his brethren. They kept their standards high and refused to drink with the king and his people.
 
-“And in all matters of wisdom,” the scripture says, “and understanding, that the king inquired of them, he found them ten times better than all the magicians and astrologers that were in all his realm.” (Dan. 1:20.)
+“And in all matters of wisdom,” the scripture says, “and understanding, that the king inquired of them, he found them ten times better than all the magicians and astrologers that were in all his realm.” ([[Daniel 1.20|Dan. 1:20]].)
 
 King Nebuchadnezzar had a dream which he required his magicians and astrologers and sorcerers to reproduce and then to interpret. The penalty for any failure on their part was to be visited upon them, and it was a death sentence if they could not show the dream and the interpretation thereof. They pled for time to convince the king that there was no man living who could bring back the dream and its interpretation.
 
@@ -173,7 +174,7 @@ King Nebuchadnezzar was furious and commanded the destruction of these wise men 
 
 The inspired Daniel desired of the king that they would give him time, and he, Daniel, would interpret the dream. And then he says:
 
-“Then was the secret revealed unto Daniel in a night vision. Then Daniel blessed the God of heaven.” (Dan. 2:19.)
+“Then was the secret revealed unto Daniel in a night vision. Then Daniel blessed the God of heaven.” ([[Daniel 2.19|Dan. 2:19]].)
 
 And Daniel, the inspired one, praised the Lord and said:
 
@@ -183,23 +184,23 @@ And Daniel, the inspired one, praised the Lord and said:
 
 “He revealeth the deep and secret things: he knoweth what is in the darkness, and the light dwelleth with him.
 
-“I thank thee, and praise thee, O thou God of my fathers, who hast given me wisdom and might, and hast made known unto me now what we desired of thee.” (Dan. 2:20–23.)
+“I thank thee, and praise thee, O thou God of my fathers, who hast given me wisdom and might, and hast made known unto me now what we desired of thee.” ([[Daniel 2.20|Dan. 2:20–23]][[Daniel 2.21|]][[Daniel 2.22|]][[Daniel 2.23|]].)
 
 And now with a knowledge of the future as revealed, Daniel begged for the lives of the soothsayers and the wise.
 
 Taken before the king, he was asked,
 
-“Art thou able to make known unto me the dream which I have seen, and the interpretation thereof?” (Dan. 2:26.)
+“Art thou able to make known unto me the dream which I have seen, and the interpretation thereof?” ([[Daniel 2.26|Dan. 2:26]].)
 
 And Daniel said the king’s secret could not be interpreted and revealed by the wise men, the astrologers, the magicians, and the soothsayers of the king:
 
-“But there is a God in heaven that revealeth secrets, and maketh known to the king Nebuchadnezzar what shall be in the latter days.” (Dan. 2:28.)
+“But there is a God in heaven that revealeth secrets, and maketh known to the king Nebuchadnezzar what shall be in the latter days.” ([[Daniel 2.28|Dan. 2:28]].)
 
 Daniel said to the king that his dream was a portrayal of the history of the world. Then came the picture of the great image with head of fine gold, and breast and arms of silver, and belly and thighs of brass, and legs of iron, and feet of iron and clay. Then the revelation continued:
 
-“Thou sawest till that a stone was cut out without hands, which smote the image upon his feet that were of iron and clay, and brake them to pieces.” (Dan. 2:34.)
+“Thou sawest till that a stone was cut out without hands, which smote the image upon his feet that were of iron and clay, and brake them to pieces.” ([[Daniel 2.34|Dan. 2:34]].)
 
-And the various elements of which the image was made were broken into pieces and “became like the chaff of the summer threshing floors; and the wind carried them away.” The wind had carried away the destroyed elements, “and the stone that smote the image became a great mountain, and filled the whole earth.” (Dan. 2:35.)
+And the various elements of which the image was made were broken into pieces and “became like the chaff of the summer threshing floors; and the wind carried them away.” The wind had carried away the destroyed elements, “and the stone that smote the image became a great mountain, and filled the whole earth.” ([[Daniel 2.35|Dan. 2:35]].)
 
 Then came the interpretation.
 
@@ -211,9 +212,9 @@ The interpretation included the domination of other kingdoms. Cyrus the great, w
 
 With the history of the world delineated in brief, now came the real revelation. Daniel said:
 
-“And in the days of these kings [that is, the group of European nations] shall the God of heaven set up a kingdom, which shall never be destroyed: and the kingdom shall not be left to other people, but it shall break in pieces and consume all these kingdoms, and it shall stand for ever.
+“And in the days of these kings \[that is, the group of European nations\] shall the God of heaven set up a kingdom, which shall never be destroyed: and the kingdom shall not be left to other people, but it shall break in pieces and consume all these kingdoms, and it shall stand for ever.
 
-“Forasmuch as thou sawest that the stone was cut out of the mountain without hands, and that it brake in pieces the iron, the brass, the clay, the silver, and the gold; the great God hath made known to the king what shall come to pass hereafter: and the dream is certain, and the interpretation thereof sure.” (Dan. 2:44–45.)
+“Forasmuch as thou sawest that the stone was cut out of the mountain without hands, and that it brake in pieces the iron, the brass, the clay, the silver, and the gold; the great God hath made known to the king what shall come to pass hereafter: and the dream is certain, and the interpretation thereof sure.” ([[Daniel 2.44|Dan. 2:44–45]][[Daniel 2.45|]].)
 
 This is a revelation concerning the history of the world, when one world power would supersede another until there would be numerous smaller kingdoms to share the control of the earth.
 
@@ -231,7 +232,7 @@ It came about in a regular, normal process. An inspired, fourteen-year-old boy h
 
 The time had come, and though the adversary, Satan, recognizing all the powers of eternity which would be revealed with the gospel, did everything in his power to destroy the lad and destroy the prospects of the Restoration—in spite of him there came the splendid and magnificent vision to this pure, inquiring lad. Exerting all his powers, and with the strength of the Lord, the darkness was dispelled. Satan yielded and the vision proceeded, with a pillar of light coming exactly over the boy’s head—a light above the brightness of the sun, which gradually descended until it fell upon him. The young Joseph continues:
 
-“It no sooner appeared than I found myself delivered from the enemy which held me bound. When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—This is My Beloved Son. Hear Him!” (JS—H 1:17.)
+“It no sooner appeared than I found myself delivered from the enemy which held me bound. When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—This is My Beloved Son. Hear Him!” ([[Joseph Smith History 1.17|JS—H 1:17]].)
 
 This formal introduction by the Father to the Son was most important, for this would be the world of Jesus Christ and the Church of Jesus Christ and the kingdom of Jesus Christ.
 
@@ -249,7 +250,7 @@ Elijah, the prophet of the eternal work for the dead, returned to make way and p
 
 The organizers of the Church were told by the Lord:
 
-“No one shall be appointed to receive commandments and revelations in this church excepting my servant Joseph Smith, Jun., for he receiveth them even as Moses.” (D&C 28:2.)
+“No one shall be appointed to receive commandments and revelations in this church excepting my servant Joseph Smith, Jun., for he receiveth them even as Moses.” ([[D&C 28.2|D&C 28:2]].)
 
 And the prophet Moroni appeared unto Joseph and spent long hours explaining the peopling of the American continents by the Lehites and also the Book of Mormon, which would be unearthed and translated. This book would be a further testimony of the coming of Christ to America and would give testimony that Jesus was the Christ, the Eternal God, for both Jew and gentile. This record, the Book of Mormon, would help to establish the divinity of the Lord Jesus Christ.
 
@@ -259,11 +260,14 @@ The Church was organized. Small it was, with only six members, compared to the s
 
 Rough days were ahead for the little kingdom. Prophets were assassinated. Persecutions and drivings have taken place and have vexed the fast-growing little church. A great exodus to the mountains of the West was directed by revelation. The colonization of the West occurred. Great tribulations were suffered. Blood was spilled. Hunger has taken its lives, but today the stone rolls forth to fill the earth.
 
-Twenty-three thousand young missionaries proclaim these truths to thousands of people in their home areas. The gospel spreads to the nations of the earth in its approach toward the promise made by God through Daniel to fill the whole earth, and numerous people of all nationalities and tongues are accepting the gospel in many nations, and the Church and kingdom grow and develop, and we say to you and testify to you that it shall, in Daniel’s words, “never be destroyed; and the kingdom shall not be left to other people ... but it shall stand forever.” (Dan. 2:44.)
+Twenty-three thousand young missionaries proclaim these truths to thousands of people in their home areas. The gospel spreads to the nations of the earth in its approach toward the promise made by God through Daniel to fill the whole earth, and numerous people of all nationalities and tongues are accepting the gospel in many nations, and the Church and kingdom grow and develop, and we say to you and testify to you that it shall, in Daniel’s words, “never be destroyed; and the kingdom shall not be left to other people … but it shall stand forever.” ([[Daniel 2.44|Dan. 2:44]].)
 
 Numerous revelations have made clear to the members that eternal life, which is their goal, is available by having the ordinances performed and then by living the commandments of God.
 
 We give these truths to you, not in arrogance or worldly pride, but with a deep sincerity and a kindly offer—the gospel without price, the gospel of truth, the gospel of salvation and exaltation.
 
-I know it is true. I know it is divine. I know it is the little stone that was cut out of a mountain without hands. I know it will fill the earth as prophesied and commanded by the Savior Jesus Christ when, in his last moments on earth, he said to his eleven apostles, “Go ye into all the world and preach the gospel to every creature”—to every nation, kindred, tongue, and people. (See Mark 16:15.) I know it is true from the birth of Adam to the days of Daniel to the days of Joseph Smith and to this day. I know it is true and divine. We offer it to you without price. We promise to you life eternal if you will follow its precepts strictly. And I bear this witness to you in the name of Jesus Christ. Amen.
+I know it is true. I know it is divine. I know it is the little stone that was cut out of a mountain without hands. I know it will fill the earth as prophesied and commanded by the Savior Jesus Christ when, in his last moments on earth, he said to his eleven apostles, “Go ye into all the world and preach the gospel to every creature”—to every nation, kindred, tongue, and people. (See [[Mark 16.15|Mark 16:15]].) I know it is true from the birth of Adam to the days of Daniel to the days of Joseph Smith and to this day. I know it is true and divine. We offer it to you without price. We promise to you life eternal if you will follow its precepts strictly. And I bear this witness to you in the name of Jesus Christ. Amen.
+
+
+
 

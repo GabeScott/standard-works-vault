@@ -1,5 +1,6 @@
 # We Love You—Please Come Back
-*By Richard G. Scott - Of the Presidency of the Seventy*
+
+By Elder Richard G. Scott - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1986 General Conference*
 
@@ -23,17 +24,17 @@ May I share with you some of the insight that will come as you carefully study t
 
 Of his own repentance, Alma declares:
 
-“I was ... in the most bitter pain and anguish of soul; and never, until I did cry out unto the Lord Jesus Christ for mercy, did I receive a remission of my sins. But behold, I did cry unto him and I did find peace to my soul.
+“I was … in the most bitter pain and anguish of soul; and never, until I did cry out unto the Lord Jesus Christ for mercy, did I receive a remission of my sins. But behold, I did cry unto him and I did find peace to my soul.
 
-“And now, ... I have told you this that ye may learn wisdom, ... that there is no other way or means whereby man can be saved, only in and through Christ. ...” (Alma 38:8–9.)
+“And now, … I have told you this that ye may learn wisdom, … that there is no other way or means whereby man can be saved, only in and through Christ.” ([[Alma 38.8|Alma 38:8–9]][[Alma 38.9|]].)
 
 From this scripture you can see that suffering does not bring forgiveness. It comes through faith in Christ and obedience to His teachings, so that His gift of redemption can apply.
 
 You will learn that sincere, repeated prayer, study, and meditation bring a fuller understanding of the atonement of Jesus Christ. Consider His statement from the Book of Mormon:
 
-“Behold, I have come ... to bring redemption unto the world, to save the world from sin.
+“Behold, I have come … to bring redemption unto the world, to save the world from sin.
 
-“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive, for of such is the kingdom of God. ... Therefore repent, and come unto me ... and be saved.” (3 Ne. 9:21–22.)
+“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive, for of such is the kingdom of God. … Therefore repent, and come unto me … and be saved.” ([[3 Nephi 9.21|3 Ne. 9:21–22]][[3 Nephi 9.22|]].)
 
 As you ponder such teachings, your own forgiveness will seem more attainable. As you pray from the depth of humility, with total honesty, our Father will hear you and the easing of the burden will begin.
 
@@ -45,13 +46,13 @@ In time, with the help of a caring, compassionate bishop, you will complete the 
 
 Should there be one such within the sound of my voice, I plead with all of my soul that the Lord will touch your heart and cause you to ponder his declaration:
 
-“Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.
+“Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, *remember them no more.*
 
-“By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them.” (D&C 58:42–43; italics added.)
+“By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them.” ([[D&C 58.42|D&C 58:42–43]][[D&C 58.43|]]; italics added.)
 
 Can’t you see that to continue to suffer for sins, when there has been proper repentance and forgiveness of the Lord, is not prompted by the Savior but by the master of deceit, whose goal has always been to bind and enslave the children of our Father in Heaven? Satan would encourage you to continue to relive the details of past mistakes, knowing that such thoughts make progress, growth, and service difficult to attain. It is as though Satan ties strings to the mind and body so that he can manipulate one like a puppet, discouraging personal achievement.
 
-I testify that Jesus Christ paid the price and satisfied the demands of justice for all who are obedient to His teachings. Thus, full forgiveness is granted, and the distressing effects of sin need no longer persist in one’s life. Indeed, they cannot persist if one truly understands the meaning of Christ’s Atonement.
+I testify that Jesus Christ paid the price and satisfied the demands of justice for all who are obedient to His teachings. Thus, full forgiveness is granted, and the distressing effects of sin need no longer persist in one’s life. Indeed, they *cannot persist* if one truly understands the meaning of Christ’s Atonement.
 
 Ammon, in the Book of Mormon, shows you how to respond when thoughts of past, forgiven transgressions return. Recalling his missionary experiences among the Lamanites, Ammon said:
 
@@ -63,13 +64,13 @@ Aaron, his brother, cautioned:
 
 Ammon replied:
 
-“I do not boast in my own strength, nor in my own wisdom; but behold, ... my heart is brim with joy, and I will rejoice in my God. ...
+“I do not boast in my own strength, nor in my own wisdom; but behold, … my heart is brim with joy, and I will rejoice in my God. …
 
 “Who could have supposed that our God would have been so merciful as to have snatched us from our awful, sinful, and polluted state?
 
-“Oh then, why did he not consign us to an awful destruction, yea, why did he not let the sword of his justice fall upon us, and doom us to eternal despair? ...
+“Oh then, why did he not consign us to an awful destruction, yea, why did he not let the sword of his justice fall upon us, and doom us to eternal despair?
 
-“Behold, he did not exercise his justice upon us, but in his great mercy hath brought us ... the salvation of our souls.” (Alma 26:4, 10–11, 17, 19–20.)
+“… Behold, he did not exercise his justice upon us, but in his great mercy hath brought us … the salvation of our souls.” ([[Alma 26.4|Alma 26:4, 10–11, 17, 19–20]][[Alma 26.10|]][[Alma 26.11|]][[Alma 26.17|]][[Alma 26.19|]][[Alma 26.20|]].)
 
 That is the secret, stated simply by a servant of God. When memory of prior mistakes encroaches upon your mind, turn your thoughts to Jesus Christ, to the miracle of forgiveness and renewal that comes through Him. Then your suffering will be replaced by joy, gratitude, and thanksgiving for His love.
 
@@ -80,4 +81,7 @@ The first friend is the Book of Mormon itself. It will make you feel good and st
 You will also discover the greatest friend of all, Jesus the Christ, our Savior and Redeemer, full of perfect love and boundless compassion, with the power to forgive and forget. It is difficult for me to speak of Him, for I love Him so deeply. May the Spirit bear witness of that love and somehow touch your heart that you may find the courage to take those steps that will bring you peace and tranquility, that will restore your feelings of self-worth and place you on the path to happiness.
 
 We love you; we need you. Please come back. Don’t wait until all is in perfect order. We’ll walk beside you. We love you. Please come back. In the name of Jesus Christ, amen.
+
+
+
 

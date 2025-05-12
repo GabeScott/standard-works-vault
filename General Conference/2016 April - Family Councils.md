@@ -1,7 +1,10 @@
 # Family Councils
-*By M. Russell Ballard - Of the Quorum of the Twelve Apostles*
+
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
+
+>*When parents are prepared and children listen and participate in the discussion, the family council is truly working!*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/04/family-councils?lang=eng)
 
@@ -9,7 +12,7 @@ My brothers and sisters, the irony of being parents is that we tend to get good 
 
 During my apostolic ministry, I have frequently emphasized the power and importance of Church councils, including mission, stake, ward, and auxiliary councils.
 
-I believe councils are the most effective way to get real results. Additionally, I know councils are the Lord’s way and that He created all things in the universe through a heavenly council, as mentioned in the holy scripture.
+I believe councils are the most effective way to get real results. Additionally, I know councils are the Lord’s way and that He created all things in the universe through a heavenly council, as mentioned in the holy scripture.[^1]
 
 Until now, however, I have never talked in general conference about the most basic and fundamental—and perhaps the most important—of all councils: the family council.
 
@@ -33,9 +36,9 @@ In all of these family council settings, electronic devices need to be turned of
 
 Let me briefly share with you how each of these types of family councils can work.
 
-First, the full family council includes all family members.
+**First, the full family council** includes all family members.
 
-The Church pamphlet entitled Our Family states, “This council can meet to discuss family problems, work out finances, make plans, support and strengthen [each other], and pray for one another and for the family unit.”
+The Church pamphlet entitled *Our Family* states, “This council can meet to discuss family problems, work out finances, make plans, support and strengthen \[each other\], and pray for one another and for the family unit.”[^2]
 
 This council should meet at a predesignated time and is normally more formal than any other type of family council.
 
@@ -63,13 +66,13 @@ As noted previously, from time to time an expanded family council may be helpful
 
 You may want to consider holding the general family council on Sunday, which is the first day of the week; families can review the past week and plan for the coming week. This may be exactly what your family needs to help make the Sabbath a delightful experience.
 
-The second type of family council is an executive family council that involves only the parents. During this time together, parents can review each child’s physical, emotional, and spiritual needs and his or her progress.
+**The second type of family council** is an executive family council that involves only the parents. During this time together, parents can review each child’s physical, emotional, and spiritual needs and his or her progress.
 
-The executive family council is also a good time for wives and husbands to talk about their personal relationships with each other. When Elder Harold B. Lee performed our sealing, he taught us a principle that I believe all couples will find helpful. He said, “Never retire without kneeling together, holding hands, and saying your prayers. Such prayers invite Heavenly Father to counsel us by the power of the Spirit.”
+The executive family council is also a good time for wives and husbands to talk about their personal relationships with each other. When Elder Harold B. Lee performed our sealing, he taught us a principle that I believe all couples will find helpful. He said, “Never retire without kneeling together, holding hands, and saying your prayers. Such prayers invite Heavenly Father to counsel us by the power of the Spirit.”
 
-The third type of family council is a limited family council. Here, both parents spend time with an individual child in a formal or an informal setting. This is an opportunity for a discussion on making decisions in advance about such things as what he or she will and will not do in the future. When such decisions are made, he or she may want to record them for future reference if needed. If your son or daughter sees you as a staunch supporter, this council meeting can establish goals and objectives for the future. This is also a time to carefully listen to serious concerns and challenges that a child may have faced with such things as lack of confidence, abuse, bullying, or fear.
+**The third type of family council** is a limited family council. Here, both parents spend time with an individual child in a formal or an informal setting. This is an opportunity for a discussion on *making decisions in advance* about such things as what he or she will and will not do in the future. When such decisions are made, he or she may want to record them for future reference if needed. If your son or daughter sees you as a staunch supporter, this council meeting can establish goals and objectives for the future. This is also a time to carefully listen to serious concerns and challenges that a child may have faced with such things as lack of confidence, abuse, bullying, or fear.
 
-The fourth type of family council is a one-on-one family council involving one parent and one child. This type of family council generally just happens. For example, the parent and child can take advantage of informal opportunities while traveling in the car or working around the house. An outing with one child with either father or mother can provide a special spiritual and emotional bonding time. Calendar these in advance so children can anticipate and look forward to a special time alone with Mom or Dad.
+**The fourth type of family council** is a one-on-one family council involving one parent and one child. This type of family council generally just happens. For example, the parent and child can take advantage of informal opportunities while traveling in the car or working around the house. An outing with one child with either father or mother can provide a special spiritual and emotional bonding time. Calendar these in advance so children can anticipate and look forward to a special time alone with Mom or Dad.
 
 Now, brothers and sisters, there was a time when the walls of our homes provided all the defense we needed against outside intrusions and influences. We locked the doors, closed the windows; we shut the gates; and we felt safe, secure, and protected in our own little refuge from the outside world.
 
@@ -79,11 +82,22 @@ Fortunately, the Lord has provided a way to counter the invasion of negative tec
 
 Children desperately need parents willing to listen to them, and the family council can provide a time during which family members can learn to understand and love one another.
 
-Alma taught, “Counsel with the Lord in all thy doings, and he will direct thee for good.” Inviting the Lord to be part of our family council through prayer will improve our relationships with each other. We can, with Heavenly Father and our Savior’s help, become more patient, thoughtful, helpful, forgiving, and understanding as we pray for help. With Their help, we can make our homes a little bit of heaven here on earth.
+Alma taught, “Counsel with the Lord in all thy doings, and he will direct thee for good.”[^3] Inviting the Lord to be part of our family council through prayer will improve our relationships with each other. We can, with Heavenly Father and our Savior’s help, become more patient, thoughtful, helpful, forgiving, and understanding as we pray for help. With Their help, we can make our homes a little bit of heaven here on earth.
 
 A family council that is patterned after the councils in heaven, filled with Christlike love, and guided by the Lord’s Spirit will help us to protect our family from distractions that can steal our precious time together and protect us from the evils of the world.
 
-Combined with prayer, a family council will invite the presence of the Savior, as He promised: “For where two or three are gathered together in my name, there am I in the midst of them.” Inviting the Spirit of the Lord to be part of your family council brings blessings beyond description.
+Combined with prayer, a family council will invite the presence of the Savior, as He promised: “For where two or three are gathered together in my name, there am I in the midst of them.”[^4] Inviting the Spirit of the Lord to be part of your family council brings blessings beyond description.
 
 Finally, please remember that a family council held regularly will help us spot family problems early and nip them in the bud; councils will give each family member a feeling of worth and importance; and most of all they will assist us to be more successful and happy in our precious relationships, within the walls of our homes. May our Heavenly Father bless all of our families as we counsel together is my humble prayer in the name of the Lord Jesus Christ, amen.
+
+
+
+
+[^1]: See [[Abraham 4.26|Abraham 4:26]]; [[Abraham 5.2|5:2–3]][[Abraham 5.3|]].
+
+[^2]: *Our Family: A Practical Guide for Building a Gospel-Centered Home* (pamphlet, 1982), 6.
+
+[^3]: [[Alma 37.37|Alma 37:37]].
+
+[^4]: [[Matthew 18.20|Matthew 18:20]].
 

@@ -1,5 +1,6 @@
 # Decisions
-*By Eldred G. Smith - Patriarch to the Church*
+
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -15,7 +16,7 @@ Let us go back together in our thoughts to the time before this earth was create
 
 “And the Lord said: Whom shall I send? And one answered like unto the Son of Man: Here am I, send me. And another answered and said: Here am I, send me. And the Lord said: I will send the first.
 
-“And the second was angry, and kept not his first estate; and, at that day, many followed after him.” (Abr. 3:24–28.)
+“And the second was angry, and kept not his first estate; and, at that day, many followed after him.” ([[Abraham 3.24|Abr. 3:24–28]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]][[Abraham 3.28|]].)
 
 Lucifer, who was another of our elder brothers, a son of the morning, must have made a very attractive offer. I can imagine his saying, “Follow me and I will give you a new plan—the old one is outdated; you don’t have to take a chance. I’ll guarantee that all will return; none shall be lost.” He was a good psychologist. He appealed to our desires for security. He made his plan so attractive that a third of the hosts of heaven followed him.
 
@@ -43,7 +44,7 @@ One step at a time, Job became strengthened to withstand all. Then Job uttered t
 
 “And though after my skin worms destroy this body, yet in my flesh shall I see God:
 
-“Whom I shall see for myself, and mine eyes shall behold, and not another; though my reins be consumed within me.” (Job 19:25–27.)
+“Whom I shall see for myself, and mine eyes shall behold, and not another; though my reins be consumed within me.” ([[Job 19.25|Job 19:25–27]][[Job 19.26|]][[Job 19.27|]].)
 
 If we are to attain a degree of perfection, we too must come to that stage where, if the Lord desired, he could loose Satan on us with his full power, except not to destroy the soul. If we withstand that, then we will have attained a stage of perfection, even exaltation.
 
@@ -55,9 +56,9 @@ Here, then, is a key to help us make correct decisions. The Lord told Oliver Cow
 
 “But, behold, I say unto you, that you must study it out in your mind; then you must ask me if it be right, and if it is right I will cause that your bosom shall burn within you; therefore, you shall feel that it is right.
 
-“But if it be not right you shall have no such feelings, but you shall have a stupor of thought that shall cause you to forget the thing which is wrong; therefore, you cannot write that which is sacred save it be given you from me.” (D&C 9:7–9.)
+“But if it be not right you shall have no such feelings, but you shall have a stupor of thought that shall cause you to forget the thing which is wrong; therefore, you cannot write that which is sacred save it be given you from me.” ([[D&C 9.7|D&C 9:7–9]][[D&C 9.8|]][[D&C 9.9|]].)
 
-The Lord has said, “Seek and you shall find. Knock and it shall be opened unto you. Ask and you shall receive.” (See Matt. 7:7; Luke 11:9.)
+The Lord has said, “Seek and you shall find. Knock and it shall be opened unto you. Ask and you shall receive.” (See [[Matthew 7.7|Matt. 7:7]]; [[Luke 11.9|Luke 11:9]].)
 
 It’s your decision. Each individual must make his own decisions. No one can live someone else’s life for him.
 
@@ -73,25 +74,20 @@ When you desire to do what the Lord wants you to do because he wants you to, the
 
 It is your decision!
 
-“Know this, that every soul is free
-
-To choose his life and what he’ll be,
-
-For this eternal truth is given
-
-That God will force no man to heav’n.
-
-He’ll call, persuade, direct aright.
-
-And bless with wisdom, love, and light,
-
-In nameless ways be good and kind,
-
-But never force the human mind.”
-
-—Hymns, No. 90
+>“Know this, that every soul is free
+>To choose his life and what he’ll be,
+>For this eternal truth is given
+>That God will force no man to heav’n.
+>He’ll call, persuade, direct aright.
+>And bless with wisdom, love, and light,
+>In nameless ways be good and kind,
+>But never force the human mind.”
+>
 
 I encourage all to realize the importance, and the great asset that is ours, of free agency, and learn to use it wisely by making decisions with the help of the Lord through prayer.
 
 I pray for the blessings of the Lord upon all who seek to do his will, in the name of Jesus Christ. Amen.
+
+
+
 

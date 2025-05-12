@@ -1,7 +1,10 @@
 # Welcome to Conference
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2014 General Conference*
+
+>*As we listen, may our hearts be touched and our faith increased.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/10/welcome-to-conference?lang=eng)
 
@@ -11,7 +14,7 @@ This conference marks the 90-year anniversary of radio broadcasts of general con
 
 We acknowledge the blessings of modern media in allowing millions of members of the Church to watch or listen to general conference. The sessions of this weekend are being broadcast via television, radio, cable, satellite transmission, and the Internet, including on mobile devices.
 
-During the past six months since we last met, one new temple has been dedicated and one rededicated. In May, President Dieter F. Uchtdorf dedicated the Fort Lauderdale Florida Temple. A wonderful youth cultural celebration was presented the day prior to the dedication. The following day, on Sunday, May 4, the temple was dedicated in three sessions.
+During the past six months since we last met, one new temple has been dedicated and one rededicated. In May, President Dieter F. Uchtdorf dedicated the Fort Lauderdale Florida Temple. A wonderful youth cultural celebration was presented the day prior to the dedication. The following day, on Sunday, May 4, the temple was dedicated in three sessions.
 
 Just two weeks ago it was my privilege to rededicate the Ogden Utah Temple, originally dedicated in 1972 by President Joseph Fielding Smith. A grand cultural celebration took place the day before the rededication, with so many youth participating that two separate performances were presented, with a different cast for each. In all, 16,000 youth participated. The rededication services took place the following day, with many of the Brethren participating, along with the auxiliary leaders and the temple president, his counselors, and their wives.
 
@@ -22,4 +25,7 @@ As I mentioned in April, when all the previously announced temples are construct
 The Church continues to grow. We are now more than 15 million strong and increasing in numbers. Our missionary efforts are going forward unhindered. We have over 88,000 missionaries serving, sharing the gospel message the world over. We reaffirm that missionary work is a priesthood duty, and we encourage all worthy and able young men to serve. We are very grateful for the young women who also serve. They make a significant contribution, although they are not under the same mandate to serve as are the young men.
 
 Now I invite you to give your attention to the brethren and sisters who will participate today and tomorrow in our conference sessions. All who have been asked to speak feel a great responsibility in doing so. As we listen, may our hearts be touched and our faith increased, I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

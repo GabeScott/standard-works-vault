@@ -1,51 +1,66 @@
 # Covenants
-*By Boyd K. Packer - Of the Quorum of the Twelve Apostles*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1990/10/covenants?lang=eng)
 
-It was an experience to hear President Joseph Fielding Smith pray. Even when he was past ninety he would pray that he would “keep his covenants and obligations and endure to the end.” The word covenant is the subject of my message.
+It was an experience to hear President Joseph Fielding Smith pray. Even when he was past ninety he would pray that he would “keep his *covenants* and *obligations* and endure to the end.” The word *covenant* is the subject of my message.
 
-The Lord told the ancients, “With thee will I establish my covenant.” (Gen. 6:18.) He told the Nephites, “Ye are the children of the covenant.” (3 Ne. 20:26.) And he described the restored gospel as the “new and ... everlasting covenant.” (D&C 22:1; italics added.) Every Latter-day Saint is under covenant. Baptism is a covenant; so is the sacrament. Through it we renew the covenant of baptism and commit to “always remember him and keep his commandments.” (D&C 20:77.)
+The Lord told the ancients, “With thee will I establish my covenant” ([[Genesis 6.18|Gen. 6:18]]). He told the Nephites, “Ye are the children of the covenant” ([[3 Nephi 20.26|3 Ne. 20:26]]). And he described the restored gospel as the *“new and … everlasting covenant”* ([[D&C 22.1|D&C 22:1]]; italics added). Every Latter-day Saint is under *covenant.* Baptism is a covenant; so is the sacrament. Through it we renew the covenant of baptism and commit to “always remember him and keep his commandments” ([[D&C 20.77|D&C 20:77]]).
+
+## Three Dangerous Life-Styles
 
 My message is to you who are tempted either to promote, to enter, or to remain in a life-style which violates your covenants and will one day bring sorrow to you and to those who love you.
 
 Growing numbers of people now campaign to make spiritually dangerous life-styles legal and socially acceptable. Among them are abortion, the gay-lesbian movement, and drug addiction. They are debated in forums and seminars, in classes, in conversations, in conventions, and in courts all over the world. The social and political aspects of them are in the press every day.
 
-The point I make is simply this: there is a MORAL and SPIRITUAL side to these issues which is universally ignored. For Latter-day Saints, morality is one component which must not be missing when these issues are considered—otherwise sacred covenants are at risk! Keep your covenants and you will be safe. Break them and you will not.
+## Moral and Spiritual
 
-The commandments found in the scriptures, both the positive counsel and the “shalt nots,” form the letter of the law. There is also the spirit of the law. We are responsible for both.
+The point I make is simply this: there is a *MORAL* and *SPIRITUAL* side to these issues which is universally ignored. For Latter-day Saints, morality is one component which must not be missing when these issues are considered—otherwise sacred covenants are at risk! Keep your covenants and you will be safe. Break them and you will not.
 
-Some challenge us to show where the scriptures specifically forbid abortion or a gay-lesbian or drug-centered life-style. “If they are so wrong,” they ask, “why don’t the scriptures tell us so in ‘letter of the law’ plainness?” These issues are not ignored in the revelations.* The scriptures are generally positive rather than negative in their themes, and it is a mistake to assume that anything not specifically prohibited in the “letter of the law” is somehow approved of the Lord. All the Lord approves is not detailed in the scriptures, neither is all that is forbidden. The Word of Wisdom, for instance, makes no specific warning against taking arsenic. Surely we don’t need a revelation to tell us that!
+The commandments found in the scriptures, both the positive counsel and the “shalt nots,” form the *letter* of the law. There is also the *spirit* of the law. We are responsible for both.
 
-The Lord said, “It is not meet that I should command in all things; for he that is compelled in all things, the same is a slothful and not a wise servant.” (D&C 58:26.) The prophets told us in the Book of Mormon that “men are instructed sufficiently that they know good from evil.” (2 Ne. 2:5; see Hel. 14:31.)
+Some challenge us to show where the scriptures specifically forbid abortion or a gay-lesbian or drug-centered life-style. “If they are so wrong,” they ask, “why don’t the scriptures tell us so in ‘letter of the law’ plainness?” These issues are not ignored in the revelations.[*](https://churchofjesuschrist.org/study/general-conference/1990/10/covenants?lang=eng#note_asterisk) The scriptures are generally positive rather than negative in their themes, and it is a mistake to assume that anything not specifically prohibited in the “*letter* of the law” is somehow approved of the Lord. All the Lord approves is not detailed in the scriptures; neither is all that is forbidden. The Word of Wisdom, for instance, makes no specific warning against taking arsenic. Surely we don’t need a revelation to tell us that!
 
-Life is meant to be a test to see if we will keep the commandments of God. (See 2 Ne. 2:5.) We are free to obey or to ignore the spirit and the letter of the law. But the agency granted to man is a moral agency. (See D&C 101:78.) We are not free to break our covenants and escape the consequences.
+The Lord said, “It is not meet that I should command in all things; for he that is compelled in all things, the same is a slothful and not a wise servant” ([[D&C 58.26|D&C 58:26]]). The prophets told us in the Book of Mormon that “men are instructed sufficiently that they know good from evil” ([[2 Nephi 2.5|2 Ne. 2:5]]; see also [[Helaman 14.31|Hel. 14:31]]).
 
-The laws of God are ordained to make us happy. Happiness cannot coexist with immorality: the prophet Alma told us in profound simplicity that “wickedness never was happiness.” (Alma 41:10.)
+Life is meant to be a test to see if we will keep the commandments of God (see [[2 Nephi 2.5|2 Ne. 2:5]]). We are free to obey or to ignore the spirit and the letter of the law. But the agency granted to man is a *moral* agency (see [[D&C 101.78|D&C 101:78]]). We are not free to break our covenants and escape the consequences.
 
-Always when these destructive life-styles are debated, “individual right of choice” is invoked as though it were the one sovereign virtue. That could be true only if there were but one of us. The rights of any individual bump up against the rights of another. And the simple truth is that we cannot be happy, nor saved, nor exalted, without one another.
+The laws of God are ordained to make us happy. Happiness cannot coexist with immorality: the prophet Alma told us in profound simplicity that “wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]).
 
-The word tolerance is also invoked as though it overrules everything else. Tolerance may be a virtue, but it is not the commanding one. There is a difference between what one is and what one does. What one is may deserve unlimited tolerance; what one does, only a measured amount. A virtue when pressed to the extreme may turn into a vice. Unreasonable devotion to an ideal, without considering the practical application of it, ruins the ideal itself.
+## Right of Choice
+
+Always when these destructive life-styles are debated, *“individual right of choice”* is invoked as though it were the one sovereign virtue. That could be true only if there were but one of us. The rights of any individual bump up against the rights of another. And the simple truth is that we cannot be happy, nor saved, nor exalted, without one another.
+
+## Tolerance
+
+The word *tolerance* is also invoked as though it overrules everything else. Tolerance may be a virtue, but it is not *the* commanding one. There is a difference between what one *is* and what one *does.* What one is may deserve unlimited tolerance; what one does, only a measured amount. A virtue when pressed to the extreme may turn into a vice. Unreasonable devotion to an ideal, without considering the practical application of it, ruins the ideal itself.
+
+## Abortion
 
 Nowhere is the right of choice defended with more vigor than with abortion. Having chosen to act, and a conception having occurred, it cannot then be unchosen. But there are still choices; always a best one.
 
 Sometimes the covenant of marriage has been broken; more often none was made. In or out of marriage, abortion is not an individual choice. At a minimum, three lives are involved.
 
-The scriptures tell us: “Thou shalt not ... kill, nor do anything like unto it.” (D&C 59:6; italics added.)
+The scriptures tell us, “Thou shalt not … kill, nor do *anything* like unto it” ([[D&C 59.6|D&C 59:6]]; italics added).
 
 Except where the wicked crime of incest or rape was involved, or where competent medical authorities certify that the life of the mother is in jeopardy, or that a severely defective fetus cannot survive birth, abortion is clearly a “thou shalt not.” Even in these very exceptional cases, much sober prayer is required to make the right choice.
 
 We face such sobering choices because we are the children of God.
 
+## Man Not Just an Animal
+
 Little do we realize what we have brought upon ourselves when we have allowed our children to be taught that man is only an advanced animal. We have compounded the mistake by neglecting to teach moral and spiritual values. Moral laws do not apply to animals for they have no agency. Where there is agency, where there is choice, moral laws must apply. We cannot, absolutely cannot, have it both ways.
 
 When our youth are taught that they are but animals, they feel free, even compelled, to respond to every urge and impulse. We should not be so puzzled at what is happening to society. We have sown the wind, and now we inherit the whirlwind. The chickens, so the saying goes, are now coming home to roost.
 
+## Gay and Lesbian Rights
+
 Several publications are now being circulated about the Church which defend and promote gay or lesbian conduct. They wrest the scriptures attempting to prove that these impulses are inborn, cannot be overcome, and should not be resisted; and therefore, such conduct has a morality of its own. They quote scriptures to justify perverted acts between consenting adults. That same logic would justify incest or the molesting of little children of either gender. Neither the letter nor the spirit of moral law condones any such conduct.
 
-I hope none of our young people will be foolish enough to accept those sources as authority for what the scriptures mean. Paul, speaking on this very subject, condemned those “who changed the truth of God into a lie, and worshipped and served the creature more than the Creator.” (Rom. 1:25.) In that same reference the word covenantbreakers is used for the only time in scripture. (See Rom. 1:31.)
+I hope none of our young people will be foolish enough to accept those sources as authority for what the scriptures mean. Paul, speaking on this very subject, condemned those “who changed the truth of God into a lie, and worshipped and served the creature more than the Creator” ([[Romans 1.25|Rom. 1:25]]). In that same reference the word *covenantbreakers* is used for the only time in scripture (see [[Romans 1.31|Rom. 1:31]]).
 
 Some choose to reject the scriptures out of hand and forsake their covenants. But they cannot choose to avoid the consequences. That choice is not theirs or ours or anybody’s.
 
@@ -53,23 +68,31 @@ All of us are subject to feelings and impulses. Some are worthy and some of them
 
 The legitimate union of the sexes is a law of God. The sacred covenants made by husband and wife with God protect the worthy expression of those feelings and impulses which are vital to the continuation of the race and essential to a happy family life. Illicit or perverted conduct leads without exception to disappointment, suffering, to tragedy.
 
+## Local Priesthood Leaders
+
 We receive letters pleading for help, asking why should some be tormented by desires which lead toward addiction or perversion. They seek desperately for some logical explanation as to why they should have a compelling attraction, even a predisposition, toward things that are destructive and forbidden.
 
 Why, they ask, does this happen to me? It is not fair! They suppose that it is not fair that others are not afflicted with the same temptations. They write that their bishop could not answer the “why,” nor could he nullify their addiction or erase the tendency.
 
-We are sometimes told that leaders in the Church do not really understand these problems. Perhaps we don’t. There are many “whys” for which we just do not have simple answers. But we do understand temptation, each of us, from personal experience. Nobody is free from temptations of one kind or another. That is the test of life. That is part of our mortal probation. Temptation of some kind goes with the territory.
+We are sometimes told that leaders in the Church do not really understand these problems. Perhaps we don’t. There are many “whys” for which we just do not have simple answers. But we *do* understand temptation, each of us, from personal experience. Nobody is free from temptations of one kind or another. That is the test of life. That is part of our mortal probation. Temptation of some kind goes with the territory.
 
 What we do know is where these temptations will lead. We have watched these life-styles play themselves out in many lives. We have seen the end of the road you are tempted to follow. It is not likely that a bishop can tell you what causes these conditions or why you are afflicted, nor can he erase the temptation. But he can tell you what is right and what is wrong. If you know right from wrong, you have a place to begin. That is the point at which individual choice becomes operative. That is the point at which repentance and forgiveness can exert great spiritual power.
 
 I believe that most people are drawn into a life of drug addiction or perversion or submit to an abortion without really realizing how morally and spiritually dangerous they are.
 
+## A Tempter
+
 Perhaps the worst of all conditions which we can create for ourselves is to become a tempter and lead an innocent one into a life-style that is destructive. The tempter entices others to come out of a “closet,” to violate covenants which they have made with God. He promises emancipation and exhilaration without saying that such a course may be spiritually fatal.
 
 A tempter will claim that such impulses cannot be changed and should not be resisted. Can you think of anything the adversary would rather have us believe?
 
-The Lord warned, “Whosoever shall offend one of these little ones that believe in me, it is better for him that a millstone were hanged about his neck, and he were cast into the sea.” (Mark 9:42.)
+The Lord warned, “Whosoever shall offend one of these little ones that believe in me, it is better for him that a millstone were hanged about his neck, and he were cast into the sea” ([[Mark 9.42|Mark 9:42]]).
+
+## Support Groups
 
 There are support groups of many kinds which seek to fortify those struggling to withdraw from drug addiction or to master other temptations. On the other hand, there are organizations which do just the opposite. They justify immoral conduct and bind the chains of addiction or perversion ever tighter. Do not affiliate with such an organization. If you have already, withdraw from it.
+
+## Spirit of Sympathy and Love
 
 Now, in a spirit of sympathy and love, I speak to you who may be struggling against temptations for which there is no moral expression. Some have resisted temptation but never seem to be free from it. Do not yield! Cultivate the spiritual strength to resist—all of your life, if need be.
 
@@ -77,15 +100,20 @@ Some are tortured by thoughts of covenants already forsaken and sometimes think 
 
 You may wonder why God does not seem to hear your pleading prayers and erase these temptations. When you know the gospel plan, you will understand that the conditions of our mortal probation require that we be left to choose. That test is the purpose of life. While these addictions may have devoured, for a time, your sense of morality or quenched the spirit within you, it is never too late.
 
-You may not be able, simply by choice, to free yourself at once from unworthy feelings. You can choose to give up the immoral expression of them.
+You may not be able, simply by choice, to free yourself at once from unworthy feelings. You *can* choose to give up the immoral expression of them.
 
-The suffering you endure from resisting or from leaving a life-style of addiction or perversion is not a hundredth part of that suffered by your parents, your spouse or your children, if you give up. Theirs is an innocent suffering because they love you. To keep resisting or to withdraw from such a life-style is an act of genuine unselfishness, a sacrifice you place on the altar of obedience. It will bring enormous spiritual rewards.
+The suffering you endure from resisting or from leaving a life-style of addiction or perversion is not a hundredth part of that suffered by your parents, your spouse, or your children, if you give up. Theirs is an innocent suffering because they love you. To keep resisting or to withdraw from such a life-style is an act of genuine unselfishness, a sacrifice you place on the altar of obedience. It will bring enormous spiritual rewards.
 
 Remember that agency, that freedom of choice that you demanded when you forsook your covenants? That same agency can now be drawn upon to exert a great spiritual power of redemption.
 
 The love we offer may be a tough love, but it is of the purest kind; and we have more to offer than our love. We can teach you of the cleansing power of repentance. If covenants have been broken, however hard it may be, they may be reinstated, and you can be forgiven. Even for abortion? Yes, even that!
 
-“Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.” (Isa. 1:18.)
+“Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool” ([[Isaiah 1.18|Isa. 1:18]]).
 
 God bless you who are struggling to resist or to free yourself from these terrible temptations that now sweep across the world, and from which we are not free in the Church. Bless those who love you and sustain you. There is great cleansing power in the priesthood. There is great cleansing power in the Church. It is a gospel of repentance. He is our Redeemer. Of him I bear witness—Jesus Christ the Son of God, the Only Begotten of the Father, who sacrificed himself that we might be clean. And of him I bear witness, in the name of Jesus Christ, amen.
+
+
+
+
+[^*]: See [[Genesis 13.13|Gen. 13:13]] (footnote 13*b*); [[Genesis 18.20|18:20–22]][[Genesis 18.21|]][[Genesis 18.22|]] (footnote 20*b*); [[Genesis 19.4|19:4–9]][[Genesis 19.5|]][[Genesis 19.6|]][[Genesis 19.7|]][[Genesis 19.8|]][[Genesis 19.9|]] (footnote 5*a*); [[JST Genesis 19.9|JST, Gen. 19:9–15]][[JST Genesis 19.10|]][[JST Genesis 19.11|]][[JST Genesis 19.12|]][[JST Genesis 19.13|]][[JST Genesis 19.14|]][[JST Genesis 19.15|]]; [[Leviticus 18.22|Lev. 18:22, 29]][[Leviticus 18.29|]]; [[Leviticus 20.13|20:13]] (footnote 13*a*); [[Deuteronomy 23.17|Deut. 23:17]] (footnote 17*b*); [[Romans 1.24|Rom. 1:24–27]][[Romans 1.25|]][[Romans 1.26|]][[Romans 1.27|]]; [[1 Corinthians 6.9|1 Cor. 6:9]] (footnotes 9*e*, *f*); [[1 Timothy 1.9|1 Tim. 1:9–10]][[1 Timothy 1.10|]] (footnote 10*b*, *c*).
 

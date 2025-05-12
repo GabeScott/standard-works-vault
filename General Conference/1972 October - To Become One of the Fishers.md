@@ -1,5 +1,6 @@
 # To Become One of the Fishers
-*By James E. Faust - Assistant to the Council of the Twelve*
+
+By Elder James E. Faust - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -19,9 +20,12 @@ I realize that life for me and mine can never and should never be the same. For 
 
 I wish President Lee to know that I sustain him, and He whom President Lee represents, with all of my devotion and all of my heart and all of my being. Under his hands I was ordained a bishop, and by him called to the stake presidency, and he has been for me all my adult life a great and beloved teacher and exemplar for all that is noble and good. President Tanner has been like a father to me, ever available, always helpful, kind, considerate, and he knows how much love and respect I have for him.
 
-President Romney, as you know, has special qualities of inspiration and wisdom and has been a special friend and confidant, and my respect and honor for him know no bounds. I would also like to mention the profound influence that President Henry D. Moyle and President Hugh B. Brown have had also on my life. These are and have been truly great men of the earth.
+President Romney, as you know, has special qualities of inspiration and wisdom and has been a special friend and confidant, and my respect and honor for him know no bounds. I would also like to mention the profound influence that President Henry D. Moyle and President Hugh B. Brown have had also on my life. These are and have been truly great men of the earth.
 
 I express appreciation to all the host of people who have blessed my life, those from whom I have learned, my missionary companions, those with whom I served in bishoprics, on high councils, stake presidencies, and my beloved friends, the Regional Representatives of the Twelve.
 
-Now as a humble follower of the divine Master, I bear witness to the divinity of him as the Savior of the world, and of his church as established in these days, now headed by President Harold B. Lee, in the name of Jesus Christ. Amen.
+Now as a humble follower of the divine Master, I bear witness to the divinity of him as the Savior of the world, and of his church as established in these days, now headed by President Harold B. Lee, in the name of Jesus Christ. Amen.
+
+
+
 

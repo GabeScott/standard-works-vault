@@ -1,5 +1,6 @@
 # Help for Parents
-*By By Bishop H. Burke Peterson - First Counselor in the Presiding Bishopric*
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -11,37 +12,37 @@ On one occasion my young friend told me he was sure that his parents loved him, 
 
 Now, years later, the offspring of this family have experienced the birth of illegitimate children, divorce in their own marriages, runaways, drug addiction, and most everything else that can be tragic in our lives.
 
-Today I would like to visit with the parents about some concerns I believe we share together. As we read the newspapers, we become justifiably concerned over what is happening around us. There is a growing concern among our people as we see the prophecies of times past being unfolded before our very eyes. Some have a feeling of frustration, anxiety, anger, and yes, even fear. But remember that Paul, in his letters to Timothy, counseled: “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.” (2 Tim. 1:7.)
+Today I would like to visit with the parents about some concerns I believe we share together. As we read the newspapers, we become justifiably concerned over what is happening around us. There is a growing concern among our people as we see the prophecies of times past being unfolded before our very eyes. Some have a feeling of frustration, anxiety, anger, and yes, even fear. But remember that Paul, in his letters to Timothy, counseled: “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.” ([[2 Timothy 1.7|2 Tim. 1:7]].)
 
 May I suggest that the steps we can take to dispel fear and bring peace and power are really very simple. The teachings of the gospel are not complicated. They are not hard to understand. They need not be confusing. Let us not be blinded by the craftiness of men.
 
-Nephi once said that because of the simpleness of the way or the easiness of it, there were many who perished. (See 1 Ne. 17:41.) Jacob put it another way when he said that they became blinded because they were continually looking beyond the mark in their search for answers. (See Jacob 4:14.) They didn’t believe in the simplicity of the gospel teachings.
+Nephi once said that because of the simpleness of the way or the easiness of it, there were many who perished. (See [[1 Nephi 17.41|1 Ne. 17:41]].) Jacob put it another way when he said that they became blinded because they were continually looking beyond the mark in their search for answers. (See [[Jacob 4.14|Jacob 4:14]].) They didn’t believe in the simplicity of the gospel teachings.
 
 Yes, it is true that a family beset with trials and concerns seems to be the constant pattern of our mortal existence. However true this fact may be, it need not—it must not—have an adverse influence in our lives. Children are saved and families are exalted by participating in some very simple gospel experiences.
 
 Let us listen to the reassuring words of the Lord as we try to analyze what we can do. He said:
 
-“But learn that he who doeth the works of righteousness shall receive his reward, even peace in this world, and eternal life in the world to come.” (D&C 59:23. Italics added.)
+“But learn that he who doeth the works of righteousness shall receive his reward, even *peace* in this world, and *eternal life* in the world to come.” ([[D&C 59.23|D&C 59:23]]. Italics added.)
 
-“Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me.” (D&C 19:23.)
+“Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me.” ([[D&C 19.23|D&C 19:23]].)
 
 Could this be our answer? I find in these scriptures some very clear instructions and comforting promises. May I discuss just one of many possibilities with you.
 
 “Learn of me,” he said, “and you shall have peace in me.” We’ve spoken often of where we can best learn of him—of course it still is and always shall be in the home. This is the main purpose for which the Lord established the organization of the family and home—that therein we might teach each other, especially the little children, to love the Savior and understand and live his teachings. As you consider the importance of teaching your little ones, have you ever thought in depth on the following scriptural passage?
 
-“And whoso shall receive one such little child in my name receiveth me.
+“And whoso shall receive one such little child in my name *receiveth me.*
 
-“But whoso shall offend one of these little ones which believe in me, it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea.” (Matt. 18:5–6. Italics added.)
+“But whoso shall *offend one of these little ones* which believe in me, it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea.” ([[Matthew 18.5|Matt. 18:5–6]][[Matthew 18.6|]]. Italics added.)
 
-“Wo unto them; because they have offended my little ones they shall be severed from the ordinances of mine house.
+“Wo unto them; because they have *offended my little ones* they shall be severed from the ordinances of mine house.
 
 “Their basket shall not be full, their houses and their barns shall perish, and they themselves shall be despised by those that flattered them.
 
-“They shall not have right to the priesthood, nor their posterity after them from generation to generation.” (D&C 121:19–21.)
+“They shall not have right to the priesthood, nor their posterity after them from generation to generation.” ([[D&C 121.19|D&C 121:19–21]][[D&C 121.20|]][[D&C 121.21|]].)
 
 Might it not be an offense of the greatest magnitude if we don’t teach them of Him, if we don’t teach them to listen to His words and to walk in the meekness of His Spirit? Let us ponder that in our hearts.
 
-As we consider how we might better learn of Him and teach of Him, may I suggest one of the great blessings your family may be missing out on is the simple experience of reading the scriptures together daily. We read in Deuteronomy 6:6–7, “And these words, which I command thee this day, shall be in thine heart:
+As we consider how we might better learn of Him and teach of Him, may I suggest one of the great blessings your family may be missing out on is the simple experience of reading the scriptures together daily. We read in [[Deuteronomy 6.6|Deuteronomy 6:6–7]][[Deuteronomy 6.7|]], “And these words, which I command thee this day, shall be in thine heart:
 
 “And thou shalt teach them diligently unto thy children, and shalt talk of them when thou sittest in thine house.”
 
@@ -61,13 +62,16 @@ The historic first morning finally came. My wife and I got up a little early so 
 
 Little by little, we have learned over the years what reading the scriptures 15 minutes each morning can do for our family. You should know that we don’t try to discuss and understand each point we read. We try to pick out only a couple of thoughts each morning to digest. You should also know we still have to struggle with the plan’s performance, even though we now have only two children at our home.
 
-Can you imagine how a parent would feel to ask a little girl, “What did King Benjamin mean when he said, ‘When ye are in the service of your fellow beings ye are only in the service of your God’?” (Mosiah 2:17.) And she would respond, “I suppose he means that I shouldn’t be selfish and should do little things for my sisters because it makes Heavenly Father happy—and Daddy, I want him to be happy with me, so I’m going to try harder.” Innumerable are the blessings that will accrue to the family that persists in this noble effort of reading the scriptures together daily.
+Can you imagine how a parent would feel to ask a little girl, “What did King Benjamin mean when he said, ‘When ye are in the service of your fellow beings ye are only in the service of your God’?” ([[Mosiah 2.17|Mosiah 2:17]].) And she would respond, “I suppose he means that I shouldn’t be selfish and should do little things for my sisters because it makes Heavenly Father happy—and Daddy, I want him to be happy with me, so I’m going to try harder.” Innumerable are the blessings that will accrue to the family that persists in this noble effort of reading the scriptures together daily.
 
-Remember he said, “Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me.” (D&C 19:23.)
+Remember he said, “Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me.” ([[D&C 19.23|D&C 19:23]].)
 
 This is a peace that surpasseth all understanding, a peace and a security that will support us through any time and any trial, a peace that will dispel the spirit of fear in a confused world.
 
-May the Lord bless us with the understanding and dedication not to offend his little ones. May he strengthen us with a resolve to teach them of him in our homes through the simple experiences of the gospel. May he bless us to understand his words: “If ye are prepared ye shall not fear.” (D&C 38:30.)
+May the Lord bless us with the understanding and dedication not to offend his little ones. May he strengthen us with a resolve to teach them of him in our homes through the simple experiences of the gospel. May he bless us to understand his words: “If ye are prepared ye shall not fear.” ([[D&C 38.30|D&C 38:30]].)
 
 In the name of Jesus Christ. Amen.
+
+
+
 

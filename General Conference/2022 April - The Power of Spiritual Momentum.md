@@ -1,7 +1,10 @@
 # The Power of Spiritual Momentum
-*By Russell M. Nelson - President of the Church*
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2022 General Conference*
+
+>*I would like to suggest five specific actions we can take to help us maintain positive spiritual momentum.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/04/47nelson?lang=eng)
 
@@ -9,67 +12,67 @@ My dear brothers and sisters, I love you. I cherish this opportunity to speak wi
 
 Some trials are deeply private burdens no one else can see. Others are played out on the world stage. The armed conflict in eastern Europe is one of these. I have been to Ukraine and Russia many times. I love those lands, the people, and their languages. I weep and pray for all who are affected by this conflict. As a church we’re doing all we can to help those who are suffering and struggling to survive. We invite everyone to continue to fast and pray for all the people being hurt by this calamity. Any war is a horrifying violation of everything the Lord Jesus Christ stands for and teaches.
 
-None of us can control nations or the actions of others or even members of our own families. But we can control ourselves. My call today, dear brothers and sisters, is to end conflicts that are raging in your heart, your home, and your life. Bury any and all inclinations to hurt others—whether those inclinations be a temper, a sharp tongue, or a resentment for someone who has hurt you. The Savior commanded us to turn the other cheek,1 to love our enemies, and to pray for those who despitefully use us.2
+None of us can control nations or the actions of others or even members of our own families. But we can control ourselves. My call today, dear brothers and sisters, is to end conflicts that are raging in *your* heart, *your* home, and *your* life. Bury any and all inclinations to hurt others—whether those inclinations be a temper, a sharp tongue, or a resentment for someone who has hurt you. The Savior commanded us to turn the other cheek,[^1] to love our enemies, and to pray for those who despitefully use us.[^2]
 
-It can be painfully difficult to let go of anger that feels so justified. It can seem impossible to forgive those whose destructive actions have hurt the innocent. And yet, the Savior admonished us to “forgive all men.”3
+It can be painfully difficult to let go of anger that feels so justified. It can seem impossible to forgive those whose destructive actions have hurt the innocent. And yet, the Savior admonished us to “forgive all men.”[^3]
 
-We are followers of the Prince of Peace. Now more than ever, we need the peace only He can bring. How can we expect peace to exist in the world when we are not individually seeking peace and harmony? Brothers and sisters, I know what I’m suggesting is not easy. But followers of Jesus Christ should set the example for all the world to follow. I plead with you to do all you can to end personal conflicts that are currently raging in your hearts and in your lives.
+We are followers of the Prince of Peace. Now more than ever, we need the peace only He can bring. How can we expect peace to exist in the world when we are not *individually* seeking peace and harmony? Brothers and sisters, I know what I’m suggesting is not easy. But followers of Jesus Christ should set the example for all the world to follow. I plead with you to do all you can to end *personal* conflicts that are currently raging in your hearts and in your lives.
 
 May I underscore this call to action by discussing a concept I was reminded of recently while watching a basketball game.
 
 In that game, the first half was a seesaw battle, back and forth. Then, during the last five seconds of the first half, a guard on one team made a beautiful three-point shot. With only one second left, his teammate stole the inbound pass and made another basket at the buzzer! So that team went into the locker room four points ahead with a palpable surge of momentum. They were able to carry that momentum into the second half and win the game.
 
-Momentum is a powerful concept. We all have experienced it in one form or another—for example, in a vehicle that picks up speed or with a disagreement that suddenly turns into an argument.
+*Momentum* is a powerful concept. We all have experienced it in one form or another—for example, in a vehicle that picks up speed or with a disagreement that suddenly turns into an argument.
 
-So I ask, what can ignite spiritual momentum? We have seen examples of both positive and negative momentum. We know followers of Jesus Christ who became converted and grew in their faith. But we also know of once-committed believers who fell away. Momentum can swing either way.
+So I ask, what can ignite *spiritual momentum*? We have seen examples of both positive and negative momentum. We know followers of Jesus Christ who became converted and grew in their faith. But we also know of once-committed believers who fell away. Momentum can swing either way.
 
-We have never needed positive spiritual momentum more than we do now, to counteract the speed with which evil and the darker signs of the times are intensifying. Positive spiritual momentum will keep us moving forward amid the fear and uncertainty created by pandemics, tsunamis, volcanic eruptions, and armed hostilities. Spiritual momentum can help us withstand the relentless, wicked attacks of the adversary and thwart his efforts to erode our personal spiritual foundation.
+We have never needed *positive* spiritual momentum more than we do now, to counteract the speed with which evil and the darker signs of the times are intensifying. Positive spiritual momentum will keep us moving forward amid the fear and uncertainty created by pandemics, tsunamis, volcanic eruptions, and armed hostilities. Spiritual momentum can help us withstand the relentless, wicked attacks of the adversary and thwart his efforts to erode our personal spiritual foundation.
 
-Many actions can ignite positive spiritual momentum. Obedience, love, humility, service, and gratitude4 are but a few.
+Many actions can ignite positive spiritual momentum. Obedience, love, humility, service, and gratitude[^4] are but a few.
 
 Today I would like to suggest five specific actions we can take to help us maintain positive spiritual momentum.
 
-First: Get on the covenant path and stay there.
+First: **Get on the covenant path and stay there.**
 
 Not long ago, I had a vivid dream in which I met a large group of people. They asked me many questions, the most frequent of which was about the covenant path and why it is so important.
 
-In my dream, I explained that we enter the covenant path by being baptized and making our first covenant with God.5 Each time we partake of the sacrament, we promise again to take the name of the Savior upon us, to remember Him, and to keep His commandments.6 In return, God assures us that we may always have the Spirit of the Lord to be with us.
+In my dream, I explained that we enter the covenant path by being baptized and making our first covenant with God.[^5] Each time we partake of the sacrament, we promise *again* to take the name of the Savior upon us, to remember Him, and to keep His commandments.[^6] In return, God assures us that we may *always* have the Spirit of the Lord to be with us.
 
-Later we make additional covenants in the temple, where we receive even greater promises. Ordinances and covenants give us access to godly power. The covenant path is the only path that leads to exaltation and eternal life.
+Later we make additional covenants in the temple, where we receive even greater promises. Ordinances and covenants give us access to godly power. The covenant path is the *only* path that leads to exaltation and eternal life.
 
 In my dream, a woman then asked how someone who has broken his or her covenants can get back on that path. My answer to her question leads to my second suggestion:
 
-Discover the joy of daily repentance.
+**Discover the joy of daily repentance.**
 
-How important is repentance? Alma taught that we should “preach nothing save it were repentance and faith on the Lord.”7 Repentance is required of every accountable person who desires eternal glory.8 There are no exceptions. In a revelation to the Prophet Joseph Smith, the Lord chastised early Church leaders for not teaching the gospel to their children.9 Repenting is the key to progress. Pure faith keeps us moving forward on the covenant path.
+How important is repentance? Alma taught that we should “preach nothing save it were repentance and faith on the Lord.”[^7] Repentance is required of every accountable person who desires eternal glory.[^8] There are no exceptions. In a revelation to the Prophet Joseph Smith, the Lord chastised early Church leaders for not teaching the gospel to their children.[^9] Repenting is the *key* to progress. Pure faith keeps us moving forward on the covenant path.
 
-Please do not fear or delay repenting. Satan delights in your misery. Cut it short. Cast his influence out of your life! Start today to experience the joy of putting off the natural man.10 The Savior loves us always but especially when we repent. He promised that though “the mountains shall depart, and the hills be removed ... my kindness shall not depart from thee.”11
+Please do not fear or delay repenting. Satan delights in your misery. Cut it short. Cast his influence out of your life! Start today to experience the joy of putting off the natural man.[^10] The Savior loves us always but *especially* when we repent. He promised that though “the mountains shall depart, and the hills be removed … *my kindness* shall not depart from thee.”[^11]
 
-If you feel you have strayed off the covenant path too far or too long and have no way to return, that simply is not true.12 Please contact your bishop or branch president. He is the Lord’s agent and will help you experience the joy and relief of repenting.
+If you feel you have strayed off the covenant path too far or too long and have no way to return, that simply is not true.[^12] Please contact your bishop or branch president. He is the Lord’s agent and will help you experience the joy and relief of repenting.
 
-Now, a caution: Returning to the covenant path does not mean that life will be easy. This path is rigorous and at times will feel like a steep climb.13 This ascent, however, is designed to test and teach us, refine our natures, and help us to become saints. It is the only path that leads to exaltation. One prophet14 described the “blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, both temporal and spiritual; and if they hold out faithful to the end they are received into heaven ... [and] dwell with God in a state of never-ending happiness.”15
+Now, a caution: Returning to the covenant path does *not* mean that life will be easy. This path is rigorous and at times will feel like a steep climb.[^13] This ascent, however, is designed to test and teach us, refine our natures, and help us to become saints. It is the *only* path that leads to exaltation. One prophet[^14] described the “blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, both temporal and spiritual; and if they hold out faithful to the end they are received into heaven … \[and\] dwell with God in a state of never-ending happiness.”[^15]
 
 Walking the covenant path, coupled with daily repentance, fuels positive spiritual momentum.
 
-My third suggestion: Learn about God and how He works.
+My third suggestion: **Learn about God and how He works.**
 
-One of our greatest challenges today is distinguishing between the truths of God and the counterfeits of Satan. That is why the Lord warned us to “pray always, ... that [we] may conquer Satan, and ... escape the hands of the servants of Satan that do uphold his work.”16
+One of our greatest challenges today is distinguishing between the truths of God and the counterfeits of Satan. That is why the Lord warned us to “pray always, … that \[we\] may conquer Satan, and … *escape the hands of the servants of Satan* that do uphold his work.”[^16]
 
-Moses provided an example of how to discern between God and Satan. When Satan came tempting Moses, he detected the deception because he had just had a face-to-face interaction with God. Moses quickly realized who Satan was and commanded him to depart.17 When Satan persisted, Moses knew how to call upon God for more help. Moses received divine strength and rebuked the evil one again, saying, “Depart from me, Satan, for this one God only will I worship.”18
+Moses provided an example of how to discern between God and Satan. When Satan came tempting Moses, he detected the deception because he had just had a face-to-face interaction with God. Moses quickly realized who Satan was and commanded him to depart.[^17] When Satan persisted, Moses knew how to call upon God for more help. Moses received divine strength and rebuked the evil one *again*, saying, “Depart from me, Satan, for this one God only will I worship.”[^18]
 
-We should follow that example. Cast Satan’s influence out of your life! Please do not follow him down to his “gulf of misery and endless wo.”19
+We should follow that example. Cast Satan’s influence out of your life! Please do not *follow* him down to his “gulf of misery and endless wo.”[^19]
 
-With frightening speed, a testimony that is not nourished daily “by the good word of God”20 can crumble. Thus, the antidote to Satan’s scheme is clear: we need daily experiences worshipping the Lord and studying His gospel. I plead with you to let God prevail in your life. Give Him a fair share of your time. As you do, notice what happens to your positive spiritual momentum.
+With frightening speed, a testimony that is not nourished daily “by the good word of God”[^20] can crumble. Thus, the antidote to Satan’s scheme is clear: we need daily experiences worshipping the Lord and studying His gospel. I plead with you to let God prevail in your life. Give Him a fair share of your time. As you do, notice what happens to your positive spiritual momentum.
 
-Suggestion number 4: Seek and expect miracles.
+Suggestion number 4: **Seek and expect miracles.**
 
-Moroni assured us that “God has not ceased to be a God of miracles.”21 Every book of scripture demonstrates how willing the Lord is to intervene in the lives of those who believe in Him.22 He parted the Red Sea for Moses, helped Nephi retrieve the brass plates, and restored His Church through the Prophet Joseph Smith. Each of these miracles took time and may not have been exactly what those individuals originally requested from the Lord.
+Moroni assured us that “God has not ceased to be a God of miracles.”[^21] *Every* book of scripture demonstrates how willing the Lord is to intervene in the lives of those who believe in Him.[^22] He parted the Red Sea for Moses, helped Nephi retrieve the brass plates, and restored His Church through the Prophet Joseph Smith. Each of these miracles took time and may not have been exactly what those individuals originally requested from the Lord.
 
-In the same way, the Lord will bless you with miracles if you believe in Him, “doubting nothing.”23 Do the spiritual work to seek miracles. Prayerfully ask God to help you exercise that kind of faith. I promise that you can experience for yourself that Jesus Christ “giveth power to the faint; and to them that have no might he increaseth strength.”24 Few things will accelerate your spiritual momentum more than realizing the Lord is helping you to move a mountain in your life.
+In the same way, the Lord will bless *you* with miracles *if* you believe in Him, “doubting nothing.”[^23] Do the spiritual work to seek miracles. Prayerfully ask God to help you exercise that kind of faith. I promise that you can experience for yourself that Jesus Christ “giveth power to the faint; and to them that have no might he increaseth strength.”[^24] Few things will accelerate your spiritual momentum more than realizing the Lord is helping you to move a mountain in your life.
 
-Suggestion number 5: End conflict in your personal life.
+Suggestion number 5: **End conflict in your personal life.**
 
-I repeat my call to end the conflicts in your life. Exercise the humility, courage, and strength required both to forgive and to seek forgiveness. The Savior has promised that “if [we] forgive men their trespasses, [our] heavenly Father will also forgive [us].”25
+I repeat my call to end the conflicts in *your* life. Exercise the humility, courage, and strength required both to forgive and to seek forgiveness. The Savior has promised that “if \[we\] forgive men their trespasses, \[our\] heavenly Father will also forgive \[us\].”[^25]
 
 Two weeks from today we celebrate Easter. Between now and then, I invite you to seek an end to a personal conflict that has weighed you down. Could there be a more fitting act of gratitude to Jesus Christ for His Atonement? If forgiveness presently seems impossible, plead for power through the atoning blood of Jesus Christ to help you. As you do so, I promise personal peace and a burst of spiritual momentum.
 
@@ -80,4 +83,57 @@ My dear brothers and sisters, with all the pleadings of my heart, I urge you to 
 As you act on these pursuits, I promise you the ability to move forward on the covenant path with increased momentum, despite whatever obstacles you face. And I promise you greater strength to resist temptation, more peace of mind, freedom from fear, and greater unity in your families.
 
 God lives! Jesus is the Christ! He lives! He loves us and will help us. Of this I testify in the sacred name of our Redeemer, Jesus Christ, amen.
+
+
+
+
+[^1]: See [[3 Nephi 12.39|3 Nephi 12:39]].
+
+[^2]: See [[3 Nephi 12.44|3 Nephi 12:44]].
+
+[^3]: [[D&C 64.10|Doctrine and Covenants 64:10]]; see also [[D&C 64.9|verse 9]].
+
+[^4]: As the Apostle Paul said, “In every thing give thanks” ([[1 Thessalonians 5.18|1 Thessalonians 5:18]]). One of the surest antidotes for despair, discouragement, and spiritual lethargy is gratitude. What are some things for which we can give thanks to God? Thank Him for the beauty of the earth, for the Restoration of the gospel, and for the countless ways He and His Son make Their power available to us here on this earth. Thank Him for the scriptures, for angels who respond to our pleas to God for help, for revelation, and for eternal families. And most of all, thank God for the gift of His Son and the Atonement of Jesus Christ, which makes it possible for us to fulfill the missions for which we have been sent to earth.
+
+[^5]: To understand the covenant path, it is important to understand that a covenant involves a two-way commitment between God and one of His children. In a covenant, God sets the terms, and we agree to those terms. In exchange, God makes promises to us. Many covenants are accompanied by outward signs—or sacred ordinances—in which we participate with witnesses present. For example, baptism is a sign to the Lord that the person being baptized has made a covenant to keep the commandments of God.
+
+[^6]: See [[Moroni 4.3|Moroni 4:3]]; [[Moroni 5.2|5:2]]; [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]].
+
+[^7]: [[Mosiah 18.20|Mosiah 18:20]].
+
+[^8]: See [[Moses 6.50|Moses 6:50, 57]][[Moses 6.57|]].
+
+[^9]: See [[D&C 93.40|Doctrine and Covenants 93:40–48]][[D&C 93.41|]][[D&C 93.42|]][[D&C 93.43|]][[D&C 93.44|]][[D&C 93.45|]][[D&C 93.46|]][[D&C 93.47|]][[D&C 93.48|]].
+
+[^10]: See [[Mosiah 3.19|Mosiah 3:19]].
+
+[^11]: [[Isaiah 54.10|Isaiah 54:10]], emphasis added; see also [[3 Nephi 22.10|3 Nephi 22:10]]. *Kindness* is translated from the Hebrew term *hesed*, a powerful word with deep meaning that encompasses kindness, mercy, covenant love, and more.
+
+[^12]: It is possible to make restitution for some sins but not others. If one person abuses or assaults another, or if one takes the life of another, full restitution cannot be made. The sinner in those cases can only do so much, and a large balance is left owing. Because of the Lord’s willingness to forgive a balance due, we can come to Him regardless of how far we have strayed. When we sincerely repent, He will forgive us. Any balance owing between our sins and our ability to make full restitution can be paid only by applying the Atonement of Jesus Christ, who can make a gift of mercy. His willingness to forgive our balance due is a priceless gift.
+
+[^13]: See [[2 Nephi 31.18|2 Nephi 31:18–20]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].
+
+[^14]: The Nephite prophet King Benjamin.
+
+[^15]: [[Mosiah 2.41|Mosiah 2:41]].
+
+[^16]: [[D&C 10.5|Doctrine and Covenants 10:5]]; emphasis added.
+
+[^17]: See [[Moses 1.16|Moses 1:16]]; see also [[Moses 1.1|verses 1–20]][[Moses 1.2|]][[Moses 1.3|]][[Moses 1.4|]][[Moses 1.5|]][[Moses 1.6|]][[Moses 1.7|]][[Moses 1.8|]][[Moses 1.9|]][[Moses 1.10|]][[Moses 1.11|]][[Moses 1.12|]][[Moses 1.13|]][[Moses 1.14|]][[Moses 1.15|]][[Moses 1.16|]][[Moses 1.17|]][[Moses 1.18|]][[Moses 1.19|]][[Moses 1.20|]].
+
+[^18]: [[Moses 1.20|Moses 1:20]].
+
+[^19]: [[Helaman 5.12|Helaman 5:12]].
+
+[^20]: [[Moroni 6.4|Moroni 6:4]].
+
+[^21]: [[Mormon 9.15|Mormon 9:15]]; see also [[Mormon 9.19|verse 19]].
+
+[^22]: John the Apostle declared that he recorded the Savior’s miracles so “that \[we\] might believe that Jesus is the Christ” ([[John 20.31|John 20:31]]).
+
+[^23]: [[Mormon 9.21|Mormon 9:21]].
+
+[^24]: [[Isaiah 40.29|Isaiah 40:29]].
+
+[^25]: [[Matthew 6.14|Matthew 6:14]].
 

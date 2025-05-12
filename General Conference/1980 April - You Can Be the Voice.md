@@ -1,5 +1,6 @@
 # You Can Be the Voice
-*By M. Russell Ballard - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -29,7 +30,7 @@ Every priesthood bearer sitting in this priesthood meeting tonight has a great w
 
 Let me show how each of us can make a sincere and meaningful commitment to Heavenly Father right now. Please find a small piece of paper and a pencil. Borrow from your neighbor if you need to. Now, brethren, write on your piece of paper the name of one inactive or nonmember man or boy who lives in your ward. Will you make a commitment tonight that you will do all in your power, with the help of the Lord, to lead that person out of darkness into the full light of the gospel? You can be to him as the voice from Hamilton Tower was to my friend and me, and you can guide him safely into full fellowship in the Church of Jesus Christ.
 
-Just a few months after I made my full commitment to the Lord that I would give my life to his service if he so desired, I was presiding over the Canada Toronto Mission. During that mission, President Kimball called me to spend the rest of my life in the service of the Lord as a member of the First Quorum of the Seventy.
+Just a few months after I made my *full* commitment to the Lord that I would give my life to his service if he so desired, I was presiding over the Canada Toronto Mission. During that mission, President Kimball called me to spend the rest of my life in the service of the Lord as a member of the First Quorum of the Seventy.
 
 No work is more important than helping bring the gospel into the lives of our brothers and sisters. You and I have no better way to demonstrate our love for the Lord than to personally lead someone into the safety of full activity in the Church.
 
@@ -43,11 +44,14 @@ The Lord has said in the Doctrine and Covenants, “Remember the worth of souls 
 
 “And how great is his joy in the soul that repenteth!
 
-“And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” (D&C 18:10–13, 15).
+“And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” ([[D&C 18.10|D&C 18:10–13, 15]][[D&C 18.11|]][[D&C 18.12|]][[D&C 18.13|]][[D&C 18.15|]]).
 
-The light of the Lord is real, my brethren. He will lead every soul out of the clouds of darkness and away from the fog of doubt and uncertainty with a perfect eternal signal that will guarantee safety, peace, and confidence. He said to all the world, “Come, ... follow me” (Mark 10:21), and “I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life” (John 8:12).
+The light of the Lord is real, my brethren. He will lead every soul out of the clouds of darkness and away from the fog of doubt and uncertainty with a perfect eternal signal that will guarantee safety, peace, and confidence. He said to all the world, “Come, … follow me” ([[Mark 10.21|Mark 10:21]]), and “I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life” ([[John 8.12|John 8:12]]).
 
 Life’s flight pattern can be changed. The instruments we use in saving souls are love and sharing our testimonies of the divine mission of our Savior and Redeemer, Jesus Christ. Thousands of our lost brethren, both men and boys, can be led to a safe landing if we will keep the commitments that we have made tonight. The power of the priesthood that is within each one of us is a greater power than any radar, radio, or any other communication system. Nothing is more important to the Lord than saving souls.
 
 God bless us to keep this commitment, my brethren, to bring into full fellowship one precious son of God, I pray, in the name of Jesus Christ, amen.
+
+
+
 

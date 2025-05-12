@@ -1,21 +1,24 @@
 # Sweet Moments
-*By By Bonnie D. Parkin - Relief Society General President*
+
+By Bonnie D. Parkin - *Relief Society General President*
 
 *Given in the October session of the 2005 General Conference*
 
+>*If we are seeking the Lord and His guidance, if our direction is to return to our Father in Heaven, the sweet moments will come.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2005/10/sweet-moments?lang=eng)
 
-How thankful we are for our living prophet, President Gordon B. Hinckley, and for his words “God bless the Relief Society of The Church of Jesus Christ of Latter-day Saints.”1 Every sister in this Church belongs to Relief Society. Every one of us can feel the love that is so plentiful in this divinely instituted organization.
+How thankful we are for our living prophet, President Gordon B. Hinckley, and for his words “God bless the Relief Society of The Church of Jesus Christ of Latter-day Saints.”[^1] Every sister in this Church belongs to Relief Society. Every one of us can feel the love that is so plentiful in this divinely instituted organization.
 
 My heart is tender for you sisters who have been seriously impacted by recent natural disasters. I rejoice at the accounts of righteous women serving and being served. Through service, both the servant and the served experience the love of the Lord. At this time of trial, I pray that you will feel His love and also my love and the love of your many Relief Society sisters.
 
-The Prophet Joseph Smith set the course for Relief Society when he said to the sisters in 1842: “It is natural for females to have feelings of charity—you are now placed in a situation where you can act according to those sympathies which God has planted in your bosoms. If you live up to these principles how great and glorious!”2
+The Prophet Joseph Smith set the course for Relief Society when he said to the sisters in 1842: “It is natural for females to have feelings of charity—you are now placed in a situation where you can act according to those sympathies which God has planted in your bosoms. If you live up to these principles how great and glorious!”[^2]
 
-The sisters of the early Relief Society were stirred to action by the Prophet Joseph. Today, we too have opportunities to serve as “instruments in the hands of God to bring about this great work.”3
+The sisters of the early Relief Society were stirred to action by the Prophet Joseph. Today, we too have opportunities to serve as “instruments in the hands of God to bring about this great work.”[^3]
 
 What does it mean to be an instrument in everyday terms? I think it means to nurture others. Joseph Smith called it acting “according to those sympathies” in our hearts. I have had many sweet moments when I have felt the Lord using me as an instrument. I believe that you too have been guided and helped as you teach, comfort, and encourage.
 
-Yet as women we are pretty hard on ourselves! Believe me when I say each of us is much better than we think. We need to recognize and celebrate what we’re doing right. Much of what we do seems small and insignificant—just a part of daily living. When we are called “to give an account to Jehovah,”4 as the Prophet Joseph counseled, I know that we will have much to share.
+Yet as women we are pretty hard on ourselves! Believe me when I say each of us is much better than we think. We need to recognize and celebrate what we’re doing right. Much of what we do seems small and insignificant—just a part of daily living. When we are called “to give an account to Jehovah,”[^4] as the Prophet Joseph counseled, I know that we will have much to share.
 
 Let me give you an example. Recently I asked Elder William W. Parmley about his memories of his mother, LaVern Parmley, who served as the Primary general president for 23 years. He didn’t refer to her talks at conferences or the many programs she implemented. He spoke of one of his sweetest moments when he was 17 and preparing to go away to college. He remembered sitting with his mother as she taught him how to sew on a button. With children of all ages, small and simple acts have lasting impact.
 
@@ -27,7 +30,7 @@ One evening a single sister, Cynthia, felt prompted to go and see a sister she v
 
 Was that effort because she was single? No. It was because she was attentive to the Spirit and had yielded her heart to God. If we are in tune with the Spirit, if we are seeking the Lord and His guidance, if our direction is to return to our Father in Heaven, the sweet moments will come. And we will treasure them, for we have become instruments in the hands of God.
 
-Sometimes our lives take unexpected turns, and we have to move from “plan A” to “plan B.” One single sister wrote: “I don’t think I ever felt true happiness in my adult life until I came to the conclusion that my worth as a person and as a daughter of my Heavenly Father had nothing to do with my marital status. At that point, I began to focus on my spiritual and personal growth and not on whether I was ever going to marry.”5
+Sometimes our lives take unexpected turns, and we have to move from “plan A” to “plan B.” One single sister wrote: “I don’t think I ever felt true happiness in my adult life until I came to the conclusion that my worth as a person and as a daughter of my Heavenly Father had nothing to do with my marital status. At that point, I began to focus on my spiritual and personal growth and not on whether I was ever going to marry.”[^5]
 
 See how much we learn and grow when we share with one another our witness that the Lord lives and loves us. As I’ve said before, if I could have one thing happen for each of you, it would be that you feel the love of the Lord in your life daily.
 
@@ -49,7 +52,22 @@ In a Relief Society Sunday lesson in my ward, we were discussing what makes a go
 
 Now, my dear older sisters, I see God’s image in your noble countenances. How your wisdom, patience, and experience have touched so many lives! My amazing mother-in-law, Mary, in her 90s used to say, “People think because I’m old I don’t know anything.” Let me tell you what she knew and what she did. While living in a senior residence, Mary asked the manager if they could use a room for church services. He told her no because the center was nondenominational. She refused to accept his answer! With some other senior sisters, Mary persisted until the company provided a room. Soon a branch was organized, and members were meeting each Sunday to partake of the sacrament and renew their covenants. Age is not a barrier to becoming an instrument in the hands of God.
 
-There are countless ways to be instruments in God’s hands. For example, be the kind of visiting teacher you’ve always wanted; ask a young single adult about what she likes to do rather than why she’s not married; share instead of accumulate; carefully choose your dress, speech, and choice of entertainment; smile at your husband or child who knows they’ve caused frustration and heartache; put your arm around a young woman; teach in nursery with a happy heart; show by your attitude that you are finding joy in the journey. The Prophet Joseph said of such efforts, “If you live up to your privilege[s], the angels cannot be restrained from being your associates.”6
+There are countless ways to be instruments in God’s hands. For example, be the kind of visiting teacher you’ve always wanted; ask a young single adult about what she likes to do rather than why she’s not married; share instead of accumulate; carefully choose your dress, speech, and choice of entertainment; smile at your husband or child who knows they’ve caused frustration and heartache; put your arm around a young woman; teach in nursery with a happy heart; show by your attitude that you are finding joy in the journey. The Prophet Joseph said of such efforts, “If you live up to your privilege\[s\], the angels cannot be restrained from being your associates.”[^6]
 
 I testify we are engaged in the work of God. Thank you for your devotion to your families, to Relief Society, and to the Church. Thank you for being instruments in the hands of God to bring about this great work. May you feel God’s love in your lives and may you share that love with others is my prayer, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: *Instruments in the Hands of God* (video shown during the 2005 general Relief Society meeting).
+
+[^2]: Relief Society Minutes, Apr. 28, 1842, Archives of The Church of Jesus Christ of Latter-day Saints, 38.
+
+[^3]: [[Alma 26.3|Alma 26:3]].
+
+[^4]: Relief Society Minutes, Apr. 28, 1842, 34.
+
+[^5]: Personal correspondence.
+
+[^6]: Relief Society Minutes, Apr. 28, 1842, 38.
 

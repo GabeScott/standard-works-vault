@@ -1,5 +1,6 @@
 # A Missionary and His Message
-*By Hugh B. Brown - Of the Council of the Twelve*
+
+By Elder Hugh B. Brown - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -28,4 +29,7 @@ My brethren and sisters, I want to bear witness to you as to the divinity of thi
 I leave this testimony with you, and my blessing. I pray God to bless all who are here, and all who are listening; in fact, all men everywhere. O Father, bless these people that they may catch the spirit of this work and devote themselves assiduously to spreading the gospel of Jesus Christ to all the world.
 
 I leave this testimony and this message and this prayer with you, humbly, in the name of Jesus Christ. Amen.
+
+
+
 

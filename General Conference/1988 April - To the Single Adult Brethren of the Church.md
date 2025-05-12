@@ -1,5 +1,6 @@
 # To the Single Adult Brethren of the Church
-*By Ezra Taft Benson - President of the Church*
+
+By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1988 General Conference*
 
@@ -19,9 +20,9 @@ May I suggest for your careful consideration the counsel we give to returning mi
 
 Here are some of the priorities we pray that you single adult brethren will consider to be essential in your life.
 
-First, continue to draw close to the Savior through private, sincere, heartfelt prayer. Remember always, “the effectual fervent prayer of a righteous man availeth much” (James 5:16).
+First, continue to draw close to the Savior through private, sincere, heartfelt prayer. Remember always, “the effectual fervent prayer of a righteous man availeth much” ([[James 5.16|James 5:16]]).
 
-“Feast upon the words of Christ” (2 Ne. 32:3) by consistently studying the scriptures every day and by following the counsel of the living prophets. Particularly make the study of the Book of Mormon a lifetime pursuit and daily sup from its pages.
+“Feast upon the words of Christ” ([[2 Nephi 32.3|2 Ne. 32:3]]) by consistently studying the scriptures every day and by following the counsel of the living prophets. Particularly make the study of the Book of Mormon a lifetime pursuit and daily sup from its pages.
 
 Be an example in your Church activity—honor the Sabbath day, attend your meetings, observe the Word of Wisdom, pay your tithes and offerings, support your leaders, and otherwise keep the commandments. Serve cheerfully and gratefully in every calling you receive. Live worthy of a temple recommend and enjoy the sweet, sacred spirit that comes from frequent temple attendance.
 
@@ -29,9 +30,9 @@ Dress and groom yourself in a way that reflects your lifelong commitment to shar
 
 Be thoughtful, loving, helpful, and appreciative of your family as you seek to deepen those eternal relationships.
 
-In your dating and courting, fully maintain the standards of the Church. Be morally clean. “Let virtue garnish [your] thoughts unceasingly” (D&C 121:45).
+In your dating and courting, fully maintain the standards of the Church. Be morally clean. “Let virtue garnish \[your\] thoughts unceasingly” ([[D&C 121.45|D&C 121:45]]).
 
-Remember the counsel of Elder Bruce R. McConkie that “the most important single thing that any Latter-day Saint ever does in this world is to marry the right person in the right place by the right authority” (Choose an Eternal Companion, Brigham Young University Speeches of the Year, Provo, 3 May 1966, p. 2).
+Remember the counsel of Elder Bruce R. McConkie that “the most important single thing that any Latter-day Saint ever does in this world is to marry the *right* person in the *right* place by the *right* authority” (*Choose an Eternal Companion,* Brigham Young University Speeches of the Year, Provo, 3 May 1966, p. 2).
 
 Understand that temple marriage is essential to your salvation and exaltation.
 
@@ -41,7 +42,7 @@ Apply yourself prayerfully and diligently to selecting and pursuing academic and
 
 Share the gospel and your testimony with those who are not members of the Church or who are less active.
 
-Improve your community by active participation and service. Remember in your civic responsibility that “the only thing necessary for the triumph of evil is for good men to do nothing” (Edmund Burke, in George Seldes, comp., The Great Thoughts, New York: Ballantine Books, 1985, p. 60). Do something meaningful in defense of your God-given freedom and liberty.
+Improve your community by active participation and service. Remember in your civic responsibility that “the only thing necessary for the triumph of evil is for good men to do nothing” (Edmund Burke, in George Seldes, comp., *The Great Thoughts,* New York: Ballantine Books, 1985, p. 60). Do something meaningful in defense of your God-given freedom and liberty.
 
 Remember that your entire life is a mission and that each new phase of it can be richly rewarding as you magnify your talents and take advantage of your opportunities.
 
@@ -59,7 +60,7 @@ Their letter continues:
 
 “It is most frustrating to us, as their parents, who sometimes feel we have failed in our parental teachings and guiding responsibilities.”
 
-My dear single adult brethren, we are also concerned. We want you to know that the position of the Church has never changed regarding the importance of celestial marriage. It is a commandment of God. The Lord’s declaration in Genesis is still true: “And the Lord God said, It is not good that the man should be alone” (Gen. 2:18).
+My dear single adult brethren, *we* are also concerned. We want you to know that the position of the Church has never changed regarding the importance of celestial marriage. It is a commandment of God. The Lord’s declaration in Genesis is still true: “And the Lord God said, It is not good that the man should be alone” ([[Genesis 2.18|Gen. 2:18]]).
 
 To obtain a fulness of glory and exaltation in the celestial kingdom, one must enter into this holiest of ordinances.
 
@@ -71,13 +72,13 @@ President Spencer W. Kimball recounted an experience he once had:
 
 “Recently I met a young returned missionary who is 35 years old. He had been home from his mission for 14 years and yet he was little concerned about his bachelorhood, and laughed about it.
 
-“I shall feel sorry for this young man when the day comes that he faces the Great Judge at the throne and when the Lord asks this boy: ‘Where is your wife?’ All of his excuses which he gave to his fellows on earth will seem very light and senseless when he answers the Judge. ‘I was very busy,’ or ‘I felt I should get my education first,’ or ‘I did not find the right girl’—such answers will be hollow and of little avail. He knew he was commanded to find a wife and marry her and make her happy. He knew it was his duty to become the father of children and provide a rich, full life for them as they grew up. He knew all this, yet postponed his responsibility” (Ensign, Feb. 1975, p. 2).
+“I shall feel sorry for this young man when the day comes that he faces the Great Judge at the throne and when the Lord asks this boy: ‘Where is your wife?’ All of his excuses which he gave to his fellows on earth will seem very light and senseless when he answers the Judge. ‘I was very busy,’ or ‘I felt I should get my education first,’ or ‘I did not find the right girl’—such answers will be hollow and of little avail. He knew he was commanded to find a wife and marry her and make her happy. He knew it was his duty to become the father of children and provide a rich, full life for them as they grew up. He knew all this, yet postponed his responsibility” (“The Marriage Decision,” *Ensign,* Feb. 1975, p. 2).
 
 I realize that some of you brethren may have genuine fears regarding the real responsibilities that will be yours if you do marry. You are concerned about being able to support a wife and family and provide them with the necessities in these uncertain economic times. Those fears must be replaced with faith.
 
 I assure you, brethren, that if you will be industrious, faithfully pay your tithes and offerings, and conscientiously keep the commandments, the Lord will sustain you. Yes, there will be sacrifices required, but you will grow from these and will be a better man for having met them.
 
-Work hard educationally and in your vocation. Put your trust in the Lord, have faith, and it will work out. The Lord never gives a commandment without providing the means to accomplish it (see 1 Ne. 3:7).
+Work hard educationally and in your vocation. Put your trust in the Lord, have faith, and it will work out. The Lord never gives a commandment without providing the means to accomplish it (see [[1 Nephi 3.7|1 Ne. 3:7]]).
 
 Also, do not be caught up in materialism, one of the real plagues of our generation—that is, acquiring things, fast-paced living, and securing career success in the single state.
 
@@ -91,5 +92,8 @@ And one good yardstick as to whether a person might be the right one for you is 
 
 God bless you single adult brethren of the Church. May your priorities be right. I have suggested some very important priorities this evening. May you seriously consider and ponder them.
 
-Know, my good brethren, that I have spoken from my heart and by His Spirit because of my love and concern for you. It is what the Lord would have you hear today. With all my heart I echo the words of the prophet Lehi from the Book of Mormon, “Arise from the dust, my sons, and be men” (2 Ne. 1:21), in the name of Jesus Christ, amen.
+Know, my good brethren, that I have spoken from my heart and by His Spirit because of my love and concern for you. It is what the Lord would have you hear today. With all my heart I echo the words of the prophet Lehi from the Book of Mormon, “Arise from the dust, my sons, and be men” ([[2 Nephi 1.21|2 Ne. 1:21]]), in the name of Jesus Christ, amen.
+
+
+
 

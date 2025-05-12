@@ -1,5 +1,6 @@
 # “Teach One Another”
-*By David B. Haight - Assistant to the Council of the Twelve*
+
+By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -7,7 +8,7 @@
 
 At a seminar held in Warsaw, Poland, attended by students and leaders of the Communist party, a student posed this question: “Please don’t be angry, sir, but could you explain the ‘meaning of life?’” Poland’s leading Marxist philosopher reported that as he glanced at the hundreds of pairs of eyes silently staring at the party leadership, he recognized the seriousness of this question and a weakness in their philosophy that has neglected to deal with this challenging problem.
 
-We as members of this church know the meaning of life. It has been revealed in its truthfulness and purity and is available to all who seek, will listen, and believe. The mission and responsibility of this church and its members have been made abundantly clear—to proclaim the Lord’s teachings unto the entire world. We must be prepared to accomplish what the Prophet Joseph Smith proclaimed—to see that “the truth of God [goes] forth boldly, nobly ... till it has penetrated every continent ... swept every country, and sounded in every ear, till the purposes of God shall be accomplished. ...” (Documentary History of the Church, vol. 4, p. 540.) The Lord has said: “Prepare ye the way. ...” (D&C 65:1.) Then it is our duty to prepare all of our members so that we might develop a strong foundation and belief in the true gospel of Jesus Christ. The Church-wide teacher development program was developed to help accomplish this purpose. It is now in various stages of implementation in the stakes and the wards and in English-speaking missions throughout the world.
+We as members of this church know the meaning of life. It has been revealed in its truthfulness and purity and is available to all who seek, will listen, and believe. The mission and responsibility of this church and its members have been made abundantly clear—to proclaim the Lord’s teachings unto the entire world. We must be prepared to accomplish what the Prophet Joseph Smith proclaimed—to see that “the truth of God \[goes\] forth boldly, nobly … till it has penetrated every continent … swept every country, and sounded in every ear, till the purposes of God shall be accomplished. …” (*Documentary History of the Church,* vol. 4, p. 540.) The Lord has said: “Prepare ye the way. …” ([[D&C 65.1|D&C 65:1]].) Then it is our duty to prepare all of our members so that we might develop a strong foundation and belief in the true gospel of Jesus Christ. The Church-wide teacher development program was developed to help accomplish this purpose. It is now in various stages of implementation in the stakes and the wards and in English-speaking missions throughout the world.
 
 The aim of the teacher development program is to improve teaching wherever teaching is done in priesthood quorums, auxiliary organizations, and in our homes so as to bring about worthwhile changes in the lives of boys and girls, men and women. The First Presidency initiated this program knowing full well the importance of the teaching moments in our classrooms and because of their conviction that all teachers can improve. This program combines the most effective teaching techniques with spiritual principles.
 
@@ -29,13 +30,13 @@ From a New York stake: “The teacher development materials are excellent and th
 
 “Members are asking to be enrolled in the basic course. They are ‘standing in line,’ my wife being one of them.”
 
-One lady reported her teaching improved after the second lesson. She began to use the “eye to eye” approach. She began to “teach with the spirit and heart rather than with the book.”
+One lady reported her teaching improved after the second lesson. She began to use the *“eye* to *eye”* approach. She began to “teach with the *spirit* and *heart* rather than with the book.”
 
 This story from a Utah rural area: “Twenty-four years ago, as a young man, I was called to teach a Sunday School class of thirteen- and fourteen-year olds. I thought my first lesson was pretty good, but I didn’t have enough material to last through the class period. During my second lesson, again I was out of material. I resolved it would never happen again, but it did the next Sunday. I gave the books back to the Sunday School superintendent. All of these years I have carried a feeling that I was a failure as a teacher, yet I still wanted to teach.
 
 “Now I have taken the basic course. I know what a teacher should be. I know how to prepare. I know how to involve my class, and now I am teaching and fulfilling my lifelong desire. I have developed a foundation for teaching.”
 
-I am sure you have been impressed with the advice and encouragement that President Joseph Fielding Smith and President Harold B. Lee give to the entire Church membership in the film You Make the Difference. This film, which every stake has in its library, outlines the need and demonstrates the methods for calling the participants and implementing the program. The proper influencing of the behavior of individuals through enlightened knowledge is our challenge.
+I am sure you have been impressed with the advice and encouragement that President Joseph Fielding Smith and President Harold B. Lee give to the entire Church membership in the film *You Make the Difference.* This film, which every stake has in its library, outlines the need and demonstrates the methods for calling the participants and implementing the program. The proper influencing of the behavior of individuals through enlightened knowledge is our challenge.
 
 As you know, the program is in three phases:
 
@@ -51,7 +52,10 @@ To develop great teachers takes effort, dedication, faith, and believing—the k
 
 The Church is now beginning an interesting period when members of this true church in increasing numbers will be able to proclaim “I know,” for they will have been effectively taught.
 
-It has been said that teaching is one of the noblest professions. The Savior gives us some insight into the importance of our teaching responsibilities as he admonished Peter in that great encounter on the seashore when he queried Peter: “... lovest thou me more than these?” And then, to the dismay of Peter, he repeated his instructions three times, saying, “Feed my lambs,” and then, “Feed my sheep. ... Feed my sheep.” (John 21:15–17.)
+It has been said that teaching is one of the noblest professions. The Savior gives us some insight into the importance of our teaching responsibilities as he admonished Peter in that great encounter on the seashore when he queried Peter: “… lovest thou me more than these?” And then, to the dismay of Peter, he repeated his instructions three times, saying, “Feed my lambs,” and then, “Feed my sheep. … Feed my sheep.” ([[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].)
 
-We must understand these instructions and our responsibility to “teach one another the doctrine of the kingdom” (D&C 88:77), but to teach it effectively so that all of us, our children, our children’s children, and generations yet unborn will be able to perceive and comprehend the true meaning of life as proclaimed by the Master, and then have a desire to live it and eventually gain exaltation in the kingdom of our Heavenly Father, in the name of Jesus Christ. Amen.
+We must understand these instructions and our responsibility to “teach one another the doctrine of the kingdom” ([[D&C 88.77|D&C 88:77]]), but to teach it effectively so that all of us, our children, our children’s children, and generations yet unborn will be able to perceive and comprehend the true meaning of life as proclaimed by the Master, and then have a desire to live it and eventually gain exaltation in the kingdom of our Heavenly Father, in the name of Jesus Christ. Amen.
+
+
+
 

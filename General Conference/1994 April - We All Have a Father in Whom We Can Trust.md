@@ -1,5 +1,6 @@
 # We All Have a Father in Whom We Can Trust
-*By Kenneth Johnson - Of the Seventy*
+
+By Elder Kenneth Johnson - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
 
@@ -17,17 +18,17 @@ We lived, like many others in those war-torn years, in humble circumstances. Our
 
 As I look back and reflect upon those wonderful memories, I realize that my contribution was not necessary for my father to complete the work he was engaged in. I was the beneficiary, as through these experiences I came to know him and to love him.
 
-How like the association we have with our Heavenly Father, believing at times that the service we engage in is for his benefit, when in reality it is comparable with my handing tools to my father. It is the relationship that develops that is of greater significance more than the contribution we make. As expressed by King Benjamin, “For how knoweth a man the master whom he has not served, and who is a stranger unto him, and is far from the thoughts and intents of his heart?” (Mosiah 5:13.)
+How like the association we have with our Heavenly Father, believing at times that the service we engage in is for his benefit, when in reality it is comparable with my handing tools to my father. It is the relationship that develops that is of greater significance than the contribution we make. As expressed by King Benjamin, “For how knoweth a man the master whom he has not served, and who is a stranger unto him, and is far from the thoughts and intents of his heart?” ([[Mosiah 5.13|Mosiah 5:13]]).
 
 Just as I was not able to fully comprehend what my earthly father was building until he completed his work, so it is with our Heavenly Father. When his kingdom is established and the work is complete, we will recognize our home and shout for joy.
 
-Selfless service is an essential ingredient for a full and happy life. The enlightening words of President Marion G. Romney enhance our understanding in this regard: “Service is not something we endure on this earth so we can earn the right to live in the celestial kingdom. Service is the very fiber of which an exalted life in the celestial kingdom is made” (Ensign, Nov. 1982, p. 93).
+Selfless service is an essential ingredient for a full and happy life. The enlightening words of President Marion G. Romney enhance our understanding in this regard: “Service is not something we endure on this earth so we can earn the right to live in the celestial kingdom. Service is the very fiber of which an exalted life in the celestial kingdom is made” (in Conference Report, Oct. 1982, p. 135; or *Ensign,* Nov. 1982, p. 93).
 
-It is not necessary for us to know the answer to every question or comprehend the reason for every challenge we face to feel secure in the knowledge of our divine Creator. In the words of Nephi, “I know that he loveth his children; nevertheless, I do not know the meaning of all things” (1 Ne. 11:17).
+It is not necessary for us to know the answer to every question or comprehend the reason for every challenge we face to feel secure in the knowledge of our divine Creator. In the words of Nephi, “I know that he loveth his children; nevertheless, I do not know the meaning of all things” ([[1 Nephi 11.17|1 Ne. 11:17]]).
 
 Twenty-six years after the experience with my father, I continued to learn important lessons through a father-and-son relationship. The exterior woodwork of our home was in need of redecoration. I cleaned and prepared the surface and applied an undercoat. In my mind I could visualize the flawless gloss finish that would be the product of my labors. Our five-year-old son, Kevin, watched as I prepared to apply the final gloss covering. He asked if he could help me. I hesitated before responding, considering what effect this would have on the fulfillment of my dream, or alternatively how he would feel if I declined his offer. It was almost as if I heard someone else say, “That would be a great help. Thank you.”
 
-Providing him with an old shirt of mine that covered him completely, almost touching the floor and with sleeves rolled back several times, we went to work on the door that secured the main entrance to our home. He was applying paint to the bottom panel as I worked on the top section. I noticed that because of his age and physical stature, he wasn’t able to spread the paint evenly and that beads of paint were resulting. Each time he bent down to recharge his brush, I would hastily smooth out the paint on the bottom panel, returning to my assigned area so that he would not realize what I was doing. After a while I decided that more important than a first-class paint job was the opportunity to work with my son. On reflection I realized how well he was doing. Thereafter, every time I approached the door and saw the distinctive style of decoration, I was reminded of what is really important in our lives.
+After I provided him with an old shirt of mine that covered him completely, almost touching the floor and with sleeves rolled back several times, we went to work on the door that secured the main entrance to our home. He was applying paint to the bottom panel as I worked on the top section. I noticed that because of his age and physical stature, he wasn’t able to spread the paint evenly and that beads of paint were resulting. Each time he bent down to recharge his brush, I would hastily smooth out the paint on the bottom panel, returning to my assigned area so that he would not realize what I was doing. After a while I decided that more important than a first-class paint job was the opportunity to work with my son. On reflection I realized how well he was doing. Thereafter, every time I approached the door and saw the distinctive style of decoration, I was reminded of what is really important in our lives.
 
 The learning experiences we shared were not restricted to a temporal plane. As we participated together in ordinances and made covenants, the power of godliness was manifest.
 
@@ -35,13 +36,16 @@ My wife, Pamela, had been raised and nurtured with the principles of the restore
 
 We determined early in our marriage that it was our responsibility to teach the gospel to our son and that Church programs would reinforce the teaching in the home. Kevin often accompanied his mother as she visited the sick and the elderly to administer compassionate service.
 
-These experiences have contributed to a close family relationship that has flourished through the years, giving us an insight into the potential that exists in the eternities, as described in the Doctrine and Covenants, section 130, verse 2: “And that same sociality which exists among us here will exist among us there, only it will be coupled with eternal glory, which glory we do not now enjoy.” [D&C 130:2]
+These experiences have contributed to a close family relationship that has flourished through the years, giving us an insight into the potential that exists in the eternities, as described in the Doctrine and Covenants, section 130, verse 2: “And that same sociality which exists among us here will exist among us there, only it will be coupled with eternal glory, which glory we do not now enjoy.” \[[[D&C 130.2|D&C 130:2]]\]
 
 We should always remember that regardless of our circumstances, we all have a Father in whom we can trust and to whom we can turn for comfort and counsel. He is our Heavenly Father.
 
-What a thrill it is to hear children singing with conviction, “I am a child of God.” We are in truth his offspring, and he is “not far from every one of us” (Acts 17:27).
+What a thrill it is to hear children singing with conviction, “I am a child of God.” We are in truth his offspring, and he is “not far from every one of us” ([[Acts 17.27|Acts 17:27]]).
 
-Each day I enjoy an increasing appreciation for the words of the Savior expressed in his great intercessory prayer: “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent” (John 17:3).
+Each day I enjoy an increasing appreciation for the words of the Savior expressed in his great intercessory prayer: “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent” ([[John 17.3|John 17:3]]).
 
 I know that he lives; I know that he loves us, for we are his children. His son Jesus Christ is our Advocate with the Father and leads his church today through living prophets. I testify that their words will guide us safely home. In the name of Jesus Christ, amen.
+
+
+
 

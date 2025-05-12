@@ -1,13 +1,14 @@
 # “Having Been Born of Goodly Parents”
-*By S. Dilworth Young - Of the Seventy*
+
+By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/10/having-been-born-of-goodly-parents?lang=eng)
 
-While we realize that we shall have close association with Elder Bruce R. McConkie in our future work with the missions of the Church and shall partake of his wisdom and spirituality, we also know that we shall miss him more than any of us care to admit. We assure him of our love, our loyalty, and our support.
+While we realize that we shall have close association with Elder Bruce R. McConkie in our future work with the missions of the Church and shall partake of his wisdom and spirituality, we also know that we shall miss him more than any of us care to admit. We assure him of our love, our loyalty, and our support.
 
-We also welcome Elder Rex D. Pinegar to our council and feel certain that his ability will add strength to us as we go forward.
+We also welcome Elder Rex D. Pinegar to our council and feel certain that his ability will add strength to us as we go forward.
 
 I shall speak about genealogy.
 
@@ -23,61 +24,37 @@ Troubles of the few settlers with the Indians caused the authorities in St. Geor
 
 Two sons of this brave couple married sisters. Samuel Marion Lee married Margaret McMurrin, and Francis Lee, Jr., married Mary McMurrin. The McMurrins were converts from Scotland who had crossed the plains with the handcart companies. Brother McMurrin, a cooper, which is a man who makes barrels and bends wood, repaired many a handcart wheel en route, which helped get the carts to the valley but delayed him and his family. They also settled in Tooele. Each of the Lee brothers took his bride to Meadow Valley.
 
-I speak of Margaret’s bravery.
-
-Eleven times she placed
-
-Her life upon the block
-
-And offered it that
-
-Children might be born.
-
-No sterile chamber
-
-Where the doctor waits,
-
-The anesthetic cone
-
-And nurse in readiness,
-
-Could be her lot.
-
-The cabin walls absorbed
-
-The agonizing cries,
-
-With Death close by.
-
-He did not claim her life.
-
-Instead he took each child—
-
-Each little one to heaven—
-
-All eleven.
-
-Then came the twelfth.
-
-For her the light burned
-
-Dim, then flickered low,
-
-And out—
-
-But she had filled her life, and
-
-Given all that she could give.
-
-Her mission was performed;
-
-A son was born,
-
-The only child to live.
-
-He was named his father’s name—
-
-Samuel Lee.
+>I speak of Margaret’s bravery.
+>Eleven times she placed
+>Her life upon the block
+>And offered it that
+>Children might be born.
+>No sterile chamber
+>Where the doctor waits,
+>The anesthetic cone
+>And nurse in readiness,
+>Could be her lot.
+>The cabin walls absorbed
+>The agonizing cries,
+>With Death close by.
+>He did not claim her life.
+>Instead he took each child—
+>Each little one to heaven—
+>All eleven.
+>Then came the twelfth.
+>
+>For her the light burned
+>Dim, then flickered low,
+>And out—
+>But she had filled her life, and
+>Given all that she could give.
+>Her mission was performed;
+>A son was born,
+>The only child to live.
+>
+>He was named his father’s name—
+>Samuel Lee.
+>
 
 Mary McMurrin Lee took the child and let him nurse along with her own child, but after a time the strain was too great, so they took the baby to Salt Lake City to Grandmother McMurrin.
 
@@ -87,101 +64,62 @@ Under his grandmother’s care the baby Samuel grew into a stalwart boy, and whe
 
 The Bingham family, stalwart in the faith, were pioneers. They endured the hardships of the plains and the difficulties of conquering the new land. They were among the early settlers of Clifton.
 
-Out on the farm
-
-Louisa Bingham
-
-Grew and blossomed
-
-Into girlish womanhood.
-
-Her eyes
-
-Caught the color of the
-
-Somber hills in spring,
-
-And in the fall they
-
-Danced with joy
-
-At autumn’s coloring.
-
-At home she learned
-
-To wash and cook and sew.
-
-And winter
-
-Saw her
-
-Skating, sledding, and
-
-Riding in the bobsleigh
-
-Through the snow.
-
-Then Samuel Lee, now
-
-Working on this nearby farm,
-
-Watched her grow,
-
-Saw with his heart
-
-As well as with his eyes
-
-The slow unfolding
-
-Of her girlish charm,
-
-The bloom of girlhood
-
-High upon her cheeks,
-
-A budding woman,
-
-Gentle, soft, and warm.
-
-And she saw him,
-
-The young, strong, steady hands,
-
-The head well set,
-
-The shoulders square
-
-And broad,
-
-The muscles strong
-
-And firm,
-
-A good young man.
-
-She knew his story well—
-
-The twelfth and only child
-
-Which lived.
-
-And so they came together,
-
-Drawn by a magnet
-
-Neither one could see,
-
-To be the parents of a
-
-Man of destiny.
+>Out on the farm
+>Louisa Bingham
+>Grew and blossomed
+>Into girlish womanhood.
+>Her eyes
+>Caught the color of the
+>Somber hills in spring,
+>And in the fall they
+>Danced with joy
+>At autumn’s coloring.
+>
+>At home she learned
+>To wash and cook and sew.
+>And winter
+>Saw her
+>Skating, sledding, and
+>Riding in the bobsleigh
+>Through the snow.
+>
+>Then Samuel Lee, now
+>Working on this nearby farm,
+>Watched her grow,
+>Saw with his heart
+>As well as with his eyes
+>The slow unfolding
+>Of her girlish charm,
+>The bloom of girlhood
+>High upon her cheeks,
+>A budding woman,
+>Gentle, soft, and warm.
+>And she saw him,
+>The young, strong, steady hands,
+>The head well set,
+>The shoulders square
+>And broad,
+>The muscles strong
+>And firm,
+>A good young man.
+>She knew his story well—
+>The twelfth and only child
+>Which lived.
+>
+>And so they came together,
+>Drawn by a magnet
+>Neither one could see,
+>To be the parents of a
+>Man of destiny.
+>
 
 And so, in good time, and in his turn, there came into the family circle on a windy day in late March 1899 a son. They named him Harold Bingham Lee.
 
 It is fitting this day that we speak briefly of this heritage. The Lord prepared the lineage through which President Lee came that he might inherit their bravery, their loyalty, their integrity, and their devotion to the truth.
 
-Twenty-five hundred and seventy-two years ago, give or take a year, a prophet accepted of the Lord began to write his history: “I, Nephi, having been born of goodly parents. ...” And then he went on to say, “I make a record of my proceedings in my days.” (1 Ne. 1:1.)
+Twenty-five hundred and seventy-two years ago, give or take a year, a prophet accepted of the Lord began to write his history: “I, Nephi, having been born of goodly parents. …” And then he went on to say, “I make a record of my proceedings in my days.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
 
-And so the first prophet of our times might have said the same words: “I, Joseph Smith, having been born of goodly parents ... make my record.”
+And so the first prophet of our times might have said the same words: “I, Joseph Smith, having been born of goodly parents … make my record.”
 
 And now, so it is today. Beginning his work as the prophet of the Lord, this modern seer and revelator may thus also begin his history: “I, Harold Bingham Lee, having been born of goodly parents, begin my work.”
 
@@ -189,11 +127,14 @@ Prophets are born of goodly parents. Before the earth was formed the heavenly ho
 
 Those of us who are parents have children who may become prophets or sons of prophets. Let us raise them in truth and in virtue.
 
-Said the Lord: “Abraham, thou art one of them; thou wast chosen before thou wast born.” (Abr. 3:23.) And the Lord designated the others who have been chosen. I do not presume; rather, I am sure, President Lee, thou wast chosen before thou wast born.
+Said the Lord: “Abraham, thou art one of them; thou wast chosen before thou wast born.” ([[Abraham 3.23|Abr. 3:23]].) And the Lord designated the others who have been chosen. I do not presume; rather, I am sure, President Lee, thou wast chosen before thou wast born.
 
 I pray that the whisperings of the Spirit, the visions of eternity, the mighty words of Christ our Lord will come to and be with you, even as they were with Nephi and with Joseph Smith. And I pray too that the disloyal and the disobedient will lose their power to hurt or make afraid.
 
 I know that President Lee is a prophet and a seer and a revelator. I have seen with my own eyes the mantle fall upon him and have had a witness borne into my soul that the Lord has chosen him and sustains him.
 
 God our Father, through his Son, Jesus Christ, directs the work of this the true and living church established by the Lord Jesus Christ on the earth. I know it, and bear witness of it, in the name of Jesus Christ. Amen.
+
+
+
 

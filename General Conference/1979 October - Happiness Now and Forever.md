@@ -1,5 +1,6 @@
 # Happiness Now and Forever
-*By Richard G. Scott - Of the First Quorum of the Seventy*
+
+By Elder Richard G. Scott - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -9,7 +10,7 @@ What would you think of a man who would chop up a beautiful grand piano to make 
 
 If every day seems devoid of real satisfaction and meaning, if the things you want most in life seem unobtainable, or if in despair you have turned to the wrong things in an attempt to find happiness and companionship, we have for you a message of hope and assurance. Since it is based on religious principles that you at present may not fully understand, please do not reject it, for with all the conviction of my soul I know that it will bring you what you most desire.
 
-The Lord inspired a prophet to declare, “Men are, that they might have joy” (2 Ne. 2:25), that is, happiness now and forever. But you say, “How can you find happiness? So many give advice, but often it is confusing and expressed in terms and concepts I don’t understand.”
+The Lord inspired a prophet to declare, “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]), that is, happiness now and forever. But you say, “How can you find happiness? So many give advice, but often it is confusing and expressed in terms and concepts I don’t understand.”
 
 God knew that his children would face this challenge, so he provided an unfailing way to recognize his true plan for happiness.
 
@@ -25,11 +26,11 @@ The Lord gave his life that each one of us, through the miracle of repentance, c
 
 Now may I discuss another divine gift with you? It has a potential infinitely more sensitive and powerful than our conscience. Through this gift we can receive pure truth to guide our lives, divine counsel to resolve our problems, and even the power of God to overcome obstacles. It is the gift of the Holy Ghost.
 
-May I tell you how to obtain this precious gift? Or if you have it, how to expand your use of it? The Lord has said, “Ask, and ye shall receive; knock, and it shall be opened unto you” (D&C 4:7). When you ask with real intent, you will feel undeniable impressions that lead you to greater truth. You will be given opportunities, such as through the inspired messages of this conference, to find the one and only true Church of Jesus Christ, and you will recognize that Church.
+May I tell you how to obtain this precious gift? Or if you have it, how to expand your use of it? The Lord has said, “Ask, and ye shall receive; knock, and it shall be opened unto you” ([[D&C 4.7|D&C 4:7]]). When you ask with real intent, you will feel undeniable impressions that lead you to greater truth. You will be given opportunities, such as through the inspired messages of this conference, to find the one and only true Church of Jesus Christ, and you will recognize that Church.
 
 By qualifying through study, prayer, and obedience you can be baptized a member of the Church of Jesus Christ and receive the gift of the Holy Ghost by the laying on of hands.
 
-The Savior has said, “Ye are commanded in all things to ask of God, who giveth liberally; and that which the Spirit [or Holy Ghost] testifies unto you even so I would that ye should do in all holiness of heart, walking uprightly before me, considering the end of your salvation, doing all things with prayer and thanksgiving, that ye may not be seduced by evil spirits, or doctrines of devils, or the commandments of men” (D&C 46:7).
+The Savior has said, “Ye are commanded in all things to ask of God, who giveth liberally; and that which the Spirit \[or Holy Ghost\] testifies unto you even so I would that ye should do in all holiness of heart, walking uprightly before me, considering the end of your salvation, doing all things with prayer and thanksgiving, that ye may not be seduced by evil spirits, or doctrines of devils, or the commandments of men” ([[D&C 46.7|D&C 46:7]]).
 
 God did not put us on earth to be victimized by circumstances. He gave us a plan for assured success—his gospel—the perfect plan for happiness.
 
@@ -47,5 +48,8 @@ As the magnet in my example was drawn to the influence representing truth, so ca
 
 Find a member of The Church of Jesus Christ of Latter-day Saints, a Mormon, and ask for the restored truth. Obtain a copy of the Book of Mormon, read it, ponder it, live its principles, and you will find happiness now and forever.
 
-With all the sincerity of my soul, in deep humility, I solemnly testify that God the Father through his Son Jesus Christ has restored to earth the fulness of his truth. He has restored his priesthood, the authority to perform the necessary saving ordinances in his name. President Spencer W. Kimball is his prophet. I love him and sustain him with all my heart. I testify that this, The Church of Jesus Christ of Latter-day Saints, is the only place on earth where that fulness of truth and priesthood authority can be found. In the name of Jesus Christ, amen.
+With all the sincerity of my soul, in deep humility, I solemnly testify that God the Father through his Son Jesus Christ has restored to earth the fulness of his truth. He has restored his priesthood, the authority to perform the necessary saving ordinances in his name. President Spencer W. Kimball is his prophet. I love him and sustain him with all my heart. I testify that this, The Church of Jesus Christ of Latter-day Saints, is the only place on earth where that fulness of truth and priesthood authority can be found. In the name of Jesus Christ, amen.
+
+
+
 

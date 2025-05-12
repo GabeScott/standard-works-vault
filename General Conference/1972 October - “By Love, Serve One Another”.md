@@ -1,19 +1,20 @@
 # “By Love, Serve One Another”
-*By By Bishop Victor L. Brown - Presiding Bishop*
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1972 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/10/by-love-serve-one-another?lang=eng)
 
-The apostle James said: “Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.” (James 1:27.)
+The apostle James said: “Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.” ([[James 1.27|James 1:27]].)
 
-The apostle Paul said: “... by love serve one another. For all the law is fulfilled in one word, even in this; Thou shalt love thy neighbour as thyself.” (Gal. 5:13–14.)
+The apostle Paul said: “… by love serve one another. For all the law is fulfilled in one word, even in this; Thou shalt love thy neighbour as thyself.” ([[Galatians 5.13|Gal. 5:13–14]][[Galatians 5.14|]].)
 
 He further said: “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal.
 
 “And though I have the gift of prophecy, and understand all mysteries, and all knowledge; and though I have all faith, so that I could remove mountains, and have not charity, I am nothing.
 
-“And now abideth faith, hope, charity, these three; but the greatest of these is charity.” (1 Cor. 13:1–2, 13.)
+“And now abideth faith, hope, charity, these three; but the greatest of these is charity.” ([[1 Corinthians 13.1|1 Cor. 13:1–2, 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.13|]].)
 
 With these scriptures as background, I should like to share with you some experiences of some wonderful groups of unheralded workers who have made these teachings live in their lives. May I introduce the first group to you. They are known as health missionaries, doctors and nurses who have responded to the same missionary call as have the thousands of proselyting missionaries, not only receiving not one cent of compensation, but paying their own expenses. In each case, they labor under the direction of the mission president.
 
@@ -21,7 +22,7 @@ From Guatemala a lady health missionary reports: “The Primary children were gi
 
 You will be interested to know that approximately 50 percent of the children in these Indian villages die before reaching the age of five. Malnutrition, complicated by respiratory infection and diarrhea, is the underlying cause.
 
-Speaking of midwife lessons, this health missionary says: “We will give classes on this subject [delivering babies] in Relief Society, so our ladies can benefit from it. Through working with the Relief Society, we can develop the health program more. The ladies can depend on each other for help. We give them health concepts; then they can teach their families, sisters in the Church, and their neighbors. We know the health program will work through these organizations as planned. Too, we hope to work with families through the family home evening program.”
+Speaking of midwife lessons, this health missionary says: “We will give classes on this subject \[delivering babies\] in Relief Society, so our ladies can benefit from it. Through working with the Relief Society, we can develop the health program more. The ladies can depend on each other for help. We give them health concepts; then they can teach their families, sisters in the Church, and their neighbors. We know the health program will work through these organizations as planned. Too, we hope to work with families through the family home evening program.”
 
 From Apia, Western Samoa, comes a report from a medical doctor, another health missionary: “At our conferences this round, we are again stressing the importance of food and cleanliness, but in addition, we are encouraging each family to maintain a continually growing food supply. We have indicated to them that each family should keep a certain quantity of various foods growing, and as these are used, they should be replaced. We are also encouraging them to try growing their own vegetables, and as a demonstration, we plant a small garden plot at each conference with tomatoes, cabbage, etc., and leave it for the branch to keep up. Extra plants are given to members who are interested in raising their own.”
 
@@ -65,13 +66,16 @@ Last year work opportunities amounting to 1,480,000 hours were made available to
 
 All of this was done through the welfare services program of the Church. This was accomplished through the regularly constituted ecclesiastical organization of the Church. There is no separate organization to manage welfare. It is an integral part of the Church and has been from the beginning. To reemphasize its purpose and objective, I shall read a statement of the First Presidency given in 1936:
 
-“Our primary purpose was to set up, in so far as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift, and self respect be once more established amongst our people. The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (Heber J. Grant, Conference Report, October 1936, p. 3.)
+“Our primary purpose was to set up, in so far as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift, and self respect be once more established amongst our people. The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (Heber J. Grant, *Conference Report,* October 1936, p. 3.)
 
-“This is the essence of the Church Security Program—not merely that men shall be fed and clothed, though that is important—but that eternal man shall be built up by self-reliance, by creative activity, by honorable labor, by service. A generation raised in idleness cannot maintain its integrity.” (Richard L. Evans, “Faith, Work, and Security,” Improvement Era, December 1936, p. 768.)
+“This is the essence of the Church Security Program—not merely that men shall be fed and clothed, though that is important—but that eternal man shall be built up by self-reliance, by creative activity, by honorable labor, by service. A generation raised in idleness cannot maintain its integrity.” (Richard L. Evans, “Faith, Work, and Security,” *Improvement Era,* December 1936, p. 768.)
 
-“... from the beginning the real long term objective of the Welfare Plan is the building of character in the members of the Church, givers and receivers, rescuing all that is finest deep down in the inside of them, and bringing to flower and fruitage the latent richness of the spirit, which after all is the mission and purpose and reason for being of this Church.” (Albert E. Bowen, The Church Welfare Plan [Gospel Doctrine Course of Study, 1936], p. 44.)
+“… from the beginning the real long term objective of the Welfare Plan is the building of character in the members of the Church, givers and receivers, rescuing all that is finest deep down in the inside of them, and bringing to flower and fruitage the latent richness of the spirit, which after all is the mission and purpose and reason for being of this Church.” (Albert E. Bowen, *The Church Welfare Plan* \[Gospel Doctrine Course of Study, 1936\], p. 44.)
 
 These lofty goals still remain as the motivating force of all who are involved in this great work. And now, with the approval of the First Presidency, the temporal or financial, health, and social services functions are brought together in the welfare services organization of the Church concerned with the well-being of the whole man.
 
-I bear my humble witness that this is the gospel of Jesus Christ, that he reigns at the head of this church and speaks through a living prophet, Harold B. Lee. In the name of Jesus Christ. Amen.
+I bear my humble witness that this is the gospel of Jesus Christ, that he reigns at the head of this church and speaks through a living prophet, Harold B. Lee. In the name of Jesus Christ. Amen.
+
+
+
 

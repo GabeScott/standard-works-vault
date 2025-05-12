@@ -1,5 +1,6 @@
 # Introduction to the Proclamation
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -11,9 +12,12 @@ We are here, this lovely Easter morning, in the reconstructed farmhouse of Peter
 
 In this very location on April 6, 1830, there assembled a small group to formally organize The Church of Jesus Christ of Latter-day Saints. They were believers in the testimony of the Prophet Joseph Smith that in a grove of trees not many miles from here, on a spring day in the year 1820, he beheld in vision God the Eternal Father and his Son, the resurrected Lord, Jesus Christ. There followed in the intervening years visitations of other resurrected heavenly beings. From the soil of Cumorah’s Hill, a few miles to the west of here, Joseph obtained from the angel Moroni the records of a people who anciently inhabited this land; and, through the gift and power of God, he translated that record, now known as the Book of Mormon. A substantial part of that work of translation was accomplished in this Whitmer home.
 
-On that historic Tuesday of April 6, 1830, one and a half centuries ago, six men from those assembled in this house organized the Church as a religious society. Three of the descendants of those men are here with us today—Sister Lorena Horner Normandeau, a great-granddaughter of Joseph Smith; Eldred G. Smith, a second great-grandson of Hyrum Smith; and Melvin Thomas Smith, a great-grandson of Samuel Harrison Smith.
+On that historic Tuesday of April 6, 1830, one and a half centuries ago, six men from those assembled in this house organized the Church as a religious society. Three of the descendants of those men are here with us today—Sister Lorena Horner Normandeau, a great-granddaughter of Joseph Smith; Eldred G. Smith, a second great-grandson of Hyrum Smith; and Melvin Thomas Smith, a great-grandson of Samuel Harrison Smith.
 
 Standing here today we review in our minds the mighty faith and works of those who, from this humble beginning, gave so much to help move the Church to its present wondrous stature; and more importantly, we behold through the eye of faith a vision of its sure and glorious future.
 
-Now, my brothers and sisters, with the future before us, and sensing deeply the responsibilities and divine mission of the restored Church on this sacred occasion, the First Presidency and the Quorum of the Twelve Apostles declare to the world a proclamation. We have felt it appropriate to issue this statement from here, where the Church began. Accordingly, I shall ask Elder Gordon B. Hinckley of the Quorum of the Twelve Apostles, to speak in my behalf and in behalf of my brethren, to read this proclamation to you and to the world.
+Now, my brothers and sisters, with the future before us, and sensing deeply the responsibilities and divine mission of the restored Church on this sacred occasion, the First Presidency and the Quorum of the Twelve Apostles declare to the world a proclamation. We have felt it appropriate to issue this statement from here, where the Church began. Accordingly, I shall ask Elder Gordon B. Hinckley of the Quorum of the Twelve Apostles, to speak in my behalf and in behalf of my brethren, to read this proclamation to you and to the world.
+
+
+
 

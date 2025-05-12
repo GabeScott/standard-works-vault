@@ -1,5 +1,6 @@
 # You Never Know Who You May Save
-*By Jacob de Jager - Of the First Quorum of the Seventy*
+
+By Elder Jacob de Jager - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -7,11 +8,11 @@
 
 My dear brothers and sisters and friends, I am happy and grateful to be united with you again and pray that the Lord will sustain me as I speak to you today.
 
-Conference time always is a marvelous time! Conference is like a magic word that really transforms Salt Lake City and all other places where the words of the leaders of the Church are heard and read.
+Conference time always is a marvelous time! *Conference* is like a magic word that really transforms Salt Lake City and all other places where the words of the leaders of the Church are heard and read.
 
 General conference in great measure affects the daily lives of all those that are reached in person, in print, or through the wonders of modern communication. It symbolizes the great spiritual uplift and the importance of the Lord’s true church on earth, in accordance with the revelation given through Joseph Smith, the Prophet:
 
-“And let the work of the gathering be not in haste, nor by flight; but let it be done as it shall be counseled by the elders of the church at the conferences, according to the knowledge which they receive from time to time.” (D&C 58:56.)
+“And let the work of the gathering be not in haste, nor by flight; but let it be done as it shall be counseled by the elders of the church at the conferences, according to the knowledge which they receive from time to time.” ([[D&C 58.56|D&C 58:56]].)
 
 It is just six months ago today that I received my new calling, and although time does not permit me to tell you about the many wonderful blessings that have come to me and my family since that event, I do want to thank the Lord publicly for his kindness and mercy to us in our assignment in the Southeast Asia-Philippines area of the Church.
 
@@ -23,7 +24,7 @@ I also want to thank from this pulpit the stake and mission presidents and all t
 
 As matters stand today, there are still a few problems to be solved in building the Church in Asia. Moreover, there are at this moment still 230 million children of our Heavenly Father in the eight missions of the area who must yet hear the message of the restored gospel and accept it through the Holy Spirit of conversion.
 
-“And ye are called to bring to pass the gathering of mine elect; for mine elect hear my voice and harden not their hearts.” (D&C 29:7.)
+“And ye are called to bring to pass the gathering of mine elect; for mine elect hear my voice and harden not their hearts.” ([[D&C 29.7|D&C 29:7]].)
 
 This is a gigantic task for all those involved in building our Heavenly Father’s kingdom. But I have heard so many remarkable testimonies about wonderful men and women that have been brought into the Church that I would like to say: “You never know whom you will save.”
 
@@ -46,4 +47,7 @@ And then the people lighting the sea with their torches saw Hans rise from his r
 My dear brothers and sisters, many of us have or will soon have nineteen-year-old sons. Their names may be George or Juan Pedro, Guillaume or Heinrich, Paavo or Sing Tong, depending on the country they live in, but let Hans be their example. Let them join the rescue team of missionary workers. You never know whom they will save! It may be the one that on life’s billows is tempest tossed or it may even be the one that had been reported missing at life’s sea. And when someone is saved through their rescue mission, oh how great shall be their joy with him or her in the kingdom of our Father.
 
 My beloved brothers and sisters, I pray that the Lord may inspire us to be valiant. That means that we also have the personal courage to go on a rescue mission by sharing the gospel with others, bringing the Holy Ghost into their lives. And I do so humbly in the name of Jesus Christ. Amen.
+
+
+
 

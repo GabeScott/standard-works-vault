@@ -1,5 +1,6 @@
 # Everything to Gain—Nothing to Lose
-*By Gordon B. Hinckley - Of the Council of the Twelve*
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -13,7 +14,7 @@ First, let me read portions of a letter recently sent to Temple Square. It began
 
 “I have never believed in God or Jesus Christ. I have never understood how to love a spirit that I don’t know. When I was baptized, I accepted Christ because I have always been told that if I wasn’t saved, I would go to hell. Being ‘saved’ has always been thrown at me. I haven’t gone to church in a very long time because I was always being pushed into something I didn’t, and still don’t, quite understand.
 
-“[Someone] showed me a pamphlet, ‘Man’s Search for Happiness,’ and explained what it said. I opened my eyes then, because through the Mormon religion God made sense to me. ...
+“\[Someone\] showed me a pamphlet, ‘Man’s Search for Happiness,’ and explained what it said. I opened my eyes then, because through the Mormon religion God made sense to me. …
 
 “A ‘small voice’ inside of me told me to search for God. Before, it didn’t make any difference to me if God was there, or not. Now it does.
 
@@ -51,7 +52,7 @@ As I think of them I think also of one of the most beautiful stories ever told. 
 
 “And bring hither the fatted calf, and kill it; and let us eat, and be merry:
 
-“For this my son was dead, and is alive again; he was lost, and is found.” (Luke 15:11–24.)
+“For this my son was dead, and is alive again; he was lost, and is found.” ([[Luke 15.11|Luke 15:11–24]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]].)
 
 To you, my brethren and sisters, who have taken your spiritual inheritance and left, and now find an emptiness in your lives, the way is open for your return.
 
@@ -71,17 +72,17 @@ I am not here to dwell on the reasons. I hope you will not. Put the past behind 
 
 “Wash you, make you clean; put away the evil of your doings from before mine eyes; cease to do evil;
 
-“Learn to do well. ...
+“Learn to do well. …
 
 “Come now, and let us reason together, saith the Lord; though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.
 
-“If ye be willing and obedient, ye shall eat the good of the land.” (Isa. 1:16–19.)
+“If ye be willing and obedient, ye shall eat the good of the land.” ([[Isaiah 1.16|Isa. 1:16–19]][[Isaiah 1.17|]][[Isaiah 1.18|]][[Isaiah 1.19|]].)
 
 This, my beloved friends, is what the gospel is all about—to make bad men good and good men better, as President McKay was wont to say. There is a process of change, a procedure in the Church by which even those who have sinned seriously may come back.
 
 Do not let pride stand in your way. If that is a problem, there is a story from the Old Testament I should like to give you:
 
-Naaman was captain of the host of the king of Syria, a great man, “a mighty man in valour, but he was a leper.” And Naaman’s wife had a little maid, a daughter of Israel, who said to her mistress: “Would God my lord [Naaman] were with the prophet that is in Samaria! for he would recover him of his leprosy.”
+Naaman was captain of the host of the king of Syria, a great man, “a mighty man in valour, but he was a leper.” And Naaman’s wife had a little maid, a daughter of Israel, who said to her mistress: “Would God my lord \[Naaman\] were with the prophet that is in Samaria! for he would recover him of his leprosy.”
 
 When Naaman heard this he prepared rich gifts and a letter to the king of Israel. But the king, learning of the reason for Naaman’s coming, was frightened, for he had not the power to cleanse the leper. Then Elisha the prophet sent word to the king that he would deal with the captain.
 
@@ -91,7 +92,7 @@ But Elisha did not even so much as go out to greet the captain. He sent a messen
 
 Naaman was insulted that he should be told to wash in Jordan when there were cleaner streams in his own land, and “he turned and went away in a rage.”
 
-But his servants pleaded with him to do as Elisha had suggested. The proud captain finally relented, and the scripture records, “Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean.” (See 2 Kgs. 5:1–14.)
+But his servants pleaded with him to do as Elisha had suggested. The proud captain finally relented, and the scripture records, “Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean.” (See [[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].)
 
 And so I repeat, do not let pride stand in your way. The way of the gospel is a simple way. Some of the requirements may appear to you as elementary and unnecessary. Do not spurn them. Humble yourselves and walk in obedience. I promise that the results that follow will be marvelous to behold and satisfying to experience.
 
@@ -112,4 +113,7 @@ I had a letter from him not long ago. He said, “I’m back. I’m back, and ho
 And so to you, my friends, who, like him, long to return but are reluctant to take the first step, try. Let us meet you where you now stand, and take you by the hand and help you. I promise you it will feel good to be home again.
 
 I bear you my witness that this is the work of the Lord. It is the kingdom of God in the earth. It bears the name of the Only Begotten of the Father. Here you will find happiness, and strength, and a reassuring peace you have not known for a long while, the peace that passeth all understanding. God bless you to try, I pray, in the name of Jesus Christ. Amen.
+
+
+
 

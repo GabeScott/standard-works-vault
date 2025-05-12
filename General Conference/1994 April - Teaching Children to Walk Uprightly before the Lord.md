@@ -1,27 +1,28 @@
 # Teaching Children to Walk Uprightly before the Lord
-*By By Ruth B. Wright - Second Counselor in the Primary General Presidency*
+
+By Ruth B. Wright - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 1994 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1994/04/teaching-children-to-walk-uprightly-before-the-lord?lang=eng)
 
-Sister Wilson carefully studied each young child as she entered the Primary classroom. How they have grown and developed since January, she thought. She gathered them around her and began her lesson. “You are each very special! You have learned so many things. You have learned to sit reverently and listen to our lessons. Why, you can even say your own prayers!”
+Sister Wilson carefully studied each young child as she entered the Primary classroom. *How they have grown and developed since January,* she thought. She gathered them around her and began her lesson. “You are each very special! You have learned so many things. You have learned to sit reverently and listen to our lessons. Why, you can even say your own prayers!”
 
-“Well of course,” responded Clayton, “I’ve already been on this earth five years!”
+“Well, of course,” responded Clayton, “I’ve already been on this earth five years!”
 
 Clayton’s lifetime seemed a very long time to him, and he saw no limits to what he could learn. Brothers and sisters, our children are eager to learn. They want to be taught. They need to be taught.
 
 The First Presidency has admonished all adult members of the Church to focus on children in an ongoing effort to help them learn to follow the teachings of the Savior. The purpose of “Focus on Children” is to direct the attention and efforts of adult members to care for children in a way that will enable them to have a strong foundation of testimony and faithfully live the gospel of Jesus Christ (see “Focus on Children, Guidelines and Suggestions”). When we consider all the eager young Claytons, we realize that this is an important and exciting responsibility. The First Presidency has suggested four goals to help us focus on children. The goals are one, to recognize the worth of our children; two, to activate children who are not participating in the blessings of the gospel; three, to teach children the gospel in such a way that they will understand and live it; and four, to ensure that children are prepared for and given the opportunity for baptism and ordination. I would like to focus my remarks on the third goal, teaching children the gospel in such a way that they will understand and live it.
 
-The Lord, through revelation, has taught us in section 68 of the Doctrine and Covenants that parents have the responsibility to teach and train their children in righteousness. Parents have been instructed to “teach their children to pray, and to walk uprightly before the Lord” (D&C 68:28).
+The Lord, through revelation, has taught us in section 68 of the Doctrine and Covenants that parents have the responsibility to teach and train their children in righteousness. Parents have been instructed to “teach their children to pray, and to walk uprightly before the Lord” ([[D&C 68.28|D&C 68:28]]).
 
-What does it mean to walk uprightly before the Lord? The word upright is defined as honest, honorable, straightforward. Thus, to walk uprightly, our children need to choose to live in an honest, honorable, straightforward manner. Children who understand and live the gospel today can walk with assurance and joy and someday will enter the presence of the Lord, walking uprightly.
+What does it mean to walk uprightly before the Lord? The word *upright* is defined as honest, honorable, straightforward. Thus, to walk uprightly, our children need to choose to live in an honest, honorable, straightforward manner. Children who understand and live the gospel today can walk with assurance and joy and someday will enter the presence of the Lord, walking uprightly.
 
 Sometimes it isn’t easy as parents to teach our children. Sometimes we make mistakes. Our children may react with opposition to what we are teaching them. As parents, we should keep our desire to do our best, constantly show our love, and not blame ourselves if our children choose another way.
 
 In our efforts to help our children desire to walk uprightly before the Lord, we can ask ourselves three questions:
 
-One: What do we teach our children? It is essential that we teach them the gospel of Jesus Christ. “I am the way, the truth, and the life: no man cometh unto the Father, but by me” (John 14:6). I believe the scriptures are the main source to help us teach our children to walk uprightly.
+One: What do we teach our children? It is essential that we teach them the gospel of Jesus Christ. “I am the way, the truth, and the life: no man cometh unto the Father, but by me” ([[John 14.6|John 14:6]]). I believe the scriptures are the main source to help us teach our children to walk uprightly.
 
 We need to help our children gain a sense of their relationship with Heavenly Father. They can know that each person is a literal child of God, that each is born with a divine birthright and unlimited potential. When my nephew was four years old, his father took great delight in asking him to repeat his name. Rich would ask, “Mark, what is your name?” Mark would stand up tall and answer with a happy grin, “My name is Mark Andrew Broadbent, Child of God.” When our children understand that Heavenly Father is real and that He loves and cares about each of them, they will want to walk uprightly.
 
@@ -37,27 +38,25 @@ Question three: How do we teach our children? We teach by example. Our children 
 
 We teach children to walk uprightly a step at a time, over and over again. I know of a mother who has her children repeat this simple yet powerful statement as they leave home: “The gospel is true, I love you, and I am a child of God, no matter what!” The words “Return with honor” written on a sign hung above the doorway of a home are a constant reminder to all who walk through the door how they should return.
 
-Our children respond best when taught with respect and love. In the eighth chapter of Moroni, the prophet Mormon is deeply concerned about a dissension that has arisen among the members of the Church. He has written a letter giving counsel to his son, Moroni, regarding the matter. But before he addresses this problem, Mormon expresses his devotion to his son: “My beloved son, Moroni, I rejoice exceedingly that your Lord Jesus Christ hath ... called you to his ministry, and to his holy work.
+Our children respond best when taught with respect and love. In the eighth chapter of Moroni, the prophet Mormon is deeply concerned about a dissension that has arisen among the members of the Church. He has written a letter giving counsel to his son, Moroni, regarding the matter. But before he addresses this problem, Mormon expresses his devotion to his son: “My beloved son, Moroni, I rejoice exceedingly that your Lord Jesus Christ hath … called you to his ministry, and to his holy work.
 
-“I am mindful of you always in my prayers, continually praying unto God the Father in the name of his Holy Child, Jesus, that he, through ... grace, will keep you through the endurance of faith on his name to the end” (Moro. 8:2–3). First, Mormon reaffirmed his love for Moroni, and then he taught him. When our children first know they are loved, they are more likely to listen and be taught.
+“I am mindful of you always in my prayers, continually praying unto God the Father in the name of his Holy Child, Jesus, that he, through … grace, will keep you through the endurance of faith on his name to the end” ([[Moroni 8.2|Moro. 8:2–3]][[Moroni 8.3|]]). First, Mormon reaffirmed his love for Moroni, and then he taught him. When our children first know they are loved, they are more likely to listen and be taught.
 
 Our children will be more able to survive the challenges that will come to them when they know and understand that keeping God’s commandments can bring them peace and joy in their lives and enable them to walk uprightly. While traveling in the car with her mother and younger sister, five-year-old Clara sensed that her mother was deeply troubled about something. “Mommy, what’s the matter? You seem so sad.”
 
 Not wanting to go into detail about her concerns, but feeling that she needed to acknowledge to her daughter that she was worried, Clara’s mother asked, “Clara, what would you do if you felt sad and frustrated?”
 
-“Well ... ,” responded Clara, and there was a long pause, “you need to take time out and think. Then you need to pray all the time and read the scriptures, especially the Book of Mormon. You need to bless other people. Just think about the good things people do for you and the good things in your life, not the bad.” Young Clara is beginning to understand how to walk uprightly before the Lord.
+“Well,” responded Clara, and there was a long pause, “you need to take time out and think. Then you need to pray all the time and read the scriptures, especially the Book of Mormon. You need to bless other people. Just think about the good things people do for you and the good things in your life, not the bad.” Young Clara is beginning to understand how to walk uprightly before the Lord.
 
-To earthly parents God sends children
-
-To guide and teach, protect and love.
-
-Oh, let us keep the sacred trust
-
-That he has placed with each of us
-
-And help to guide them back to God above.
-
-(Children’s Songbook, pp. 180–81)
+>To earthly parents God sends children
+>To guide and teach, protect and love.
+>Oh, let us keep the sacred trust
+>That he has placed with each of us
+>And help to guide them back to God above.
+>
 
 May God bless us as parents to teach our children to walk uprightly before the Lord is my prayer in the name of our Savior, Jesus Christ, amen.
+
+
+
 

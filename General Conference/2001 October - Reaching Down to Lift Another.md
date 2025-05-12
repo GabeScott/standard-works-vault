@@ -1,13 +1,16 @@
 # Reaching Down to Lift Another
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2001 General Conference*
+
+>*Let us open our hearts, let us reach down and lift up, let us open our purses, let us show a greater love for our fellowmen.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2001/10/reaching-down-to-lift-another?lang=eng)
 
 Now, my dear brethren, as I face this great body of men in this hall and realize there are tens of thousands more scattered across the world, all of one mind and of one heart and all carrying the authority of the priesthood of the Living God, I am subdued and humbled. I seek the guidance of the Holy Spirit.
 
-This body is unique in all the world. There is nothing else like it. You comprise the legions of the Lord, men ready to do battle with the adversary of truth, men willing to stand up and be counted, men who carry testimonies of the truth, men who have sacrificed and given much for this great cause. May the Lord bless you and sustain you and magnify you. “Ye are a chosen generation, a royal priesthood” (1 Pet. 2:9).
+This body is unique in all the world. There is nothing else like it. You comprise the legions of the Lord, men ready to do battle with the adversary of truth, men willing to stand up and be counted, men who carry testimonies of the truth, men who have sacrificed and given much for this great cause. May the Lord bless you and sustain you and magnify you. “Ye are a chosen generation, a royal priesthood” ([[1 Peter 2.9|1 Pet. 2:9]]).
 
 Brethren, let us be worthy of the priesthood which we hold. Let us live nearer to the Lord. Let us be good husbands and fathers.
 
@@ -17,7 +20,7 @@ Likewise, any man who is a bad example for his children, who cannot control his 
 
 I remind you “that the rights of the priesthood are inseparably connected with the powers of heaven, and that the powers of heaven cannot be controlled nor handled only upon the principles of righteousness.
 
-“That they may be conferred upon us, it is true; but when we undertake to cover our sins, or to gratify our pride, our vain ambition, or to exercise control or dominion or compulsion upon the souls of the children of men, in any degree of unrighteousness, behold, the heavens withdraw themselves; the Spirit of the Lord is grieved; and when it is withdrawn, Amen to the priesthood or the authority of that man” (D&C 121:36–37).
+“That they may be conferred upon us, it is true; but when we undertake to cover our sins, or to gratify our pride, our vain ambition, or to exercise control or dominion or compulsion upon the souls of the children of men, in any degree of unrighteousness, behold, the heavens withdraw themselves; the Spirit of the Lord is grieved; and when it is withdrawn, Amen to the priesthood or the authority of that man” ([[D&C 121.36|D&C 121:36–37]][[D&C 121.37|]]).
 
 Brethren, let us be good men as those favored of the Lord with a bestowal of His divine power upon us.
 
@@ -33,7 +36,7 @@ I told you we would apply the same principle and create what would be known as t
 
 We had nothing in the fund at the time it was planned. But moving forward in faith, we established an organization, modest in its dimensions, to implement that which we felt was necessary. I am pleased to report that the money has come in, tens of thousands of dollars, hundreds of thousands of dollars, even millions. This has come from generous members of the Church who love the Lord and wish to assist the less fortunate of His people in rising in the economic world. We now have a substantial sum. It is not all that we need. We hope that these contributions will continue. The size of the corpus will determine the number who can be helped.
 
-Now, six months later, I wish to give you a report of what has been accomplished. First, we called Elder John K. Carmack, who served so well in the First Quorum of the Seventy and who became an emeritus Seventy with this conference. He is an accomplished attorney, a man of sound judgment in business, a man of great ability. He has been appointed managing director, and though he is retired from the work of the Seventy he will give his full time to the prosecution of this endeavor.
+Now, six months later, I wish to give you a report of what has been accomplished. First, we called Elder John K. Carmack, who served so well in the First Quorum of the Seventy and who became an emeritus Seventy with this conference. He is an accomplished attorney, a man of sound judgment in business, a man of great ability. He has been appointed managing director, and though he is retired from the work of the Seventy, he will give his full time to the prosecution of this endeavor.
 
 Elder Richard E. Cook of the Seventy, who likewise has become emeritus, will join him in looking after the finances. Elder Cook was formerly assistant controller of the Ford Motor Company, a man experienced in worldwide finance, a most capable executive, and a man who loves the Lord and the Lord’s children.
 
@@ -45,7 +48,7 @@ All contribute their time and expertise without compensation.
 
 The program is up and running. These brethren have been very careful to get it off to a proper start with sound governing principles. We have restricted the area in which it will operate initially, but this area will be expanded as we have the means to do so.
 
-These brethren have gone to work to utilize the existing organization of the Church. The program is priesthood-based, and that is why it will succeed. It begins with the bishops and the stake presidents. It involves the Church Educational System, the Employment Services offices, and others who work together in a marvelous spirit of cooperation. It was first implemented in Peru, Chile, and Mexico—areas where the number of returned missionaries is large and the need is great. The local leaders have been enthusiastic and committed. The beneficiaries are learning true principles of self-reliance. Their vision of their potential is greatly broadened. They are selecting good local schools for training and are using, to the extent possible, their personal, family, and other local resources. They are appreciative and willing and deeply grateful for the opportunity afforded them. Let me give you two or three vignettes.
+These brethren have gone to work to utilize the existing organization of the Church. The program is priesthood based, and that is why it will succeed. It begins with the bishops and the stake presidents. It involves the Church Educational System, the Employment Services offices, and others who work together in a marvelous spirit of cooperation. It was first implemented in Peru, Chile, and Mexico—areas where the number of returned missionaries is large and the need is great. The local leaders have been enthusiastic and committed. The beneficiaries are learning true principles of self-reliance. Their vision of their potential is greatly broadened. They are selecting good local schools for training and are using, to the extent possible, their personal, family, and other local resources. They are appreciative and willing and deeply grateful for the opportunity afforded them. Let me give you two or three vignettes.
 
 The first is that of a young man who served in the Bolivia Cochabamba Mission. He lives with his faithful mother and nieces in a poor neighborhood. Their little home has a concrete floor, one lightbulb, the roof leaks, and the window is broken. He was a successful missionary. He says:
 
@@ -53,7 +56,7 @@ The first is that of a young man who served in the Bolivia Cochabamba Mission. H
 
 “Then, when I finished my mission, going home was difficult. My American companions went back to a university. But there is a lot of poverty in our country. It is very difficult to get an education. My mother does her best, but she can’t help us. She has suffered so much, and I am her hope.
 
-“When I learned of the Perpetual Education Fund, I felt so happy. The prophet recognized our efforts. I was filled with joy. ... There was a possibility I could study, become self-reliant, have a family, help my mother.
+“When I learned of the Perpetual Education Fund, I felt so happy. The prophet recognized our efforts. I was filled with joy. … There was a possibility I could study, become self-reliant, have a family, help my mother.
 
 “I will study accounting at a local school where I can study and work. It is a short course, just three years long. I have to keep working as a janitor, but that is OK. Once I graduate and get a job in accounting, I will work toward higher education in international business.
 
@@ -89,7 +92,7 @@ Brethren, we need to care for one another more diligently. We need to make a lit
 
 That principle applies not only with reference to our present undertaking in this fund, but in a more general way. Let us open our hearts, let us reach down and lift up, let us open our purses, let us show a greater love for our fellowmen.
 
-The Lord has blessed us so abundantly. And the needs are so great. He has said, “Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me” (Matt. 25:40).
+The Lord has blessed us so abundantly. And the needs are so great. He has said, “Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me” ([[Matthew 25.40|Matt. 25:40]]).
 
 I read from the book of Acts:
 
@@ -105,13 +108,16 @@ I read from the book of Acts:
 
 “And he took him by the right hand, and lifted him up: and immediately his feet and ankle bones received strength.
 
-“And he leaping up stood, and walked, and entered with them into the temple, walking, and leaping, and praising God” (Acts 3:2–8).
+“And he leaping up stood, and walked, and entered with them into the temple, walking, and leaping, and praising God” ([[Acts 3.2|Acts 3:2–8]][[Acts 3.3|]][[Acts 3.4|]][[Acts 3.5|]][[Acts 3.6|]][[Acts 3.7|]][[Acts 3.8|]]).
 
 Now note that Peter took him by the right hand and lifted him up.
 
 Peter had to reach down to lift the lame man. We must also reach down.
 
-God bless you my dear brethren, young and old. Keep the faith. Minister with love. Rear your families in the way of the Lord. “Look to God and live” (Alma 37:47).
+God bless you, my dear brethren, young and old. Keep the faith. Minister with love. Rear your families in the way of the Lord. “Look to God and live” ([[Alma 37.47|Alma 37:47]]).
 
 I so pray in the name of Jesus Christ, amen.
+
+
+
 

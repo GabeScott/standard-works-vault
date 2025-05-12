@@ -1,5 +1,6 @@
 # The Mediator
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -19,7 +20,7 @@ Such an experience, however unpleasant, can be, in the eternal scheme of things,
 
 That may be what the Lord had in mind when He said,
 
-“It is easier for a camel to go through the eye of a needle, than for a rich man to enter into the kingdom of God.” (Matt. 19:24.)
+“It is easier for a camel to go through the eye of a needle, than for a rich man to enter into the kingdom of God.” ([[Matthew 19.24|Matt. 19:24]].)
 
 Those who have faced a foreclosure know that one looks helplessly around, hoping for someone, anyone, to come to the rescue.
 
@@ -31,9 +32,9 @@ Although these virtues are both silent and invisible, surely I do not need to pe
 
 We become so accustomed to learning through our physical senses—by sight and sound and smell, by taste and touch—that some of us seem to learn in no other way.
 
-But there are spiritual things that are not registered that way at all. Some things we simply feel, not as we feel something we touch, but as we feel something we feel.
+But there are spiritual things that are not registered that way at all. Some things we simply feel, not as we feel something we touch, but as we feel something we *feel.*
 
-There are things, spiritual things, that are registered in our minds and recorded in our memories as pure knowledge. A knowledge of “things which have been, things which are, things which must shortly come to pass.” (D&C 88:79; see also D&C 93:24, and Jacob 4:13.)
+There are things, spiritual things, that are registered in our minds and recorded in our memories as pure knowledge. A knowledge of “things which have been, things which are, things which must shortly come to pass.” ([[D&C 88.79|D&C 88:79]]; see also [[D&C 93.24|D&C 93:24]], and [[Jacob 4.13|Jacob 4:13]].)
 
 As surely as we know about material things, we can come to know of spiritual things.
 
@@ -45,9 +46,9 @@ Justice is usually pictured holding a set of scales and blindfolded against the 
 
 The Prophet Alma declared:
 
-“Justice claimeth the creature and executeth the law, and the law inflicteth the punishment; if not so, the works of justice would be destroyed, and God would cease to be God.” (Alma 42:22.)
+“Justice claimeth the creature and executeth the law, and the law inflicteth the punishment; if not so, the works of justice would be destroyed, and God would cease to be God.” ([[Alma 42.22|Alma 42:22]].)
 
-I commend to you the reading of the 42nd chapter of Alma. It reveals the place of justice and should confirm that the poet spoke the truth when he said, “In the course of justice [only,] none of us should see salvation.” (Shakespeare, The Merchant of Venice, IV. i. 199–200.)
+I commend to you the reading of the 42nd chapter of Alma. It reveals the place of justice and should confirm that the poet spoke the truth when he said, “In the course of justice \[only,\] none of us should see salvation.” (Shakespeare, *The Merchant of Venice,* IV. i. 199–200.)
 
 Let me tell you a story—a parable.
 
@@ -83,7 +84,7 @@ There they were: One meting out justice, the other pleading for mercy. Neither c
 
 Both laws, it seemed, could not be served. They are two eternal ideals that appear to contradict one another. Is there no way for justice to be fully served, and mercy also?
 
-There is a way! The law of justice can be fully satisfied and mercy can be fully extended—but it takes someone else. And so it happened this time.
+There is a way! The law of justice *can* be fully satisfied and mercy *can* be fully extended—but it takes someone else. And so it happened this time.
 
 The debtor had a friend. He came to help. He knew the debtor well. He knew him to be shortsighted. He thought him foolish to have gotten himself into such a predicament. Nevertheless, he wanted to help because he loved him. He stepped between them, faced the creditor, and made this offer.
 
@@ -109,7 +110,7 @@ Unless there is a mediator, unless we have a friend, the full weight of justice 
 
 But know this: Truth, glorious truth, proclaims there is such a Mediator.
 
-“For there is one God, and one mediator between God and men, the man Christ Jesus.” (1 Tim. 2:5.)
+“For there is one God, and one mediator between God and men, the man Christ Jesus.” ([[1 Timothy 2.5|1 Tim. 2:5]].)
 
 Through Him mercy can be fully extended to each of us without offending the eternal law of justice.
 
@@ -129,7 +130,7 @@ We often try to solve guilt problems by telling one another that they don’t ma
 
 Our transgressions are all added to our account, and one day if it is not properly settled, each of us, like Belshazzar of Babylon, will be weighed in the balance and found wanting.
 
-There is a Redeemer, a Mediator, who stands both willing and able to appease the demands of justice and extend mercy to those who are penitent, for “He offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered.” (2 Ne. 2:7.)
+There is a Redeemer, a Mediator, who stands both willing and able to appease the demands of justice and extend mercy to those who are penitent, for “He offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered.” ([[2 Nephi 2.7|2 Ne. 2:7]].)
 
 Already He has accomplished the redemption of all mankind from mortal death; resurrection is extended to all without condition.
 
@@ -149,33 +150,26 @@ How sweet it is, on those occasions, to be reassured that He lives, and to have 
 
 I claim with my brethren of the Twelve to be a special witness of Him. My witness, and theirs, is true. I love the Lord, and I love the Father who sent Him.
 
-Eliza R. Snow, with deep spiritual inspiration, wrote these words, with which I close.
+Eliza R. Snow, with deep spiritual inspiration, wrote these words, with which I close.
 
-How great the wisdom and the love
-
-That filled the courts on high
-
-And sent the Savior from above
-
-To suffer, bleed, and die!
-
-His precious blood He freely spilt;
-
-His life He freely gave,
-
-A sinless sacrifice for guilt,
-
-A dying world to save.
-
-How great, how glorious, how complete,
-
-Redemption’s grand design,
-
-Where justice, love, and mercy meet
-
-In harmony divine!
-
-(Hymns, no. 68.)
+>How great the wisdom and the love
+>That filled the courts on high
+>And sent the Savior from above
+>To suffer, bleed, and die!
+>
+>His precious blood He freely spilt;
+>His life He freely gave,
+>A sinless sacrifice for guilt,
+>A dying world to save.
+>
+>How great, how glorious, how complete,
+>Redemption’s grand design,
+>Where justice, love, and mercy meet
+>In harmony divine!
+>
 
 In the name of Jesus Christ, amen.
+
+
+
 

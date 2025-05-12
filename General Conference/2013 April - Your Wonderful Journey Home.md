@@ -1,11 +1,14 @@
 # Your Wonderful Journey Home
-*By Dieter F. Uchtdorf - Second Counselor in the First Presidency*
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2013 General Conference*
 
+>*As you joyfully use the map your loving Father has provided for your journey, it will lead you to holy places and you will rise to your supernal potential.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/04/your-wonderful-journey-home?lang=eng)
 
-We are honored this evening with the presence of President Thomas S. Monson, our beloved prophet. President, we always pray for you.
+We are honored this evening with the presence of President Thomas S. Monson, our beloved prophet. President, we always pray for you.
 
 My dear sisters, thank you for the music and the spoken word. All was so inspiring and so fitting for Easter, the sacred season we celebrate this week.
 
@@ -27,15 +30,19 @@ My mother frantically packed up our lunch, and we hurried up the hillside as qui
 
 Even though each member of our family had taken very different routes and experienced very different hardships along the way, eventually all of us made it to safety. We were finally reunited as a family. What a glorious day that was!
 
+## Journey Stories
+
 What I have just told you is an experience that is to me a very precious journey. I can now look back on my life and recognize a number of such “journeys” I have taken over time. Not all of them involved crossing mountain ranges or political boundaries; some had more to do with overcoming trials or growing in spirituality. But they were all journeys. I believe that every life is a collection of individual “journey stories.”
 
-I am sure you are aware that every cultural tradition is rich with journey stories. For instance, you may be familiar with the journey of Dorothy and her dog, Toto, in The Wizard of Oz. Dorothy and Toto are swept up in a tornado and deposited in the Land of Oz. There, Dorothy finds that distinctive, yellow-brick road that marks the path for a journey that eventually leads her home.
+I am sure you are aware that every cultural tradition is rich with journey stories. For instance, you may be familiar with the journey of Dorothy and her dog, Toto, in *The Wizard of Oz.* Dorothy and Toto are swept up in a tornado and deposited in the Land of Oz. There, Dorothy finds that distinctive, yellow-brick road that marks the path for a journey that eventually leads her home.
 
-Then there is Charles Dickens’s Ebenezer Scrooge, whose journey takes him not from place to place but from time to time. It’s a journey right within his own heart that helped him to understand why he became the way he was and to see what would happen to him if he continued on his path of selfishness and ingratitude.1
+Then there is Charles Dickens’s Ebenezer Scrooge, whose journey takes him not from place to place but from time to time. It’s a journey right within his own heart that helped him to understand why he became the way he was and to see what would happen to him if he continued on his path of selfishness and ingratitude.[^1]
 
-One of the great classical novels of Chinese literature is Journey to the West. Written in the 16th century, it tells beautifully the adventure story and pilgrimage of a monk who, with the help of four friendly characters, journeys toward spiritual enlightenment.
+One of the great classical novels of Chinese literature is *Journey to the West.* Written in the 16th century, it tells beautifully the adventure story and pilgrimage of a monk who, with the help of four friendly characters, journeys toward spiritual enlightenment.
 
-And of course there is Bilbo Baggins, the small, unassuming hobbit who would have very much preferred to stay home and eat his soup. But after a knock at his door, he follows the call of the great unknown and steps out into the world, together with a wizard and a band of dwarfs, to fulfill a dangerous but vitally important mission.2
+And of course there is Bilbo Baggins, the small, unassuming hobbit who would have very much preferred to stay home and eat his soup. But after a knock at his door, he follows the call of the great unknown and steps out into the world, together with a wizard and a band of dwarfs, to fulfill a dangerous but vitally important mission.[^2]
+
+## A Universal Story
 
 Don’t we love these journey stories because we can see ourselves in the travelers? Their successes and failures can help us find our own way through life. The video we saw a few minutes ago also tells a beautiful journey story. Perhaps these stories also remind us of a journey we all should be familiar with—a journey story in which each one of us plays an important part.
 
@@ -59,13 +66,15 @@ So, there you stood on the edge of eternity, looking forward with unspeakable ex
 
 In the end, you knew God would be just—that His goodness would triumph. You had participated in the great heavenly councils and knew that your Savior and Redeemer, Jesus Christ, would provide a way for you to be cleansed from sin and rescued from physical death. You had faith that, in the end, you would rejoice and join your voice with a heavenly chorus singing praises to His holy name.
 
-And so, you took a deep breath ...
+And so, you took a deep breath …
 
-And a great step forward ...
+And a great step forward …
 
 And here you are!
 
 You have, each one of you, embarked on your own wonderful journey back to your heavenly home!
+
+## Your Map
 
 Now that you are here on earth, it might be wise to ask yourself how your journey is going. Are you on the right course? Are you becoming the person you were designed to be and wanted to become? Are you making choices that will help you to return to your Father in Heaven?
 
@@ -73,25 +82,25 @@ He didn’t send you on this journey only to wander aimlessly on your own. He wa
 
 Now, where do you find this map?
 
-In the sacred scriptures.
+- In the sacred scriptures.
 
-In the words of prophets and apostles.
+- In the words of prophets and apostles.
 
-And through personal revelation from the Holy Ghost.
+- And through personal revelation from the Holy Ghost.
 
-This map is the gospel of Jesus Christ, the good news, and the joyful way of a disciple of Christ. It is the commandments and example given to us by our Advocate and Mentor, who knows the way because He is the way.3
+This map is the gospel of Jesus Christ, the good news, and the joyful way of a disciple of Christ. It is the commandments and example given to us by our Advocate and Mentor, who knows the way because He *is* the way.[^3]
 
 Of course, simply having a map doesn’t do any good unless you study it—unless you use it to navigate through life. I invite you to make it a high priority to study and apply God’s word. Open your heart to the Holy Ghost so that He can direct you along your journey through life.
 
 Your map is full of encouraging and instructive messages from your Heavenly Father and His Son Jesus Christ. Today I would like to share with you three of those messages that will help you to have a successful journey back to your heavenly home.
 
-The first message: “Do not fear, for I the Lord am with you.”4
+**The first message: “Do not fear, for I the Lord am with you.”**
 
 You are not alone on this journey. Your Heavenly Father knows you. Even when no one else hears you, He hears you. When you rejoice in righteousness, He rejoices with you. When you are beset with trial, He grieves with you.
 
-Heavenly Father’s interest in you does not depend on how rich or beautiful or healthy or smart you are. He sees you not as the world sees you; He sees who you really are. He looks on your heart.5 And He loves you6 because you are His child.
+Heavenly Father’s interest in you does not depend on how rich or beautiful or healthy or smart you are. He sees you not as the world sees you; He sees who you really are. He looks on your heart.[^5] And He loves you[^6] because you are His child.
 
-Dear sisters, seek Him earnestly, and you will find Him.7
+Dear sisters, seek Him earnestly, and you will find Him.[^7]
 
 I promise you, you are not alone.
 
@@ -105,7 +114,7 @@ Life can be difficult, and it can harden hearts to the point where certain peopl
 
 It is not your responsibility to convert anyone. That is the work of the Holy Ghost. Your task is to share your beliefs and to not be afraid. Be a friend to all, but never compromise your standards. Stand true to your convictions and faith. Stand tall, because you are a daughter of God, and He stands with you!
 
-The second message: “Love one another, as I have loved you.”8
+**The second message: “Love one another, as I have loved you.”**
 
 Have you ever wondered what language we all spoke when we lived in the presence of God? I have strong suspicions that it was German, though I suppose no one knows for sure. But I do know that in our premortal life we learned firsthand, from the Father of our spirits, a universal language—one that has the power to overcome emotional, physical, and spiritual barriers.
 
@@ -117,7 +126,7 @@ The love of Christ is not a pretend love. It is not a greeting-card love. It is 
 
 This love brings about real change of character. It can penetrate hatred and dissolve envy. It can heal resentment and quench the fires of bitterness. It can work miracles.
 
-We received our “first lessons”9 in this language of love as spirits in God’s presence, and here on earth we have opportunities to practice it and become fluent. You can know if you are learning this language of love by evaluating what motivates your thoughts and actions.
+We received our “first lessons”[^9] in this language of love as spirits in God’s presence, and here on earth we have opportunities to practice it and become fluent. You can know if you are learning this language of love by evaluating what motivates your thoughts and actions.
 
 When your primary thoughts are focused on how things will benefit you, your motivations may be selfish and shallow. That is not the language you want to learn.
 
@@ -129,15 +138,40 @@ This deep and abiding influence is a language that reaches to the very soul. It 
 
 Learn to use the universal language of Christ’s love.
 
-And the third message: “Be of good cheer.”10
+**And the third message: “Be of good cheer.”**
 
 Sometimes we become impatient with where we are in our journey, don’t we? If you are 12 years old, you might wish you were 14. At 14, you might wish you were 18. And at 18, occasionally you might even wish you were 12 again and could start all over.
 
 There will always be things to complain about—things that don’t seem to go quite right. You can spend your days feeling sad, alone, misunderstood, or unwanted. But that isn’t the journey you had hoped for, and it’s not the journey Heavenly Father sent you to take. Remember, you are truly a daughter of God!
 
-With this in mind, I invite you to walk confidently and joyfully. Yes, the road has bumps and detours and even some hazards. But don’t focus on them. Look for the happiness your Father in Heaven has prepared for you in every step of your journey. Happiness is the destination, but it’s also the path. “Peace in this world, and eternal life in the world to come” is what He promises.11 That is why He commands us to “be of good cheer.”
+With this in mind, I invite you to walk confidently and joyfully. Yes, the road has bumps and detours and even some hazards. But don’t focus on them. Look for the happiness your Father in Heaven has prepared for you in every step of your journey. Happiness is the destination, but it’s also the path. “Peace in this world, and eternal life in the world to come” is what He promises.[^11] That is why He commands us to “be of good cheer.”
 
 As you joyfully use the map your loving Father has provided for your journey, it will lead you to holy places and you will rise to your supernal potential. You will grow into the daughter of God you hoped you would become.
 
 Dear sisters, dear young women of the Church, dear young friends, as an Apostle of the Lord I leave you a blessing that you will find your way on this journey home and that you will be an inspiration to your fellow travelers. It is also my promise and prayer that as you honor and live true to the covenants, the principles, and the values of the gospel of Jesus Christ, at the end of your journey Heavenly Father will be there. He will embrace you, and you will know once and for all that you have made it home safely. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See Charles Dickens, *A Christmas Carol.*
+
+[^2]: See J. R. R. Tolkien, *The Hobbit.*
+
+[^3]: See [[John 14.6|John 14:6]].
+
+[^4]: [[D&C 68.6|Doctrine and Covenants 68:6]]; see also [[Isaiah 41.10|Isaiah 41:10]]; [[John 14.18|John 14:18]].
+
+[^5]: See [[1 Samuel 16.7|1 Samuel 16:7]].
+
+[^6]: See [[1 Peter 5.6|1 Peter 5:6–7]][[1 Peter 5.7|]].
+
+[^7]: See [[Jeremiah 29.13|Jeremiah 29:13]].
+
+[^8]: [[John 15.12|John 15:12]]; see also [[John 13.34|John 13:34]]; [[Moroni 7.45|Moroni 7:45–48]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]].
+
+[^9]: [[D&C 138.56|Doctrine and Covenants 138:56]].
+
+[^10]: [[D&C 78.18|Doctrine and Covenants 78:18]]; see also [[John 16.33|John 16:33]]; [[3 Nephi 1.13|3 Nephi 1:13]].
+
+[^11]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 

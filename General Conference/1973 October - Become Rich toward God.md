@@ -1,5 +1,6 @@
 # Become Rich toward God
-*By Rex D. Pinegar - Of the Seventy*
+
+By President Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -9,17 +10,14 @@ It is a great blessing to be here today. After briefing the office staff at our 
 
 William Jennings Bryan wrote:
 
-“The human measure of a human life is its income;
+>“The human measure of a human life is its income;
+>the divine measure of a life is its outgo, its overflow—
+>its contribution to the welfare of all.”
+>
 
-the divine measure of a life is its outgo, its overflow—
+In our search for happiness we may get so involved with the “human measure of life” that we fail to recognize the temporary value of such riches. Christ warned that we can become spiritually “choked” with the “cares and riches and pleasures of this life, and bring no fruit to perfection.” ([[Luke 8.14|Luke 8:14]].)
 
-its contribution to the welfare of all.”
-
-(From The Prince of Peace, by William Jennings Bryan.)
-
-In our search for happiness we may get so involved with the “human measure of life” that we fail to recognize the temporary value of such riches. Christ warned that we can become spiritually “choked” with the “cares and riches and pleasures of this life, and bring no fruit to perfection.” (Luke 8:14.)
-
-The Savior also said, “... a man’s life consisteth not in the abundance of the things which he possesseth.
+The Savior also said, “… a man’s life consisteth not in the abundance of the things which he possesseth.
 
 “And he spake a parable unto them, saying, The ground of a certain rich man brought forth plentifully:
 
@@ -31,11 +29,11 @@ The Savior also said, “... a man’s life consisteth not in the abundance of t
 
 “But God said unto him, Thou fool, this night thy soul shall be required of thee: then whose shall those things be, which thou hast provided?
 
-“So is he that layeth up treasure for himself, and is not rich toward God.” (Luke 12:15–21.)
+“So is he that layeth up treasure for himself, and is not rich toward God.” ([[Luke 12.15|Luke 12:15–21]][[Luke 12.16|]][[Luke 12.17|]][[Luke 12.18|]][[Luke 12.19|]][[Luke 12.20|]][[Luke 12.21|]].)
 
-It is, then, our blessing and responsibility to become rich toward God. We are to go beyond acquiring something for ourselves. The Savior also taught us how to do this when he said, “... seek ye the kingdom of God; and all these things shall be added unto you” (Luke 12:31), and, “... whoso desireth to reap, let him thrust in his sickle with his might, and reap while the day lasts, that he may treasure up for his soul everlasting salvation in the kingdom of God.” (D&C 6:3.)
+It is, then, our blessing and responsibility to become rich toward God. We are to go beyond acquiring something for ourselves. The Savior also taught us how to do this when he said, “… seek ye the kingdom of God; and all these things shall be added unto you” ([[Luke 12.31|Luke 12:31]]), and, “… whoso desireth to reap, let him thrust in his sickle with his might, and reap while the day lasts, that he may treasure up for his soul everlasting salvation in the kingdom of God.” ([[D&C 6.3|D&C 6:3]].)
 
-This means we may gain eternal life. “Behold, he that hath eternal life is rich.” (D&C 11:7.)
+This means we may gain eternal life. “Behold, he that hath eternal life is rich.” ([[D&C 11.7|D&C 11:7]].)
 
 The significance of this truth was brought to the heart of a certain man when his friend approached him with a plan to obtain the riches of this life. He wrote:
 
@@ -45,11 +43,11 @@ The significance of this truth was brought to the heart of a certain man when hi
 
 “You will never know how that statement has troubled me because I have made no attempt to share something more precious than money with you. I am speaking of the true gospel of Jesus Christ.
 
-“Now hold on a minute. I know what is going through your mind. ‘This kook has lost his cool and gone off the deep end.’ T’ain’t so. I believe we spent enough time together in the past couple of years for you to know that I haven’t turned into a freak or something. But I am sure you have noticed a change. I no longer do many of the earthly things you probably remember of me. I have a great love for my family and mankind in general. I am truly sorry for many things in my past and will do my best to never do them again. But this isn’t the most important thing.
+“Now hold on a minute. I know what is going through your mind. ‘This kook has lost his cool and gone off the deep end.’ T’ain’t so. I believe we spent enough time together in the past couple of years for you to know that I haven’t turned into a freak or something. *But* I am sure you have noticed a change. I no longer do many of the earthly things you probably remember of me. I have a great love for my family and mankind in general. I am truly sorry for many things in my past and will do my best to never do them again. But this isn’t the most important thing.
 
 “The most important thing in all this world is that I know that I existed in the preexistence as a spirit child of my Heavenly Father; that I am here in mortality as part of his great plan for me in order that I may prove my worthiness to him by constantly making the proper choices between good and evil; and that if I prove myself worthy I will return to his presence.
 
-“I further know that there is a prophet, Harold B. Lee, here upon the earth today who communicates regularly with the true and living Jesus Christ, the son of God. Through this prophet I can learn everything necessary to help me live my life and guide my family in the proper manner to return to his presence.
+“I further know that there is a prophet, Harold B. Lee, here upon the earth today who communicates regularly with the true and living Jesus Christ, the son of God. Through this prophet I can learn everything necessary to help me live my life and guide my family in the proper manner to return to his presence.
 
 “Oh, there is so much more that I could tell you, but suffice it to say that there is absolutely no unanswered question in my mind concerning my reason for being here at this time, nor what reward I will earn if I obey the teachings of my Father in heaven.
 
@@ -57,7 +55,7 @@ The significance of this truth was brought to the heart of a certain man when hi
 
 “Now I am going to do something about it. At the same time this letter is mailed, I am sending your name to the Church representatives in your area and asking them to contact you. They will undoubtedly send a couple of young men (or lady) missionaries to see you. These will be people who are dedicating a couple of years of their lives at their or their family’s expense to tell people like yourselves of this gospel. They have about six one-hour lessons they will want to teach you. I beg of you to listen to their message. I testify to you that it is true.”
 
-I also testify that this is the true Church, that Harold B. Lee is a prophet of the true and living God, and that this gospel of Jesus Christ is more precious than money.
+I also testify that this is the true Church, that Harold B. Lee is a prophet of the true and living God, and that this gospel of Jesus Christ is more precious than money.
 
 A recent Relief Society film, “Walk in the Light,” highlights the incident of a young granddaughter who desired to become the heir to her grandmother’s watch. It seemed to the grandchild a real treasure. Here are the soul-stirring words of her grandmother’s reply:
 
@@ -72,4 +70,7 @@ Patrick Henry, a great American patriot, said:
 “I have now disposed of all my property to my family. There is one thing more I wish I could give them, and that is the Christian religion. If they had that, and I had not given them one shilling they would have been rich, and if they had not that, and I had given them all the world, they would be poor.”
 
 May we all share our wealth of testimony with others that we and they may become rich toward God, I pray in the name of Jesus Christ. Amen.
+
+
+
 

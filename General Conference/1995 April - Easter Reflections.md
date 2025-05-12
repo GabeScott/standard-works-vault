@@ -1,5 +1,6 @@
 # Easter Reflections
-*By Andrew W. Peterson - Of the Seventy*
+
+By Elder Andrew W. Peterson - *Of the Seventy*
 
 *Given in the April session of the 1995 General Conference*
 
@@ -13,7 +14,7 @@ Early on Easter Sunday morning, Elder Arce asked me if I would accompany him to 
 
 Those being baptized disappeared behind large, freshly cut stacks of cornstalks, only to reappear dressed in beautiful white baptismal clothing. Their brown skin, black hair, and radiant smiles still linger to this day in my mind’s eye. The power of that Easter Sunday still moistens my eyes as I reflect on the universality of Christ’s invitation to all to come unto Him.
 
-For me, to have administered in His name as a missionary among those people prompted thoughts of Jesus talking to His disciples during His earthly ministry. He said, “And other sheep I have, which are not of this fold: them also I must bring, and they shall hear my voice; and there shall be one fold, and one shepherd” (John 10:16).
+For me, to have administered in His name as a missionary among those people prompted thoughts of Jesus talking to His disciples during His earthly ministry. He said, “And other sheep I have, which are not of this fold: them also I must bring, and they shall hear my voice; and there shall be one fold, and one shepherd” ([[John 10.16|John 10:16]]).
 
 Before we left Quiriza, Bolivia, for Argentina, a special prayer was offered. Accompanied by a dear missionary companion, kneeling on a dirt soccer field under the stars, the two of us took turns pouring out our hearts to our Heavenly Father. There were expressions of love and gratitude for the people, for our mission president and for the privilege of being missionaries. Promises were made to help the people.
 
@@ -33,21 +34,20 @@ Six months ago, as members of the Church, we sustained President Howard W. Hunte
 
 And President Gordon B. Hinckley has been sustained as the fifteenth President of The Church of Jesus Christ of Latter-day Saints.
 
-During a visit twenty-seven years ago to South America, Elder Gordon B. Hinckley spoke to missionaries. He was younger then. He had served but seven years as an Apostle. He shared a scripture and extended an invitation. He taught from 2 Timothy: “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind. Be not thou therefore ashamed of the testimony of our Lord” (2 Tim. 1:7–8).
+During a visit twenty-seven years ago to South America, Elder Gordon B. Hinckley spoke to missionaries. He was younger then. He had served but seven years as an Apostle. He shared a scripture and extended an invitation. He taught from 2 Timothy: “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind. Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.7|2 Tim. 1:7–8]][[2 Timothy 1.8|]]).
 
 Elder Hinckley invited missionaries to not fear and not be ashamed of their testimonies of Jesus Christ. His invitation penetrated my heart as a missionary then and is equally important to me and to you this day. The Lord has raised up a new prophet—one who has no fear, one who is full of power and love and of a sound mind, and one who by example reminds us never to be ashamed of our testimony of the Lord.
 
 May this be an Easter season of meditation, reflection, and appreciation. May we resolve to be obedient to prophetic invitations from those who hold the keys of the kingdom. A favorite hymn says:
 
-There is sunshine in my soul today,
-
-More glorious and bright
-
-Than glows in any earthly sky,
-
-For Jesus is my light.
-
-(Hymns, 1985, no. 227)
+>*There is sunshine in my soul today,*
+>*More glorious and bright*
+>*Than glows in any earthly sky,*
+>*For Jesus is my light.*
+>
 
 Jesus is my light. In the name of Jesus Christ, amen.
+
+
+
 

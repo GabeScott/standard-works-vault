@@ -1,5 +1,6 @@
 # Climbing to Higher Spirituality
-*By Jacob de Jager - Of the First Quorum of the Seventy*
+
+By Elder Jacob de Jager - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -29,11 +30,11 @@ Furthermore, I discovered that if gas is released from a balloon through a valve
 
 They decided to lower the balloon, and all of a sudden they saw a Dutchman walking on a lonely country road. When they were able to draw his attention, one of the men in the basket shouted: “Where are we?” And the lonely walker looked up, cupped his hands around his mouth, and shouted back, “You are in a balloon.”
 
-To make their urgent request for direction more clear, the man in the balloon cried vigorously, “Where are you?” And the man called back at the top of his voice, “I am on the ground!”
+To make their urgent request for direction more clear, the man in the balloon cried vigorously, “Where are *you?*” And the man called back at the top of his voice, “I am on the ground!”
 
 Discouraged, the balloonists unloaded some ballast and sailed again into the clouds, while one of them remarked: “The man down there must be a bureaucrat.” The statements he made were perfectly true, but totally useless!
 
-After what I have shared with you thus far, I have come to the conclusion that a strong parallel can be drawn between the steady rise of a balloon and our spiritual upward mobility.
+After what I have shared with you thus far, I have come to the conclusion that a strong parallel can be drawn between the steady rise of a balloon and *our* spiritual upward mobility.
 
 Just as gas is necessary to fill a balloon to push it upward, so must the individual be filled with inner motivation in order to move upward. Just as the balloon can rise higher by throwing ballast overboard, so must a person be willing to rid himself of unnecessary ballast that limits his rise in spirituality.
 
@@ -43,19 +44,19 @@ Later, when through the missionary effort I joined the Church, I gained as a new
 
 I testify that we all can have that peace of mind if we are willing to rid ourselves of the ballast that prevents us from rising to greater spiritual heights. It will facilitate our ascent to a loving Father in Heaven, who will, in his due time, await our return after our journey through life.
 
-Let us, therefore, get rid of our sandbag of impatience and learn to be more patient with our spouses and children, our friends and neighbors, because the Lord has counseled us to “continue in patience until ye are perfected”! (D&C 67:13.)
+Let us, therefore, get rid of our sandbag of impatience and learn to be more patient with our spouses and children, our friends and neighbors, because the Lord has counseled us to “continue in patience until ye are perfected”! ([[D&C 67.13|D&C 67:13]].)
 
-And for those of you who do not know what the word patience really means, I offer a simple definition: Patience is learning to hide your impatience.
+And for those of you who do not know what the word *patience* really means, I offer a simple definition: Patience is learning to hide your impatience.
 
-And how many of us still go through life with a ballast bag called criticism? We should, instead, give more praise wherever and whenever possible because we have been told and retold, “Cease to find fault one with another.” (D&C 88:124.) And let us in this respect also remember that the faults and shortcomings we see in the members of our own ward or branch are of less consequence to us than one of the smallest in ourselves.
+And how many of us still go through life with a ballast bag called criticism? We should, instead, give more praise wherever and whenever possible because we have been told and retold, “Cease to find fault one with another.” ([[D&C 88.124|D&C 88:124]].) And let us in this respect also remember that the faults and shortcomings we see in the members of our own ward or branch are of less consequence to us than one of the smallest in ourselves.
 
-Furthermore, do we still have a sandbag with unfriendliness in our basket, even though the Savior asks us to be friendly and loving? As he said: “Ye are they whom my Father hath given me; ye are my friends.” (D&C 84:63.)
+Furthermore, do we still have a sandbag with unfriendliness in our basket, even though the Savior asks us to be friendly and loving? As he said: “Ye are they whom my Father hath given me; ye are my friends.” ([[D&C 84.63|D&C 84:63]].)
 
-While on our spiritual flight, let us totally empty our ballast bag of pride and be more humble in all things, always remembering the Savior’s glorious promise to all: “And inasmuch as you have humbled yourselves before me, the blessings of the kingdom are yours.” (D&C 61:37.)
+While on our spiritual flight, let us totally empty our ballast bag of pride and be more humble in all things, always remembering the Savior’s glorious promise to all: “And inasmuch as you have humbled yourselves before me, the blessings of the kingdom are yours.” ([[D&C 61.37|D&C 61:37]].)
 
-And will we really ascend in our spiritual balloon if we are not prepared to dispose of our sandbag of greed? Living prophets have counseled us to pay an honest tithing and to give a generous fast offering; and, moreover, the scriptures reveal in a very candid way: “Wo unto [them] that [do] not give [of their] substance to the poor.” (D&C 56:16.) And, unfortunately, some people think they are being generous because they give so much free advice!
+And will we really ascend in our spiritual balloon if we are not prepared to dispose of our sandbag of greed? Living prophets have counseled us to pay an honest tithing and to give a generous fast offering; and, moreover, the scriptures reveal in a very candid way: “Wo unto \[them\] that \[do\] not give \[of their\] substance to the poor.” ([[D&C 56.16|D&C 56:16]].) And, unfortunately, some people think they are being generous because they give so much free advice!
 
-Finally, we must get rid of the heavy ballast of frustrations. All of us must discover in the wicker basket of our personal spiritual balloon those frustrations against which we continually have to be on guard. It was revealed unto us, and we have already heard it twice from this pulpit in this conference: “The works, and the designs, and the purposes of God cannot be frustrated, neither can they come to naught. ... Remember that it is not the work of God that is frustrated, but the work of men.” (D&C 3:1, 3.)
+Finally, we must get rid of the heavy ballast of frustrations. All of us must discover in the wicker basket of our personal spiritual balloon those frustrations against which we continually have to be on guard. It was revealed unto us, and we have already heard it twice from this pulpit in this conference: “The works, and the designs, and the purposes of God cannot be frustrated, neither can they come to naught. … Remember that it is not the work of God that is frustrated, but the work of men.” ([[D&C 3.1|D&C 3:1, 3]][[D&C 3.3|]].)
 
 The only way we can move upward from our present level of spirituality and performance to a higher level is by doing away with the ballast that holds us back. We have to learn to live the commandments, not only for our own good, but also for the good of other people because we reform others unconsciously when we keep the commandments of God and live the teachings of the Church. That’s another way of doing missionary work and lifting the spirituality of those around us.
 
@@ -74,4 +75,7 @@ I give you a solemn promise that if you do this, you will enjoy a feeling of spi
 I testify—as one who twenty-three years ago was baptized into the kingdom of God in Toronto, Canada—that my flight since my baptism has been a magnificent one, with breathtaking scenes and spiritual panoramas and with the never-failing knowledge that my day-to-day flight plan is made available to me by an understanding, loving, forgiving Heavenly Father.
 
 The same is true for all of us! How do I know this? Because I know with all my heart that God lives and that Jesus is the Christ. He is the Savior of mankind, the great mediator for the salvation and exaltation of all of our Heavenly Father’s children, if they are willing to follow his outlined flight plan. Of which I testify this day, gratefully and happily, and in the name of Jesus Christ, amen.
+
+
+
 

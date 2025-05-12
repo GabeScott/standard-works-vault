@@ -1,7 +1,10 @@
 # The Comforter
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2015 General Conference*
+
+>*I give my witness that the living Christ sends the Holy Ghost, the Comforter, to those we are pledged to help Him comfort.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/04/the-comforter?lang=eng)
 
@@ -19,7 +22,7 @@ Jesus Christ gave this sweet promise:
 
 “Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls.
 
-“For my yoke is easy, and my burden is light.”1
+“For my yoke is easy, and my burden is light.”[^1]
 
 The burdens His faithful servants must carry in life are made lighter by His Atonement. The burden of sin can be taken away, but the trials of mortal life for good people can still be heavy burdens.
 
@@ -31,7 +34,7 @@ Alma described, in his words at the Waters of Mormon, what you promised at your 
 
 “Behold, here are the waters of Mormon (for thus were they called) and now, as ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
 
-“Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places that ye may be in, even until death, that ye may be redeemed of God, and be numbered with those of the first resurrection, that ye may have eternal life.”2
+“Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places that ye may be in, even until death, that ye may be redeemed of God, and be numbered with those of the first resurrection, that ye may have eternal life.”[^2]
 
 That is why you have a feeling to want to help a person struggling to move forward under a load of grief and difficulty. You promised that you would help the Lord make their burdens light and be comforted. You were given the power to help lighten those loads when you received the gift of the Holy Ghost.
 
@@ -41,19 +44,19 @@ So He gave them the promise that He makes to us and to all His true disciples:
 
 “And I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever;
 
-“Even the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you.”3
+“Even the Spirit of truth; whom the world cannot receive, because it seeth him not, neither knoweth him: but ye know him; for he dwelleth with you, and shall be in you.”[^3]
 
 Then He promised:
 
 “But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you.
 
-“Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.”4
+“Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.”[^4]
 
 In just the past few weeks, I have seen that promise of sending the Holy Ghost fulfilled in the lives of children of God who were pleading in prayer that their burdens would be lightened. The miracle of the loads being lightened came in a way the Lord promised. He and Heavenly Father sent the Holy Ghost as the Comforter to His disciples to help.
 
 Recently three generations of a family were grieving at the death of a five-year-old boy. He died accidentally while with his family on a vacation. I was granted the opportunity to watch once again how the Lord blesses the faithful with relief and the strength to endure.
 
-I watched the way the Lord made their great burden lighter. I was with them as the Lord’s covenant servant—as you will be often in your life—“to mourn with those that mourn ... and comfort those that stand in need of comfort.”5
+I watched the way the Lord made their great burden lighter. I was with them as the Lord’s covenant servant—as you will be often in your life—“to mourn with those that mourn … and comfort those that stand in need of comfort.”[^5]
 
 Because I knew that was true, I was pleased and at peace when the grandparents invited me to meet with them and the parents of the little boy before the funeral.
 
@@ -73,7 +76,7 @@ The people pleaded for relief, as many of those we love and serve do. Here is th
 
 “And I will also ease the burdens which are put upon your shoulders, that even you cannot feel them upon your backs, even while you are in bondage; and this will I do that ye may stand as witnesses for me hereafter, and that ye may know of a surety that I, the Lord God, do visit my people in their afflictions.
 
-“And now it came to pass that the burdens which were laid upon Alma and his brethren were made light; yea, the Lord did strengthen them that they could bear up their burdens with ease, and they did submit cheerfully and with patience to all the will of the Lord.”6
+“And now it came to pass that the burdens which were laid upon Alma and his brethren were made light; yea, the Lord did strengthen them that they could bear up their burdens with ease, and they did submit cheerfully and with patience to all the will of the Lord.”[^6]
 
 I have seen that miracle time and time again. We lighten the loads of others best by helping the Lord strengthen them. That is why the Lord included in our charge to comfort others the command to be His witnesses at all times and in all places.
 
@@ -83,19 +86,19 @@ The Spirit’s witness of the Atonement that came that night also strengthened J
 
 “For I know that my redeemer liveth, and that he shall stand at the latter day upon the earth:
 
-“And though after my skin worms destroy this body, yet in my flesh shall I see God.”7
+“And though after my skin worms destroy this body, yet in my flesh shall I see God.”[^7]
 
 It was that witness of the Spirit that gave him strength to endure. He would pass through mourning and the lack of comfort from people around him to see the joy that would come to the faithful after passing faithfully through their trials.
 
 It was true for Job. Blessings came to him in this life. The story of Job ends with this miracle:
 
-“So the Lord blessed the latter end of Job more than his beginning. ...
+“So the Lord blessed the latter end of Job more than his beginning. …
 
 “And in all the land were no women found so fair as the daughters of Job: and their father gave them inheritance among their brethren.
 
 “After this lived Job an hundred and forty years, and saw his sons, and his sons’ sons, even four generations.
 
-“So Job died, being old and full of days.”8
+“So Job died, being old and full of days.”[^8]
 
 It was the witness of the Spirit of the coming Atonement which saw Job through the tests life is intended to include for all of us. That is part of the great plan of happiness the Father gave us. He allowed His Son to provide, by His atoning sacrifice, the hope that comforts us no matter how hard the way home to Him may be.
 
@@ -111,9 +114,36 @@ I can know only partially how much He feels joy each time you, as His disciple, 
 
 I bear my witness that the Lord has asked each of us, His disciples, to help bear one another’s burdens. We have promised to do it. I bear my testimony that the Lord, through His Atonement and Resurrection, has broken the power of death. I give my witness that the living Christ sends the Holy Ghost, the Comforter, to those we are pledged to help Him comfort.
 
-You are all witnesses, as I am, of the truth of the inscription on the pin my mother wore for more than 20 years as a member of the Relief Society general board. It read, “Charity Never Faileth.”9 I still do not know the full meaning of those words. But I have caught a glimpse as I saw her reach out to those in need. The scripture tells us this truth: “Charity is the pure love of Christ.”10
+You are all witnesses, as I am, of the truth of the inscription on the pin my mother wore for more than 20 years as a member of the Relief Society general board. It read, “Charity Never Faileth.”[^9] I still do not know the full meaning of those words. But I have caught a glimpse as I saw her reach out to those in need. The scripture tells us this truth: “Charity is the pure love of Christ.”[^10]
 
-His love never fails, and we never will cease to feel in our hearts the urge “to mourn with those that mourn ... and comfort those that stand in need of comfort.”11 Nor will the peace He promises ever leave us as we serve others for Him.
+His love never fails, and we never will cease to feel in our hearts the urge “to mourn with those that mourn … and comfort those that stand in need of comfort.”[^11] Nor will the peace He promises ever leave us as we serve others for Him.
 
-As His witness, I extend gratitude for what you do so well to help the living Lord Jesus Christ and the Holy Ghost, the Comforter, strengthen feeble knees and lift up hands that hang down.12 I am grateful, with all my heart, for the women in my life who have helped me and blessed me as true disciples of Jesus Christ. In the name of Jesus Christ, amen.
+As His witness, I extend gratitude for what you do so well to help the living Lord Jesus Christ and the Holy Ghost, the Comforter, strengthen feeble knees and lift up hands that hang down.[^12] I am grateful, with all my heart, for the women in my life who have helped me and blessed me as true disciples of Jesus Christ. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
+
+[^2]: [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].
+
+[^3]: [[John 14.16|John 14:16–17]][[John 14.17|]].
+
+[^4]: [[John 14.26|John 14:26–27]][[John 14.27|]].
+
+[^5]: [[Mosiah 18.9|Mosiah 18:9]].
+
+[^6]: [[Mosiah 24.14|Mosiah 24:14–15]][[Mosiah 24.15|]].
+
+[^7]: [[Job 19.25|Job 19:25–26]][[Job 19.26|]].
+
+[^8]: [[Job 42.12|Job 42:12, 15–17]][[Job 42.15|]][[Job 42.16|]][[Job 42.17|]].
+
+[^9]: [[1 Corinthians 13.8|1 Corinthians 13:8]].
+
+[^10]: [[Moroni 7.47|Moroni 7:47]].
+
+[^11]: [[Mosiah 18.9|Mosiah 18:9]].
+
+[^12]: See [[D&C 81.5|Doctrine and Covenants 81:5]].
 

@@ -1,15 +1,18 @@
 # Your Celestial Guide
-*By By Sharon G. Larsen - Second Counselor in the Young Women General Presidency*
+
+By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2001 General Conference*
+
+>*When you pray often and seek to know the Lord’s will like Nephi did, the Lord will show you the way.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2001/04/your-celestial-guide?lang=eng)
 
 At this time in your life, you have probably had the experience of trying to perform a task that seemed really difficult and beyond your ability or experience. And possibly while you were attempting this seemingly insurmountable task, there were some, maybe even friends, who tried to discourage you, embarrass you, and belittle you. Challenges are different for each of us, but the Source for help is the same. Let’s look at Nephi’s experience.
 
-He grew up in a desert. We don’t know if he had ever seen a ship before the Lord asked him to build a ship—a seemingly insurmountable task! But Nephi had faith the Lord would help him. He said the Lord showed him “from time to time” how he should build it (1 Ne. 18:1). Nephi tells us he did not build it like men build ships. He built it “after the manner” the Lord showed him (1 Ne. 18:2). Then he tells us how.
+He grew up in a desert. We don’t know if he had ever seen a ship before the Lord asked him to build a ship—a seemingly insurmountable task! But Nephi had faith the Lord would help him. He said the Lord showed him “from time to time” how he should build it ([[1 Nephi 18.1|1 Ne. 18:1]]). Nephi tells us he did not build it like men build ships. He built it “after the manner” the Lord showed him ([[1 Nephi 18.2|1 Ne. 18:2]]). Then he tells us how.
 
-“I did pray oft unto the Lord; wherefore the Lord showed unto me great things” (1 Ne. 18:3).
+“I did pray oft unto the Lord; wherefore the Lord showed unto me great things” ([[1 Nephi 18.3|1 Ne. 18:3]]).
 
 When you pray often and seek to know the Lord’s will like Nephi did, the Lord will show you the way. But you can be sure when you are trying your best to obey, you may face strong opposition from those wishing to discourage and dissuade you. Nephi’s dissenters were his own brothers. Think how hard that would be!
 
@@ -19,7 +22,7 @@ But you have access to the same system of communication that Nephi used. Long be
 
 Heavenly Father has given you the gift of the Holy Ghost to be available to help you whenever you earnestly seek Him. Like Nephi, you can know what to do to build according to the Lord’s plan for you. You will want to invite this power to help you navigate through the challenges of mortality until you are safely home.
 
-It requires no special equipment or experience, no social status or money for the Holy Ghost to guide you. The next time you renew your baptismal covenant by taking the sacrament, listen to the promise: when you always remember your Savior and keep His commandments, you will always have His Spirit to be with you (see D&C 20:77, 79). Think of that! With a gift so magnificent, why would we ever resist such guidance?
+It requires no special equipment or experience, no social status or money for the Holy Ghost to guide you. The next time you renew your baptismal covenant by taking the sacrament, listen to the promise: when you always remember your Savior and keep His commandments, you will always have His Spirit to be with you (see [[D&C 20.77|D&C 20:77, 79]][[D&C 20.79|]]). Think of that! With a gift so magnificent, why would we ever resist such guidance?
 
 When our young daughter was practicing the piano, I suggested she play her piece over five more times to be prepared for her lesson.
 
@@ -43,11 +46,11 @@ I had overstepped something that was expected of me. I had chosen to be popular 
 
 There may be times the Spirit finds it difficult to help you because maybe you are not asking for His help in your prayers, or maybe because you are not listening, or maybe the message can’t get through the loud music or the radio or video.
 
-Kirstin said, “From personal experience, if we will listen to the Spirit, our lives will not be as complicated and full of temptation” (letter on file in the Young Women office). Laman and Lemuel refused to listen so many times that they were “past feeling” those sacred promptings (1 Ne. 17:45).
+Kirstin said, “From personal experience, if we will listen to the Spirit, our lives will not be as complicated and full of temptation” (letter on file in the Young Women office). Laman and Lemuel refused to listen so many times that they were “past feeling” those sacred promptings ([[1 Nephi 17.45|1 Ne. 17:45]]).
 
-You might ask yourself, How can I tell it’s the Holy Ghost teaching me and not my emotions or circumstances? Think of a time when you know you felt the Spirit of the Lord. Maybe it was during testimony meeting at camp or you were with your family or you were reading the scriptures or praying. Maybe sometime during this meeting as you listen to the music or hear our prophet speak, you will feel that warmth in your heart. That is the Holy Ghost bearing witness to you. Remember, remember how the Spirit feels. Use that experience to help you identify the Spirit again and again.
+You might ask yourself, *How can I tell it’s the Holy Ghost teaching me and not my emotions or circumstances?* Think of a time when you know you felt the Spirit of the Lord. Maybe it was during testimony meeting at camp or you were with your family or you were reading the scriptures or praying. Maybe sometime during this meeting as you listen to the music or hear our prophet speak, you will feel that warmth in your heart. That is the Holy Ghost bearing witness to you. Remember, remember how the Spirit feels. Use that experience to help you identify the Spirit again and again.
 
-The Holy Ghost will teach you in different ways at different times. Nephi had to learn this. Learn how the Lord communicates with you. Amanda said: “I was sitting in seminary one day, listening to the ‘Plan of Salvation Speech’ that I had heard a million times before, but all of a sudden, it just clicked. I could kind of see in my mind everything and how it fit together. I could really feel the [Spirit of the] Holy Ghost with me and knew that everything in the gospel was true” (letter).
+The Holy Ghost will teach you in different ways at different times. Nephi had to learn this. Learn how the Lord communicates with you. Amanda said: “I was sitting in seminary one day, listening to the ‘Plan of Salvation Speech’ that I had heard a million times before, but all of a sudden, it just clicked. I could kind of see in my mind everything and how it fit together. I could really feel the \[Spirit of the\] Holy Ghost with me and knew that everything in the gospel was true” (letter).
 
 Sometimes the prompting is no more than an uneasy feeling. One young woman said, “My stomach got a funny feeling and something was telling me to say no and walk away.”
 
@@ -60,4 +63,7 @@ Heavenly Father’s top priority is His children. If it’s important to you, it
 If Heavenly Father knew me growing up in a town so small it was rarely on any map, He knows you.
 
 If He knows one young woman in a faraway branch in British Columbia, He knows you—wherever you are. I have learned that truth for myself and bear that witness to you, in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,15 +1,18 @@
 # Love Is Spoken Here
-*By Gerrit W. Gong - Of the Quorum of the Twelve Apostles*
+
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
 
+>*May we each learn to speak and hear His love here, in our hearts and homes, and in our gospel callings, activities, ministering, and service.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/10/54gong?lang=eng)
 
-Our Primary children sing, “Love is spoken here.”1
+Our Primary children sing, “Love is spoken here.”[^1]
 
-I once gave Sister Gong a small locket. I had it inscribed dot-dot, dot-dot, dot-dot-dash. Those familiar with Morse code will recognize the letters I, I, U. But I included a second code. In Mandarin Chinese, “ai” means “love.” So, double-decoded, the message was “I love you.” Susan, sweetheart, “I, ai (爱), U.”
+I once gave Sister Gong a small locket. I had it inscribed *dot-dot, dot-dot, dot-dot-dash*. Those familiar with Morse code will recognize the letters I, I, U. But I included a second code. In Mandarin Chinese, “ai” means “love.” So, double-decoded, the message was “I love you.” Susan, sweetheart, “I, ai (爱), U.”
 
-We speak love in many languages. I am told the human family speaks 7,168 living languages.2 In the Church we speak 575 documented primary languages, with many dialects. We also communicate intent, inflection, and emotion through art, music, dance, logical symbols, and inter- and intrapersonal expression.3
+We speak love in many languages. I am told the human family speaks 7,168 living languages.[^2] In the Church we speak 575 documented primary languages, with many dialects. We also communicate intent, inflection, and emotion through art, music, dance, logical symbols, and inter- and intrapersonal expression.[^3]
 
 Today, let us speak of three languages of gospel love: the language of warmth and reverence, the language of service and sacrifice, and the language of covenant belonging.
 
@@ -25,19 +28,19 @@ Sometimes we need to know love spoken here is heard and appreciated here.
 
 With warmth and reverence, our sacrament and other meetings focus on Jesus Christ. We speak reverently of the Atonement of Jesus Christ, personal and real, not only of atonement in the abstract. We call Jesus Christ’s restored Church in His name, The Church of Jesus Christ of Latter-day Saints. We use reverent prayer language when we address Heavenly Father and warm respect when we speak with each other. As we recognize Jesus Christ at the heart of temple covenants, we refer less to “going to the temple” and more to “coming to Jesus Christ in the house of the Lord.” Each covenant whispers, “Love is spoken here.”
 
-New members say Church vocabulary often requires decoding. We chuckle at the thought that “stake house” could mean a nice beef dinner; “ward building” could indicate a hospital; “opening exercises” could invite us to do head, shoulders, knees, and toes in the church parking lot. But, please, let us be understanding and kind as we learn new languages of love together. New at church, a convert was told her skirts were too short. Instead of taking offense, she replied, in effect, “My heart is converted; please be patient as my skirts catch up.”4
+New members say Church vocabulary often requires decoding. We chuckle at the thought that “stake house” could mean a nice beef dinner; “ward building” could indicate a hospital; “opening exercises” could invite us to do head, shoulders, knees, and toes in the church parking lot. But, please, let us be understanding and kind as we learn new languages of love together. New at church, a convert was told her skirts were too short. Instead of taking offense, she replied, in effect, “My heart is converted; please be patient as my skirts catch up.”[^4]
 
-The words we use can draw us closer to or distance us from other Christians and friends. Sometimes we speak of missionary work, temple work, humanitarian and welfare work in ways that may cause others to think we believe we work on our own. Let us always speak with warm and reverent gratitude for God’s work and glory and the merits, mercy, and grace of Jesus Christ and His atoning sacrifice.5
+The words we use can draw us closer to or distance us from other Christians and friends. Sometimes we speak of missionary work, temple work, humanitarian and welfare work in ways that may cause others to think we believe we work on our own. Let us always speak with warm and reverent gratitude for God’s work and glory and the merits, mercy, and grace of Jesus Christ and His atoning sacrifice.[^5]
 
 Second, the gospel language of service and sacrifice.
 
 As we gather again at church each week to honor and rejoice in the Sabbath day, we can express our sacramental covenant commitment to Jesus Christ and each other through our Church callings, fellowship, sociality, and service.
 
-When I ask local Church leaders what concerns them, both brothers and sisters say, “Some of our members are not accepting Church calls.” Calls to serve the Lord and each other in His Church give opportunity to increase in compassion, capacity, and humility. As we are set apart, we can receive the Lord’s inspiration to lift and strengthen others and ourselves. Of course, the changing circumstances and seasons of our lives may affect our ability to serve, but hopefully never our desire. With King Benjamin, we say, “If I had I would give”6 and offer all we can.
+When I ask local Church leaders what concerns them, both brothers and sisters say, “Some of our members are not accepting Church calls.” Calls to serve the Lord and each other in His Church give opportunity to increase in compassion, capacity, and humility. As we are set apart, we can receive the Lord’s inspiration to lift and strengthen others and ourselves. Of course, the changing circumstances and seasons of our lives may affect our ability to serve, but hopefully never our desire. With King Benjamin, we say, “If I had I would give”[^6] and offer all we can.
 
-Stake and ward leaders, let’s do our part. As we call (and release) brothers and sisters to serve in the Lord’s Church, let’s please do so with dignity and inspiration. Help each feel appreciated and that they can be successful. Please counsel with and listen to sister leaders. May we remember, as President J. Reuben Clark taught, in the Lord’s Church we serve where called, “which place one neither seeks nor declines.”7
+Stake and ward leaders, let’s do our part. As we call (and release) brothers and sisters to serve in the Lord’s Church, let’s please do so with dignity and inspiration. Help each feel appreciated and that they can be successful. Please counsel with and listen to sister leaders. May we remember, as President J. Reuben Clark taught, in the Lord’s Church we serve where called, “which place one neither seeks nor declines.”[^7]
 
-When Sister Gong and I were married, Elder David B. Haight counseled: “Always hold a calling in the Church. Especially when life is busy,” he said, “you need to feel the Lord’s love for those you serve and for you as you serve.” I promise that love is spoken here, there, and everywhere as we answer yes to Church leaders to serve the Lord in His Church by His Spirit and our covenants.
+When Sister Gong and I were married, Elder David B. Haight counseled: “Always hold a calling in the Church. Especially when life is busy,” he said, “you need to feel the Lord’s love for those you serve and for you as you serve.” I promise that love is spoken here, there, and everywhere as we answer yes to Church leaders to serve the Lord in His Church by His Spirit and our covenants.
 
 The Lord’s restored Church can be an incubator for a Zion community. As we worship, serve, enjoy, and learn His love together, we anchor each other in His gospel. We may disagree politically or on social issues but find harmony as we sing together in the ward choir. We nurture connection and fight isolation as we regularly minister with our hearts in each other’s homes and neighborhoods.
 
@@ -49,7 +52,7 @@ One inspired ward activities chair and committee nurtures individuals and a comm
 
 Sociality and service often go together. Young adults know if you really want to get to know someone, then paint side by side on a ladder in a service project.
 
-Of course, no individual and no family is perfect. We all need help better to speak love here. “Perfect love casteth out fear.”8 Faith, service, and sacrifice draw us beyond ourselves closer to our Savior. The more compassionate, faithful, and selfless our service and sacrifice are in Him, the more we may begin to fathom Jesus Christ’s atoning compassion and grace for us.
+Of course, no individual and no family is perfect. We all need help better to speak love here. “Perfect love casteth out fear.”[^8] Faith, service, and sacrifice draw us beyond ourselves closer to our Savior. The more compassionate, faithful, and selfless our service and sacrifice are in Him, the more we may begin to fathom Jesus Christ’s atoning compassion and grace for us.
 
 And that brings us to the gospel language of covenant belonging.
 
@@ -59,7 +62,7 @@ But ultimately it is not true. Jesus Christ personifies this powerful, ageless t
 
 “For whosoever will save his life shall lose it: and whosoever will lose his life for my sake shall find it.
 
-“For what is a man [or woman] profited, if he shall gain the whole world, and lose his own soul?”9
+“For what is a man \[or woman\] profited, if he shall gain the whole world, and lose his own soul?”[^9]
 
 Jesus Christ offers a better way—relationships founded on divine covenant, stronger than the cords of death. Covenant belonging with God and each other can heal and sanctify our most cherished relationships. In truth, He knows us better and loves us more than we know or love ourselves. In truth, when we covenant all we are, we can become more than we are. God’s power and wisdom can bless us with every good gift, in His time and way.
 
@@ -74,4 +77,25 @@ Where and how do you hear His love spoken here?
 May we each learn to speak and hear His love here, in our hearts and homes, and in our gospel callings, activities, ministering, and service.
 
 In God’s plan, we will each transition one day from this life into the next life. When we meet the Lord, I imagine Him saying, with words of instruction and promise, “My love is spoken here.” In the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: “Love Is Spoken Here,” *Children’s Songbook*, 190–91.
+
+[^2]: See Ethnologue, ethnologue.com/about/#comprehensive.
+
+[^3]: See Howard Gardner, *Frames of Mind: The Theory of Multiple Intelligences* (2011).
+
+[^4]: A similar experience appears in Alonzo L. Gaskill, *Converted: True Conversion Stories from 15 Religions* (2017), 3.
+
+[^5]: See [[2 Nephi 2.8|2 Nephi 2:8]].
+
+[^6]: [[Mosiah 4.24|Mosiah 4:24]].
+
+[^7]: J. Reuben Clark Jr., in Conference Report, Apr. 1951, 154.
+
+[^8]: [[1 John 4.18|1 John 4:18]]; see also [[Moroni 8.16|Moroni 8:16]].
+
+[^9]: [[Matthew 16.25|Matthew 16:25–26]][[Matthew 16.26|]]; see also [[Matthew 10.39|Matthew 10:39–40]][[Matthew 10.40|]]; [[Mark 8.35|Mark 8:35–36]][[Mark 8.36|]]; [[Luke 9.24|Luke 9:24–25]][[Luke 9.25|]]; [[Luke 17.33|17:33]]; [[John 12.25|John 12:25]].
 

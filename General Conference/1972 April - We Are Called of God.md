@@ -1,5 +1,6 @@
 # We Are Called of God
-*By Loren C. Dunn - Of the Seventy*
+
+By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -15,7 +16,7 @@ Sustaining, however, should not be confused with voting into office.
 
 Joseph Smith made it clear how a person is called to a position in The Church of Jesus Christ of Latter-day Saints. In the fifth Article of Faith he says: “We believe that a man must be called of God, by prophecy, and by the laying on of hands, by those who are in authority to preach the Gospel and administer in the ordinances thereof.”
 
-When we sustain officers, we are given the opportunity of sustaining those whom the Lord has already called by revelation. The dictionary tells us that the word sustain means “to bear up, to support, to furnish sustenance for, to aid effectually, to hold valid, to confirm or corroborate.”
+When we sustain officers, we are given the opportunity of sustaining those whom the Lord has already called by revelation. The dictionary tells us that the word *sustain* means “to bear up, to support, to furnish sustenance for, to aid effectually, to hold valid, to confirm or corroborate.”
 
 The Lord, then, gives us the opportunity to sustain the action of a divine calling and in effect express ourselves if for any reason we may feel otherwise.
 
@@ -25,11 +26,11 @@ If for any reason we have a difficult time sustaining those in office, then we a
 
 Brigham Young, when speaking of Joseph Smith, made the following statement:
 
-“Who called Joseph Smith to be a prophet? Did the people or God? God, and not the people called him. Had the people gathered together and appointed one of their number to be a prophet, he would have been accountable to the people; but inasmuch as he was called by God, and not the people, he is accountable to God only and the angel who committed the gospel to him, and not to any man on earth. The Twelve are accountable to the prophet, and not the Church, for the course they pursue.” (Documentary History of the Church, vol. 5, p. 521.)
+“Who called Joseph Smith to be a prophet? Did the people or God? God, and not the people called him. Had the people gathered together and appointed one of their number to be a prophet, he would have been accountable to the people; but inasmuch as he was called by God, and not the people, he is accountable to God only and the angel who committed the gospel to him, and not to any man on earth. The Twelve are accountable to the prophet, and not the Church, for the course they pursue.” (*Documentary History of the Church,* vol. 5, p. 521.)
 
 And then, of course, it was added that all members are accountable to the principles and teachings of the gospel.
 
-If we are to take that same principle and apply it at the ward level, we can see that the bishop, who is considered the father of his ward and who leads his ward with judiciousness and love and patience and kindness, is nonetheless not answerable to the members of his ward, but instead is answerable to the Lord and to those priesthood leaders who preside over him. The bishop is answerable for the members of his ward but not necessarily answerable to the members of his ward.
+If we are to take that same principle and apply it at the ward level, we can see that the bishop, who is considered the father of his ward and who leads his ward with judiciousness and love and patience and kindness, is nonetheless not answerable to the members of his ward, but instead is answerable to the Lord and to those priesthood leaders who preside over him. The bishop is answerable *for* the members of his ward but not necessarily answerable *to* the members of his ward.
 
 The Church of Jesus Christ, then, is organized from the top down.
 
@@ -63,7 +64,7 @@ Such a calling, I suspect, would concentrate on the fact that the priesthood lea
 
 Perhaps in too many cases that gets reversed, and when we answer the question “Who called you?” the name of Bishop Jones comes first.
 
-In closing, I would like to quote these few words from the Prophet Joseph Smith: “All the ordinances, systems, and administrations on the earth are of no use to the children of men, unless they are ordained and authorized of God; for nothing will save a man but a legal administrator; for none others will be acknowledged either by God or angels.” (DHC, vol. 5, p. 259.) Let me repeat that last phrase: “for nothing will save a man but a legal administrator; for none others will be acknowledged either by God or angels.”
+In closing, I would like to quote these few words from the Prophet Joseph Smith: “All the ordinances, systems, and administrations on the earth are of no use to the children of men, unless they are ordained and authorized of God; for nothing will save a man but a legal administrator; for none others will be acknowledged either by God or angels.” (*DHC,* vol. 5, p. 259.) Let me repeat that last phrase: “for nothing will save a man but a legal administrator; for none others will be acknowledged either by God or angels.”
 
 It is my testimony that at this conference this day we have raised our hands to sustain not only a prophet, seer, and revelator but a legal administrator in the rites and ordinances of the gospel of Jesus Christ; and because we have a prophet standing at the head, that which is done under his direction throughout the Church is binding not only on earth but in heaven.
 
@@ -72,4 +73,7 @@ The fact that we have apostles and prophets and that we have the opportunity to 
 My brothers and sisters, I bear to you my witness as to the reality of the gospel of Jesus Christ. I know God lives and that Jesus the Christ is our Savior and is the leader of his own church. I testify that the apostles and prophets whom we have sustained receive revelation from God for the ongoing work of the kingdom in this day. I bear my witness that Joseph Smith was a prophet of God, and that he saw what he said he saw, and that he is a true prophet, and that we are led by a prophet of God today, even Joseph Fielding Smith, for in the last few years I have had the opportunity to see him stand and speak in the name of Christ the Lord.
 
 May the Lord so bless us now that we may sustain those whom he has called and do that which is expected of us, in the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Spiritual Crevasses
-*By David B. Haight - Of the Quorum of the Twelve Apostles*
+
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
 
@@ -13,7 +14,7 @@ Several young men were also exploring the glacier. They heard the cries for help
 
 Sister Neslen and others ran to a nearby lodge for help. The nearest park ranger camp was seventy-five miles away. They learned by telephone that two park rangers were near the icefields. Located by radio, they rushed to the rescue. Time was short, decisions urgent, and silent prayers were sent heavenward.
 
-Brother Neslen tried to calm his son and soothe his fears. Hypothermia was setting in. Young Cannon’s shirt had been pushed up as he fell. His bare skin was now pressed against the cold walls of the glacier. To keep his son from unconsciousness, the father called down to him to keep praying, to wiggle his fingers and toes, and to sing his favorite songs. Over and over Cannon sang, “I am a child of God, and he has sent me here, has given me an earthly home with parents kind and dear” (Hymns, 1985, no. 301). All were strengthened by Cannon’s faith and determination. But he was beginning to weaken. His father kept assuring him that help would soon arrive and that his Heavenly Father would hear his prayers.
+Brother Neslen tried to calm his son and soothe his fears. Hypothermia was setting in. Young Cannon’s shirt had been pushed up as he fell. His bare skin was now pressed against the cold walls of the glacier. To keep his son from unconsciousness, the father called down to him to keep praying, to wiggle his fingers and toes, and to sing his favorite songs. Over and over Cannon sang, “I am a child of God, and he has sent me here, has given me an earthly home with parents kind and dear” (*Hymns,* 1985, no. 301). All were strengthened by Cannon’s faith and determination. But he was beginning to weaken. His father kept assuring him that help would soon arrive and that his Heavenly Father would hear his prayers.
 
 The two rangers arrived. Spikes were driven into the ice, and ropes were attached to a ranger, who was lowered to rescue Cannon. But the walls were too narrow for him. Their only chance was to lower a looped rope and pray he was alert enough to grasp it and then have the strength to hold on as they tried to pull him out.
 
@@ -37,11 +38,11 @@ He wasted $18,000 buying “crack,” lost his job, underwent a personality chan
 
 His mind is seriously affected. He is still somewhat dependent on some drugs. The hope and prayer of his family is that he will be able to hold on to the lifeline.
 
-When Satan was cast down to earth with his innumerable hosts, he became “the father of all lies, to deceive and to blind men, and to lead them captive ... , even as many as would not hearken unto my voice” (Moses 4:4).
+When Satan was cast down to earth with his innumerable hosts, he became “the father of all lies, to deceive and to blind men, and to lead them captive … , even as many as would not hearken unto my voice” ([[Moses 4.4|Moses 4:4]]).
 
-One of Satan’s methods is to distract and entice us so that we will take our eyes off the dangerous crevasses. He has succeeded to such an extent that many no longer recognize sin as sin. Movies, television, and magazines have glorified sin into what they think is an acceptable life-style: “[fornication], adultery, incest, ... serial marriages, drug abuse, violence and double-dealing of every imaginable variety, [that is] often portrayed as [normal] behavior; where people who do good are not ... rewarded and those who do evil are not punished.” So stated a Los Angeles Times writer (see Salt Lake Tribune, 9 Aug. 1986, p. C7).
+One of Satan’s methods is to distract and entice us so that we will take our eyes off the dangerous crevasses. He has succeeded to such an extent that many no longer recognize sin as sin. Movies, television, and magazines have glorified sin into what they think is an acceptable life-style: “\[fornication\], adultery, incest, … serial marriages, drug abuse, violence and double-dealing of every imaginable variety, \[that is\] often portrayed as \[normal\] behavior; where people who do good are not … rewarded and those who do evil are not punished.” So stated a *Los Angeles Times* writer (Mark I. Pinsky, “Why Don’t Moral Crusaders Get into a Lather about Sleazy Soaps?” *Salt Lake Tribune,* 9 Aug. 1986, p. C7).
 
-Assuredly we live in a time spoken of by Isaiah when men “call evil good, and good evil” (Isa. 5:20).
+Assuredly we live in a time spoken of by Isaiah when men “call evil good, and good evil” ([[Isaiah 5.20|Isa. 5:20]]).
 
 If any of you are walking in ice fields near open crevasses, do you see the warning signs? “Danger—don’t go near the edge”? Don’t trifle with evil. You will lose. We pray that you will not display the somewhat arrogant attitude of some who say, “I can handle it!” or “Everyone else does it!”
 
@@ -49,17 +50,17 @@ A friend, visiting relatives in another state for a high school graduation, noti
 
 My friend’s nephew did not chew tobacco, but he did believe most boys did. Even in schools where in reality only a few students are using drugs, drinking alcohol, or smoking, nonusers commonly believe that most of their fellow students are doing it.
 
-Everyone is not doing it. You don’t! And you influence your friends. And others watch you. You help set the standard.
+Everyone is *not* doing it. You don’t! And you influence your friends. And others watch you. You help set the standard.
 
 Young men, you are a royal brotherhood—not because you’re better than anyone else—but because the Lord has blessed you with special privileges and responsibilities.
 
-You were foreordained to come to earth at a time when the fulness of the gospel was on the earth. You were foreordained to receive his priesthood. The Prophet Joseph Smith said, “Every man who has a calling to minister to the inhabitants of the world was ordained to that very purpose in the Grand Council of heaven before this world was” (Teachings of the Prophet Joseph Smith, sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Company, 1977, p. 365).
+You were foreordained to come to earth at a time when the fulness of the gospel was on the earth. You were foreordained to receive his priesthood. The Prophet Joseph Smith said, “Every man who has a calling to minister to the inhabitants of the world was ordained to that very purpose in the Grand Council of heaven before this world was” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Company, 1977, p. 365).
 
 You are the Lord’s special resource for teaching the gospel to all his other children. You are different from other teenagers who have neither your understanding nor your responsibilities.
 
 You are one of his spirit sons, singled out with a special calling. And we know that he loves you. You have the gift of the Holy Ghost. You can discern good from evil. And with the power of the priesthood, you have the authority to represent your Heavenly Father.
 
-Now, my brethren, let us who have been given this most precious responsibility of the holy priesthood “arise,” as father Lehi declared, and “put on the armor of righteousness” (2 Ne. 21–23).
+Now, my brethren, let us who have been given this most precious responsibility of the holy priesthood “arise,” as father Lehi declared, and “put on the armor of righteousness” ([[2 Nephi 21.1|2 Ne. 21–23]][[2 Nephi 21.2|]][[2 Nephi 21.3|]][[2 Nephi 21.4|]][[2 Nephi 21.5|]][[2 Nephi 21.6|]][[2 Nephi 21.7|]][[2 Nephi 21.8|]][[2 Nephi 21.9|]][[2 Nephi 21.10|]][[2 Nephi 21.11|]][[2 Nephi 21.12|]][[2 Nephi 21.13|]][[2 Nephi 21.14|]][[2 Nephi 21.15|]][[2 Nephi 21.16|]]).
 
 To help each of us avoid the pitfalls and crevasses in life, the Lord has provided the lifeline of the precious truths in the scriptures, which, if held on to, will allow us to escape both physical and spiritual danger.
 
@@ -67,23 +68,23 @@ The Word of Wisdom was given so that we might have clear minds and healthy bodie
 
 I urge each of you to develop a personal companionship with the scriptures.
 
-President Spencer W. Kimball read the Bible when he was fourteen years old—all 66 books and 1,519 pages. “If I could do it by coal-oil light,” he said, “you can do it by electric light” (The Teachings of Spencer W. Kimball, ed. Edward L. Kimball, Salt Lake City, Utah, 1982, p. 131).
+President Spencer W. Kimball read the Bible when he was fourteen years old—all 66 books and 1,519 pages. “If I could do it by coal-oil light,” he said, “you can do it by electric light” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball, Salt Lake City: Bookcraft, 1982, p. 131).
 
 President Kimball was a very special teacher for all of us. He didn’t have a car or a bicycle, but he did have nine cows to milk every morning and night.
 
-He said, “I thought, ‘What a waste of time, to sit on a three-legged stool. Maybe there is something else I could do while I am milking.’” He placed a copy of the Articles of Faith on the ground beside him and went through them, over and over, until he had memorized them. Then he repeated the Ten Commandments over and over until he learned them. He memorized important scriptures that would help him on his mission—all while he milked the cows. He didn’t have time to waste; he had things to do with his life (see The Teachings of Spencer W. Kimball, p. 131).
+He said, “I thought, ‘What a waste of time, to sit on a three-legged stool. Maybe there is something else I could do while I am milking.’” He placed a copy of the Articles of Faith on the ground beside him and went through them, over and over, until he had memorized them. Then he repeated the Ten Commandments over and over until he learned them. He memorized important scriptures that would help him on his mission—all while he milked the cows. He didn’t have time to waste; he had things to do with his life (see *The Teachings of Spencer W. Kimball,* p. 131).
 
 It would be a wonderful thing for you young men to use your time wisely by learning of God’s ways.
 
 President Ezra Taft Benson has challenged each of us to read the Book of Mormon—the most correct of any book on earth and the keystone of our religion. We understand that thousands of young men have accepted the challenge and are now reading the Book of Mormon.
 
-As the angel Moroni sealed up the gold plates, he was inspired to promise future generations—that is, us—that on certain conditions God will manifest the truth of those records by the power of the Holy Ghost, and that—listen carefully—“by the power of the Holy Ghost ye may know the truth of all things” (see Moro. 10:4–5).
+As the angel Moroni sealed up the gold plates, he was inspired to promise future generations—that is, us—that on certain conditions God will manifest the truth of those records by the power of the Holy Ghost, and that—listen carefully—“by the power of the Holy Ghost ye may know the truth of all things” (see [[Moroni 10.4|Moro. 10:4–5]][[Moroni 10.5|]]).
 
 Imagine such a promise. If you desire with a sincere heart, with faith in Christ, you can understand all things.
 
 Jeffrey Holland, president of Brigham Young University, while working on his Ph.D. at a prominent eastern American university, got to know well one of the reference librarians who had helped him with some research.
 
-One day he said, “Ilene, I need to know how many books we have in the University Library which claim to have been delivered by an angel.”
+One day he said, “Ilene, I need to know how many books we have in the university library which claim to have been delivered by an angel.”
 
 As you can imagine, the librarian gave him a peculiar look and said, “I don’t know of any books that have been delivered by angels. Swords maybe, or chariots, but I don’t know of any books.”
 
@@ -94,4 +95,7 @@ The librarian dutifully did some checking of the nine million books in the libra
 Think of it—one book has been delivered by an angel, and it teaches of your eternal salvation. And each of you owns a true copy!
 
 May the Lord bless each of you with your life’s opportunities. Put your trust in Him to avoid the crevasses of sin and evil. Hold on to the lifeline of the gospel. You can make correct choices—the ones you know in your heart will be for your best good. We love you and testify of the truthfulness of the gospel of Christ. In the name of Jesus Christ, amen.
+
+
+
 

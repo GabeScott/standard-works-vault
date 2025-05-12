@@ -1,11 +1,14 @@
 # Faith and Keys
-*By Henry B. Eyring - Of the Quorum of the Twelve Apostles*
+
+By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
 
+>*We have to know by inspiration that the priesthood keys are held by those who lead and serve us. That requires the witness of the Spirit.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2004/10/faith-and-keys?lang=eng)
 
-In a chapel far from Salt Lake City, in a place where a member of the Quorum of the Twelve rarely goes, a father approached me. He led his young son by the hand. As they reached me, he looked down at the boy, called him by name, and said, nodding his head towards me, “This is an Apostle.” I could tell by the sound of the father’s voice that he was hoping his son would feel more than that he was meeting a dignified visitor. He hoped that his son would feel a conviction that priesthood keys were on the earth in the Lord’s Church. His son will need that conviction again and again. He will need it when he opens a letter from some future prophet he has never seen calling him to a mission. He will need it when he buries a child or a wife or a parent. He will need it for courage to follow direction to serve. He will need it for the comfort that comes from trusting a sealing power that binds forever.
+In a chapel far from Salt Lake City, in a place where a member of the Quorum of the Twelve rarely goes, a father approached me. He led his young son by the hand. As they reached me, he looked down at the boy, called him by name, and said, nodding his head toward me, “This is an Apostle.” I could tell by the sound of the father’s voice that he was hoping his son would feel more than that he was meeting a dignified visitor. He hoped that his son would feel a conviction that priesthood keys were on the earth in the Lord’s Church. His son will need that conviction again and again. He will need it when he opens a letter from some future prophet he has never seen calling him to a mission. He will need it when he buries a child or a wife or a parent. He will need it for courage to follow direction to serve. He will need it for the comfort that comes from trusting a sealing power that binds forever.
 
 Missionaries will invite investigators to meet a bishop or branch president today with the same intent. They hope that the investigators will feel far more than that they have met a nice man or even a great man. They will be praying that the investigators will feel a conviction that this apparently ordinary man holds priesthood keys in the Lord’s Church. The investigators will need that conviction when they go into the waters of baptism. They will need it when they pay tithing. They will need that conviction when the bishop is inspired to give them a calling. They will need it when they see him presiding in the sacrament meeting and when he nourishes them by teaching the gospel.
 
@@ -27,9 +30,9 @@ He said that I could have told the people that if the Saints who heard Paul had 
 
 That sent me back to Paul’s letter to the Ephesians. I could see that Paul wanted the people to feel the value of the chain of priesthood keys reaching from the Lord through His Apostles to them, the members of the Lord’s Church. Paul was trying to build a testimony of those keys.
 
-Paul testified to the Ephesians that Christ was at the head of His Church. And he taught that the Savior built His Church on a foundation of apostles and prophets who hold all the keys of the priesthood.
+Paul testified to the Ephesians that Christ was at the head of His Church. And he taught that the Savior built His Church on a foundation of apostles and prophets, who hold all the keys of the priesthood.
 
-Despite the clarity and the power of his teaching and his example, Paul knew that an apostasy would come. He knew that apostles and prophets would be taken from the earth. And he knew that they would, in some great, future day, be restored. He wrote of that time to the Ephesians, speaking of what the Lord would do: “That in the dispensation of the fulness of times he might gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him.”1
+Despite the clarity and the power of his teaching and his example, Paul knew that an apostasy would come. He knew that apostles and prophets would be taken from the earth. And he knew that they would, in some great, future day, be restored. He wrote of that time to the Ephesians, speaking of what the Lord would do: “That in the dispensation of the fulness of times he might gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him.”[^1]
 
 Paul looked forward to the ministry of the Prophet Joseph Smith, when the heavens would be opened again. It happened. John the Baptist came and conferred on mortals the priesthood of Aaron and the keys of the ministering of angels and of baptism by immersion for the remission of sins.
 
@@ -39,7 +42,7 @@ The Prophet Joseph Smith knew that his death was imminent. He knew that the prec
 
 One of the Apostles, Wilford Woodruff, left us this account of what happened in Nauvoo as the Prophet spoke to the Twelve:
 
-“On that occasion the Prophet Joseph rose up and said to us: ‘Brethren, I have desired to live to see this temple built. I shall never live to see it, but you will. I have sealed upon your heads all the keys of the kingdom of God. I have sealed upon you every key, power, principle that the God of heaven has revealed to me. Now, no matter where I may go or what I may do, the kingdom rests upon you.’”2
+“On that occasion the Prophet Joseph rose up and said to us: ‘Brethren, I have desired to live to see this temple built. I shall never live to see it, but you will. I have sealed upon your heads all the keys of the kingdom of God. I have sealed upon you every key, power, principle that the God of heaven has revealed to me. Now, no matter where I may go or what I may do, the kingdom rests upon you.’”[^2]
 
 Every prophet that followed Joseph, from Brigham Young to President Hinckley, has held and exercised those keys and has held the sacred apostleship.
 
@@ -83,7 +86,16 @@ With those continual changes comes a great opportunity. We can act to qualify fo
 
 The answer to your prayer is not likely to be as dramatic as it was when some saw Brigham Young, as he spoke, take on the appearance of the martyred Prophet Joseph. But it can be as sure. And with that spiritual assurance will come peace and power. You will know again that this is the Lord’s true and living Church, that He leads it through His ordained servants, and that He cares about us.
 
-If enough of us exercise that faith and receive those assurances, God will lift up those who lead us and so bless our lives and our families. We will become what Paul so wanted for those he served: “built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone.”3
+If enough of us exercise that faith and receive those assurances, God will lift up those who lead us and so bless our lives and our families. We will become what Paul so wanted for those he served: “built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone.”[^3]
 
 I testify, I know that Jesus Christ is our Savior and that He lives. I know that He is the rock upon which this, His true Church, stands. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Ephesians 1.10|Ephesians 1:10]].
+
+[^2]: “The Keys of the Kingdom,” *Millennial Star,* Sept. 2, 1889, 546; or *Ensign,* Apr. 2004, 30.
+
+[^3]: [[Ephesians 2.20|Ephesians 2:20]].
 

@@ -1,5 +1,6 @@
 # The Living Christ
-*By Joseph Anderson - Assistant to the Council of the Twelve*
+
+By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -13,7 +14,7 @@ We have made remarkable progress in scientific research and education, in transp
 
 The thing that is needed more than anything else today is a return to faith in the Lord Jesus Christ and in the gospel plan that he gave. Today, as perhaps seldom if ever before, civilization is in need of a knowledge of the true and living God. Yes, the cure for the ills that beset the world today is true religion. We need the humility of prayer, and a determination to learn God’s will and to keep the commandments that he has given. We need faith that our Savior lives, faith in his redeeming sacrifice. In other words, Christ and his teachings should become the center of our lives.
 
-Our late president, President David O. McKay, in an interview with a leading journalist sometime ago, was asked: “If you had the power to grant unto America one great wish, what would it be?” His answer was: “I would wish that America had a testimony of the Lord Jesus Christ and would obey his principles; that would bring peace on earth. I believe that is the greatest blessing that can be given.”
+Our late president, President David O. McKay, in an interview with a leading journalist sometime ago, was asked: “If you had the power to grant unto America one great wish, what would it be?” His answer was: “I would wish that America had a testimony of the Lord Jesus Christ and would obey his principles; that would bring peace on earth. I believe that is the greatest blessing that can be given.”
 
 Do we need Jesus today? Do we need his teachings? If we are to survive, if our civilization is to persist, we must accept him and his inspiration and guidance. Someone has said that “the world needs a bath in Christ’s pure religion. Only a dedication to Christ can wash the dirt out of our society.”
 
@@ -33,15 +34,15 @@ After his crucifixion and his body was placed in the tomb, Peter and others of t
 
 “And Simon Peter answered and said, Thou art the Christ, the Son of the living God.
 
-“And Jesus answered and said unto him, Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven.” (Matt. 16:13–17.)
+“And Jesus answered and said unto him, Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven.” ([[Matthew 16.13|Matt. 16:13–17]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]][[Matthew 16.17|]].)
 
 Peter and others were permitted to witness the Master’s transfiguration, and they had seen the wonderful miracles that he had performed; yet it was not until after his resurrection and his appearance and association with them prior to his ascension and after they had been endowed with the Holy Ghost on the day of Pentecost that they were prepared to proclaim to the world without fear that he was the Christ, the Son of the living God.
 
-The holy scriptures tell us that following his resurrection, the risen Lord was seen by Mary Magdalene at the sepulcher. (John 20:16.)
+The holy scriptures tell us that following his resurrection, the risen Lord was seen by Mary Magdalene at the sepulcher. ([[John 20.16|John 20:16]].)
 
 He appeared unto two of his disciples as they walked and went into the country, and they knew not that it was he.
 
-He appeared to his apostles on several different occasions following his resurrection, and, according to Apostle Paul, he was seen by above five hundred brethren at once. (See 1 Cor. 15.)
+He appeared to his apostles on several different occasions following his resurrection, and, according to Apostle Paul, he was seen by above five hundred brethren at once. (See [[1 Corinthians 15.1|1 Cor. 15]][[1 Corinthians 15.2|]][[1 Corinthians 15.3|]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]][[1 Corinthians 15.9|]][[1 Corinthians 15.10|]][[1 Corinthians 15.11|]][[1 Corinthians 15.12|]][[1 Corinthians 15.13|]][[1 Corinthians 15.14|]][[1 Corinthians 15.15|]][[1 Corinthians 15.16|]][[1 Corinthians 15.17|]][[1 Corinthians 15.18|]][[1 Corinthians 15.19|]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]][[1 Corinthians 15.23|]][[1 Corinthians 15.24|]][[1 Corinthians 15.25|]][[1 Corinthians 15.26|]][[1 Corinthians 15.27|]][[1 Corinthians 15.28|]][[1 Corinthians 15.29|]][[1 Corinthians 15.30|]][[1 Corinthians 15.31|]][[1 Corinthians 15.32|]][[1 Corinthians 15.33|]][[1 Corinthians 15.34|]][[1 Corinthians 15.35|]][[1 Corinthians 15.36|]][[1 Corinthians 15.37|]][[1 Corinthians 15.38|]][[1 Corinthians 15.39|]][[1 Corinthians 15.40|]][[1 Corinthians 15.41|]][[1 Corinthians 15.42|]][[1 Corinthians 15.43|]][[1 Corinthians 15.44|]][[1 Corinthians 15.45|]][[1 Corinthians 15.46|]][[1 Corinthians 15.47|]][[1 Corinthians 15.48|]][[1 Corinthians 15.49|]][[1 Corinthians 15.50|]][[1 Corinthians 15.51|]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]][[1 Corinthians 15.54|]][[1 Corinthians 15.55|]][[1 Corinthians 15.56|]][[1 Corinthians 15.57|]][[1 Corinthians 15.58|]].)
 
 Yes, and following his resurrection and ascension, he appeared to the people on this the American continent and established his church and proclaimed his gospel to the people.
 
@@ -59,7 +60,7 @@ The Savior has also appeared to men at other times in this dispensation. As reco
 
 “For we saw him, even on the right hand of God; and we heard the voice bearing record that he is the Only Begotten of the Father—
 
-“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” (D&C 76:22–24.)
+“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” ([[D&C 76.22|D&C 76:22–24]][[D&C 76.23|]][[D&C 76.24|]].)
 
 And again:
 
@@ -67,7 +68,7 @@ And again:
 
 “That he came into the world, even Jesus, to be crucified for the world, and to bear the sins of the world, and to sanctify the world, and to cleanse it from all unrighteousness;
 
-“That through him all might be saved whom the Father had put into his power and made by him.” (D&C 76:40–42.)
+“That through him all might be saved whom the Father had put into his power and made by him.” ([[D&C 76.40|D&C 76:40–42]][[D&C 76.41|]][[D&C 76.42|]].)
 
 Then again, in the 110th section of the Doctrine and Covenants the Prophet Joseph and Oliver Cowdery relate this experience:
 
@@ -77,17 +78,20 @@ Then again, in the 110th section of the Doctrine and Covenants the Prophet Josep
 
 “His eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters, even the voice of Jehovah, saying:
 
-“I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father.” (D&C 110:1–4.)
+“I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father.” ([[D&C 110.1|D&C 110:1–4]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]].)
 
-Others in this dispensation have seen the Lord. We are not restricted to the testimonies of Joseph Smith, Sidney Rigdon, Oliver Cowdery, and others who have seen the Lord in this day and time. We may and do know for ourselves that Jesus the Christ does live, that he is the mediator between us and the Father. We have that gift and power that Peter had when he said: “Thou art the Christ, the Son of the living God.” (Matt. 16:16.)
+Others in this dispensation have seen the Lord. We are not restricted to the testimonies of Joseph Smith, Sidney Rigdon, Oliver Cowdery, and others who have seen the Lord in this day and time. We may and do know for ourselves that Jesus the Christ does live, that he is the mediator between us and the Father. We have that gift and power that Peter had when he said: “Thou art the Christ, the Son of the living God.” ([[Matthew 16.16|Matt. 16:16]].)
 
 We have had hands laid upon our heads by men of divine authority, men holding the priesthood of God, which has been restored to earth in our time, and have received the gift of the Holy Ghost, which is the spirit of prophecy and revelation. The Holy Ghost manifests and bears witness concerning the existence of the Father and the Son and the truth of the restored gospel of Christ.
 
 Yes, the world needs contact with the heavens in this day and age. The world needs a prophet. Little does the world generally realize that the Lord is revealing his mind and will through his living prophets today. As Latter-day Saints and members of the Lord’s church, we are truly a light set upon a hill, and it is our privilege and responsibility to assist in the great work of the Savior in bringing to pass the immortality and eternal life of man.
 
-It is of the utmost importance that we as Latter-day Saints have the light of truth, which comes from the Lord himself, burning within our souls, and that that light shall so shine that others may be led to find the way to salvation, exaltation, and eternal life. Jesus has said: “I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life.” (John 8:12.)
+It is of the utmost importance that we as Latter-day Saints have the light of truth, which comes from the Lord himself, burning within our souls, and that that light shall so shine that others may be led to find the way to salvation, exaltation, and eternal life. Jesus has said: “I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life.” ([[John 8.12|John 8:12]].)
 
 Our message to the world, which we have been proclaiming for more than 140 years, is that God lives and that Jesus was and is the living Christ; that the heavens have been opened to man; that the Father and the Son have appeared in this dispensation; that the plan of life and salvation has been restored; that the time of the Savior’s second coming is near at hand; that the Lord, through his church, is preparing the way for that appearance; and that the only way in which peace can come to the earth is through obedience to the restored teachings of Jesus Christ. Yes, I testify to you that he is the Prince of Peace, and it is his will that all mankind may hear this message and give heed thereto.
 
 May the peace that passeth understanding come into the hearts of men and women everywhere through a knowledge of these things, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

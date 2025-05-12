@@ -1,5 +1,6 @@
 # Joined Together in Love and Faith
-*By Gordon B. Hinckley - Second Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1985 General Conference*
 
@@ -16,4 +17,7 @@ I am so happy that we have President Kimball with us this morning. Now in his ni
 We shall miss in this conference the strong voice of Elder Bruce R. McConkie, who passed away April 19, 1985. He bore his final testimony to the truth of this work when he spoke to us in conference last April. He was a dedicated scholar of the gospel and a fearless advocate of its message. Our lives were enriched and our understanding broadened by the logic of his presentation and the sincerity of his declaration. He spoke as an Apostle, a special witness of the Christ.
 
 We are grateful for the continuing strength and vitality of President Ezra Taft Benson, President of the Council of the Twelve Apostles. He will be our first speaker this morning.
+
+
+
 

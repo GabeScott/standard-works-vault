@@ -1,11 +1,12 @@
 # The Gospel and the Church
-*By Ronald E. Poelman - Of the First Quorum of the Seventy*
+
+By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1984/10/the-gospel-and-the-church?lang=eng)
 
-Both the gospel of Jesus Christ and the church of Jesus Christ are true and divine, and there is an essential relationship between them that is significant and very important. Understanding the proper relationship between the gospel and the Church will prevent confusion, misplaced priorities, and failed expectations and will lead to the realization of gospel goals through happy, fulfilling participation in the Church. Such understanding will avoid possible disaffection and will result in great personal blessings.
+Both the gospel of Jesus Christ and the Church of Jesus Christ are true and divine, and there is an essential relationship between them that is significant and very important. Understanding the proper relationship between the gospel and the Church will prevent confusion, misplaced priorities, and failed expectations and will lead to the realization of gospel goals through happy, fulfilling participation in the Church. Such understanding will avoid possible disaffection and will result in great personal blessings.
 
 As I attempt to describe and comment upon the essential relationship between the gospel and the Church, it is my prayer that a perspective may be developed which will enhance the influence of both the gospel and the Church in our individual lives.
 
@@ -31,19 +32,19 @@ A favorite scriptural source for me is the Old Testament book of Leviticus. It i
 
 It is interesting and enlightening to read the nineteenth chapter of Leviticus, noting both the principles and the rules and practices.
 
-In the first two verses we read, “And the Lord spake unto Moses, saying, Speak unto all the congregation of the children of Israel.” (Lev. 19:1–2.) Here is the principle of revelation. God speaks to his children through prophets. He does so today.
+In the first two verses we read, “And the Lord spake unto Moses, saying, Speak unto all the congregation of the children of Israel.” ([[Leviticus 19.1|Lev. 19:1–2]][[Leviticus 19.2|]].) Here is the principle of revelation. God speaks to his children through prophets. He does so today.
 
-Continuing, the Lord said to Moses, “Say unto them, Ye shall be holy: for I the Lord your God am holy.” (Lev. 19:2.) Jesus, in the Sermon on the Mount, said, “Be ye therefore perfect, even as your Father which is in heaven is perfect.” (Matt. 5:48.) Here is an eternal gospel principle.
+Continuing, the Lord said to Moses, “Say unto them, Ye shall be holy: for I the Lord your God am holy.” ([[Leviticus 19.2|Lev. 19:2]].) Jesus, in the Sermon on the Mount, said, “Be ye therefore perfect, even as your Father which is in heaven is perfect.” ([[Matthew 5.48|Matt. 5:48]].) Here is an eternal gospel principle.
 
 There follow other eternal principles, some from the Ten Commandments. Also included are rules and programs intended to implement these principles among the ancient Hebrews in their particular circumstances.
 
-For example, the divinely directed responsibility to care for the poor is taught. A program is presented, namely, providing food for the poor by leaving the gleanings of the crops and not reaping the corners of the fields. (See Lev. 19:9–10.) Current programs to care for the poor are much different. The divine law is the same. Yet another principle underlies both programs, ancient and modern: those being assisted are given opportunity to participate in helping themselves to the extent of their capacity.
+For example, the divinely directed responsibility to care for the poor is taught. A program is presented, namely, providing food for the poor by leaving the gleanings of the crops and not reaping the corners of the fields. (See [[Leviticus 19.9|Lev. 19:9–10]][[Leviticus 19.10|]].) Current programs to care for the poor are much different. The divine law is the same. Yet another principle underlies both programs, ancient and modern: those being assisted are given opportunity to participate in helping themselves to the extent of their capacity.
 
-In verse 13 the principle of honesty is taught, accompanied by a rule requiring employers to pay employees for their work at the end of each day [Lev. 19:13]. Generally, today that rule is not necessary. The eternal principle of honesty is implemented by other rules and practices.
+In [[Leviticus 19.13|verse 13]] the principle of honesty is taught, accompanied by a rule requiring employers to pay employees for their work at the end of each day. Generally, today that rule is not necessary. The eternal principle of honesty is implemented by other rules and practices.
 
-Verse 27 contains a rule about personal grooming [Lev. 19:27]. It is clearly not applicable to us. However, we also have standards of dress and grooming. Neither is an eternal principle; both are intended to help us implement and share gospel principles.
+[[Leviticus 19.27|Verse 27]] contains a rule about personal grooming. It is clearly not applicable to us. However, we also have standards of dress and grooming. Neither is an eternal principle; both are intended to help us implement and share gospel principles.
 
-The principle of forgiveness is also set forth in the same chapter of Leviticus, verse 18, concluding with the second great commandment, “Thou shalt love thy neighbour as thyself,” with the added divine imprimatur, “I am the Lord.” [Lev. 19:18]
+The principle of forgiveness is also set forth in the same chapter of Leviticus, [[Leviticus 19.18|verse 18]], concluding with the second great commandment, “Thou shalt love thy neighbour as thyself,” with the added divine imprimatur, “I am the Lord.”
 
 Every Church member has the opportunity, right, and privilege to receive a personal witness regarding gospel principles and Church practices. Without such a witness, one may feel confused and perhaps even burdened by what may appear to be simply institutional requirements of the Church.
 
@@ -59,5 +60,8 @@ By that same Spirit I testify that God is our Father, that Jesus of Nazareth is 
 
 May each of us continue to learn and apply the eternal principles of the gospel, utilizing fully and appropriately the resources of the divine, restored Church.
 
-In the words of the Nephite leader Pahoran “May [we] rejoice in the great privilege of our church, and in the cause of our Redeemer and our God.” (Alma 61:14.) In the name of Jesus Christ, amen.
+In the words of the Nephite leader Pahoran “May \[we\] rejoice in the great privilege of our church, and in the cause of our Redeemer and our God.” ([[Alma 61.14|Alma 61:14]].) In the name of Jesus Christ, amen.
+
+
+
 

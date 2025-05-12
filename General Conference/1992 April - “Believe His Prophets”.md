@@ -1,5 +1,6 @@
 # “Believe His Prophets”
-*By Gordon B. Hinckley - First Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1992 General Conference*
 
@@ -13,19 +14,19 @@ It was a season of terrible anxiety. The Ammonites and the Moabites had declared
 
 Jehoshaphat gathered his people together to plead with the Lord for help. He cried out in prayer:
 
-“O our God, ... we have no might against this great company that cometh against us; neither know we what to do: but our eyes are upon thee.” (2 Chr. 20:12.)
+“O our God, … we have no might against this great company that cometh against us; neither know we what to do: but our eyes are upon thee” ([[2 Chronicles 20.12|2 Chr. 20:12]]).
 
 Then Jahaziel, the Levite prophet, said to Jehoshaphat:
 
-“Thus saith the Lord unto you, Be not afraid nor dismayed by reason of this great multitude; for the battle is not yours, but God’s. ...
+“Thus saith the Lord unto you, Be not afraid nor dismayed by reason of this great multitude; for the battle is not yours, but God’s. …
 
-“Ye shall not need to fight in this battle: set yourselves, stand ye still, and see the salvation of the Lord with you ... : fear not, nor be dismayed.” (2 Chr. 20:15, 17.)
+“Ye shall not need to fight in this battle: set yourselves, stand ye still, and see the salvation of the Lord with you … : fear not, nor be dismayed” ([[2 Chronicles 20.15|2 Chr. 20:15, 17]][[2 Chronicles 20.17|]]).
 
-Then the king, relying upon the words of the prophet, said to the people: “Hear me, O Judah, and ye inhabitants of Jerusalem; Believe in the Lord your God, so shall ye be established; believe his prophets, so shall ye prosper.” (2 Chr. 20:20; italics added.)
+Then the king, relying upon the words of the prophet, said to the people, “Hear me, O Judah, and ye inhabitants of Jerusalem; *Believe in the Lord your God, so shall ye be established; believe his prophets, so shall ye prosper”* ([[2 Chronicles 20.20|2 Chr. 20:20]]; italics added).
 
-These are the words of my text. I repeat them, “Believe in the Lord your God, so shall ye be established; believe his prophets, so shall ye prosper.”
+These are the words of my text. I repeat them: “Believe in the Lord your God, so shall ye be established; believe his prophets, so shall ye prosper.”
 
-We sing a hymn in this Church that is peculiar to us, “We thank thee, O God, for a prophet to guide us in these latter days” (Hymns, no. 19).
+We sing a hymn in this Church that is peculiar to us: “We thank thee, O God, for a prophet to guide us in these latter days” (*Hymns,* no. 19).
 
 I have not spoken face to face with all of the prophets of this dispensation. I was not acquainted with the Prophet Joseph Smith, nor did I ever hear him speak. My grandfather, who as a young man lived in Nauvoo, did hear him and testified of his divine calling as the great prophet of this dispensation. But I feel I have come to know the Prophet Joseph Smith.
 
@@ -39,7 +40,7 @@ I never saw Brigham Young, John Taylor, Wilford Woodruff, or Lorenzo Snow. But I
 
 I remember as a small boy seeing President Joseph F. Smith. I do not recall the details, but I have in my mind a picture of him as a man with a flowing beard whose voice was not strong. I have since read much of what he taught. And I know that he spoke as a prophet of the living God.
 
-I have known in a personal way Presidents Heber J. Grant, George Albert Smith, David O. McKay, Joseph Fielding Smith, Harold B. Lee, Spencer W. Kimball, and Ezra Taft Benson. I have done work for each. I have served under each. I have known them, I have heard them pray, and I can testify that each has been an unusual and remarkable man, that each has been called of God after a long period of experience and tempering, of training and discipline to stand as an instrument of the Almighty in speaking to the people for their blessing and direction.
+I *have* known in a personal way Presidents Heber J. Grant, George Albert Smith, David O. McKay, Joseph Fielding Smith, Harold B. Lee, Spencer W. Kimball, and Ezra Taft Benson. I have done work for each. I have served under each. I have known them, I have heard them pray, and I can testify that each has been an unusual and remarkable man, that each has been called of God after a long period of experience and tempering, of training and discipline to stand as an instrument of the Almighty in speaking to the people for their blessing and direction.
 
 I heard President Grant on several occasions before I met him. As teenage boys, my brother and I came to this Tabernacle at conference when there was room for anybody who wished to come. As boys are wont to do, we sat in the balcony at the very far end of the building. To me it was always impressive when this tall man stood to speak. Some kind of electricity passed through my boyish frame. His voice rang out in testimony of the Book of Mormon. When he said it was true, I knew it was true. He spoke with great power on the Word of Wisdom and, without hesitation, promised blessings to the people if they would observe it. I have often thought of the human misery, the pain that has resulted from the smoking of cigarettes, the poverty that has resulted from the drinking of liquor which might have been avoided had his prophetic counsel been followed.
 
@@ -63,11 +64,11 @@ Great were his teachings; persuasive were his pleas for personal righteousness a
 
 Joseph Fielding Smith next became President of the Church and the prophet of the Lord. Some thought he spoke harshly in the tone of a prophet of the Old Testament. He did speak straightforwardly and without equivocation. Such is the mission of a prophet. But it was my experience that he was a man of great kindness who grieved over the unwillingness of so many to follow the commandments of the Lord.
 
-He used three great words that I can never forget: “true and faithful.” In his public addresses, in his private conversation, in his prayers to the Lord, he pleaded that we might be true and faithful. Those who followed his counsel have tasted the sweet fruit of obedience. Those who have scoffed have known something of the bitterness that comes of a denial of truth.
+He used three great words that I can never forget: “true and faithful.” In his public addresses, in his private conversation, in his prayers to the Lord he pleaded that we might be true and faithful. Those who followed his counsel have tasted the sweet fruit of obedience. Those who have scoffed have known something of the bitterness that comes of a denial of truth.
 
 Harold B. Lee came next. This was a man I loved. During the short tenure of his presidency, I traveled in Europe with him on two different occasions. Those were wonderful days when we talked together. I was his junior companion on those journeys, and he spoke out of his great heart about many things. He warned against the neglect of families. He told us that the greatest work any of us would ever do would be within the walls of our own homes. He told us to survey large fields and cultivate small ones. In so saying, he wanted us to get the great, broad picture of this work and then with faithfulness take care of our own individual responsibility in it. He had come out of humble circumstances and carried in his heart a great sensitivity for the poor. He was the first managing director of the welfare program as it was established in 1936, and taught its principles across the Church. He extended to me a call to serve as a stake president and set me apart in that office. I still remember some of the things he said in that blessing. Said he: “Be sensitive to the promptings of the Spirit. Be slow to censure and quick to encourage.” I commend that counsel to each of you. It came from a living prophet of God.
 
-Great was my love also for his successor, President Spencer W. Kimball. This kindly man, short of stature, was so diligent, so energetic, so determined to overcome any handicap that even the quality of his injured voice actually became an asset. When he stood to speak, we all listened. Who can ever forget his great, moving statement: “So much depends upon our willingness to make up our minds, collectively and individually, that present levels of performance are not acceptable unto [us] or ... the Lord. In saying that, I am not calling for flashy, temporary differences in our performance levels, but a quiet resolve ... to do a better job, to lengthen our stride.” (The Teachings of Spencer W. Kimball, ed. Edward L. Kimball, Salt Lake City: Bookcraft, 1982, p. 174.)
+Great was my love also for his successor, President Spencer W. Kimball. This kindly man, short of stature, was so diligent, so energetic, so determined to overcome any handicap that even the quality of his injured voice actually became an asset. When he stood to speak, we all listened. Who can ever forget his great, moving statement: “So much depends upon our willingness to make up our minds, collectively and individually, that present levels of performance are not acceptable \[unto us\] or to the Lord. In saying that, I am not calling for flashy, temporary differences in our performance levels, but a quiet resolve … to do a better job, to lengthen our stride” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], p. 174).
 
 That call to lengthen our stride went across the entire Church. Many took it to heart and worked with greater enthusiasm and dedication. As they did so, they were blessed in their lives. How great is my debt, and is yours also, to this kindly man of gentle ways and prophetic leadership.
 
@@ -79,9 +80,9 @@ Why? Because he knows that the reading of this sacred testament will bring us cl
 
 Could there be a call from a prophet more timely than this call? One need only look at the filth and rot that are sweeping over the world in the form of pornographic literature, pornographic movies, pornographic videocassettes, pornographic television, to see the need for a great and powerful and moving counterforce for righteousness.
 
-I go back to the words of Jehoshaphat: “Believe in the Lord your God, so shall ye be established; believe his prophets, so shall ye prosper.” (2 Chr. 20:20.)
+I go back to the words of Jehoshaphat: “Believe in the Lord your God, so shall ye be established; believe his prophets, so shall ye prosper” ([[2 Chronicles 20.20|2 Chr. 20:20]]).
 
-There are many little things that test our willingness to accept the word of the prophets. Jesus said, “How often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not!” (Matt. 23:37.)
+There are many little things that test our willingness to accept the word of the prophets. Jesus said, “How often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not!” ([[Matthew 23.37|Matt. 23:37]]).
 
 So it has been through the history of mankind, and so it is today. In our own communities, even here in Utah, we have experienced some of this. President Grant carried to his grave a deep sense of sorrow that, contrary to his counsel, the people of Utah cast the final vote, in 1934, that repealed the Eighteenth Amendment to the Constitution.
 
@@ -89,7 +90,7 @@ I am grateful to say that we had a different experience some years ago when we j
 
 Now again, as always, we are faced with public moral issues, this time concerning lotteries, pari-mutuel betting, and other forms of gambling. The Presidents of the Church have spoken clearly and unequivocally on these matters.
 
-These are little things, but they are important things. They bring to mind the great contest between the prophet Elijah and the priests of Baal. Said Elijah on that occasion, “How long halt ye between two opinions? if the Lord be God, follow him: but if Baal, then follow him.” (1 Kgs. 18:21.)
+These are little things, but they are important things. They bring to mind the great contest between the prophet Elijah and the priests of Baal. Said Elijah on that occasion: “How long halt ye between two opinions? if the Lord be God, follow him: but if Baal, then follow him” ([[1 Kings 18.21|1 Kgs. 18:21]]).
 
 Now in conclusion, may I repeat that I have worked with seven Presidents of this Church. I have recognized that all have been human. But I have never been concerned over this. They may have had some weaknesses. But this has never troubled me. I know that the God of heaven has used mortal men throughout history to accomplish His divine purposes. They were the very best available to Him, and they were wonderful.
 
@@ -99,5 +100,8 @@ I speak to the priesthood of this Church, wherever you may be gathered across th
 
 The Lord is watching over this work. This is His kingdom. We are not as sheep without a shepherd. We are not as an army without a leader.
 
-I go back to those three words so frequently spoken by President Joseph Fielding Smith—“true and faithful.” God help us to be true and faithful, to hear with listening ears that counsel which has come from Him who is our Father and our God, and from Him who is our Savior and our Redeemer as they have spoken to us through those whom we sustain as prophets. I bear witness and testimony of these things and, my brethren, leave my blessing and love with you in the name of Jesus Christ, amen.
+I go back to those three words so frequently spoken by President Joseph Fielding Smith: “true and faithful.” God help us to be true and faithful, to hear with listening ears that counsel which has come from Him who is our Father and our God, and from Him who is our Savior and our Redeemer as they have spoken to us through those whom we sustain as prophets. I bear witness and testimony of these things and, my brethren, leave my blessing and love with you in the name of Jesus Christ, amen.
+
+
+
 

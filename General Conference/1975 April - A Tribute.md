@@ -1,5 +1,6 @@
 # A Tribute
-*By L. Tom Perry - Of the Council of the Twelve*
+
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -43,11 +44,14 @@ The second group of letters would read in part this way: “Your wife and mother
 
 The Lord has said to us, “Thou shalt live together in love, insomuch that thou shalt weep for the loss of them that die, and more especially for those that have not hope of a glorious resurrection.
 
-“And it shall come to pass that those that die in me shall not taste of death, for it shall be sweet unto them.” (D&C 42:45–46.)
+“And it shall come to pass that those that die in me shall not taste of death, for it shall be sweet unto them.” ([[D&C 42.45|D&C 42:45–46]][[D&C 42.46|]].)
 
 I understand this scripture now as never before. Even though there is great loneliness without her, her passing was sweet because of the way she had lived.
 
 In tribute to her today, I recommend to you her way of life. I watched service consume pain. I witnessed faith destroy discouragement. I have seen courage magnify her beyond her natural abilities. I have observed love change the course of lives.
 
 May God grant that her memory will bring satisfaction and fulfillment to your life, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

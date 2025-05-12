@@ -1,7 +1,10 @@
 # Till We Meet Again
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2013 General Conference*
+
+>*May we show increased kindness toward one another, and may we ever be found doing the work of the Lord.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/10/till-we-meet-again?lang=eng)
 
@@ -20,4 +23,7 @@ May heaven’s blessings be with you. May your homes be filled with love and cou
 Conference is now over. As we return to our homes, may we do so safely. May the Spirit we have felt here be and abide with us as we go about those things which occupy us each day. May we show increased kindness toward one another, and may we ever be found doing the work of the Lord.
 
 My brothers and sisters, may God bless you. May His promised peace be with you now and always. I bid you farewell until we meet again in six months’ time. In the name of our Savior, even Jesus Christ the Lord, amen.
+
+
+
 

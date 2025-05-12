@@ -1,11 +1,12 @@
 # Let Us Improve Ourselves
-*By N. Eldon Tanner - First Counselor in the First Presidency*
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1982/04/let-us-improve-ourselves?lang=eng)
 
-I’m very pleased to say a few words to you before we close this meeting. I feel very blessed this afternoon as I sit here by our President [President Spencer W. Kimball], whom I miss more than I can possibly say whenever he is not with us. We’ve appreciated very much having him come and attend the Council of the Twelve and First Presidency meetings. When we had all of the General Authorities of the Church meet in the temple last Thursday, President Kimball came in and expressed his love and appreciation for us. We still have him directing us.
+I’m very pleased to say a few words to you before we close this meeting. I feel very blessed this afternoon as I sit here by our President \[President Spencer W. Kimball\], whom I miss more than I can possibly say whenever he is not with us. We’ve appreciated very much having him come and attend the Council of the Twelve and First Presidency meetings. When we had all of the General Authorities of the Church meet in the temple last Thursday, President Kimball came in and expressed his love and appreciation for us. We still have him directing us.
 
 Before I go any further, I would like to say that I’ve had the privilege of attending some of the meetings directed by the sisters. And I want to tell them I think it is a wonderful thing the way they carry on the work. May the Lord bless them in their work.
 
@@ -20,4 +21,7 @@ I humbly pray that each and every one of us will go home with one thought—and 
 Brethren and sisters, may the Lord give us a clear understanding of where we should improve to serve him. Start right now, as I have done, to determine to put into practice some of the things that have been taught to us today.
 
 I’m very happy to have been here this afternoon. I’m glad to see how the conference proceeded. It’s a very great conference, and to have our President here at two of the sessions is a great blessing indeed. May the Lord bless us that we may do his will and keep his commandments, I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

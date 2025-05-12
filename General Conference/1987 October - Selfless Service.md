@@ -1,5 +1,6 @@
 # Selfless Service
-*By William R. Bradford - Of the First Quorum of the Seventy*
+
+By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
 
@@ -27,7 +28,7 @@ I learned that this woman had been driven from her home. Some of her family memb
 
 Later, as we talked of the work she was doing, the lady missionary said, with tears running down her face, “This is the finest thing I have ever done.” Many things are only interesting and enticing, while other things are important.
 
-Sometimes, because of the pressures of the world around us, our service projects become self service projects rather than selfless service projects.
+Sometimes, because of the pressures of the world around us, our service projects become *self* service projects rather than *selfless* service projects.
 
 Selfless service projects are the projects of the gospel. They have continuity. They are not one-time special events based on entertainment and fun and games. They need not be regimented nor regulated. Selfless service projects are people-to-people projects. They are face-to-face, eye-to-eye, voice-to-ear, heart-to-heart, spirit-to-spirit, and hand-in-hand, people-to-people projects.
 
@@ -35,7 +36,7 @@ We must remember that we are social beings. Our eternal destiny is welded to the
 
 Elder Marvin J. Ashton once related that during a meeting a woman seated behind him passed him a note. It simply said, “Would you please turn around and look at me?” Then he said, “Everyone needs to be looked at.”
 
-Within each of us there is an intense need to feel that we belong. This feeling of unity and togetherness comes through the warmth of a smile, a handshake, or a hug, through laughter and unspoken demonstrations of love. It comes in the quiet, reverent moments of soft conversation and in listening. It comes from a still, small voice reminding us that we are brothers and sisters, the children of a Heavenly Father.
+Within each of us there is an intense need to feel that we belong. This feeling of unity and togetherness comes through the warmth of a smile, a handshake, or a hug, through laughter and unspoken demonstrations of love. It comes in the quiet, reverent moments of soft conversation, and in listening. It comes from a still, small voice reminding us that we are brothers and sisters, the children of a Heavenly Father.
 
 To get recognition and the praise of men can become an obsessive goal in one’s life. It can lead from one act to another until life is filled with egotism and selfishness. The momentary pleasure that recognition and the praise of men bring almost always causes people to want more. If they can’t get it in one way, they will try another. If it can’t be obtained by being one’s natural self, they will try to get it acting out a life that is unnatural. The longing to be popular, to be praised by one’s peers, and to receive the recognition of men is a very powerful force.
 
@@ -43,7 +44,7 @@ It is vain to seek the praise or recognition of men. This vanity comes of evil b
 
 “Behold, the Lord hath forbidden this thing; wherefore, the Lord God hath given a commandment that all men should have charity, which charity is love. And except they should have charity they were nothing. Wherefore, if they should have charity they would not suffer the laborer in Zion to perish.
 
-“But the laborer in Zion shall labor for Zion” (2 Ne. 26:29–31).
+“But the laborer in Zion shall labor for Zion” ([[2 Nephi 26.29|2 Ne. 26:29–31]][[2 Nephi 26.30|]][[2 Nephi 26.31|]]).
 
 Selflessness is righteousness. It embraces the true spirit of companionship. It is the very essence of friendship. It is the portrayer of true love and oneness in humanity. Its reward is the freeing of the soul, a nearness to divinity, a worthiness for the companionship of the Spirit. Every requirement that God’s plan for our salvation places upon us is based on the giving of one’s self.
 
@@ -73,7 +74,10 @@ With the constant exhortation to come unto Christ is the promise that we can be 
 
 “For what shall it profit a man, if he shall gain the whole world, and lose his own soul?
 
-“Or what shall a man give in exchange for his soul?” (Mark 8:34–37).
+“Or what shall a man give in exchange for his soul?” ([[Mark 8.34|Mark 8:34–37]][[Mark 8.35|]][[Mark 8.36|]][[Mark 8.37|]]).
 
 In the sacred name of Jesus Christ, amen.
+
+
+
 

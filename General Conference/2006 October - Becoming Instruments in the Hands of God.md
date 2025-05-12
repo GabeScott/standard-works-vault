@@ -1,7 +1,10 @@
 # Becoming Instruments in the Hands of God
-*By Don R. Clarke - Of the Seventy*
+
+By Elder Don R. Clarke - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
+
+>*A person does not need to have a Church calling, an invitation to help someone, or even good health to become an instrument in God’s hands.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/10/becoming-instruments-in-the-hands-of-god?lang=eng)
 
@@ -21,21 +24,24 @@ First of all, we must have love for God’s children. When the lawyer asked the 
 
 “This is the first and great commandment.
 
-“And the second is like unto it, Thou shalt love thy neighbour as thyself” (Matthew 22:36–39).
+“And the second is like unto it, Thou shalt love thy neighbour as thyself” ([[Matthew 22.36|Matthew 22:36–39]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]]).
 
 Joseph F. Smith said: “Charity, or love, is the greatest principle in existence. If we can lend a helping hand to the oppressed, if we can aid those who are despondent and in sorrow, if we can uplift and ameliorate the condition of mankind, it is our mission to do it, it is an essential part of our religion to do it” (in Conference Report, Apr. 1917, 4). When we feel love for God’s children, we are given opportunities to help them in their journey back to His presence.
 
-The missionary experiences of the sons of Mosiah also help us understand how to become instruments in God’s hands. “And it came to pass that they journeyed many days in the wilderness” (Alma 17:9). We must be willing to journey. The sons of Mosiah were willing to step outside their surroundings and do that which was uncomfortable. Had Ammon not been willing to journey into a foreign land, inhabited by a wild and a hardened and a ferocious people, he never would have found and helped Lamoni and his father, and many Lamanites may have never learned about Jesus Christ. God has asked us to journey, go on missions, accept callings, invite someone to church, or help someone in need.
+The missionary experiences of the sons of Mosiah also help us understand how to become instruments in God’s hands. “And it came to pass that they journeyed many days in the wilderness” ([[Alma 17.9|Alma 17:9]]). We must be willing to journey. The sons of Mosiah were willing to step outside their surroundings and do that which was uncomfortable. Had Ammon not been willing to journey into a foreign land, inhabited by a wild and a hardened and a ferocious people, he never would have found and helped Lamoni and his father, and many Lamanites may have never learned about Jesus Christ. God has asked us to journey, go on missions, accept callings, invite someone to church, or help someone in need.
 
-In their pursuit to help their Lamanite brothers, the sons of Mosiah also learned the importance of fasting and prayer: “They fasted much and prayed much that the Lord would grant unto them a portion of his Spirit to go with them, and abide with them, that they might be an instrument in the hands of God to bring, if it were possible, their brethren, the Lamanites, to the knowledge of the truth” (Alma 17:9). Do we really want to be instruments in God’s hands? If so, our desire will permeate our prayers and be the focus of our fasts.
+In their pursuit to help their Lamanite brothers, the sons of Mosiah also learned the importance of fasting and prayer: “They fasted much and prayed much that the Lord would grant unto them a portion of his Spirit to go with them, and abide with them, that they might be an instrument in the hands of God to bring, if it were possible, their brethren, the Lamanites, to the knowledge of the truth” ([[Alma 17.9|Alma 17:9]]). Do we really want to be instruments in God’s hands? If so, our desire will permeate our prayers and be the focus of our fasts.
 
 After losing his eyesight, my grandfather fasted and prayed that if he was to remain in darkness, the Lord would give him peace. He states that almost within the hour “my mind was enlightened and the cloud of darkness had lifted from me.” He could see again, not with physical eyes, but spiritual eyes. Later, Alma Benjamin Larsen was called to be a patriarch, where he served for 32 years. Like the sons of Mosiah, my grandfather fasted and prayed, and as a result, he was given the opportunity to bless thousands of God’s children.
 
-We, like Jim Drinkwater and my grandfather, also need to be receptive to the promptings of the Holy Ghost, for when we desire to be an instrument in the hands of God, we can receive revelation. The prophet Alma the Younger tells us of revelations that he received: “I know that which the Lord hath commanded me, and I glory in it ... yea, and this is my glory, that perhaps I may be an instrument in the hands of God to bring some soul to repentance; and this is my joy” (Alma 29:9). Alma had received revelation of what to do.
+We, like Jim Drinkwater and my grandfather, also need to be receptive to the promptings of the Holy Ghost, for when we desire to be an instrument in the hands of God, we can receive revelation. The prophet Alma the Younger tells us of revelations that he received: “I know that which the Lord hath commanded me, and I glory in it. … Yea, and this is my glory, that perhaps I may be an instrument in the hands of God to bring some soul to repentance; and this is my joy” ([[Alma 29.9|Alma 29:9]]). Alma had received revelation of what to do.
 
 I have a little book that I carry with me, where I record the inspiration and thoughts that I receive from the Spirit. It does not look like much, and it becomes worn out and needs to be replaced from time to time. As thoughts come to my mind, I write them down and then I try to do them. I have found that many times, as I have done something on my list, my action was the answer to someone’s prayer. There have also been those times that I didn’t do something on my list, and I have found out later that there was someone I could have helped, but I didn’t. When we receive promptings regarding God’s children, if we write down the thoughts and inspiration we receive and then obey it, God’s confidence in us increases and we are given more opportunities to be instruments in His hands.
 
-In the words of President Faust: “You can be powerful instruments in the hands of God to help bring about this great work. ... You can do something for another person that no one else ever born can do” (“Instruments in the Hands of God,” Liahona and Ensign, Nov. 2005, 115). God treasures those who help His children. I invite all of us to follow the counsel of the prophets and become instruments in the hands of God and be among His treasures because we have helped His children.
+In the words of President Faust: “You can be powerful instruments in the hands of God to help bring about this great work. … You can do something for another person that no one else ever born can do” (“Instruments in the Hands of God,” *Liahona* and *Ensign,* Nov. 2005, 115). God treasures those who help His children. I invite all of us to follow the counsel of the prophets and become instruments in the hands of God and be among His treasures because we have helped His children.
 
 In the name of Jesus Christ, amen.
+
+
+
 

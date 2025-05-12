@@ -1,19 +1,20 @@
 # Marriage
-*By Boyd K. Packer - Of the Quorum of the Twelve Apostles*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1981/04/marriage?lang=eng)
 
-The prophet Jacob foretold the destruction of a people because they were blind to ordinary things, “which blindness,” he said, “came by looking beyond the mark.” (Jacob 4:14.)
+The prophet Jacob foretold the destruction of a people because they were blind to ordinary things, “which blindness,” he said, “came by looking beyond the mark.” ([[Jacob 4.14|Jacob 4:14]].)
 
 We often seek for things we cannot seem to find when they are within easy reach—ordinary, obvious things.
 
 I wish to talk about an ordinary word. I have tried for months—really tried—to find some way to hold this word up in such a way that you would be very impressed with what it means.
 
-The word is marriage.
+The word is *marriage.*
 
-I have wished that I could set before you a finely carved chest, placing it where the light is just right. I would carefully unlatch it and reverently uncover the word—marriage.
+I have wished that I could set before you a finely carved chest, placing it where the light is just right. I would carefully unlatch it and reverently uncover the word—*marriage.*
 
 Perhaps then you would see that it is priceless!
 
@@ -35,9 +36,9 @@ To suppose that one day they may nonchalantly change their habits and immediatel
 
 One day, when they come to themselves, they will reap disappointment.
 
-One cannot degrade marriage without tarnishing other words as well, such words as boy, girl, manhood, womanhood, husband, wife, father, mother, baby, children, family, home.
+One cannot degrade marriage without tarnishing other words as well, such words as *boy, girl, manhood, womanhood, husband, wife, father, mother, baby, children, family, home.*
 
-Such words as unselfishness and sacrifice will then be tossed aside. Then self-respect will fade and love itself will not want to stay.
+Such words as *unselfishness* and *sacrifice* will then be tossed aside. Then self-respect will fade and love itself will not want to stay.
 
 If you have been tempted to enter such a relationship or if you now live with another without marriage, leave! Withdraw from it! Run away from it! Do not continue with it! Or, if you can, make a marriage out of it.
 
@@ -71,7 +72,7 @@ Writers think that a happy, stable marriage does not have the dramatic appeal, t
 
 I believe in marriage. I believe it to be the ideal pattern for human living. I know it to be ordained of God. The restraints relating to it were designed to protect our happiness.
 
-I do not know of any better time in all of the history of the world for a young couple who are of age and prepared and who are in love to think of marriage. There is no better time because it is your time.
+I do not know of any better time in all of the history of the world for a young couple who are of age and prepared and who are in love to think of marriage. There is no better time because it is *your* time.
 
 I know that these are very troubled times. Troubles like we have now are very hard on marriages.
 
@@ -105,93 +106,62 @@ There is another dimension to marriage that we know of in the Church. It came by
 
 There are covenants we can make if we are willing, and bounds we can seal if we are worthy, that will keep marriage safe and intact beyond the veil of death.
 
-The Lord has declared, “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” (Moses 1:39.)
+The Lord has declared, “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
 The ultimate end of all activity in the Church is that a man and his wife and their children can be happy at home and that the family can continue through eternity. All Christian doctrine is formulated to protect the individual, the home, and the family.
 
 These lines express something of the place of marriage in the eternal progress of man:
 
-We have within a burning flame,
-
-A light to kindle lights,
-
-The sacred fire of life itself,
-
-Which if misused ignites
-
-A smold’ring, suffocating cloud
-
-Of sorrow and distress.
-
-When used by law this power brings forth
-
-A life, a family, happiness.
-
-Temptors from the darkest realm
-
-Seek to pervert this power
-
-In acts of wickedness and waste
-
-Until there comes the hour
-
-Of judgment and of recompense,
-
-When bitter tears are shed
-
-O’er power once held to foster life
-
-That now is gone and dead.
-
-I know this power to be a key,
-
-A very key to God’s own plan
-
-Which brings to pass eternal life
-
-And immortality for man.
-
-And marriage is the crucible
-
-Where elements of life combine,
-
-Where mortal temples are conceived
-
-Within that plan divine.
-
-Then spirit offspring of our God
-
-Can come through mortal birth
-
-To have a choice, to face the test—
-
-The purpose of our stay on earth.
-
-Here good and evil stand alike
-
-Before decision’s sovereign nod.
-
-Those who elect the righteous path
-
-Will part the veil, return to God.
-
-A gift from God, the plan provides
-
-That mortal beings in humble strait
-
-Be given power, supernal power,
-
-To share their love and help create
-
-A living child, a living soul,
-
-Image of man, and of Deity.
-
-How we regard this sacred gift
-
-Will fix our course, our destiny!
+>We have within a burning flame,
+>A light to kindle lights,
+>The sacred fire of life itself,
+>Which if misused ignites
+>A smold’ring, suffocating cloud
+>Of sorrow and distress.
+>When used by law this power brings forth
+>A life, a family, happiness.
+>
+>Temptors from the darkest realm
+>Seek to pervert this power
+>In acts of wickedness and waste
+>Until there comes the hour
+>Of judgment and of recompense,
+>When bitter tears are shed
+>O’er power once held to foster life
+>That now is gone and dead.
+>
+>I know this power to be a key,
+>A very key to God’s own plan
+>Which brings to pass eternal life
+>And immortality for man.
+>And marriage is the crucible
+>Where elements of life combine,
+>Where mortal temples are conceived
+>Within that plan divine.
+>
+>Then spirit offspring of our God
+>Can come through mortal birth
+>To have a choice, to face the test—
+>The purpose of our stay on earth.
+>Here good and evil stand alike
+>Before decision’s sovereign nod.
+>Those who elect the righteous path
+>Will part the veil, return to God.
+>
+>A gift from God, the plan provides
+>That mortal beings in humble strait
+>Be given power, supernal power,
+>To share their love and help create
+>A living child, a living soul,
+>Image of man, and of Deity.
+>How we regard this sacred gift
+>Will fix our course, our destiny!
+>
 
 Eternal love, eternal marriage, eternal increase! This ideal, which is new to many, when thoughtfully considered, can keep a marriage strong and safe. No relationship has more potential to exalt a man and a woman than the marriage covenant. No obligation in society or in the Church supersedes it in importance.
 
 I thank God for marriage. I thank God for temples. I thank God for the glorious sealing power, that power which transcends all that we have been given, through which our marriages may become eternal. May we be worthy of this sacred gift, I pray in the name of Jesus Christ, amen.
+
+
+
 

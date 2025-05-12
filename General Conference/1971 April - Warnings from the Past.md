@@ -1,5 +1,6 @@
 # Warnings from the Past
-*By Mark E. Petersen - Of the Council of the Twelve*
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -19,7 +20,7 @@ Because of promiscuity, the dreaded social diseases have reached the epidemic st
 
 In one of our best known western cities health officials estimate that one in every ten persons between the ages of fourteen and twenty-five has a venereal disease. It is almost unbelievable.
 
-The International Herald Tribune recently said that easy abortion has now removed the stigma from immorality, making free sex even freer still.
+The *International Herald Tribune* recently said that easy abortion has now removed the stigma from immorality, making free sex even freer still.
 
 Our inconsistency in the present situation is frightening.
 
@@ -49,7 +50,7 @@ We do not say that sin in other parts of the world is less reprehensible or to b
 
 But in this hemisphere a different situation exists. God has dedicated this land to the work of his Beloved Son, the Lord Jesus Christ, and he will not tolerate continued desecration of it.
 
-In so reserving this land for his divine purpose, he decreed “that whoso should possess this land of promise, from that time henceforth and forever, should serve him, the true and only God, or they should be swept off when the fulness of his wrath should come upon them.” (Ether 2:8. Italics added.)
+In so reserving this land for his divine purpose, he decreed “that whoso should possess this land of promise, from that time henceforth *and forever,* should serve him, the true and only God, or they should be swept off when the fulness of his wrath should come upon them.” ([[Ether 2.8|Ether 2:8]]. Italics added.)
 
 In plain, blunt words, then, we are told that whatever nations occupy this land must serve God or die!
 
@@ -57,13 +58,13 @@ The great men of modern America have given us similar warnings, peculiarly enoug
 
 A generation ago, Roger Babson, at that time one of our leading economists, said: “Only religion can prevent democratic rule from developing into mob rule. A nation can prosper only as its citizens are religious, intelligent, capable of service and eager to render it.” And then this great man said, and it is something to which we should give careful attention, “Every great panic we have ever had has been foreshadowed by a general decline in observance of religious principles.”
 
-Abraham Lincoln told the people of his day that America “need fear no danger from without. ... If danger were ever to threaten the United States, it will come from within. ‘As a nation of freemen, we must live through all time, or die by suicide. ...’”
+Abraham Lincoln told the people of his day that America “need fear no danger from without. … If danger were ever to threaten the United States, it will come from within. ‘As a nation of freemen, we must live through all time, or die by suicide. …’”
 
 Then the great emancipator added this:
 
-“We have grown in numbers, wealth and power. ... But we have forgotten God. ... It behooves us then to humble ourselves before the offended Power, to confess our national sins, and to pray for clemency and forgiveness.”
+“We have grown in numbers, wealth and power. … But we have forgotten God. … It behooves us then to humble ourselves before the offended Power, to confess our national sins, and to pray for clemency and forgiveness.”
 
-It was George Washington, our first president, who said: “... we ought to be no less persuaded that the propitious smiles of Heaven can never be expected on a nation that disregards the eternal rules of order and right which Heaven itself has ordained. ...” (First inaugural address, April 30, 1789.)
+It was George Washington, our first president, who said: “… we ought to be no less persuaded that the propitious smiles of Heaven can never be expected on a nation that disregards the eternal rules of order and right which Heaven itself has ordained. …” (First inaugural address, April 30, 1789.)
 
 One of the most stern of all warnings came from the great statesman Daniel Webster when he said: “If we and our posterity reject religious instruction and authority, violate the rules of eternal justice, trifle with the injunctions of morality and recklessly destroy the political constitution which holds us together, no one can tell how sudden a catastrophe may overwhelm us, that shall bury all our glory in profound obscurity.”
 
@@ -87,31 +88,31 @@ The extinct civilizations of the past now speak to us out of the dust of the age
 
 Listen to what they say!
 
-The ancient prophets who lived in America among those destroyed civilizations saw us of today through the eye of revelation. They referred to us as gentiles, and one of these prophets said: “... O ye Gentiles, how can ye stand before the power of God, except ye shall repent and turn from your evil ways?
+The ancient prophets who lived in America among those destroyed civilizations saw us of today through the eye of revelation. They referred to us as gentiles, and one of these prophets said: “… O ye Gentiles, how can ye stand before the power of God, except ye shall repent and turn from your evil ways?
 
 “Know ye not that ye are in the hands of God? Know ye not that he hath all power, and at his great command the earth shall be rolled together as a scroll?
 
-“Therefore, repent ye, and humble yourselves before him, lest he shall come out in justice against you. ...” (Morm. 5:22–24.)
+“Therefore, repent ye, and humble yourselves before him, lest he shall come out in justice against you. …” ([[Mormon 5.22|Morm. 5:22–24]][[Mormon 5.23|]][[Mormon 5.24|]].)
 
 Another ancient American prophet, long since dead and now speaking to us out of the dust, said:
 
-“... behold, this is a land which is choice above all other lands; wherefore he that doth possess it shall serve God or shall be swept off; for it is the everlasting decree of God. And it is not until the fulness of iniquity among the children of the land, that they are swept off.
+“… behold, this is a land which is choice above all other lands; wherefore he that doth possess it shall serve God or shall be swept off; for it is the everlasting decree of God. And it is not until the fulness of iniquity among the children of the land, that they are swept off.
 
-“And this cometh unto you, O ye Gentiles, that ye may know the decrees of God—that ye may repent, and not continue in your iniquities until the fulness come, that ye may not bring down the fulness of the wrath of God upon you as the inhabitants of the land have hitherto done.” (Ether 2:10–11.)
+“And this cometh unto you, O ye Gentiles, that ye may know the decrees of God—that ye may repent, and not continue in your iniquities until the fulness come, that ye may not bring down the fulness of the wrath of God upon you as the inhabitants of the land have hitherto done.” ([[Ether 2.10|Ether 2:10–11]][[Ether 2.11|]].)
 
 An ancient prophet named Mormon, who lived here in America fifteen hundred years ago, said: “Behold, I speak unto you as if ye were present, and yet ye are not. But behold, Jesus Christ hath shown you unto me, and I know your doing.
 
-“And I know that ye do walk in the pride of your hearts; and there are none save a few only who do not lift themselves up in the pride of their hearts, unto the wearing of very fine apparel, unto envying, and strifes, and malice, and persecutions, and all manner of iniquities. ...” (Morm. 8:35–36.)
+“And I know that ye do walk in the pride of your hearts; and there are none save a few only who do not lift themselves up in the pride of their hearts, unto the wearing of very fine apparel, unto envying, and strifes, and malice, and persecutions, and all manner of iniquities. …” ([[Mormon 8.35|Morm. 8:35–36]][[Mormon 8.36|]].)
 
 There are many people on this Western Hemisphere who have in their veins the blood of some of the tribes of Israel. To them this prophet said: “Know ye that ye are of the house of Israel.
 
 “Know ye that ye must come unto repentance, or ye cannot be saved.
 
-“Know ye that ye must come to the knowledge of your fathers, and repent of all your sins and iniquities, and believe in Jesus Christ, that he is the Son of God. ...” (Morm. 7:2–3, 5.)
+“Know ye that ye must come to the knowledge of your fathers, and repent of all your sins and iniquities, and believe in Jesus Christ, that he is the Son of God. …” ([[Mormon 7.2|Morm. 7:2–3, 5]][[Mormon 7.3|]][[Mormon 7.5|]].)
 
-And then we have this, also pertaining to us who live today, and coming from another ancient American prophet who speaks out of the dust to us today: “... these things doth the Spirit manifest unto me; therefore I write unto you all. And for this cause I write unto you, that ye may know that ye must all stand before the judgment-seat of Christ, yea, every soul who belongs to the whole human family of Adam; and ye must stand to be judged of your works, whether they be good or evil;
+And then we have this, also pertaining to us who live today, and coming from another ancient American prophet who speaks out of the dust to us today: “… these things doth the Spirit manifest unto me; therefore I write unto you all. And for this cause I write unto you, that ye may know that ye must all stand before the judgment-seat of Christ, yea, every soul who belongs to the whole human family of Adam; and ye must stand to be judged of your works, whether they be good or evil;
 
-“And also that ye may believe the gospel of Jesus Christ, which ye shall have among you. ...” (Morm. 3:20–21.)
+“And also that ye may believe the gospel of Jesus Christ, which ye shall have among you. …” ([[Mormon 3.20|Morm. 3:20–21]][[Mormon 3.21|]].)
 
 And finally, one of the greatest of all the prophets who lived in ancient America spoke this to you and to me who live today:
 
@@ -119,9 +120,9 @@ And finally, one of the greatest of all the prophets who lived in ancient Americ
 
 “And God shall show unto you, that that which I have written is true.
 
-“And again I would exhort you that ye would come unto Christ, and lay hold upon every good gift, and touch not the evil gift, nor the unclean thing.” (Moro. 10:27, 29–30.)
+“And again I would exhort you that ye would come unto Christ, and lay hold upon every good gift, and touch not the evil gift, nor the unclean thing.” ([[Moroni 10.27|Moro. 10:27, 29–30]][[Moroni 10.29|]][[Moroni 10.30|]].)
 
-If the modern nations of the Americas will repent and serve the Lord, great blessings will be theirs, for the prophet has said: “... this is a choice land, and whatsoever nation shall possess it shall be free from bondage, and from captivity, and from all other nations under heaven, if they will but serve the God of the land, who is Jesus Christ. ...” (Ether 2:12.)
+If the modern nations of the Americas will repent and serve the Lord, great blessings will be theirs, for the prophet has said: “… this is a choice land, and whatsoever nation shall possess it shall be free from bondage, and from captivity, and from all other nations under heaven, if they will but serve the God of the land, who is Jesus Christ. …” ([[Ether 2.12|Ether 2:12]].)
 
 How long will the Almighty be patient as we ignore or defy him?
 
@@ -132,4 +133,7 @@ We testify to you that God does live, that he is the eternal judge of all mankin
 Jesus Christ does live. He is the God of this land. It is his gospel, and only his gospel, which can save us from destruction.
 
 God grant that we may awaken to our plight and change our course while there is yet time, is my humble prayer, in the name of Jesus Christ. Amen.
+
+
+
 

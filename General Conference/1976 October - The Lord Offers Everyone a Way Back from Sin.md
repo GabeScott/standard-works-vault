@@ -1,5 +1,6 @@
 # The Lord Offers Everyone a Way Back from Sin
-*By Robert D. Hales - Of the First Quorum of the Seventy*
+
+By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -17,7 +18,7 @@ The message I am sharing with you today is that the gospel protects us and that 
 
 “The months passed, and I fell further and further from the truth. I moved in with a friend who was inactive in the Church and who also had loose morals and drank and smoked. With her I visited bars and nightclubs I never would have gone into on my own initiative.
 
-“Next, I stopped attending Church meetings and even stopped praying. I found that my whole life had changed. I was always depressed. My grades dropped to an all-time low. I couldn’t get along with my roommates. Everything, everything, was wrong.
+“Next, I stopped attending Church meetings and even stopped praying. I found that my whole life had changed. I was always depressed. My grades dropped to an all-time low. I couldn’t get along with my roommates. Everything, *everything,* was *wrong.*
 
 “I found myself totally rejecting the Church and all its teachings. I knew in the depths of my soul that I was afraid. I was truly a ‘ship without a rudder.’
 
@@ -31,57 +32,50 @@ The message I am sharing with you today is that the gospel protects us and that 
 
 “A few months ago I realized I must go to the bishop of my ward and confess the terrible things I had done. I did so knowing that my sins were grievous before the Lord, that I faced possible disfellowshipment or even excommunication. I also knew that the time had come to put myself and my life into the Lord’s hands, that I might be able to cleanse my sins and stand spotless before Him on the judgment day.
 
-“I made an appointment one Sunday afternoon with the bishop. He took time out of his busy schedule to hear of my terrible transgressions. Oh, how I prayed to my Heavenly Father before my interview. The bishop was kindly. He asked that I would have the courage to tell him everything; that I would not hold anything back. As I tried to touch lightly on my transgressions and go on, I couldn’t! A horrible tightening in my throat and chest made it impossible for me to go on. I suddenly knew it was the answer to my prayers. The Spirit of our Father in heaven was with me demanding complete confession. I bear witness that I felt the Spirit constraining me to tell the whole truth!
+“I made an appointment one Sunday afternoon with the bishop. He took time out of his busy schedule to hear of my terrible transgressions. Oh, how I prayed to my Heavenly Father before my interview. The bishop was kindly. He asked that I would have the courage to tell him everything; that I would not hold anything back. As I tried to touch lightly on my transgressions and go on, I *couldn’t!* A horrible tightening in my throat and chest made it impossible for me to go on. I suddenly knew it was the answer to my prayers. The Spirit of our Father in heaven was with me demanding complete confession. I bear witness that I felt the Spirit constraining me to tell the whole truth!
 
 “It isn’t easy to admit past sins even to ourselves. I found that it was as hard for me to admit the exact nature of my sins to myself as it was to admit them to the bishop. I didn’t want to think about them.
 
-“After my confession the bishop commended me on taking the first step toward returning to my Heavenly Father and outlined additional steps to prepare me for the day when I would realize that I had truly been forgiven. He emphasized that he, himself, could not forgive me. That was the Lord’s decision. He helped me to understand that I could be forgiven, that my Heavenly Father loves me, that I could gain an awareness of my future goals and not constantly condemn myself all of my life, thus halting my eternal progression. He asked me to read the Miracle of Forgiveness by President Spencer W. Kimball. It helped a great deal in making me aware of the process of forgiveness. We had several appointments, the bishop and I, so that he could help me to see my course toward reestablishing myself in good standing in the Church.
+“After my confession the bishop commended me on taking the first step toward returning to my Heavenly Father and outlined additional steps to prepare me for the day when I would realize that I had truly been forgiven. He emphasized that he, himself, could not forgive me. That was the Lord’s decision. He helped me to understand that I *could* be forgiven, that my Heavenly Father loves me, that I could gain an awareness of my future goals and not constantly condemn myself all of my life, thus halting my eternal progression. He asked me to read the *Miracle of Forgiveness* by President Spencer W. Kimball. It helped a great deal in making me aware of the process of forgiveness. We had several appointments, the bishop and I, so that he could help me to see my course toward reestablishing myself in good standing in the Church.
 
 “Following my interview with the bishop, I found myself alternating between depression in which I wondered if I would ever be forgiven and becoming lax in doing the things I should be doing. I have learned that ‘to change’ isn’t easy. It takes time. One must learn to ‘try’ and ‘try again.’
 
-“Now I find myself growing ever closer to the Lord—more positive. I know if I continue to work and to grow, my Father in heaven will forgive me, but most importantly, I will also forgive myself. The important thing is that I must persevere in doing what I know to be right.
+“Now I find myself growing ever closer to the Lord—more positive. I know if I continue to work and to grow, *my Father in heaven will forgive me,* but most importantly, *I will also forgive myself.* The important thing is that I must persevere in doing what I know to be right.
 
-“If my experiences sound familiar, I beg you from the very depth of my heart to please pause and take stock of your life. Do not be misled by the superficial moral codes of our day. They are Satan’s most persuasive tools. They have no eternal significance. It is Satan who will entice us away from the joyous richness awaiting us in the eternal family circle.
+“If my experiences sound familiar, I beg you from the very depth of my heart to *please* pause and take stock of your life. Do not be misled by the superficial moral codes of our day. They are Satan’s most persuasive tools. They have no *eternal* significance. It is Satan who will *entice us away from* the joyous richness awaiting us in the *eternal family circle.*
 
-“You are sons and daughters of our Heavenly Father. Stay true to your birthright. Do not bring into your lives the miseries and anguish of soul that I brought into mine. Refrain from doing things that will make you eternally sorry. Prepare yourselves in righteousness to do the things in life that will make you eternally happy.”
+“You are sons and daughters of our Heavenly Father. Stay true to your birthright. Do not bring into your lives the miseries and anguish of soul that I brought into mine. Refrain from doing things that will make you *eternally sorry.* Prepare yourselves in righteousness to do the things in life that will make you eternally happy.”
 
 The true story we have shared is a testimony by a young lady who is coming back from the depths of depression to make a new life for herself.
 
-My brothers and sisters, there is no canyon deep enough, no cavern dark enough, President Kimball has told us, to hide from ourselves if we take the long, dark journey. The gospel can protect us from taking the long, dark journey and through the gospel principle of repentance can restore us even if we are now at the dark journey’s bitter end.
+My brothers and sisters, there is no canyon deep enough, no cavern dark enough, President Kimball has told us, to hide from ourselves if we take the long, dark journey. The gospel can protect us from taking the long, dark journey and through the gospel principle of repentance can restore us *even* if we are *now* at the dark journey’s bitter end.
 
 The steps of repentance have been clearly defined in the scriptures:
 
-Recognize we have done wrong.
+1. Recognize we have done wrong.
 
-Covenant with the Lord that we will never repeat the sin we have committed and are repenting of. “By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them.” (D&C 58:43.)
+2. Covenant with the Lord that we will never repeat the sin we have committed and are repenting of. “By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them.” ([[D&C 58.43|D&C 58:43]].)
 
-Recommit ourselves to living a better life in all phases of the gospel.
+3. Recommit ourselves to living a better life in all phases of the gospel.
 
-Make restitution for the wrongs we have committed by—
+4. Make restitution for the wrongs we have committed by—
 
-Repenting in prayer to the Lord.
+5. The depth of our repentance must be as deep as the sin we have committed. There is no easy way. It hurts, but it also cleanses.
 
-Confessing to our bishop, an ordained common judge in Israel and the presiding high priest in our ward.
+6. Time is the next element of repentance and restitution:
 
-Apologizing to those we have offended.
+7. Complete forgiveness of ourselves and forgiveness without any feelings of retribution toward those who have offended us.
 
-The depth of our repentance must be as deep as the sin we have committed. There is no easy way. It hurts, but it also cleanses.
+8. Finally, the greatest of all blessings: the forgiveness of the Lord. We no longer look back with depression and hurt, but forward to the future with hope and joy and love for God, self, and all mankind.
 
-Time is the next element of repentance and restitution:
+“Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.” ([[D&C 58.42|D&C 58:42]].)
 
-Time to prove to ourselves, to our Lord, to our fellowmen that we have committed ourselves to a new way of life.
-
-Time to study the scriptures and dedicate our lives to the commandments we learn we must live to be happy and have joy.
-
-Complete forgiveness of ourselves and forgiveness without any feelings of retribution toward those who have offended us.
-
-Finally, the greatest of all blessings: the forgiveness of the Lord. We no longer look back with depression and hurt, but forward to the future with hope and joy and love for God, self, and all mankind.
-
-“Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.” (D&C 58:42.)
-
-“But learn that he who doeth the works of righteousness shall receive his reward, even peace in this world, and eternal life in the world to come.” (D&C 59:23.)
+“But learn that he who doeth the works of righteousness shall receive his reward, even peace in this world, and eternal life in the world to come.” ([[D&C 59.23|D&C 59:23]].)
 
 I give you my testimony that I know God lives and that Jesus is the Christ, our Redeemer. I testify that they love us and have given us the gospel to protect us from taking the long, dark journeys in our life. I further testify that whether you be a member or a nonmember the gospel principle of repentance has the power to bring us back from the depths of despair, to give us peace in this world and eternal life in the world to come even though our journeys may have been long and dark. These principles can apply to all of us—to nonmembers who experience the remission of sins through repentance and baptism, as well as members who repent of their sins. I ask the Lord’s blessings to be with all those who are reaching out to know that they may come back.
 
 May our Heavenly Father bless us to dedicate our lives today. There is no better time to start than today. That we may remain valiant all the days of our lives and endure to the end is my prayer, in the name of Jesus Christ. Amen.
+
+
+
 

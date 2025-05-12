@@ -1,13 +1,16 @@
 # The Stake President
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2000 General Conference*
+
+>*Stake presidents have been called under the same inspiration under which the General Authorities were called. I pray for these, my beloved brethren, that the Spirit of the Lord will rest upon them.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2000/04/the-stake-president?lang=eng)
 
 It now becomes my pleasure to share with you a few remarks. First, thank you for being here. I’ve never seen anything like this. I should have brought my binoculars to see how you in the upper balcony look. I’ve counted five empty seats in this entire hall. What a pleasure it is to be here.
 
-My brethren, what a wonderful thing is the priesthood of God. There is nothing to compare with it. It is received only by the laying on of hands by those in authority to bestow it. In this dispensation, that bestowal goes back to John the Baptist and the Lord’s Apostles Peter, James, and John. They came to earth and physically laid their hands on the heads of Joseph Smith and Oliver Cowdery and with audible voices spoke words of bestowal of this wondrous power. Since then every man who has received it has done so through the laying on of hands by one who received it in turn in the same manner traced back to its original bestowal.
+My brethren, what a wonderful thing is the priesthood of God. There is nothing to compare with it. It is received only by the laying on of hands by those in authority to bestow it. In this dispensation, that bestowal goes back to John the Baptist and the Lord’s Apostles Peter, James, and John. They came to earth and physically laid their hands on the heads of Joseph Smith and Oliver Cowdery and with audible voices spoke words of bestowal of this wondrous power. Since then every man who has received it has done so through the laying on of hands by one who received it in turn in the same manner, traced back to its original bestowal.
 
 It is classless. Every worthy man, regardless of nationality, ethnic background, or any other factor, is eligible to receive the priesthood. His obedience to the commandments of God becomes the determining factor. Its bestowal is based only on worthiness before the Lord.
 
@@ -47,19 +50,19 @@ This is an office that came of revelation. The organization of a stake represent
 
 The president of the stake is the officer called under revelation to stand between the bishops of wards and the General Authorities of the Church. It is a most important responsibility. He is trained by the General Authorities, and in turn he trains the bishops.
 
-It is most interesting to me that we have 17,789 wards in the Church with a bishop in each. They are scattered over the earth. Their members speak various languages. And yet they are all alike. You may attend Sunday meetings in Singapore or Stockholm and the service will be the same. Think of the confusion we would have if every bishop followed his own inclinations. The Church would literally fall apart in a very short time.
+It is most interesting to me that we have 17,789 wards in the Church with a bishop in each. They are scattered over the earth. Their members speak various languages. And yet they are all alike. You may attend Sunday meetings in Singapore or Stockholm, and the service will be the same. Think of the confusion we would have if every bishop followed his own inclinations. The Church would literally fall apart in a very short time.
 
-The stake president serves as an adviser to the bishops. Every bishop knows that when he has to deal with a difficult problem there is one readily available to whom he may go to share his burden and receive counsel.
+The stake president serves as an adviser to the bishops. Every bishop knows that when he has to deal with a difficult problem, there is one readily available to whom he may go to share his burden and receive counsel.
 
 He provides a secondary measure of safety in determining those worthy to go to the house of the Lord. Bishops are very close to their people. They live with them as neighbors. Sometimes they do not have the heart to refuse to grant a recommend even though the patron’s worthiness may be somewhat in question. But the stake president also interviews. Until Wilford Woodruff’s time, the President of the Church signed all temple recommends. But the burden became too heavy, and stake presidents were given the responsibility. They have done a tremendous work in this regard.
 
 The president likewise becomes a second screen in determining the worthiness of those who go out to represent the Church in the mission field. He too interviews the candidate, and only when he is satisfied of his or her worthiness does he endorse the recommendation. He likewise has been given authority to set apart those called on missions and to extend releases when they have completed their service.
 
-Most importantly, he is the principal disciplinary officer of the stake. The duties of a teacher in the Aaronic Priesthood might be applied to the president of the stake. He “is to watch over the [entire stake], and be with and strengthen [the members],
+Most importantly, he is the principal disciplinary officer of the stake. The duties of a teacher in the Aaronic Priesthood might be applied to the president of the stake. He “is to watch over the \[entire stake\], and be with and strengthen \[the members\];
 
 “And see that there is no iniquity in the church, neither hardness with each other, neither lying, backbiting, nor evil speaking;
 
-“And see that the church meet together often, and also see that all the members do their duty” (D&C 20:53–55).
+“And see that the church meet together often, and also see that all the members do their duty” ([[D&C 20.53|D&C 20:53–55]][[D&C 20.54|]][[D&C 20.55|]]).
 
 He carries the very heavy responsibility of seeing that the doctrine taught in the stake is kept pure and unsullied. It is his duty to see that there is no false doctrine that is taught nor false practice that occurs. If there be any Melchizedek Priesthood holder out of line, or any other person for that matter, under some circumstances, he is to counsel with them, and if the individual persists in his or her practice, then the president is obliged to take action. He will summon the offender to appear before a disciplinary council, where action may be taken to assign a probationary period or to disfellowship or excommunicate him or her from the Church.
 
@@ -80,4 +83,7 @@ I pray for these, my beloved brethren, that the Spirit of the Lord will rest upo
 There is no other office in the Church quite like this office. The president of the stake is close enough to the people to know them and love them. And yet, with his counselors, he stands aloof enough to deal objectively according to the will and pattern of the Lord.
 
 I pray that the rich and wondrous blessings of the Lord may be poured out upon these devoted brethren that they may be men of faith, men of inspired judgment, men of patience, men who love the Lord and who love His people. May they be happy, and may they find their reward in the satisfaction of having served well is my humble prayer in the name of Jesus Christ, amen.
+
+
+
 

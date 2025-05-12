@@ -1,5 +1,6 @@
 # Address Given by President Marion G. Romney at Welfare Services Session Saturday, April 5, 1975
-*By Marion G. Romney - Second Counselor in the First Presidency*
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -11,7 +12,7 @@ As I have listened this morning I have been greatly impressed by the wise counse
 
 We were then in a depressed period and dealing principally with food and other commodities required to sustain life. Now we cover the whole field of welfare services.
 
-A few years ago President Kimball was in charge of the Indian Placement Program. Brother Monson was in charge of a department called Youth Guidance. The Relief Society was in charge of unwed mothers and adoptions. Other departments were under other leaders. Finally it was decided to put them in one department, which we first operated under the name of Unified Social Services. We have since brought the Unified Social Services, the welfare program, and health services—supervised by Brother James O. Mason—under one jurisdiction. What we have today is the Welfare Services Department.
+A few years ago President Kimball was in charge of the *Indian Placement Program.* Brother Monson was in charge of a department called *Youth Guidance.* The Relief Society was in charge of unwed mothers and adoptions. Other departments were under other leaders. Finally it was decided to put them in one department, which we first operated under the name of *Unified Social Services.* We have since brought the Unified Social Services, the welfare program, and health services—supervised by Brother James O. Mason—under one jurisdiction. What we have today is the *Welfare Services Department.*
 
 I remember my first association with the welfare program. It was inaugurated in the early 30s during President Grant’s administration. Presidents J. Reuben Clark, Jr., Harold B. Lee and Henry D. Moyle were its principal architects. I was a bishop at the time. We had many people living in my ward in that depressed era who were unemployed and unable to sustain themselves. I remember we were in this building at a conference when President Heber J. Grant told us as bishops to go home and see what we could do to get together the basic food, clothing and other necessities of life required to care for our people during the coming year. I remember that in our ward we built some closets in the basement and gathered food and used clothing, which we put in those closets to take care of our people during the ensuing winter.
 
@@ -34,4 +35,7 @@ This welfare program was set up under inspiration in the days of President Grant
 I know from my own experience and the witnesses by the thousands that I have received of the Spirit that this is the Lord’s work. It is to prepare us. If you’ll think of the most sacred place you ever have been, you’ll remember that the final thing that we are to do is to be able and willing to consecrate all that we have to the building up of the kingdom of God, to care for our fellow men. When we do this we’ll be ready for the coming of the Messiah.
 
 The Lord bless you, brothers and sisters, that you may listen and that you may implement the things that have been taught us here this morning, and live under the guidance of the Spirit day by day. That is possible when we get the connection made between us and the Spirit, and then walk under its guidance. I bless you that we may do so, in the name of Jesus Christ, our Redeemer. Amen.
+
+
+
 

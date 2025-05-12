@@ -1,5 +1,6 @@
 # Why Do We Continue to Tolerate Sin?
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -37,39 +38,39 @@ As we sat in a press conference a few days ago, I was asked by the pressmen, “
 
 As I thought quickly over this matter, I attempted to answer the question, and I recalled the time when the world leadership was based in Assyria and Babylonia. I remember the Old Testament story of Belshazzar—spoken of by President Romney in the priesthood meeting last night—the son and successor of the famous Nebuchadnezzar, king of Babylon, being the last reigning king before the conquest of Cyrus the Great. We remembered the unholy thefts of Nebuchadnezzar, when he defiled the sacred temple of Solomon in Jerusalem and took from that temple many costly and precious serving items. I noted that Belshazzar the king made a great feast, with a thousand of his lords. He drank wine before the thousand and with the thousand. To feed a thousand persons at a banquet is a herculean effort.
 
-Not satisfied with the theft of the golden and silver vessels which his father had taken from the holy temple, which had already been dedicated to the Lord for His purposes, Belshazzar took the stolen vessels and filled them with intoxicating liquor, and invited into his chambers, not only the thousand of his lords, but his princes, his wives, and his concubines. His guests ate and drank, probably gave toasts to the gods of gold, the gods of silver, the gods of brass, the gods of iron, the gods of wood, and the gods of stone. (See Dan. 5:1–4.)
+Not satisfied with the theft of the golden and silver vessels which his father had taken from the holy temple, which had already been dedicated to the Lord for His purposes, Belshazzar took the stolen vessels and filled them with intoxicating liquor, and invited into his chambers, not only the thousand of his lords, but his princes, his wives, and his concubines. His guests ate and drank, probably gave toasts to the gods of gold, the gods of silver, the gods of brass, the gods of iron, the gods of wood, and the gods of stone. (See [[Daniel 5.1|Dan. 5:1–4]][[Daniel 5.2|]][[Daniel 5.3|]][[Daniel 5.4|]].)
 
 I wondered if history were repeating itself, as I pondered and thought over the condition of our own world today and its permissiveness. In reading the media today I think I see some striking and frightening similarities in the two ages. I read of great feasts in many places, of many community leaders and social leaders and VIPs in large numbers. I read of the local lords and their wives and their mistresses. I read of their drinking and their drunkenness and their extravagances and their immoralities—their shame—and then I whisper to myself, “History is repeating itself.”
 
-I weary of discussing too much the matter of the moral situation in our world. But I read in the Doctrine and Covenants where the Lord said, “Say nothing but repentance unto this generation; keep my commandments and assist to bring forth my work, according to my commandments.” (D&C 6:9.)
+I weary of discussing too much the matter of the moral situation in our world. But I read in the Doctrine and Covenants where the Lord said, “Say nothing but repentance unto this generation; keep my commandments and assist to bring forth my work, according to my commandments.” ([[D&C 6.9|D&C 6:9]].)
 
 Then he said, “And how great is his joy in the soul that repenteth!
 
-“Wherefore, you are called to cry repentance unto this people.” (D&C 18:13–14.) As the early Saints were going into Missouri, the word of the Lord came to the leaders:
+“Wherefore, you are called to cry repentance unto this people.” ([[D&C 18.13|D&C 18:13–14]][[D&C 18.14|]].) As the early Saints were going into Missouri, the word of the Lord came to the leaders:
 
 “Let them preach by the way, and bear testimony of the truth in all places, and call upon the rich, the high and the low, and the poor to repent.
 
-“And let them build up churches, inasmuch as the inhabitants of the earth will repent.” (D&C 58:47–48.)
+“And let them build up churches, inasmuch as the inhabitants of the earth will repent.” ([[D&C 58.47|D&C 58:47–48]][[D&C 58.48|]].)
 
 And so today, I think, I fear, it is the day of repentance—a day for people to take stock of their situations and to change their lives where that is necessary.
 
-The commandment came to the leaders in this day as it came direct from the Lord to Simon Peter in the days of old: “Wherefore, I give unto you a commandment that ye go among this people, and say unto them, like unto mine apostle of old, whose name was Peter.” (D&C 49:11.) I find that Peter the apostle constantly called upon the people to cleanse their lives and repent from their transgressions.
+The commandment came to the leaders in this day as it came direct from the Lord to Simon Peter in the days of old: “Wherefore, I give unto you a commandment that ye go among this people, and say unto them, like unto mine apostle of old, whose name was Peter.” ([[D&C 49.11|D&C 49:11]].) I find that Peter the apostle constantly called upon the people to cleanse their lives and repent from their transgressions.
 
 “Dearly beloved,” he said, “I beseech you as strangers and pilgrims, abstain from fleshly lusts, which war against the soul;
 
-“Having your conversation [or your conduct] honest among the Gentiles: that whereas they speak against you as evildoers, they may by your good works, which they shall behold, glorify God in the day of visitation.” (1 Pet. 2:11–12.)
+“Having your conversation \[or your conduct\] honest among the Gentiles: that whereas they speak against you as evildoers, they may by your good works, which they shall behold, glorify God in the day of visitation.” ([[1 Peter 2.11|1 Pet. 2:11–12]][[1 Peter 2.12|]].)
 
 I read of the common practice of the associations of men and women not marriage partners; and they are claiming long and loudly that marriage is no longer necessary. And apparently almost without shame do they live together in a sexual partnership without marriage. Has God changed his laws? Or has puny, irresponsible, presumptuous man dared to change the laws of God? Was sin yesterday? Did the devil reign in the hearts of men only in the far-away past?
 
-Abraham knew that the cities of the plains—Sodom and Gomorrah and other places—were wicked cities, housing wicked, godless people, saying with Cain, “Who is the Lord that I should know him?” (Moses 5:16.) He was aware that destruction of those cities was imminent; but in his compassion for his fellowman, he begged and pleaded with the Lord, “Peradventure there be fifty righteous within the city,” will you spare the others of the city? (See Gen. 18:24.) That pleading being granted, came Abraham again and prayed that the cities would be saved if 45 were found, or 40 or 30 or 20 or down to ten, but apparently there could not be found even ten, in those vicious cities, who were righteous. (See Gen. 18:24–32.)
+Abraham knew that the cities of the plains—Sodom and Gomorrah and other places—were wicked cities, housing wicked, godless people, saying with Cain, “Who is the Lord that I should know him?” ([[Moses 5.16|Moses 5:16]].) He was aware that destruction of those cities was imminent; but in his compassion for his fellowman, he begged and pleaded with the Lord, “Peradventure there be fifty righteous within the city,” will you spare the others of the city? (See [[Genesis 18.24|Gen. 18:24]].) That pleading being granted, came Abraham again and prayed that the cities would be saved if 45 were found, or 40 or 30 or 20 or down to ten, but apparently there could not be found even ten, in those vicious cities, who were righteous. (See [[Genesis 18.24|Gen. 18:24–32]][[Genesis 18.25|]][[Genesis 18.26|]][[Genesis 18.27|]][[Genesis 18.28|]][[Genesis 18.29|]][[Genesis 18.30|]][[Genesis 18.31|]][[Genesis 18.32|]].)
 
-The evil continued. The sin was too well entrenched. They had laughed and joked about a destruction. The transgressions for which Sodom had apparently been renowned continued on. In fact, the people wanted to take advantage of the pure angel men they had seen come into the city. The vicious men pressed and would have broken down the doors to get to them. (See Gen. 19:4–11.)
+The evil continued. The sin was too well entrenched. They had laughed and joked about a destruction. The transgressions for which Sodom had apparently been renowned continued on. In fact, the people wanted to take advantage of the pure angel men they had seen come into the city. The vicious men pressed and would have broken down the doors to get to them. (See [[Genesis 19.4|Gen. 19:4–11]][[Genesis 19.5|]][[Genesis 19.6|]][[Genesis 19.7|]][[Genesis 19.8|]][[Genesis 19.9|]][[Genesis 19.10|]][[Genesis 19.11|]].)
 
 Everything was done that could be done by Abraham to save the city, but it had become so depraved and wanton that to save it was impossible.
 
 “Then the Lord rained upon Sodom and upon Gomorrah brimstone and fire from the Lord out of heaven;
 
-“And he overthrew those cities, and all the plain, and all the inhabitants of the cities, and that which grew upon the ground.” (Gen. 19:24–25.)
+“And he overthrew those cities, and all the plain, and all the inhabitants of the cities, and that which grew upon the ground.” ([[Genesis 19.24|Gen. 19:24–25]][[Genesis 19.25|]].)
 
 Again we see history repeating itself. When we see the pornography, the adulterous practices, homosexuality gone rampant, the looseness and permissiveness of an apparently increasing proportion of the people, we say the days of Satan have returned and history seems to repeat itself.
 
@@ -88,4 +89,7 @@ Now, my brothers and sisters, as we close this conference, we hope you return to
 I want to close with my testimony. I know that God lives. I know that Jesus Christ lives. I know that he loves. I know that he inspires. I know that he guides us. And I know that he loves us. I know that he can love or he can feel greatly aggrieved when he sees us getting off the path which he has marked so plainly and made so straight.
 
 And I bear this witness to you in the name of Jesus Christ, our Master. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Bring Up a Child in the Way He Should Go
-*By Gordon B. Hinckley - First Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1993 General Conference*
 
@@ -9,7 +10,7 @@ My brethren and sisters, near and far: I extend to each of you my love and grati
 
 A few days ago there came to my office a man from Las Vegas, Nevada. His wife and married daughter were with him. When we had accomplished the purpose of his visit, the younger woman asked if I would accept something from her thirteen-year-old daughter. She unwrapped a painting of two butterflies around a flowering shrub.
 
-The mother explained that her daughter had been struck by a car in a terrible accident when she was four years of age. Her body was badly broken. She was left paralyzed from the shoulders down, a quadriplegic without the use of arms or legs. She had painted this picture holding a brush between her teeth and moving her head.
+The mother explained that her daughter had been struck by a car in a terrible accident when she was four years of age. Her body was badly broken. She was left paralyzed from the shoulders down, a quadriplegic—without the use of arms or legs. She had painted this picture holding a brush between her teeth and moving her head.
 
 As I listened to that story, the painting grew in beauty and value before my eyes. It became more than a portrayal of butterflies. It represented remarkable courage in the face of blinding adversity; tenacious practice in holding and moving the brush; pleading prayers for help; faith—the faith of a child, nurtured by loving parents, that she could create beauty notwithstanding her handicap.
 
@@ -29,15 +30,15 @@ We in America are saddled with a huge financial deficit in our national budget. 
 
 But there is another deficit which, in its long-term implications, is more serious. It is a moral deficit, a decline in values in the lives of the people, which is sapping the very foundation of our society. It is serious in this land. And it is serious in every other nation of which I know.
 
-Some few months ago there appeared in the Wall Street Journal what was spoken of as an index of what is happening to our culture. I read from this statement:
+Some few months ago there appeared in the *Wall Street Journal* what was spoken of as an index of what is happening to our culture. I read from this statement:
 
-“Since 1960, the U.S. population has increased 41%; the gross domestic product has nearly tripled; and total social spending by all levels of government [has experienced] more than a fivefold increase. ...
+“Since 1960, the U.S. population has increased 41%; the gross domestic product has nearly tripled; and total social spending by all levels of government \[has experienced\] more than a fivefold increase. …
 
-“But during the same ... period there has been a 560% increase in violent crime; a 419% increase in illegitimate births; a quadrupling in divorce rates; a tripling of the percentage of children living in single-parent homes; more than a 200% increase in the teenage suicide rate” (William J. Bennett, “Quantifying America’s Decline,” Wall Street Journal, 15 Mar. 1993).
+“But during the same … period there has been a 560% increase in violent crime; a 419% increase in illegitimate births; a quadrupling in divorce rates; a tripling of the percentage of children living in single-parent homes; more than a 200% increase in the teenage suicide rate” (William J. Bennett, “Quantifying America’s Decline,” *Wall Street Journal,* 15 Mar. 1993, p. A12).
 
 The article concludes with a statement from Alexander Solzhenitsyn:
 
-“The West ... has been undergoing an erosion and [an] obscuring of high moral and ethical ideals. The spiritual axis of life has grown dim.”
+“The West … has been undergoing an erosion and \[an\] obscuring of high moral and ethical ideals. The spiritual axis of life has grown dim.”
 
 One need not, of course, read statistics to recognize a moral decay that seems to be going on all about us. It is evident in the easy breakup of marriages, in widespread infidelity, in the growth of youth gangs, in the increased use of drugs and the epidemic spread of AIDS, and in a growing disregard for the lives and property of others. It is seen in the defacement of private and public property with graffiti, which destroys beauty and is an insult to art. It is expressed in the language of the gutter, which is brought into our homes.
 
@@ -65,15 +66,15 @@ I have seen a similar thing, many times, in children whose lives I have observed
 
 Every individual in the world is a child of a mother and a father. Neither can ever escape the consequences of their parenthood. Inherent in the very act of creation is responsibility for the child who is created. None can with impunity run from that responsibility.
 
-It is not enough simply to provide food and shelter for the physical being. There is an equal responsibility to provide nourishment and direction to the spirit and the mind and the heart. Wrote Paul to Timothy, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” (1 Tim. 5:8).
+It is not enough simply to provide food and shelter for the physical being. There is an equal responsibility to provide nourishment and direction to the spirit and the mind and the heart. Wrote Paul to Timothy, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” ([[1 Timothy 5.8|1 Tim. 5:8]]).
 
 I am satisfied that Paul was speaking of more than physical nourishment.
 
-Many years ago President Stephen L. Richards, then a Counselor in the First Presidency, speaking from this pulpit made an eloquent plea to put father back at the head of the family (see Conference Report, Apr. 1958, p. 94). I repeat that plea to all fathers. Yours is the basic and inescapable responsibility to stand as the head of the family. That does not carry with it any implication of dictatorship or unrighteous dominion. It carries with it a mandate that fathers provide for the needs of their families. Those needs are more than food, clothing, and shelter. Those needs include righteous direction and the teaching, by example as well as precept, of basic principles of honesty, integrity, service, respect for the rights of others, and an understanding that we are accountable for that which we do in this life, not only to one another but also to the God of heaven, who is our Eternal Father.
+Many years ago President Stephen L. Richards, then a Counselor in the First Presidency, speaking from this pulpit made an eloquent plea to put father back at the head of the family (see Conference Report, Apr. 1958, p. 94). I repeat that plea to all fathers. Yours is the basic and inescapable responsibility to stand as the head of the family. That does not carry with it any implication of dictatorship or unrighteous dominion. It carries with it a mandate that fathers provide for the needs of their families. Those needs are more than food, clothing, and shelter. Those needs include righteous direction and the teaching, by example as well as precept, of basic principles of honesty, integrity, service, respect for the rights of others, and an understanding that we are accountable for that which we do in this life, not only to one another but also to the God of heaven, who is our Eternal Father.
 
-Let every mother realize that she has no greater blessing than the children which have come to her as a gift from the Almighty; that she has no greater mission than to rear them in light and truth, in understanding and love; that she will have no greater happiness than to see them grow into young men and women who respect principles of virtue, who walk free from the stain of immorality and from the shame of delinquency.
+Let every mother realize that she has no greater blessing than the children who have come to her as a gift from the Almighty; that she has no greater mission than to rear them in light and truth, in understanding and love; that she will have no greater happiness than to see them grow into young men and women who respect principles of virtue, who walk free from the stain of immorality and from the shame of delinquency.
 
-Said the writer of Proverbs, “Train up a child in the way he should go: and when he is old, he will not depart from it” (Prov. 22:6).
+Said the writer of Proverbs, “Train up a child in the way he should go: and when he is old, he will not depart from it” ([[Proverbs 22.6|Prov. 22:6]]).
 
 The health of any society, the happiness of its people, their prosperity, and their peace all find their roots in the teaching of children by fathers and mothers.
 
@@ -89,15 +90,18 @@ Could you wish for anything more than peace for your children? Could you benefit
 
 Now, with all of this, I know there are very many of you who are wonderful parents and whose children are growing in righteousness. Happy and productive will be their lives, and the world will be the better for them. I thank you and most warmly congratulate you. Surely you are fortunate.
 
-But there are others—too many among our own—whose children, to quote the revelation, are “growing up in wickedness” and who “seek not ... the riches of eternity, but their eyes are full of greediness” (D&C 68:31). To these I make my appeal.
+But there are others—too many among our own—whose children, to quote the revelation, are “growing up in wickedness” and who “seek not … the riches of eternity, but their eyes are full of greediness” ([[D&C 68.31|D&C 68:31]]). To these I make my appeal.
 
 It may not be easy. It may be fraught with disappointment and challenge. It will require courage and patience. I remind you of the faith and determination of the thirteen-year-old girl who, holding a paintbrush in her teeth, created the painting I showed you earlier. Love can make the difference—love generously given in childhood and reaching through the awkward years of youth. It will do what money lavished on children will never do.
 
-—And patience, with a bridling of the tongue and self-mastery over anger. The writer of Proverbs declared, “A soft answer turneth away wrath” (Prov. 15:1).
+—And patience, with a bridling of the tongue and self-mastery over anger. The writer of Proverbs declared, “A soft answer turneth away wrath” ([[Proverbs 15.1|Prov. 15:1]]).
 
 —And encouragement that is quick to compliment and slow to criticize.
 
 These, with prayers, will accomplish wonders. You cannot expect to do it alone. You need heaven’s help in rearing heaven’s child—your child, who is also the child of his or her Heavenly Father.
 
 O God, our Eternal Father, bless the parents to teach with love and patience and encouragement those who are most precious, the children who have come from Thee, that together they might be safeguarded and directed for good and, in the process of growth, bring blessings to the world of which they will be a part, I pray in the name of Jesus Christ, amen.
+
+
+
 

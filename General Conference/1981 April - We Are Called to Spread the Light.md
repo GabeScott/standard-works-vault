@@ -1,5 +1,6 @@
 # We Are Called to Spread the Light
-*By Jacob de Jager - Of the First Quorum of the Seventy*
+
+By Elder Jacob de Jager - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -21,23 +22,19 @@ Twenty-six years later, again on the fourth of April, the Lord called me out of 
 
 The light to be spread was carried by a group of dedicated young men and women who had taken upon themselves to bring the light of the gospel into every home that they were allowed to enter. Their power stations were the mission headquarters in Southeast Asia, and their power lines were the lines of priesthood authority, without which the system could never function.
 
-These missionaries also witnessed joy and gratitude when the first glimpses of eternal light were brought into the lives of their converts and when the new members learned to sing in their own language during family home evening, “There is beauty all around, when there’s love at home.” (“There Is Beauty All Around,” Hymns, no. 169.)
+These missionaries also witnessed joy and gratitude when the first glimpses of eternal light were brought into the lives of their converts and when the new members learned to sing in their own language during family home evening, “There is beauty all around, when there’s love at home.” (“There Is Beauty All Around,” *Hymns,* no. 169.)
 
 Every time a new mission is opened up, branches of the Church are established, or stakes of Zion are organized, bright lights start to shine forth, bringing to mind the words of the hymn:
 
-The morning breaks; the shadows flee;
-
-Lo, Zion’s standard is unfurled!
-
-The dawning of a brighter day
-
-Majestic rises on the world.
-
-(“The Morning Breaks; the Shadows Flee,” Hymns, no. 269.)
+>The morning breaks; the shadows flee;
+>Lo, Zion’s standard is unfurled!
+>The dawning of a brighter day
+>Majestic rises on the world.
+>
 
 Brothers and sisters, is this spreading of the light to every nation not a miracle?
 
-Is this charge to reach out to every household in order to bring light, love, and happiness to our fellowmen not a sacred obligation? Especially when we know that the Savior said, “Verily I say unto you all: Arise and shine forth, that thy light may be a standard for the nations.” (D&C 115:5.)
+Is this charge to reach out to every household in order to bring light, love, and happiness to our fellowmen not a sacred obligation? Especially when we know that the Savior said, “Verily I say unto you all: Arise and shine forth, that thy light may be a standard for the nations.” ([[D&C 115.5|D&C 115:5]].)
 
 Who are “you all” now, on this very day, the fourth of April, 1981?
 
@@ -77,9 +74,9 @@ He later became a counselor in the branch presidency, and last year he was ordai
 
 I testify that Brother and Sister Lambert, with thousands of faithful couples who have served in the past and those who are serving now, will be greatly blessed by our Heavenly Father and that they have gained a sound understanding of the true meaning of the scripture:
 
-“And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” (D&C 18:15.)
+“And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” ([[D&C 18.15|D&C 18:15]].)
 
-Finally, I would like to share with you one more interesting experience, which Brother and Sister Edwin Q. Cannon, Jr., had on their mission in West Africa.
+Finally, I would like to share with you one more interesting experience, which Brother and Sister Edwin Q. Cannon, Jr., had on their mission in West Africa.
 
 The story concerns an outstanding black Latter-day Saint family by the name of Sampson-Davis, who reside in Accra, Ghana.
 
@@ -98,4 +95,7 @@ I share the experiences of these two couples with you to let you feel the import
 I testify, as a convert to the Church, that no greater joy can come to men than being involved in carrying the gospel to all nations, kindreds, tongues, and people.
 
 I humbly pray that the missionary spirit will be with us all in the time ahead and that we may be an instrument in the hand of the Lord to build his kingdom here on earth prior to his glorious return, and do so in the name of Jesus Christ, amen.
+
+
+
 

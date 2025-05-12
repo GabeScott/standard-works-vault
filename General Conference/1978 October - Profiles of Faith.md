@@ -1,5 +1,6 @@
 # Profiles of Faith
-*By Thomas S. Monson - Of the Council of the Twelve*
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -7,27 +8,19 @@
 
 Who can help but be uplifted and inspired just to worship in this historic tabernacle and to listen to this glorious choir?
 
-It has been said that “when Evan Stephens was conductor of the Tabernacle Choir, he was thrilled on one occasion by a sermon delivered by the late President Joseph F. Smith on the subject, [of “The Faith of Latter-day Saint Youth.”] At the close of the service Professor Stephens strolled alone up City Creek Canyon [to the north], pondering the inspired words of the President. Suddenly [the inspiration of heaven] came upon him and seated upon a rock which was standing firm under the pressure of the rushing water, he wrote with a pencil” these words:
+It has been said that “when Evan Stephens was conductor of the Tabernacle Choir, he was thrilled on one occasion by a sermon delivered by the late President Joseph F. Smith on the subject, \[of “The Faith of Latter-day Saint Youth.”\] At the close of the service Professor Stephens strolled alone up City Creek Canyon \[to the north\], pondering the inspired words of the President. Suddenly \[the inspiration of heaven\] came upon him and seated upon a rock which was standing firm under the pressure of the rushing water, he wrote with a pencil” these words:
 
-Shall the youth of Zion falter
-
-In defending truth and right?
-
-While the enemy assaileth,
-
-Shall [they] shrink or shun the fight?
-
-No!
-
-True to the faith that [their] parents have cherished,
-
-True to the truth for which martyrs have perished,
-
-To God’s command, Soul, heart, and hand,
-
-Faithful and true [they] will ever stand.
-
-(Hymns, no. 157; J. Spencer Cornwall, Stories of Our Mormon Hymns, Salt Lake City: Deseret Book, 1963, p. 173.)
+>Shall the youth of Zion falter
+>In defending truth and right?
+>While the enemy assaileth,
+>Shall \[they\] shrink or shun the fight?
+>No!
+>
+>True to the faith that \[their\] parents have cherished,
+>True to the truth for which martyrs have perished,
+>To God’s command, Soul, heart, and hand,
+>Faithful and true \[they\] will ever stand.
+>
 
 In that early day, I am confident that youth were faced with difficult challenges to meet and vexing problems to solve. Youth is not a time of ease nor of freedom from perplexing questions. It wasn’t then, and it surely isn’t today. In fact, as time passes it seems that the difficulties of youth increase in size and scope. Temptation continues to loom large on life’s horizon. Accounts of violence, theft, drug abuse, and pornography blare forth from the television screen and peer constantly from most daily newspapers. Such examples blur our vision and fault our thinking. Soon assumptions become generally accepted opinions, and all youth everywhere are categorized as “not so good as yesteryear,” or “the worst generation yet.” How wrong are such opinions! How incorrect are such statements!
 
@@ -39,7 +32,7 @@ Let me share with you a pointed letter which came from a resident of Minnesota. 
 
 “Beginning December 22, I made a bus trip from southern Minnesota to Florida via Des Moines and Chicago and points south.
 
-“There was a large group of young men and women traveling the approximately same route from Des Moines. These fine young people were students from Brigham Young [University] going home for the holidays.
+“There was a large group of young men and women traveling the approximately same route from Des Moines. These fine young people were students from Brigham Young \[University\] going home for the holidays.
 
 “They were all very polite, well-behaved, articulate young men and women. It was a pleasure to travel with them—to know them—and it gave me a new hope for the future.
 
@@ -53,9 +46,9 @@ Another group which amazes the world and inspires faith is that army of Latter-d
 
 More generally, the bishop and stake president write, “John is a fine young man. He has prepared for his mission physically, mentally, financially, and spiritually. He will serve gladly and with distinction wherever he is called.”
 
-One day I was with President Spencer W. Kimball as he signed these special calls to full-time missionary service. Suddenly he noticed the call of his own grandson. He signed his name as president of the Church and then penned a personal line at the bottom which read, “I’m proud of you. Love, Grandpa.”
+One day I was with President Spencer W. Kimball as he signed these special calls to full-time missionary service. Suddenly he noticed the call of his own grandson. He signed his name as president of the Church and then penned a personal line at the bottom which read, “I’m proud of you. Love, Grandpa.”
 
-When the call is received, the college text is closed and the scriptures opened. Family, friends, and often a special friend are left behind. Suspended are dating, dancing, and driving, as the three Ds are exchanged for the three Ts—tracting, teaching, and testifying.
+When the call is received, the college text is closed and the scriptures opened. Family, friends, and often a special friend are left behind. Suspended are dating, dancing, and driving, as the three *D*s are exchanged for the three *T*s—tracting, teaching, and testifying.
 
 Let us examine specifically several missionary profiles of faith, that we might better consider the question “Shall the youth of Zion falter?”
 
@@ -69,13 +62,13 @@ There seemed to echo from another place, another time, the experience of the Mas
 
 “And he saw also a certain poor widow casting in thither two mites.
 
-“And he said, Of a truth I say unto you, that this poor widow hath cast in more than they all.” (Luke 12:1–3.)
+“And he said, Of a truth I say unto you, that this poor widow hath cast in more than they all.” ([[Luke 12.1|Luke 12:1–3]][[Luke 12.2|]][[Luke 12.3|]].)
 
-“For all they did cast in of their abundance; but she of her want did cast in all that she had, even all her living” (Mark 12:44).
+“For all they did cast in of their abundance; but she of her want did cast in all that she had, even all her living” ([[Mark 12.44|Mark 12:44]]).
 
-For a second profile, I turn from Mexico to a missionary at the Missionary Training Center in Provo, Utah, desperately struggling to become proficient in the German language, that he might be an effective missionary to the people of southern Germany. Each day as he opened his German grammar text, he noticed with interest and curiosity that the front cover displayed a picture of a most quaint and ancient house in Rothenburg, West Germany. Beneath the picture, the location was given. In his heart that young man determined, “I’ll visit that house and teach the truth to whoever lives within it.” This he did. The result was the conversion and baptism of Sister Helma Hahn. Today she devotes much of her time speaking to tourists who come from all over the world to see her house. She delights in telling them of the blessings which the gospel of Jesus Christ has brought to her. Her house is perhaps one of the most frequently photographed houses in the entire world. No visitor leaves without hearing in simple yet earnest words her testimony of praise and gratitude. That missionary who brought to Sister Hahn the gospel remembered the sacred charge: “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost” (Matt. 28:19).
+For a second profile, I turn from Mexico to a missionary at the Missionary Training Center in Provo, Utah, desperately struggling to become proficient in the German language, that he might be an effective missionary to the people of southern Germany. Each day as he opened his German grammar text, he noticed with interest and curiosity that the front cover displayed a picture of a most quaint and ancient house in Rothenburg, West Germany. Beneath the picture, the location was given. In his heart that young man determined, “I’ll visit that house and teach the truth to whoever lives within it.” This he did. The result was the conversion and baptism of Sister Helma Hahn. Today she devotes much of her time speaking to tourists who come from all over the world to see her house. She delights in telling them of the blessings which the gospel of Jesus Christ has brought to her. Her house is perhaps one of the most frequently photographed houses in the entire world. No visitor leaves without hearing in simple yet earnest words her testimony of praise and gratitude. That missionary who brought to Sister Hahn the gospel remembered the sacred charge: “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost” ([[Matthew 28.19|Matt. 28:19]]).
 
-Profile number three also relates to a missionary of unfaltering faith, Elder Mark Skidmore. When he received his call to Norway, he knew not one word of Norwegian—yet he realized that to teach and to testify he would need proficiency in the language of the Norwegian people. To himself he made a private vow: “I will not speak English until I have brought into the waters of baptism my first Norwegian family.” He plodded. He prayed. He pleaded. He worked. After the trial of his faith came the desired blessing. He taught and baptized a choice family. He then spoke in English for the first time in six months. I met with him that same week. His expression was one of thanksgiving and gratitude. I thought of the words of Moroni, that courageous captain: “I seek not for power. ... I seek not for honor of the world, but for the glory of my God.” (Alma 60:36.)
+Profile number three also relates to a missionary of unfaltering faith, Elder Mark Skidmore. When he received his call to Norway, he knew not one word of Norwegian—yet he realized that to teach and to testify he would need proficiency in the language of the Norwegian people. To himself he made a private vow: “I will not speak English until I have brought into the waters of baptism my first Norwegian family.” He plodded. He prayed. He pleaded. He worked. After the trial of his faith came the desired blessing. He taught and baptized a choice family. He then spoke in English for the first time in six months. I met with him that same week. His expression was one of thanksgiving and gratitude. I thought of the words of Moroni, that courageous captain: “I seek not for power. … I seek not for honor of the world, but for the glory of my God.” ([[Alma 60.36|Alma 60:36]].)
 
 For a final profile, I mention the mother of one noble missionary son. The family lived in the harsh climate of Star Valley, Wyoming. Summer there is brief and warm, while winter is long and cold. When a fine son of nineteen said farewell to home and family, he knew on whom the burden of work would fall. Father was ill and limited. To mother came the task of milking by hand the small dairy herd which sustained the family.
 
@@ -89,27 +82,12 @@ Nurtured and guided by such noble mothers, missionaries match the description of
 
 “And they were all young men, and they were exceedingly valiant for courage, and also for strength and activity; but behold, this was not all—they were men who were true at all times in whatsoever thing they were entrusted.
 
-“Yea, they were men of truth and soberness, for they had been taught to keep the commandments of God and to walk uprightly before him.” (Alma 53:20–21.)
+“Yea, they were men of truth and soberness, for they had been taught to keep the commandments of God and to walk uprightly before him.” ([[Alma 53.20|Alma 53:20–21]][[Alma 53.21|]].)
 
 Such profiles prompt faith. They instill confidence. They teach truth. They testify of goodness. They help provide the answer to that question:
 
-Shall the youth of Zion falter
-
-In defending truth and right?
-
-While the enemy assaileth,
-
-Shall [they] shrink or shun the fight?
-
-No!
-
-True to the faith that [their] parents have cherished,
-
-True to the truth for which martyrs have perished,
-
-To God’s command, Soul, heart, and hand,
-
-Faithful and true [they] will ever stand.
-
 My sincere prayer is that we will stand with the youth of Zion, remain true to the faith, for which I pray in the name of Jesus Christ. Amen.
+
+
+
 

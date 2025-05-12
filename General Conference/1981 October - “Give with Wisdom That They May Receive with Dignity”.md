@@ -1,5 +1,6 @@
 # “Give with Wisdom That They May Receive with Dignity”
-*By Marvin J. Ashton - Of the Quorum of the Twelve Apostles*
+
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -11,7 +12,7 @@ With the grammar improved, that caption could well be the theme of welfare servi
 
 Every human being in every walk of life needs help in building his self-respect and self-reliance. To be truly effective, welfare services must be concerned with the betterment of the total individual. A person’s image of himself is nothing more or less than what he has learned through his experiences and his interactions with others. It is rewarding to note that someone has helped a typical boy develop his personal identity. Someone, perhaps a mother, a Primary teacher, a neighbor, or even a song like “I Am a Child of God,” has made this little boy realize he is someone. He knew he wasn’t junk. He knew he wasn’t impossible. He knew he was a human being loved by his Heavenly Father.
 
-In Ecclesiastes 4:9–10 we read: “Two are better than one; because they have a good reward for their labour.
+In [[Ecclesiastes 4.9|Ecclesiastes 4:9–10]][[Ecclesiastes 4.10|]] we read: “Two are better than one; because they have a good reward for their labour.
 
 “For if they fall, the one will lift up his fellow: but woe to him that is alone when he falleth; for he hath not another to help him up.”
 
@@ -25,17 +26,17 @@ The only time we fail in welfare services activities or in the home is when we g
 
 The other day following a Sunday School class a teacher came up and wanted me to shake hands with a special child. As I held my hand out and greeted the boy, I became aware that perhaps the only meaningful thing this child could do was carry the teacher’s books to class. What did this empathetic teacher have the boy doing? Carrying the books. Thank God for leaders who know how to teach self-reliance on a level commensurate with the capabilities of those they lead.
 
-Robert Louis Stevenson used these words to remind us of this fact: “To be what we are, and to become what we are capable of becoming, is the only end of life.” (Bergen Evans, Dictionary of Quotations, New York: Crown Publishers, p. 393.) Our Savior said it this way, “As my Father hath sent me, even so I send you.” (John 20:21.) Each one has something special to live for. Some can find their special niche by themselves, but many need added help. All of us are a part of this inspired welfare activity as we assist each other in fulfilling our purposes here on earth.
+Robert Louis Stevenson used these words to remind us of this fact: “To be what we are, and to become what we are capable of becoming, is the only end of life.” (Bergen Evans, *Dictionary of Quotations,* New York: Crown Publishers, p. 393.) Our Savior said it this way, “As my Father hath sent me, even so I send you.” ([[John 20.21|John 20:21]].) Each one has something special to live for. Some can find their special niche by themselves, but many need added help. All of us are a part of this inspired welfare activity as we assist each other in fulfilling our purposes here on earth.
 
-Satan will do his best to deter us and let discouragement impede our progress. Through trying times we would do well to remember and repeat the famous words of Sir Winston Churchill, England’s Lion of Courage, during some of his country’s darkest days. With character and strength peculiar to himself, he said, “Never give in, never give in, never, never, never, never.” (Robert Rhodes James, ed., Winston S. Churchill: His Complete Speeches, 1897–1963, 8 vols., New York: Chelsea House Publishers, 1974, 6:6,499.) This mighty statesman in his own way was echoing the words of another mighty leader, “If ye continue in my word, then are ye my disciples indeed;
+Satan will do his best to deter us and let discouragement impede our progress. Through trying times we would do well to remember and repeat the famous words of Sir Winston Churchill, England’s Lion of Courage, during some of his country’s darkest days. With character and strength peculiar to himself, he said, “Never give in, never give in, *never, never, never, never.*” (Robert Rhodes James, ed., *Winston S. Churchill: His Complete Speeches, 1897–1963,* 8 vols., New York: Chelsea House Publishers, 1974, 6:6,499.) This mighty statesman in his own way was echoing the words of another mighty leader, “If ye continue in my word, then are ye my disciples indeed;
 
-“And ye shall know the truth, and the truth shall make you free.” (John 8:31–32.)
+“And ye shall know the truth, and the truth shall make you free.” ([[John 8.31|John 8:31–32]][[John 8.32|]].)
 
 Paul Harvey, news analyst and author, said, “Someday I hope to enjoy enough of what the world calls success so that someone will ask me, ‘What’s the secret of it?’ I shall say simply this: ‘I get up when I fall down.’”
 
 There are those who would have us believe that the present Welfare Services principles are outdated, overemphasized, and impossible under existing world conditions. To them we would declare it is easier for some skeptics to give up than to learn. It is no doubt easier to be a critic than a servant. In the uncertain days of the present and of the future, Welfare Services will remain a beacon for the world to see. Its very foundation continues to be built on the rock of helping people to help themselves. Properly implemented, most human needs can be met through this important program of the Church.
 
-Welfare services is God’s way. We must have this belief and trust if we are to properly involve ourselves. Besides materials, commodities, money, supplies, labor, and skills, there must be faith—faith to help, lead, and obey in God’s way. For guidance and strength may we refer to that great, oft-repeated scripture found in the Doctrine and Covenants, section 104, verses 14 and 16: “I, the Lord, stretched out the heavens, and built the earth, my very handiwork; and all things therein are mine.
+Welfare services is God’s way. We must have this belief and trust if we are to properly involve ourselves. Besides materials, commodities, money, supplies, labor, and skills, there must be faith—faith to help, lead, and obey in God’s way. For guidance and strength may we refer to that great, oft-repeated scripture found in the [[D&C 104.14|Doctrine and Covenants, section 104, verses 14 and 16]][[D&C 104.16|]]: “I, the Lord, stretched out the heavens, and built the earth, my very handiwork; and all things therein are mine.
 
 “But it must needs be done in mine own way; and behold this is the way that I, the Lord, have decreed to provide for my saints, that the poor shall be exalted, in that the rich are made low.”
 
@@ -47,7 +48,7 @@ It is not enough to make elaborate plans, set up programs, and give serious thou
 
 May we remind each other that the strongest helping hand is most often the one closest to ourselves—our very own hands. Can you consider your own options for self-help as problems arise? Or do you toss your arms in the air and say, “Oh, no!” or “Why me?” Can you quietly sit down, review the facts, and list all the possible courses of action? Can you identify causes and determine remedies? Quiet contemplation can solve problems more quickly than frantic force.
 
-President Marion G. Romney has said so often, “No self-respecting Church member will voluntarily shift the responsibility for his own maintenance to another. Furthermore, a man not only has the responsibility to care for himself; he also has the responsibility to care for his family.” (Ensign, May 1981, p. 88.) Paul, speaking to this point, said, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” (1 Tim. 5:8.)
+President Marion G. Romney has said so often, “No self-respecting Church member will voluntarily shift the responsibility for his own maintenance to another. Furthermore, a man not only has the responsibility to care for himself; he also has the responsibility to care for his family.” (*Ensign,* May 1981, p. 88.) Paul, speaking to this point, said, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
 
 The home, which is the heart of welfare services, and its members should always become involved in all we do so self-respect may be maintained. We must constantly bear in mind that if the total well-being of the individual is to be realized, all members of the family must participate.
 
@@ -67,7 +68,7 @@ The practice of thrift is not outdated. We must discipline ourselves to live wit
 
 Debt can be destructive, causing financial bondage and bankruptcy and the loss of self-respect. A family who can manage money wisely and budget well, including tithing and fast offerings, is helping itself and others in the Lord’s own way. Just debts should be paid. I believe the Lord wants us to be successful in our honorable occupational pursuits and use wisely our means for the benefit of the individual, family, Church, and community.
 
-Jesus said, “Feed my sheep.” (John 21:16.) You can’t feed them if you don’t know where they are. You can’t feed them if you give them reason to resist you. You can’t feed them if you don’t have the food. You can’t feed them if you don’t have charity. You can’t feed them if you aren’t willing to work and share.
+Jesus said, “Feed my sheep.” ([[John 21.16|John 21:16]].) You can’t feed them if you don’t know where they are. You can’t feed them if you give them reason to resist you. You can’t feed them if you don’t have the food. You can’t feed them if you don’t have charity. You can’t feed them if you aren’t willing to work and share.
 
 Wherever these lost sheep may be, a necessary ingredient for helping is empathy. Empathy is the ability to understand someone else’s feelings and to feel what he feels. Meaningful help can never be given without empathy for the recipient. This requires gaining the confidence of the person; listening with eyes, ears, and heart; trying to comprehend how this person feels; and then letting him know by your personal performance that you really understand. One who really understands and practices empathy doesn’t solve another’s problems, doesn’t argue, doesn’t top his story, make accusations, or take away free agency. He merely helps the person build his self-reliance and self-image so he can try to find his own solutions.
 
@@ -83,23 +84,26 @@ Charity should start in our own homes. Too many of us extend charity to others w
 
 An old Serbian proverb says, “Kindness is the only service that power cannot command and money cannot buy.” The best way to show our love in caring and feeding is to take time to prove it with kindness hour by hour and day by day. True love is as eternal as life itself.
 
-During the last few days while President Kimball has been recovering from his recent surgery, I have heard many of you express your love and gratitude for him. Many are looking for ways to show sincere gratitude to him for his service and selfless love. From a priceless, intimate association with President Kimball, I think I can give you some guidelines. Learn to love, unconditionally, all of God’s children, regardless of race, creed, or color, and try to serve as he serves. This principle is the foundation of Welfare Services. Each of us could do well to remember Doctrine and Covenants 50:26: “He that is ordained of God and sent forth, the same is appointed to be the greatest, notwithstanding he is the least and the servant of all.”
+During the last few days while President Kimball has been recovering from his recent surgery, I have heard many of you express your love and gratitude for him. Many are looking for ways to show sincere gratitude to him for his service and selfless love. From a priceless, intimate association with President Kimball, I think I can give you some guidelines. Learn to love, unconditionally, all of God’s children, regardless of race, creed, or color, and try to serve as he serves. This principle is the foundation of Welfare Services. Each of us could do well to remember [[D&C 50.26|Doctrine and Covenants 50:26]]: “He that is ordained of God and sent forth, the same is appointed to be the greatest, notwithstanding he is the least and the servant of all.”
 
 The Lord cares enough about us to give us direction for serving and the opportunity for developing self-reliance. His principles are consistent and never changing. Practices may be altered as situations warrant, but the Lord’s principles are ever stable. The success of welfare services depends on obedience to the basic gospel laws upon which it is built. There is room for innovation and use of free agency when we look for wise ways to serve as long as we stay within the framework of the gospel.
 
 May I, in conclusion, suggest some basic goals as we participate in welfare services:
 
-Build self-respect by building self-reliance.
+1. Build self-respect by building self-reliance.
 
-Give help and service in the Lord’s own way, which is a balance of agency and accountability.
+2. Give help and service in the Lord’s own way, which is a balance of agency and accountability.
 
-Realize the proper sequence of sources of help is (1) the individual, (2) the family, and (3) the Church.
+3. Realize the proper sequence of sources of help is (1) the individual, (2) the family, and (3) the Church.
 
-Be aware that to feed His sheep, one must know who and where they are.
+4. Be aware that to feed His sheep, one must know who and where they are.
 
-Proper assisting requires love, empathy, and the restoration of dignity.
+5. Proper assisting requires love, empathy, and the restoration of dignity.
 
-Finally, welfare services requires planning, obedience to basic gospel principles, and above all the willingness to serve as our prophet serves, with unconditional love.
+6. Finally, welfare services requires planning, obedience to basic gospel principles, and above all the willingness to serve as our prophet serves, with unconditional love.
 
 May God help us to give of ourselves with wisdom that they may receive with dignity. Truly, “God makes no junk.” We are His children. He loves us and wants us to love ourselves, our families, and our neighbors in a meaningful way. I am pleased with this great arm of the Church. It is an inspired way of life. It is the implementation of eternal principles for the welfare and benefit of all mankind. It is welfare services. To this I leave my witness, testimony, and love in the name of Jesus Christ, amen.
+
+
+
 

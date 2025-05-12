@@ -1,5 +1,6 @@
 # The Victory over Death
-*By Gordon B. Hinckley - Second Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1985 General Conference*
 
@@ -13,33 +14,33 @@ My beloved brethren and sisters, what a glorious day is Easter! This is the day 
 
 But thanks be to God for the wonder and the majesty of His eternal plan. Thank and glorify His Beloved Son, who, with indescribable suffering, gave His life on Calvary’s cross to pay the debt of mortal sin. He it was who, through His atoning sacrifice, broke the bonds of death and with godly power rose triumphant from the tomb. He is our Redeemer, the Redeemer of all mankind. He is the Savior of the world. He is the Son of God, the Author of our salvation.
 
-“If a man die, shall he live again?” (Job 14:14.) This is the great universal question framed by Job. He spoke what every other living man or woman has pondered. The Christ alone, of all the millions who up to that time had walked the earth, was the first to emerge from the grave triumphant, a living soul complete in spirit and body. He became “the firstfruits of them that slept.” (1 Cor. 15:20.) Were greater words ever spoken than those of the angel that first resurrection morn—“Why seek ye the living among the dead?” (Luke 24:5.) “He is not here: for he is risen, as he said.” (Matt. 28:6.)
+“If a man die, shall he live again?” ([[Job 14.14|Job 14:14]].) This is the great universal question framed by Job. He spoke what every other living man or woman has pondered. The Christ alone, of all the millions who up to that time had walked the earth, was the first to emerge from the grave triumphant, a living soul complete in spirit and body. He became “the firstfruits of them that slept.” ([[1 Corinthians 15.20|1 Cor. 15:20]].) Were greater words ever spoken than those of the angel that first resurrection morn—“Why seek ye the living among the dead?” ([[Luke 24.5|Luke 24:5]].) “He is not here: for he is risen, as he said.” ([[Matthew 28.6|Matt. 28:6]].)
 
 His death sealed the testimony of His love for all mankind. His resurrection opened the gates of salvation to the sons and daughters of God of all generations.
 
-In all of history there has been no majesty like His majesty, He, the mighty Jehovah, condescended to be born to mortal life in a stable of Bethlehem. He grew as a boy in Nazareth and “increased in wisdom and stature, and in favour with God and man.” (Luke 2:52.)
+In all of history there has been no majesty like His majesty, He, the mighty Jehovah, condescended to be born to mortal life in a stable of Bethlehem. He grew as a boy in Nazareth and “increased in wisdom and stature, and in favour with God and man.” ([[Luke 2.52|Luke 2:52]].)
 
 He was baptized by John in the waters of Jordan, “and, lo, the heavens were opened unto him, and he saw the Spirit of God descending like a dove, and lighting upon him:
 
-“And lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased.” (Matt. 3:16–17.)
+“And lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased.” ([[Matthew 3.16|Matt. 3:16–17]][[Matthew 3.17|]].)
 
 During the three years of His earthly ministry, He did what none other had ever done before, He taught as none other had previously taught.
 
-Then came His time to be offered. There was the supper in the Upper Room, His last with the Twelve in mortality. As He washed their feet, He taught a lesson in humility and service they would never forget. There followed the suffering of Gethsemane, “which suffering,” He said, “caused myself, even God, the greatest of all, to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit.” (D&C 19:18.)
+Then came His time to be offered. There was the supper in the Upper Room, His last with the Twelve in mortality. As He washed their feet, He taught a lesson in humility and service they would never forget. There followed the suffering of Gethsemane, “which suffering,” He said, “caused myself, even God, the greatest of all, to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit.” ([[D&C 19.18|D&C 19:18]].)
 
-He was taken by rough and crude hands, and in the night, contrary to the law, was brought before Annas, and then Caiaphas, the wily and evil officer of the Sanhedrin. There followed early the next morning the second appearance before this scheming, vicious man. Then He was taken to Pilate, the Roman governor, to whom his wife said in warning, “Have thou nothing to do with that just man.” (Matt. 27:19.) The Roman, thinking to evade responsibility, sent Him to Herod, the corrupt, debauched, and evil tetrarch of Galilee. Christ was abused and beaten. His head was crowned with sharp and platted thorns, a mocking robe of purple was thrown upon His bleeding back. Again he was taken before Pilate, to whom the mob cried, “Crucify him, Crucify him.” (Luke 23:21.)
+He was taken by rough and crude hands, and in the night, contrary to the law, was brought before Annas, and then Caiaphas, the wily and evil officer of the Sanhedrin. There followed early the next morning the second appearance before this scheming, vicious man. Then He was taken to Pilate, the Roman governor, to whom his wife said in warning, “Have thou nothing to do with that just man.” ([[Matthew 27.19|Matt. 27:19]].) The Roman, thinking to evade responsibility, sent Him to Herod, the corrupt, debauched, and evil tetrarch of Galilee. Christ was abused and beaten. His head was crowned with sharp and platted thorns, a mocking robe of purple was thrown upon His bleeding back. Again he was taken before Pilate, to whom the mob cried, “Crucify him, Crucify him.” ([[Luke 23.21|Luke 23:21]].)
 
 With stumbling steps He walked the way to Golgotha, where His wounded body was nailed to the cross in the most inhumane and pain-ridden method of execution that sadistic minds could conjure.
 
-Yet He cried out, “Father, forgive them; for they know not what they do.” (Luke 23:34.)
+Yet He cried out, “Father, forgive them; for they know not what they do.” ([[Luke 23.34|Luke 23:34]].)
 
-The hours passed as His life ebbed in pain. The earth shook, the veil of the temple was rent. From His parched lips came the words, “Father, into thy hands I commend my spirit: and having said thus, he gave up the ghost.” (Luke 23:46.)
+The hours passed as His life ebbed in pain. The earth shook, the veil of the temple was rent. From His parched lips came the words, “Father, into thy hands I commend my spirit: and having said thus, he gave up the ghost.” ([[Luke 23.46|Luke 23:46]].)
 
 It was over. His mortal life was finished. He had offered it as a ransom for all.
 
-Gone were the hopes of those who loved Him. Forgotten were the promises He had made. His body was hurriedly but tenderly placed in a borrowed tomb on the eve of the Jewish Sabbath. That Sabbath came and went. Then, early in the morning of Sunday, Mary Magdalene and other women came to the tomb. They wondered as they hurried how the stone might be rolled from the door of the sepulchre. Arriving, they saw an angel who spoke to them: “I know that ye seek Jesus, which was crucified. He is not here: for he is risen, as he said.” (Matt. 28:5–6.)
+Gone were the hopes of those who loved Him. Forgotten were the promises He had made. His body was hurriedly but tenderly placed in a borrowed tomb on the eve of the Jewish Sabbath. That Sabbath came and went. Then, early in the morning of Sunday, Mary Magdalene and other women came to the tomb. They wondered as they hurried how the stone might be rolled from the door of the sepulchre. Arriving, they saw an angel who spoke to them: “I know that ye seek Jesus, which was crucified. He is not here: for he is risen, as he said.” ([[Matthew 28.5|Matt. 28:5–6]][[Matthew 28.6|]].)
 
-It had never before happened. The empty tomb was the answer to the question of the ages. Well did Paul say: “O death, where is thy sting? O grave, where is thy victory?” (1 Cor. 15:55.)
+It had never before happened. The empty tomb was the answer to the question of the ages. Well did Paul say: “O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]].)
 
 The miracle of that resurrection morning, that first Easter Sunday, is a miracle for all mankind. It is the miracle of the power of God, whose Beloved Son gave His life to atone for the sins of all, a sacrifice of love for every son and daughter of God. In so doing He broke the seals of death.
 
@@ -57,7 +58,7 @@ We also have the testimony of one who, in the opening of this dispensation, spok
 
 “For we saw him, even on the right hand of God; and we heard the voice bearing record that he is the Only Begotten of the Father—
 
-“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” (D&C 76:22–24.)
+“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” ([[D&C 76.22|D&C 76:22–24]][[D&C 76.23|]][[D&C 76.24|]].)
 
 In solemnity, and with understanding of the gravity of that which we say, we add our witness to all the world of the reality of the Resurrection, that this same Jesus who rose from the grave ascended into heaven. We declare that in this dispensation of time He returned to restore to earth the pristine gospel which He had taught while walking among men, that with that restoration has come further certain witness of His reality, and has come also the holy priesthood, given to men, which is exercised in His name. This is our testimony, which we bear in the name of Jesus Christ, and we invite all men to hear and accept it.
 
@@ -71,53 +72,13 @@ When the lawyer tempted Him, asking, “Master, which is the great commandment i
 
 “And the second is like unto it, Thou shalt love thy neighbour as thyself.
 
-“On these two commandments hang all the law and the prophets.” (Matt. 22:36–40.)
+“On these two commandments hang all the law and the prophets.” ([[Matthew 22.36|Matt. 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].)
 
 When hearts across the world were touched by reports of starving populations in Africa, we invited members of the Church in the United States and Canada to observe a special fast day, abstaining from two meals and giving the equivalent value, or more, to aid these famine-stricken people. We at the time asked only those in North America because of a desire to move quickly, and we felt there was not sufficient time to put in place the program elsewhere. Many of you outside North America have asked that you be given a similar opportunity, and some have responded.
 
 The response of those who participated has been wonderful. It has been most gratifying. It was far more generous than at the regular monthly fast. We, as the trustees of your contributions, should like to give you an accounting of what we have done to date. Your contributions have reached the sum of $6,025,656. We indicated that any money so received would be handled through organizations of demonstrated integrity. We do not have members of the Church in the areas where the need is most acute. If we were to help quickly and effectively, we had to join hands with others, and this has been a most gratifying experience. We have come to know that there are many organizations that are doing great good in stemming the tide of hunger that threatens millions in that part of the world. We have associated ourselves in this endeavor with four of these, who have been most cooperative and helpful.
 
 Thus far we have distributed funds as follows:
-
-American Red Cross
-
-(for use by the International Committee of the Red Cross and the International League of Red Cross)
-
-$1,300,000
-
-(plus $100,000 given earlier, making a total of $1,400,000)
-
-Catholic Relief Services
-
-$1,400,000
-
-Africare
-
-$1,100,000
-
-CARE, Inc
-
-$500,000
-
-Total committed from the special fast
-
-$4,300,000
-
-Geographic Breakdown of Expenditures
-
-Ethiopia
-
-$2,850,000
-
-Sudan
-
-$825,000
-
-Other African nations
-
-$625,000
-
-$4,300,000
 
 As I indicated, we had previously given $100,000, making a total of $4,400,000.
 
@@ -137,25 +98,28 @@ In the administration of African relief we have not used a single dollar for ove
 
 May I read a few lines from two letters. The first is from the chairman of Catholic Relief Services:
 
-“I want to acknowledge the very generous contribution of The Church of Jesus Christ of Latter-day Saints ... for relief efforts in Ethiopia and the Sudan. You can be sure that these funds will be put to rapid use to help alleviate the suffering that millions face in those countries.
+“I want to acknowledge the very generous contribution of The Church of Jesus Christ of Latter-day Saints … for relief efforts in Ethiopia and the Sudan. You can be sure that these funds will be put to rapid use to help alleviate the suffering that millions face in those countries.
 
 “We are pleased to participate in an interfaith action of this kind. Such ecumenical efforts underline the compassion and concern which we hold in common when faced by such human tragedies as well as our common commitment to positive action.
 
-“This cooperation between us has a special character since the resources involved come directly from your individual members through a day of fasting. It is thus in a very heartening sense an example of people responding to people at a fundamental level of moral and practical concern. ... Sincerely yours in Christ, [signed] Daniel P. Reilly, Bishop of Norwich, chairman of the board of directors”
+“This cooperation between us has a special character since the resources involved come directly from your individual members through a day of fasting. It is thus in a very heartening sense an example of people responding to people at a fundamental level of moral and practical concern. … Sincerely yours in Christ, \[signed\] Daniel P. Reilly, Bishop of Norwich, chairman of the board of directors”
 
 And now from the president of the American Red Cross:
 
-“I cannot thank you and your members in the U.S. and Canada enough for the outstanding support you have given the Red Cross relief effort in Africa. Your most recent contribution of $800,000 brings the total donations to $1,400,000. This support ... has permitted us to provide 350,000 victims food for a month based upon the Red Cross estimate that $4 a month is needed to feed a child. ...
+“I cannot thank you and your members in the U.S. and Canada enough for the outstanding support you have given the Red Cross relief effort in Africa. Your most recent contribution of $800,000 brings the total donations to $1,400,000. This support … has permitted us to provide 350,000 victims food for a month based upon the Red Cross estimate that $4 a month is needed to feed a child. …
 
-“In Ethiopia ... on a daily average the Red Cross workers are feeding more than 500,000 people. ... Red Cross assistance is being provided to the most vulnerable groups: children under 5 years of age, pregnant women, nursing mothers and the elderly. In northern Ethiopia where few other organizations are able to work, assistance is being given to the most needy.
+“In Ethiopia … on a daily average the Red Cross workers are feeding more than 500,000 people. … Red Cross assistance is being provided to the most vulnerable groups: children under 5 years of age, pregnant women, nursing mothers and the elderly. In northern Ethiopia where few other organizations are able to work, assistance is being given to the most needy.
 
-“In neighboring Sudan the situation is deteriorating rapidly. 200,000 to 300,000 new refugees from Chad, Uganda and Ethiopia are expected by the end of May. In addition, Sudan itself is being affected by the drought with 280,000 forced to leave their homes in search of food. 15,000 children were recently found to suffer night blindness, the last step to total blindness due to poor nutrition. These children are now being fed by the Red Cross. ...
+“In neighboring Sudan the situation is deteriorating rapidly. 200,000 to 300,000 new refugees from Chad, Uganda and Ethiopia are expected by the end of May. In addition, Sudan itself is being affected by the drought with 280,000 forced to leave their homes in search of food. 15,000 children were recently found to suffer night blindness, the last step to total blindness due to poor nutrition. These children are now being fed by the Red Cross. …
 
-“You may be assured the Red Cross is honored by the trust you have placed in our relief work. All contributions given through the American Red Cross are used in African Famine Relief. No overhead or fund raising costs are being deducted. I know your members have sacrificed to make this relief possible. The trust of your fellowship will be honored. God bless you all. [Signed] Richard Schubert, President”
+“You may be assured the Red Cross is honored by the trust you have placed in our relief work. *All* contributions given through the American Red Cross are used in African Famine Relief. No overhead or fund raising costs are being deducted. I know your members have sacrificed to make this relief possible. The trust of your fellowship will be honored. God bless you all. \[Signed\] Richard Schubert, President”
 
 As you see, we have provided immediate aid to the extent of $4,400,000.
 
 Thank you for what you have done. Many contributed far more than the value of two meals. You have cast bread upon the waters, and it will return to you as you experience the peace of generous hearts.
 
 You responded in a magnificent way in sharing of your plenty with those who are destitute. We can similarly respond to a score of other challenges we face as Latter-day Saints to move forward the work of God. On this Easter morning, when we remember Him who gave His life for each of us, let us resolve, individually, to walk in obedience to the teachings and commandments of our Savior and to deal with mercy, I humbly pray as I leave with you my testimony of the divinity of this work, in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,11 +1,14 @@
 # Young Women—Titles of Liberty
-*By By Sharon G. Larsen - Second Counselor in the Young Women General Presidency*
+
+By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1998 General Conference*
 
+>*You don’t have to be Captain Moroni to make a difference. Our Father in Heaven needs you to be who you are, in your family. He planned it that way.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/04/young-women-titles-of-liberty?lang=eng)
 
-The captain of the Nephite army was angry! Amalickiah, a wicked and ambitious dissenter, was seeking to destroy the homes and families and country of the righteous Nephites. Captain Moroni took his coat and tore it to make a banner. On the coat he wrote these words, “In memory of our God, our religion, and freedom, and our peace, our wives, and our children” (Alma 46:12), and he fastened this piece of his coat on the end of a pole. He called this banner “the title of liberty.” It was hoisted upon every tower which was in all the land—a reminder to protect their families from wicked intruders.
+The captain of the Nephite army was angry! Amalickiah, a wicked and ambitious dissenter, was seeking to destroy the homes and families and country of the righteous Nephites. Captain Moroni took his coat and tore it to make a banner. On the coat he wrote these words, “In memory of our God, our religion, and freedom, and our peace, our wives, and our children” ([[Alma 46.12|Alma 46:12]]), and he fastened this piece of his coat on the end of a pole. He called this banner “the title of liberty.” It was hoisted upon every tower which was in all the land—a reminder to protect their families from wicked intruders.
 
 Young women, you are like titles of liberty as you strive to protect your families from such intruders as selfishness, harshness, anger, and strife. Your banner stands for peace and love and service to your families.
 
@@ -33,9 +36,12 @@ A few years later this same older sister turned her heart to me when I asked her
 
 There is power between sisters. There is a power between brothers and sisters. There is a power between parents and children to sustain each other and, yes, even “save” each other.
 
-Consider the lifesaving power in this story. A few years ago, twin girls Brielle and Kyrie were born prematurely to the Jackson family. They were placed in separate incubators to reduce the risk of infection. Kyrie, the larger sister at two pounds three ounces, quickly began gaining weight and calmly slept. But Brielle, who weighed only two pounds at birth, could not keep up with her. Suddenly one day Brielle’s condition became critical. The nurse tried everything she could think of to stabilize Brielle. Still Brielle squirmed and fussed as her oxygen intake plummeted and her heart rate soared. Then the nurse remembered a procedure she had heard about. She said to the worried parents, “Let me just try putting Brielle in with her sister to see if that helps.” The parents consented, and the nurse slipped the squirming baby into the incubator with the bigger sister. No sooner had the door of the incubator closed than Brielle snuggled up to Kyrie and calmed right down. Within minutes Brielle’s blood-oxygen readings were the best they had been since she was born. As she dozed, Kyrie wrapped her tiny arm around her smaller sibling (see Nancy Sheehan, “A Sister’s Helping Hand,” Reader’s Digest, May 1996, 155–56).
+Consider the lifesaving power in this story. A few years ago, twin girls Brielle and Kyrie were born prematurely to the Jackson family. They were placed in separate incubators to reduce the risk of infection. Kyrie, the larger sister at two pounds three ounces, quickly began gaining weight and calmly slept. But Brielle, who weighed only two pounds at birth, could not keep up with her. Suddenly one day Brielle’s condition became critical. The nurse tried everything she could think of to stabilize Brielle. Still Brielle squirmed and fussed as her oxygen intake plummeted and her heart rate soared. Then the nurse remembered a procedure she had heard about. She said to the worried parents, “Let me just try putting Brielle in with her sister to see if that helps.” The parents consented, and the nurse slipped the squirming baby into the incubator with the bigger sister. No sooner had the door of the incubator closed than Brielle snuggled up to Kyrie and calmed right down. Within minutes Brielle’s blood-oxygen readings were the best they had been since she was born. As she dozed, Kyrie wrapped her tiny arm around her smaller sibling (see Nancy Sheehan, “A Sister’s Helping Hand,” *Reader’s Digest,* May 1996, 155–56).
 
 The doctors and nurses had tried every medical and scientific device available to help the baby and nothing worked. Nothing could do for the struggling baby what her own sister could do for her. This is what sisters can do for each other. This is what family members can do for each other.
 
 Young women, your life is the banner that can help to protect your families from wicked intruders. We call upon you to take a stand for kindness and goodness and service to those you love most—your families. I pray, in the name of Jesus Christ, amen.
+
+
+
 

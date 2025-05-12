@@ -1,5 +1,6 @@
 # Boys Need Men
-*By Marion D. Hanks - Assistant to the Council of the Twelve*
+
+By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -27,23 +28,17 @@ Is it fair to ask what will happen if boys don’t get what they need from good 
 
 Now, brethren, if we need to do better than we are doing, and wish to do better, what program shall we follow? There is time here tonight to consider only the beginning of one answer among many, but that is a vital answer, and it needs to be understood.
 
-In chapter 36 of the book of Alma in the Book of Mormon is a remarkable lesson for every father, or for those who stand in place of a father. To his son Helaman, Alma bore a strong testimony of faith and repentance. Remember that Alma, in youthful rebelliousness, had made some serious mistakes. He wanted his sons to avoid those mistakes and to find what he, Alma, had discovered of the tender mercies of God, without the terrible, painful experiences through which he had gone. In this deeply honest account Alma bore record of the torment through which he had passed and shared with Helaman three great messages which every father would want to deliver to his own son. I deliver them tonight to my son and invite you to join me:
+In [[Alma 36.1|chapter 36 of the book of Alma]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]] in the Book of Mormon is a remarkable lesson for every father, or for those who stand in place of a father. To his son Helaman, Alma bore a strong testimony of faith and repentance. Remember that Alma, in youthful rebelliousness, had made some serious mistakes. He wanted his sons to avoid those mistakes and to find what he, Alma, had discovered of the tender mercies of God, without the terrible, painful experiences through which he had gone. In this deeply honest account Alma bore record of the torment through which he had passed and shared with Helaman three great messages which every father would want to deliver to his own son. I deliver them tonight to my son and invite you to join me:
 
-“And now, O my son Helaman, behold, thou art in thy youth, and therefore, I beseech of thee that thou wilt hear my words and learn of me; for I do know that whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions, and shall be lifted up at the last day.
-
-“And I would not that ye think that I know of myself—not of the temporal but of the spiritual, not of the carnal mind but of God.” (Alma 36:3–4.)
+1. “And now, O my son Helaman, behold, thou art in thy youth, and therefore, I beseech of thee that thou wilt hear my words and learn of me; for I do know that whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions, and shall be lifted up at the last day.“And I would not that ye think that I know of myself—not of the temporal but of the spiritual, not of the carnal mind but of God.” ([[Alma 36.3|Alma 36:3–4]][[Alma 36.4|]].)
 
 Then Alma added something, and so do I:
 
-“Yea, and ... I have labored without ceasing, that I might bring souls unto repentance; that I might bring them to taste of the exceeding joy of which I did taste; that they might also be born of God, and be filled with the Holy Ghost.
-
-“... And now behold, O my son, the Lord doth give me exceeding great joy in the fruit of my labors;
-
-“For because of the word which he has imparted unto me, behold, many have been born of God, and have tasted as I have tasted, and have seen eye to eye as I have seen; therefore they do know of these things of which I have spoken, as I do know; and the knowledge which I have is of God.” (Alma 36:24–26.)
+2. “Yea, and … I have labored without ceasing, that I might bring souls unto repentance; that I might bring them to taste of the exceeding joy of which I did taste; that they might also be born of God, and be filled with the Holy Ghost.“… And now behold, O my son, the Lord doth give me exceeding great joy in the fruit of my labors;“For because of the word which he has imparted unto me, behold, many have been born of God, and have tasted as I have tasted, and have seen eye to eye as I have seen; therefore they do know of these things of which I have spoken, as I do know; and the knowledge which I have is of God.” ([[Alma 36.24|Alma 36:24–26]][[Alma 36.25|]][[Alma 36.26|]].)
 
 But these messages were not enough. There is a third:
 
-“But behold, my son, this is not all; for ye ought to know as I do know, that inasmuch as ye shall keep the commandments of God ye shall prosper in the land; and ye ought to know also, that inasmuch as ye will not keep the commandments of God ye shall be cut off from his presence. ...” (Alma 36:30.)
+3. “But behold, my son, this is not all; for ye ought to know as I do know, that inasmuch as ye shall keep the commandments of God ye shall prosper in the land; and ye ought to know also, that inasmuch as ye will not keep the commandments of God ye shall be cut off from his presence. …” ([[Alma 36.30|Alma 36:30]].)
 
 So a father testified to his son.
 
@@ -55,13 +50,13 @@ Do you remember that many of the most powerful teachings in the Book of Mormon a
 
 Do you recall Alma’s son Corianton and the sad mistake he made? He was proud, stubborn, willing to excuse himself because many others had also sinned. Alma plainly identified the seriousness of his son’s actions, called him to repentance, taught him the meaning of Christ’s atonement, gave him a path to follow, and spoke the message of his heart:
 
-“And now the Spirit of the Lord doth say unto me: Command thy children to do good, lest they lead away the hearts of many people to destruction; therefore I command you, my son, in the fear of God, that ye refrain from your iniquities.” (Alma 39:12.)
+“And now the Spirit of the Lord doth say unto me: Command thy children to do good, lest they lead away the hearts of many people to destruction; therefore I command you, my son, in the fear of God, that ye refrain from your iniquities.” ([[Alma 39.12|Alma 39:12]].)
 
-In this marvelous lesson for sinners—and those who seek to help sinners—are some of the saddest and most moving words that I know from a faithful father who had tried to do missionary work in the very area where his son had been immoral: “... when they saw your conduct, they would not believe in my words.” (Alma 39:11.)
+In this marvelous lesson for sinners—and those who seek to help sinners—are some of the saddest and most moving words that I know from a faithful father who had tried to do missionary work in the very area where his son had been immoral: “… when they saw your conduct, they would not believe in my words.” ([[Alma 39.11|Alma 39:11]].)
 
 There are other accounts in the Book of Mormon, of course, like that of the boy who heeded his father’s teachings and who made up his mind early in his life about what he really wanted. He wrote these words (You know him!):
 
-“I Nephi, being exceeding young, nevertheless being large in stature, and also having great desires to know of the mysteries of God ... I did cry unto the Lord; and behold he did visit me, and did soften my heart that I did believe all the words which had been spoken by my father. ...” (1 Ne. 2:16.)
+“I Nephi, being exceeding young, nevertheless being large in stature, and also having great desires to know of the mysteries of God … I did cry unto the Lord; and behold he did visit me, and did soften my heart that I did believe all the words which had been spoken by my father. …” ([[1 Nephi 2.16|1 Ne. 2:16]].)
 
 Nephi performed many great tasks, and one I remember best was his help to his father who had murmured when the company lost its hunting equipment and faced starvation. Nephi, you will remember, had himself been blessed with marvelous spiritual experiences, but he loved his father so much that, instead of criticizing or taking over, he helped him regain his self-respect and confidence by going to his father and asking Lehi to inquire of God where he, Nephi, should hunt. With that support, the older man found his faith and was again able to lead his people. The story itself is a minor incident in the Book of Mormon, but the lesson is not minor. It is no small thing to reestablish confidence and faith in a man at a critical point in his life when he has failed and is full of self-doubt.
 
@@ -93,13 +88,16 @@ Jay bears a strong testimony; his attitude and outlook are amazing. He gives tal
 
 In all my life I never heard a sweeter story nor a more moving one. God bless such a father, and God bless such a son, and God bless us who have so much and who have yet a little time, that we may take another look at our boy or at the boy who needs some additional help outside his home. God bless you boys to appreciate your dads, to be patient and gracious and forgiving. God bless us all, boys and men, now and in the future, always to act in a way that will help others enjoy the special blessings God wants them to have.
 
-Fathers, priesthood leaders, young men need models. The unspoken sermon is heard most clearly and learned most strongly by those near at hand. It is not through definition or diatribe that young men acquire values. “They do not learn ethical principles; they emulate ethical (or unethical) people. They do not analyze or list attributes they wish to develop; they identify with people who seem to have them.” (John Gardner, Self-Renewal, p. 124.) What boys need is not lectures about notions of love, human relationships, or God—but to be exposed to unconditional love, unselfish service, to the reality of God in reverence, and worship, and humble prayer. And that is why they need models of what a man at his best can be. Will you young men, as I sit down, hear these words of Moroni:
+Fathers, priesthood leaders, young men need models. The unspoken sermon is heard most clearly and learned most strongly by those near at hand. It is not through definition or diatribe that young men acquire values. “They do not learn ethical principles; they emulate ethical (or unethical) people. They do not analyze or list attributes they wish to develop; they identify with people who seem to have them.” (John Gardner, *Self-Renewal,* p. 124.) What boys need is not lectures about notions of love, human relationships, or God—but to be exposed to unconditional love, unselfish service, to the reality of God in reverence, and worship, and humble prayer. And that is why they need models of what a man at his best can be. Will you young men, as I sit down, hear these words of Moroni:
 
-“Condemn [us] not because of [our] imperfection ... but rather give thanks unto God that he hath made manifest unto you our imperfections, that ye may learn to be more wise than we have been.” (Morm. 9:31.)
+“Condemn \[us\] not because of \[our\] imperfection … but rather give thanks unto God that he hath made manifest unto you our imperfections, that ye may learn to be more wise than we have been.” ([[Mormon 9.31|Morm. 9:31]].)
 
 And to those a little older, these words from ancient times:
 
-“For how shall I go up to my father and the lad [is] not with me. ...” (Gen. 44:34.)
+“For how shall I go up to my father and the lad \[is\] not with me. …” ([[Genesis 44.34|Gen. 44:34]].)
 
 In the name of Jesus Christ. Amen.
+
+
+
 

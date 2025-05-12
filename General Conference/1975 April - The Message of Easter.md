@@ -1,5 +1,6 @@
 # The Message of Easter
-*By Franklin D. Richards - Assistant to the Council of the Twelve*
+
+By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -29,43 +30,43 @@ Through modern revelation we learn that “the spirit and the body are the soul 
 
 “And the resurrection from the dead is the redemption of the soul.
 
-“And the redemption of the soul is through him that quickeneth all things.” (D&C 88:15–17.)
+“And the redemption of the soul is through him that quickeneth all things.” ([[D&C 88.15|D&C 88:15–17]][[D&C 88.16|]][[D&C 88.17|]].)
 
 As a result of the Fall, Adam and Eve suffered the penalty of spiritual and physical death. But as Adam said:
 
 “Blessed be the name of God, for because of my transgression my eyes are opened, and in this life I shall have joy, and again in the flesh I shall see God.
 
-“And Eve, his wife, heard all these things and was glad, saying: Were it not for our transgression we never should have had seed, and never should have known good and evil, and the joy of our redemption, and the eternal life which God giveth unto all the obedient.” (Moses 5:10–11.)
+“And Eve, his wife, heard all these things and was glad, saying: Were it not for our transgression we never should have had seed, and never should have known good and evil, and the joy of our redemption, and the eternal life which God giveth unto all the obedient.” ([[Moses 5.10|Moses 5:10–11]][[Moses 5.11|]].)
 
 The Fall thus provided a means whereby mankind can choose between good and evil and thus prepare for life after death. What we do here, then, determines to a considerable extent what we will be doing in the life after death.
 
 The Lord has told us that “whatever principle of intelligence we attain unto in this life, it will rise with us in the resurrection.
 
-“And if a person gains more knowledge and intelligence in this life through his diligence and obedience than another, he will have so much the advantage in the world to come.” (D&C 130:18–19.)
+“And if a person gains more knowledge and intelligence in this life through his diligence and obedience than another, he will have so much the advantage in the world to come.” ([[D&C 130.18|D&C 130:18–19]][[D&C 130.19|]].)
 
-And, “We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.” (A of F 1:3.)
+And, “We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.” ([[Articles of Faith 1.3|A of F 1:3]].)
 
 It was Christ’s right to be the Redeemer of mankind, and though it required sacrifice beyond our comprehension, he made the sacrifice voluntarily. He said:
 
 “Therefore doth my Father love me, because I lay down my life, that I might take it again.
 
-“No man taketh it from me, but I lay it down of myself. I have power to lay it down and I have power to take it again. This commandment have I received of my Father.” (John 10:17–18.)
+“No man taketh it from me, but I lay it down of myself. I have power to lay it down and I have power to take it again. This commandment have I received of my Father.” ([[John 10.17|John 10:17–18]][[John 10.18|]].)
 
 The Savior had a consuming desire to do his Father’s will and a great love for his Father’s children, whose Redeemer he became. Thus Jesus not only atoned for Adam’s transgression but for the sins of all mankind. However, we must remember that redemption from individual sins depends upon individual effort.
 
 Matthew relates that “the graves were opened; and many bodies of the saints which slept arose,
 
-“And came out of the graves after his [the Savior’s] resurrection, and went into the holy city, and appeared unto many.” (Matt. 27:52–53.)
+“And came out of the graves after his \[the Savior’s\] resurrection, and went into the holy city, and appeared unto many.” ([[Matthew 27.52|Matt. 27:52–53]][[Matthew 27.53|]].)
 
 Today the resurrection is real to us for similar reasons—Christ and some of the ancient saints have appeared in this dispensation as resurrected beings.
 
 From a revelation to the Prophet Joseph Smith we learn that “there are two kinds of beings in heaven, namely: Angels, who are resurrected personages, having bodies of flesh and bones—
 
-“For instance, Jesus said: Handle me and see, for a spirit hath not flesh and bones, as ye see me have.
+“For instance, Jesus said: *Handle me and see, for a spirit hath not flesh and bones, as ye see me have.*
 
-“Secondly: the spirits of just men made perfect, they who are not [yet] resurrected, but inherit the same glory.” (D&C 129:1–3.)
+“Secondly: the spirits of just men made perfect, they who are not \[yet\] resurrected, but inherit the same glory.” ([[D&C 129.1|D&C 129:1–3]][[D&C 129.2|]][[D&C 129.3|]].)
 
-That Christ’s resurrection was truly a reality was clearly demonstrated in this dispensation in Joseph Smith’s first vision when he said, “I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—This is My Beloved Son. Hear Him!” (JS—H 1:17.)
+That Christ’s resurrection was truly a reality was clearly demonstrated in this dispensation in Joseph Smith’s first vision when he said, “I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.17|JS—H 1:17]].)
 
 This testimony is again given by the Prophet Joseph Smith in a vision to him and Sidney Rigdon wherein the Prophet relates:
 
@@ -73,17 +74,17 @@ This testimony is again given by the Prophet Joseph Smith in a vision to him and
 
 “For we saw him, even on the right hand of God; and we heard the voice bearing record that he is the Only Begotten of the Father—
 
-“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” (D&C 76:22–24.)
+“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” ([[D&C 76.22|D&C 76:22–24]][[D&C 76.23|]][[D&C 76.24|]].)
 
-The Savior appeared to Joseph Smith as he did to the apostles in the upper room when he invited them to handle him and see, lest they think him to be a spirit. He said, “A spirit hath not flesh and bones, as ye see me have.” (Luke 24:39.)
+The Savior appeared to Joseph Smith as he did to the apostles in the upper room when he invited them to handle him and see, lest they think him to be a spirit. He said, “A spirit hath not flesh and bones, as ye see me have.” ([[Luke 24.39|Luke 24:39]].)
 
 Yes, the message of Easter time is that Christ is alive today, that many of the saints have been resurrected, and that all men will enjoy a literal resurrection of the earthly body with the spirit.
 
 Ancient and modern scriptures make it clear that all men will be resurrected, but only those who accept Jesus Christ and his gospel and keep his commandments will receive the greater blessings of eternal salvation.
 
-The Savior has indicated that “the dead [shall] awake, for their graves shall be opened, and they shall come forth—yea, even all.
+The Savior has indicated that “the dead \[shall\] awake, for their graves shall be opened, and they shall come forth—yea, even all.
 
-“And the righteous shall be gathered on my right hand unto eternal life; and the wicked on my left hand will I be ashamed to own before the Father.” (D&C 29:26–27.)
+“And the righteous shall be gathered on my right hand unto eternal life; and the wicked on my left hand will I be ashamed to own before the Father.” ([[D&C 29.26|D&C 29:26–27]][[D&C 29.27|]].)
 
 One can see the significance and purpose of this life with the perspective the gospel plan gives.
 
@@ -93,9 +94,12 @@ By the power of the Holy Ghost I bear you my witness that I know that God the Fa
 
 And I know that Joseph Smith was the instrument in the hands of the Lord in restoring the gospel in its fulness. And it was through the Prophet Joseph Smith that the power to act in the name of God was restored to this earth by resurrected beings.
 
-I also testify that President Spencer W. Kimball is a prophet of God, acting under divine guidance in administering the affairs of the kingdom of God on this earth.
+I also testify that President Spencer W. Kimball is a prophet of God, acting under divine guidance in administering the affairs of the kingdom of God on this earth.
 
-The Lord has said that it is his “work and ... glory—to bring to pass the immortality and eternal life of man.” (Moses 1:39.) And he has said, “If you keep my commandments and endure to the end you shall have eternal life, which gift is the greatest of all the gifts of God.” (D&C 14:7.)
+The Lord has said that it is his “work and … glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].) And he has said, “If you keep my commandments and endure to the end you shall have eternal life, which gift is the greatest of all the gifts of God.” ([[D&C 14.7|D&C 14:7]].)
 
 With the understanding of the gospel which we have, may we all work for eternal life, I pray in the name of Jesus Christ. Amen.
+
+
+
 

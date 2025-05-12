@@ -1,5 +1,6 @@
 # A Witness and a Blessing
-*By Joseph Fielding Smith - President of the Church*
+
+By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -36,4 +37,7 @@ Our Father, pour out thy Spirit upon these thy children that they may be preserv
 And let thy preserving care be with all those who seek thy face and who walk before thee in the integrity of their souls, that they may be lights to the world, instruments in thy hands to bring to pass thy purposes on earth.
 
 And may thy Spirit be with us now and forever, I pray, in the name of the Lord Jesus Christ. Amen.
+
+
+
 

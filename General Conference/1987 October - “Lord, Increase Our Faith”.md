@@ -1,5 +1,6 @@
 # “Lord, Increase Our Faith”
-*By Gordon B. Hinckley - First Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1987 General Conference*
 
@@ -31,9 +32,9 @@ We held a sacrament and testimony meeting with them. We embraced them and said g
 
 I shall never forget him. He is poor in the things of the world. But he is educated—a teacher by profession. I know little of his circumstances. But this I know—when we talked with him, the fire of faith burned in his heart, and our own faith was quickened also.
 
-As we traveled from that scene and there was time to meditate, I wished that faith of his kind was found more widely, both among us and among others. His example has provided a text for me. It is found in the fifth verse of the seventeenth chapter of Luke. Jesus had been teaching his disciples by precept and parable. “And the apostles said unto the Lord, Increase our faith” (italics added).
+As we traveled from that scene and there was time to meditate, I wished that faith of his kind was found more widely, both among us and among others. His example has provided a text for me. It is found in the fifth verse of the seventeenth chapter of Luke. Jesus had been teaching his disciples by precept and parable. “And the apostles said unto the Lord, *Increase our faith*” (italics added).
 
-This is my prayer for all of us—“Lord, increase our faith.” Increase our faith to bridge the chasms of uncertainty and doubt. As most of you know, in the last four or five years we have passed through an interesting episode in the history of the Church. There came into our hands two letters that were seized upon by the media when we announced them. They were trumpeted across much of the world as documents that would challenge the authenticity of the Church. In announcing them we stated that they really had nothing to do with the essentials of our history. But some few of little faith, who seemingly are always quick to believe the negative, accepted as fact the pronouncements and predictions of the media. I recall a letter from an individual who asked that his name be taken from the records of the Church because he could no longer believe in a church that had to do with an experience with a salamander.
+This is my prayer for all of us—“Lord, Increase our faith.” Increase our faith to bridge the chasms of uncertainty and doubt. As most of you know, in the last four or five years we have passed through an interesting episode in the history of the Church. There came into our hands two letters that were seized upon by the media when we announced them. They were trumpeted across much of the world as documents that would challenge the authenticity of the Church. In announcing them we stated that they really had nothing to do with the essentials of our history. But some few of little faith, who seemingly are always quick to believe the negative, accepted as fact the pronouncements and predictions of the media. I recall a letter from an individual who asked that his name be taken from the records of the Church because he could no longer believe in a church that had to do with an experience with a salamander.
 
 Now, as you know, these letters, together with other documents, have been acknowledged by their forger to be total frauds and part of an evil and devious design which culminated in the murder of two individuals.
 
@@ -59,7 +60,7 @@ A few Sundays back we held a regional conference in Tokyo. The spacious hall was
 
 We had a similar experience in Hong Kong, where there are now four stakes of Zion.
 
-Then in Seoul, Korea, my heart was touched as we entered the largest hall in that great city to find every seat taken by members of The Church of Jesus Christ of Latter-day Saints and their invited guests. A magnificent choir of 320 voices opened with the strains “Oh, how lovely was the morning” (“Joseph Smith’s First Prayer,” Hymns, 1985, no. 26). It was a moving expression of the first vision of the Prophet Joseph Smith.
+Then in Seoul, Korea, my heart was touched as we entered the largest hall in that great city to find every seat taken by members of The Church of Jesus Christ of Latter-day Saints and their invited guests. A magnificent choir of 320 voices opened with the strains “Oh, how lovely was the morning” (“Joseph Smith’s First Prayer,” *Hymns,* 1985, no. 26). It was a moving expression of the first vision of the Prophet Joseph Smith.
 
 I had known South Korea in its days of poverty and reconstruction following the terrible war. When first I went there, we had six missionaries in Seoul and two in Pusan. Some were ill with hepatitis. Today there are four thriving missions in that land, with some six hundred missionaries. Many of the missionaries are sons and daughters of Korea. They include bright and beautiful young women in whose hearts burns the light of faith. They include young men who leave schooling for a season in order to serve missions. These young men are under tremendous pressures because of military requirements as well as educational demands, but they have faith in their hearts.
 
@@ -69,13 +70,13 @@ I felt a spirit in that congregation three weeks ago that touched me to the dept
 
 These are people I love, and I love them because of their faith. They are intelligent and well educated. They are hardworking and progressive. They are humble and prayerful. They are an example to others across the world.
 
-I say again, as did the Apostles to Jesus, “Lord, increase our faith.” Grant us faith to look beyond the problems of the moment to the miracles of the future. Give us faith to pay our tithes and offerings and put our trust in Thee, the Almighty, to open the windows of heaven as Thou hast promised. Give us faith to do what is right and let the consequence follow.
+I say again, as did the Apostles to Jesus, “Lord, Increase our faith.” Grant us faith to look beyond the problems of the moment to the miracles of the future. Give us faith to pay our tithes and offerings and put our trust in Thee, the Almighty, to open the windows of heaven as Thou hast promised. Give us faith to do what is right and let the consequence follow.
 
 Grant us faith when storms of adversity beat us down and drive us to the ground. In seasons of sickness may our confidence wax strong in the powers of the priesthood. May we follow the counsel of James:
 
 “Is any sick among you? let him call for the elders of the church; and let them pray over him, anointing him with oil in the name of the Lord:
 
-“And the prayer of faith shall save the sick, and the Lord shall raise him up” (James 5:14–15; italics added).
+“And the *prayer of faith* shall save the sick, and the Lord shall raise him up” ([[James 5.14|James 5:14–15]][[James 5.15|]]; italics added).
 
 He who will follow me in speaking, President Howard W. Hunter, is a shining example of the efficacy of such faith.
 
@@ -89,7 +90,7 @@ Lord, increase our faith in one another, and in ourselves, and in our capacity t
 
 This, my brothers and sisters, is my prayer.
 
-There is a simple and moving story in the book of 1 Kings. Permit me to read you a few lines:
+There is a simple and moving story in the book of 1 Kings. Permit me to read you a few lines:
 
 “And Elijah the Tishbite, who was of the inhabitants of Gilead, said unto Ahab, As the Lord God of Israel liveth, before whom I stand, there shall not be dew nor rain these years, but according to my word.
 
@@ -99,9 +100,12 @@ There is a simple and moving story in the book of 1 Kings. Permit me to read you
 
 “And it shall be, that thou shalt drink of the brook; and I have commanded the ravens to feed thee there.
 
-“So he [Elijah] went and did according unto the word of the Lord” (1 Kgs. 17:1–5; italics added).
+“So he \[Elijah\] *went and did* according unto the word of the Lord” ([[1 Kings 17.1|1 Kgs. 17:1–5]][[1 Kings 17.2|]][[1 Kings 17.3|]][[1 Kings 17.4|]][[1 Kings 17.5|]]; italics added).
 
-There was no argument. There was no discussion. There was no rationalizing on the part of Elijah. He simply “went and did.”
+There was no argument. There was no discussion. There was no rationalizing on the part of Elijah. He simply *“went and did.”*
 
 Father, increase our faith. Of all our needs, I think the greatest is an increase in faith. And so, dear Father, increase our faith in Thee, and in Thy Beloved Son, in Thy great eternal work, in ourselves as Thy children, and in our capacity to go and do according to Thy will, and Thy precepts, I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

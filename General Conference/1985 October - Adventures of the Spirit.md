@@ -1,23 +1,24 @@
 # Adventures of the Spirit
-*By Robert E. Wells - Of the First Quorum of the Seventy*
+
+By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1985/10/adventures-of-the-spirit?lang=eng)
 
-I love the spirit of adventure in life, but I love more the adventures of the spirit. I am comfortable with the positive connotations of the word adventure. I like Webster’s definition of adventure: “An exciting or remarkable experience”; and of adventurous: “disposed ... to cope with the new and unknown.” (Webster’s Ninth New Collegiate Dictionary.)
+I love the spirit of adventure in life, but I love more the adventures of the spirit. I am comfortable with the positive connotations of the word *adventure.* I like Webster’s definition of *adventure:* “An exciting or remarkable experience”; and of *adventurous:* “disposed … to cope with the new and unknown.” *(Webster’s Ninth New Collegiate Dictionary.)*
 
 In my life I have enjoyed many so-called adventures, such as hunting exotic game—jaguars, alligators—waterskiing on rivers full of man-eating piranha fish—an expedition into the danger-filled Amazon jungle—looking for gold plates with a religious history on them—single-engine flights in my own airplanes the length of the hemisphere, the width of the continents—even this Miss America year has been an exciting, Cinderella-like adventure.
 
-One modern philosopher says, “It is an amazing adventure to be born upon this wandering island in the sky and it is an adventure to leave it when death calls. To go to school, to make friends, to marry, to rear children, to face through life the swift changes of circumstances that no man can certainly predict an hour ahead.” (Vital Quotations, comp. Roy Emerson West, Salt Lake City: Bookcraft, 1968, pp. 203–204.)
+One modern philosopher says, “It is an amazing adventure to be born upon this wandering island in the sky and it is an adventure to leave it when death calls. To go to school, to make friends, to marry, to rear children, to face through life the swift changes of circumstances that no man can certainly predict an hour ahead.” (*Vital Quotations,* comp. Roy Emerson West, Salt Lake City: Bookcraft, 1968, pp. 203–204.)
 
-I am grateful that the scriptures encourage us to discover new horizons, to have adventures of the mind and study things “in heaven and in the earth, and under the earth; things which have been, things which are, things which must shortly come to pass; ... the perplexities of the nations ... ; and a knowledge also of countries and of kingdoms.” (D&C 88:79.)
+I am grateful that the scriptures encourage us to discover new horizons, to have adventures of the mind and study things “in heaven and in the earth, and under the earth; things which have been, things which are, things which must shortly come to pass; … the perplexities of the nations … ; and a knowledge also of countries and of kingdoms.” ([[D&C 88.79|D&C 88:79]].)
 
-And why should we have an adventurous mind or an adventurous spirit? The Lord says, “That ye may be prepared in all things ... [1] to magnify the calling whereunto I have called you, and [2] the mission with which I have commissioned you.” (D&C 88:80; italics added.)
+And why should we have an adventurous mind or an adventurous spirit? The Lord says, “That ye may be prepared in *all* things … \[1\] to magnify the calling whereunto I have called you, and \[2\] the mission with which I have commissioned you.” ([[D&C 88.80|D&C 88:80]]; italics added.)
 
 Of the many adventures I have enjoyed in my life, the greatest have been the soul-stirring missionary adventures.
 
-Let me encourage you faithful married couples without children at home to go on missions. The Lord needs you out in the mission field. Forget your fears. We don’t expect you to do everything the young missionaries do. In fact, I was in Idaho trying to eliminate the fears of some high priests, and I said, “You retired couples don’t have to memorize scriptures like the young missionaries, you don’t have to memorize any presentations unless you want to.” I told them, “You don’t have to get up early in the morning like the young missionaries do to study, and if it is raining or snowing, you don’t have to go outside until you feel up to it. ...” At that point a fellow down in the middle shot up his hand and said, “When can I go? That’s a better life than I’ve got now!”
+Let me encourage you faithful married couples without children at home to go on missions. The Lord needs you out in the mission field. Forget your fears. We don’t expect you to do everything the young missionaries do. In fact, I was in Idaho trying to eliminate the fears of some high priests, and I said, “You retired couples don’t have to memorize scriptures like the young missionaries, you don’t have to memorize any presentations unless you want to.” I told them, “You don’t have to get up early in the morning like the young missionaries do to study, and if it is raining or snowing, you don’t have to go outside until you feel up to it. …” At that point a fellow down in the middle shot up his hand and said, “When can I go? That’s a better life than I’ve got now!”
 
 Joe and Zella Wendel went on a mission. Her legs were bothering her, and they got worse in the mission field instead of better. She wrote home, “I thought we were just to work in the office, but now we find we are to proselyte also. But my knees are so bad we just can’t go out looking for people, so we are praying very hard to find someone right here in our apartment building.” In three months they had three baptisms—new move-ins from their apartment building! Those missionaries were my parents.
 
@@ -31,9 +32,9 @@ Let me tell you about two sister missionaries who called at a home one morning b
 
 To which the husband exclaimed, “Next week?” He walked to the door, locked it, put the key in his pocket, and said, “You’re not leaving here till you’ve told us all you know about Joseph Smith and this restored gospel!” They were there all day. The family asked for baptism that same evening.
 
-Now you young men, unmarried, nineteen to twenty-six (eighteen outside the United States), healthy and worthy—from the time of the recent prophets the spiritual adventure of a mission has been emphasized as a priesthood responsibility of such priority that again today we stress, your mission comes before marriage, education, professional opportunities, scholarships, sports, cars, or girls.
+Now you young men, unmarried, nineteen to twenty-six (eighteen outside the United States), healthy and worthy—from the time of the recent prophets the spiritual adventure of a mission has been emphasized as a priesthood responsibility of such priority that again today we stress, *your mission comes before marriage, education, professional opportunities, scholarships, sports, cars, or girls.*
 
-President Kimball said, “Should every young man fill a mission? The answer has been given by the Lord. It is yes. Every young man should fill a mission.” President Kimball then equated this instruction of going on a mission with the commandments of paying tithing, of observing the Sabbath, of marrying in the temple. (in Regional Representatives’ seminar, 4 Apr. 1974.)
+President Kimball said, “Should *every* young man fill a mission? The answer has been given by the Lord. It is *yes. Every* young man should fill a mission.” President Kimball then equated this instruction of going on a mission with the commandments of paying tithing, of observing the Sabbath, of marrying in the temple. (In Regional Representatives’ seminar, 4 Apr. 1974.)
 
 In twenty-four months you will have twenty-four years’ worth of spiritual adventures. You will see people change; soften; become more humble, more obedient; have their prayers answered; and come to a knowledge that our message is true.
 
@@ -63,19 +64,19 @@ The missionary has his own voyages of discovery into the realms of the Spirit, a
 
 For example:
 
-A verse of the scriptures that glows in your mind, like Joseph reading in James;
+- A verse of the scriptures that glows in your mind, like Joseph reading in James;
 
-A prayer the Lord responds to with an outpouring of His love so intense that a yes or no answer doesn’t really matter;
+- A prayer the Lord responds to with an outpouring of His love so intense that a yes or no answer doesn’t really matter;
 
-A hymn with poetic words of condensed spirituality that causes the soul to soar heavenward;
+- A hymn with poetic words of condensed spirituality that causes the soul to soar heavenward;
 
-An unselfish act of service which leaves you feeling as if you were serving perhaps even the Savior Himself;
+- An unselfish act of service which leaves you feeling as if you were serving perhaps even the Savior Himself;
 
-The sacrament covenant to take Christ’s name upon oneself pierces the soul so deeply that Christ’s atonement truly becomes a personal, saving experience, a rebirth;
+- The sacrament covenant to take Christ’s name upon oneself pierces the soul so deeply that Christ’s atonement truly becomes a personal, saving experience, a rebirth;
 
-A newly placed Book of Mormon causing an inquisitive person to read half the night in an exciting discovery of the newfound witness for Christ;
+- A newly placed Book of Mormon causing an inquisitive person to read half the night in an exciting discovery of the newfound witness for Christ;
 
-The bad men who become good, the good men and women who become better, the great people who become greater and more Christlike through the gospel.
+- The bad men who become good, the good men and women who become better, the great people who become greater and more Christlike through the gospel.
 
 Be instruments in His hands.
 
@@ -88,4 +89,7 @@ God lives and loves us. He is in His heaven.
 Jesus lives and loves us. Resurrected, glorified, exalted, He stands physically at the head of this church which bears His name. His spokesman is a living prophet, and everything that we teach is true.
 
 As a witness, I testify of it in the name of Jesus Christ, amen.
+
+
+
 

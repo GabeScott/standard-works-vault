@@ -1,13 +1,14 @@
 # What Is a Teacher?
-*By Paul H. Dunn - Of the Seventy*
+
+By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1971/10/what-is-a-teacher?lang=eng)
 
-We have been taught well in this great conference, my brothers and sisters, and I have been thinking a great deal about teaching and great teachers. Last evening, Elder Marion D. Hanks brought to our attention the situation concerning his departed cousin, a Brother [Ivan] Frame, who had a deep impact on humanity. He mentioned that one of the great tributes paid at his funeral was that every boy should have a Brother Frame in his life.
+We have been taught well in this great conference, my brothers and sisters, and I have been thinking a great deal about teaching and great teachers. Last evening, Elder Marion D. Hanks brought to our attention the situation concerning his departed cousin, a Brother \[Ivan\] Frame, who had a deep impact on humanity. He mentioned that one of the great tributes paid at his funeral was that every boy should have a Brother Frame in his life.
 
-I have thought about that, and I thank God repeatedly for such an individual in my life. He was a 78-year-old man who was assigned to be a priests adviser to six of us who were in our struggling teens and challenged with the future. His name was Charles B. Stewart. His son is here today as president of the great Tabernacle Choir.
+I have thought about that, and I thank God repeatedly for such an individual in my life. He was a 78-year-old man who was assigned to be a priests adviser to six of us who were in our struggling teens and challenged with the future. His name was Charles B. Stewart. His son is here today as president of the great Tabernacle Choir.
 
 I don’t know what you thought about a 78-year-old man when you were 16, but some of us questioned the wisdom of our bishop, for we thought he had literally brought Moses back.
 
@@ -53,17 +54,17 @@ The teacher is a reformer. He seeks to improve the handicaps that weaken and des
 
 The teacher is a believer. He has an abiding faith in God and in the improvability of the race. It was James Truslow Adams who said, “There are obviously two educations. One should teach us how to make a living, and the other how to live.”
 
-We are engaged in teaching people how to live.
+*We* are engaged in teaching people how to live.
 
 Elbert Hubbard said, “You can’t teach anybody anything. You can only help him find himself.”
 
 That was the genius of the Savior. He taught us divine principles we could apply to ourselves and thus solve our personal problems. The Savior had no peer as a teacher.
 
-For just a moment, let me walk you through the fifteenth chapter of Luke, wherein this great master teacher tells us how to solve problems that we all face. Luke records that there drew near him a great multitude, the publicans, the sinners, the Pharisees, the Sadducees, and he spake unto them this parable, saying: “What man of you, having an hundred sheep, if he lose one of them, doth not leave the ninety and nine ... and go after that which is lost.”
+For just a moment, let me walk you through the fifteenth chapter of Luke, wherein this great master teacher tells us how to solve problems that we all face. Luke records that there drew near him a great multitude, the publicans, the sinners, the Pharisees, the Sadducees, and he spake unto them this parable, saying: “What man of you, having an hundred sheep, if he lose one of them, doth not leave the ninety and nine … and go after that which is lost.”
 
-Then he tells about the rejoicing moment when the sheep is found. And then, without even a pause, he goes into a second parable like unto it, which says: “Either what woman having ten pieces of silver, if she lose one piece, doth not light a candle, and sweep the house, and seek diligently till she find it.” And she too rejoices with her neighbors. (Luke 15:4, 8.)
+Then he tells about the rejoicing moment when the sheep is found. And then, without even a pause, he goes into a second parable like unto it, which says: “Either what woman having ten pieces of silver, if she lose one piece, doth not light a candle, and sweep the house, and seek diligently till she find it.” And she too rejoices with her neighbors. ([[Luke 15.4|Luke 15:4, 8]][[Luke 15.8|]].)
 
-And then he goes into that parable of parables, the Prodigal Son: “A certain man had two sons: And the younger of them said to his father, ‘Father, give me the portion of goods that falleth to me.’” And we recognize how with his agency he squandered it all. (See Luke 15:11–32.)
+And then he goes into that parable of parables, the Prodigal Son: “A certain man had two sons: And the younger of them said to his father, ‘Father, give me the portion of goods that falleth to me.’” And we recognize how with his agency he squandered it all. (See [[Luke 15.11|Luke 15:11–32]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]].)
 
 I used to wonder, as a teacher so-called, why the Savior would spend time citing three parables about things that get lost. And then one day it dawned. People do get lost in various ways, and here in this great chapter of Luke we find the Savior counseling how to recover them.
 
@@ -71,11 +72,11 @@ Permit me this observation: The Savior might say to us today, if he were to teac
 
 Next, he talks about lost coins. This whole conference has talked about precious coins that become lost—young people, if you please. And there are those of us who are the responsible agents who, like the woman of this great teaching parable, let these priceless gems slip through our fingers. Certainly we wouldn’t recover this kind of lost article the way we would a sheep. He would say love, care, and attention would be the process used to recover lost coins (or people).
 
-And then the great parable of the Prodigal Son, with the Savior saying that there are those who get lost by choice; and in the concluding of that parable, he says: “And when he came to himself he [the Prodigal Son] said, How many hired servants of my father’s have bread enough and to spare. ...” (Luke 15:17.)
+And then the great parable of the Prodigal Son, with the Savior saying that there are those who get lost by choice; and in the concluding of that parable, he says: “And when he came to himself he \[the Prodigal Son\] said, How many hired servants of my father’s have bread enough and to spare. …” ([[Luke 15.17|Luke 15:17]].)
 
 There are those who get lost because their free agency takes them down that path. We can’t do a lot at some points to recover this kind of a person except open our arms and our church doors and let them know they are wanted. Teachers and advisers are really needed here. But note: he came to himself. He repented, sought forgiveness, and came home. Many people are like the Prodigal Son.
 
-Let me just say as a concluding thought that this is a positive gospel. We ought to be the happiest people in the world. The gospel of Jesus Christ is a great building force. It teaches people to be happy and to always wear a smile. But sometimes we neglect the simple things that mean the most. Most people in the rush of modern life never know real friendship and the warmth that the gospel and even a smile can bring.
+Let me just say as a concluding thought that this is a *positive* gospel. We ought to be the happiest people in the world. The gospel of Jesus Christ is a great building force. It teaches people to be happy and to always wear a smile. But sometimes we neglect the simple things that mean the most. Most people in the rush of modern life never know real friendship and the warmth that the gospel and even a smile can bring.
 
 An acquaintance of mine recently said to me as we walked down the street and noticed a man with a sour face, “He looks like he was weaned on lemon juice and a dill pickle.”
 
@@ -89,23 +90,18 @@ There are forty-three other parables in the New Testament that teach us how to h
 
 My testimony is that the gospel is true and that it works.
 
-I gave a beggar from my store of wealth
-
-Some gold. He spent the shining ore,
-
-And came again, and yet again,
-
-Still cold and hungry, as before.
-
-I gave a thought, and through that thought of mine
-
-He found himself, the man, supreme, divine—
-
-Fed, clothed, and crowned with blessings manifold
-
-And now he begs no more.
-
-(Adapted from “The True Gift,” Author Unknown)
+>I gave a beggar from my store of wealth
+>Some gold. He spent the shining ore,
+>And came again, and yet again,
+>Still cold and hungry, as before.
+>I gave a thought, and through that thought of mine
+>He found himself, the man, supreme, divine—
+>Fed, clothed, and crowned with blessings manifold
+>And now he begs no more.
+>
 
 Such is the gospel of Jesus Christ, to which I bear solemn testimony in the name of Jesus Christ. Amen.
+
+
+
 

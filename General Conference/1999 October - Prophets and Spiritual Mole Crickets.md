@@ -1,17 +1,20 @@
 # Prophets and Spiritual Mole Crickets
-*By Neil L. Andersen - Of the Seventy*
+
+By Elder Neil L. Andersen - *Of the Seventy*
 
 *Given in the October session of the 1999 General Conference*
+
+>*In modern Israel, serving the Lord means carefully following the Prophets.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1999/10/prophets-and-spiritual-mole-crickets?lang=eng)
 
 I express my love to you this morning. I speak to the devoted and testimony-filled members of the Church spread across the nations of the earth. The very fact that on this beautiful Saturday morning you are here in the Tabernacle, or watching this conference in some other darkened room in the middle of the day, speaks to your discipleship. You are serious about what you believe, and it shows in your life.
 
-One admonition that has been a strength to me is the powerful declaration of the Prophet Joshua, “Choose you this day whom ye will serve; ... but as for me and my house, we will serve the Lord” (Josh. 24:15).
+One admonition that has been a strength to me is the powerful declaration of the Prophet Joshua, “Choose you this day whom ye will serve; … but as for me and my house, we will serve the Lord” ([[Joshua 24.15|Josh. 24:15]]).
 
-The words of Joshua ring with such relevance today, and yet how we demonstrate our decision to serve the Lord seems to change with each generation. Thirty-five hundred years ago as Joshua spoke, it meant leaving behind false gods, going to battle against the Canaanites, and following with sharp attention the words of the Prophet. We can almost hear the whining of the skeptics as Joshua announced his battle plans for taking the city of Jericho. First, he said, they would quietly, without any speaking, circle the city one time for each of six days. Then on the seventh day they would compass the city seven times. Following, the priests would blow the trumpets, and at that time all the people would shout with a great shout. Then, Joshua assured them, the walls would come down (see Josh. 6). When the walls came down, the skeptics were quiet.
+The words of Joshua ring with such relevance today, and yet how we demonstrate our decision to serve the Lord seems to change with each generation. Thirty-five hundred years ago as Joshua spoke, it meant leaving behind false gods, going to battle against the Canaanites, and following with sharp attention the words of the prophet. We can almost hear the whining of the skeptics as Joshua announced his battle plans for taking the city of Jericho. First, he said, they would quietly, without any speaking, circle the city one time for each of six days. Then on the seventh day they would compass the city seven times. Following, the priests would blow the trumpets, and at that time all the people would shout with a great shout. Then, Joshua assured them, the walls would come down. (See [[Joshua 6.1|Josh. 6]][[Joshua 6.2|]][[Joshua 6.3|]][[Joshua 6.4|]][[Joshua 6.5|]][[Joshua 6.6|]][[Joshua 6.7|]][[Joshua 6.8|]][[Joshua 6.9|]][[Joshua 6.10|]][[Joshua 6.11|]][[Joshua 6.12|]][[Joshua 6.13|]][[Joshua 6.14|]][[Joshua 6.15|]][[Joshua 6.16|]][[Joshua 6.17|]][[Joshua 6.18|]][[Joshua 6.19|]][[Joshua 6.20|]][[Joshua 6.21|]][[Joshua 6.22|]][[Joshua 6.23|]][[Joshua 6.24|]][[Joshua 6.25|]][[Joshua 6.26|]][[Joshua 6.27|]].) When the walls came down, the skeptics were quiet.
 
-In our world today, one thing has not changed since Joshua spoke: Those who choose to serve the Lord will always listen attentively and specifically to the Prophet. In modern Israel, serving the Lord means carefully following the Prophets.
+In our world today, one thing has not changed since Joshua spoke: Those who choose to serve the Lord will always listen attentively and specifically to the prophet. In modern Israel, serving the Lord means carefully following the prophets.
 
 The challenges that face us and our families as disciples of Christ are somewhat different than those of Joshua’s Israelites. Let me illustrate with an experience. Our family lived for many years in the state of Florida. Because Florida has a high concentration of sand, lawns there are planted with a large broadleaf grass we call Saint Augustine. A formidable enemy of a Florida lawn is a small, brown insect called a mole cricket.
 
@@ -29,9 +32,9 @@ We live in a wonderful day. The blessings of our generation are lush and beautif
 
 Yet in these days of much beauty, our challenges in choosing to serve the Lord are more subtle than those of former days, but without question they are as spiritually pervasive. There are spiritual mole crickets that burrow under our protective walls and invade our delicate roots. Many of these insects of wickedness appear small, at times almost invisible. Yet if we do not combat them, they will do damage and attempt to destroy that which is most precious to us.
 
-The warnings of the Prophets and Apostles lead them ever and always to speak of the home and family. Let me demonstrate the warning voice of the Prophets. On February 11 of this year, the First Presidency, with the support of the Quorum of the Twelve Apostles, sent to every member of the Church a letter of counsel concerning our families. Let me read you just two sentences from this letter:
+The warnings of the prophets and apostles lead them ever and always to speak of the home and family. Let me demonstrate the warning voice of the prophets. On February 11 of this year, the First Presidency, with the support of the Quorum of the Twelve Apostles, sent to every member of the Church a letter of counsel concerning our families. Let me read you just two sentences from this letter:
 
-“We counsel parents and children to give highest priority to family prayer, family home evening, gospel study and instruction, and wholesome family activities. However worthy and appropriate other demands or activities may be, they must not be permitted to displace the divinely appointed duties that only parents and families can adequately perform” (“Policies, Announcements, and Appointments,” Ensign, June 1999, 80).
+“We counsel parents and children to give highest priority to family prayer, family home evening, gospel study and instruction, and wholesome family activities. However worthy and appropriate other demands or activities may be, they must not be permitted to displace the divinely appointed duties that only parents and families can adequately perform” (“Policies, Announcements, and Appointments,” *Ensign,* June 1999, 80).
 
 What is our reaction to this prophetic counsel? What has been my response and your response to this First Presidency letter of nearly eight months ago?
 
@@ -39,9 +42,9 @@ As a parent of teenagers in a busy world, I can confirm that it takes giving the
 
 Certainly there are times when getting the family together to read the scriptures does not stack up as a spiritual experience worthy of a journal entry. But we must not be deterred. There are special times when the spirit of a son or daughter is just right and the power of these great scriptures goes down into their heart like fire. As we honor our Heavenly Father in our homes, He will honor our efforts.
 
-We all know the struggle necessary to retain family home evening. There are thieves among us who would steal our Monday nights. But the promises of the Lord made to families who hold family home evening, that were spoken by the First Presidency 84 years ago and reiterated by our Prophets today, have never been revoked and are there for us:
+We all know the struggle necessary to retain family home evening. There are thieves among us who would steal our Monday nights. But the promises of the Lord made to families who hold family home evening, that were spoken by the First Presidency 84 years ago and reiterated by our prophets today, have never been revoked and are there for us:
 
-“If the Saints obey this counsel, we promise that great blessings will result. Love at home and obedience to parents will increase. Faith will be developed in the hearts of the youth of Israel, and they will gain power to combat the evil influence and temptations which beset them” (in James R. Clark, comp., Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints, 6 vols. [1965–75], 4:339).
+“If the Saints obey this counsel, we promise that great blessings will result. Love at home and obedience to parents will increase. Faith will be developed in the hearts of the youth of Israel, and they will gain power to combat the evil influence and temptations which beset them” (in James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. \[1965–75\], 4:339).
 
 Who within the sound of my voice would be willing to sell these promises to those who would confiscate our Monday nights? Not one of us.
 
@@ -51,11 +54,14 @@ As we participate in this conference, let us listen attentively to our dear Pres
 
 Let us not follow the pattern I showed in dealing with my Florida mole crickets. Let us never ignore the warnings. Let us never be smug in our independence. Let us always be listening and learning in humility and faith, anxious to repent should it be necessary.
 
-This is the kingdom of God upon the earth. You and I are disciples of the Lord Jesus Christ. He is the Son of God. He lives. He directs this work. President Hinckley is His Prophet, and with him are 14 others who hold the Apostolic keys. They are watchmen on the tower, messengers of the warning voice, Prophets, Seers, and Revelators.
+This is the kingdom of God upon the earth. You and I are disciples of the Lord Jesus Christ. He is the Son of God. He lives. He directs this work. President Hinckley is His Prophet, and with him are 14 others who hold the apostolic keys. They are watchmen on the tower, messengers of the warning voice, prophets, seers, and revelators.
 
-“Choose you this day whom ye will serve; ... but as for me and my house, we will serve the Lord” (Josh. 24:15).
+“Choose you this day whom ye will serve; … but as for me and my house, we will serve the Lord” ([[Joshua 24.15|Josh. 24:15]]).
 
-“And the people said unto Joshua, The Lord our God will we serve, and his voice will we obey” (Josh. 24:24).
+“And the people said unto Joshua, The Lord our God will we serve, and his voice will we obey” ([[Joshua 24.24|Josh. 24:24]]).
 
 That these words may be written in our hearts is my prayer, in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Salvation Comes through the Church
-*By Mark E. Petersen - Of the Council of the Twelve*
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -15,23 +16,23 @@ It was the Church that was given for the work of the ministry.
 
 It was the Church that was provided to edify the body of Christ, as Paul explained to the Ephesians.
 
-Therefore it was made clearly manifest that salvation is in the Church, and of the Church, and is obtained only through the Church.
+Therefore it was made clearly manifest that salvation is *in* the Church, and *of* the Church, and is obtained only *through* the Church.
 
 The Lord established one strait and narrow way, and understandingly observed that “few there be that find it.”
 
-Not only did he provide that salvation should come through his regularly constituted church, but he set up safeguards to protect its members from being tossed to and fro with every wind of doctrine and to preserve them from the sleight of men who, with cunning craftiness, lie in wait to deceive. (See Eph. 4:14.)
+Not only did he provide that salvation should come through his regularly constituted church, but he set up safeguards to protect its members from being tossed to and fro with every wind of doctrine and to preserve them from the sleight of men who, with cunning craftiness, lie in wait to deceive. (See [[Ephesians 4.14|Eph. 4:14]].)
 
 Those safeguards, according to Paul’s epistle to the Ephesians, rested primarily in the persons of the apostles and prophets whom God placed at the head of the Church for that specific purpose.
 
-They were the inspired leaders in the Church. They were the mouthpieces of the Lord, and their inspired messages to the people were the will of the Lord, the mind of the Lord, the voice of the Lord, and the power of God unto salvation. (See D&C 68:4.)
+They were the inspired leaders in the Church. They were the mouthpieces of the Lord, and their inspired messages to the people were the will of the Lord, the mind of the Lord, the voice of the Lord, and the power of God unto salvation. (See [[D&C 68.4|D&C 68:4]].)
 
 With such heavenly guidance, none need go astray.
 
 But there were men in the Lord’s own day who taught false doctrines and led the people into mistaken paths. These the Savior severely criticized, accusing them of apostasy from the very law of Moses which they pretended to preach.
 
-He said to them, “Did not Moses give you the law, and yet none of you keepeth the law?” (John 7:19.)
+He said to them, “Did not Moses give you the law, and yet none of you keepeth the law?” ([[John 7.19|John 7:19]].)
 
-And again he said, “... had ye believed Moses, ye would have believed me: for he wrote of me.” (John 5:46.)
+And again he said, “… had ye believed Moses, ye would have believed me: for he wrote of me.” ([[John 5.46|John 5:46]].)
 
 What a sad commentary! Had the people believed Moses, instead of the crafty false teachers of their day, they would have accepted Christ, because Moses wrote of Christ. And if they had accepted Jesus, they would have received salvation through his church.
 
@@ -39,11 +40,11 @@ But being blinded by false teachers, they rejected both Moses and Christ, and th
 
 Obviously all of the writings of Moses are not in our Bibles of today, but in the Savior’s time they must have been available, for Jesus criticized the elders and scribes for not believing what Moses said when he testified of Christ.
 
-Isn’t it interesting that Moses testified of the Savior, and that when the people would not believe Moses they therefore were not prepared to receive the Christ either? Do you recall that Paul said the law of Moses was a schoolmaster to bring the people to Christ? (See Gal. 3:24–25.)
+Isn’t it interesting that Moses testified of the Savior, and that when the people would not believe Moses they therefore were not prepared to receive the Christ either? Do you recall that Paul said the law of Moses was a schoolmaster to bring the people *to* Christ? (See [[Galatians 3.24|Gal. 3:24–25]][[Galatians 3.25|]].)
 
-Not only did Moses write of the Lord, but the other prophets did likewise. Peter said, in speaking of Jesus, “To him give all the prophets witness, that through his name whosoever believeth in him shall receive remission of sins.” (Acts 10:43.)
+Not only did Moses write of the Lord, but the other prophets did likewise. Peter said, in speaking of Jesus, “To him give all the prophets witness, that through his name whosoever believeth in him shall receive remission of sins.” ([[Acts 10.43|Acts 10:43]].)
 
-We read in the 28th chapter of Acts that Paul, while he was in Rome, received many visitors “to whom he expounded and testified the kingdom of God, persuading them concerning Jesus, both out of the law of Moses, and out of the prophets, from morning till evening.” (Acts 28:23.)
+We read in the 28th chapter of Acts that Paul, while he was in Rome, received many visitors “to whom he expounded and testified the kingdom of God, persuading them concerning Jesus, both out of the law of Moses, and out of the prophets, from morning till evening.” ([[Acts 28.23|Acts 28:23]].)
 
 Obviously, therefore, the scriptures available in that time spoke repeatedly of the Savior as all the prophets gave witness to him.
 
@@ -69,7 +70,7 @@ In apparent dismay, Jesus turned to the Twelve and asked, “Will ye also go awa
 
 Then it was that Simon Peter replied, “Lord, to whom shall we go? thou hast the words of eternal life.”
 
-Note if you will that the words of eternal life were not with those who fell away, but rather with those who remained faithful and loyal.
+Note if you will that the words of eternal life were *not* with those who fell away, but rather with those who remained faithful and loyal.
 
 Subsequently, during the administration of the Twelve, serious apostasy developed again. As a result, nearly all of the epistles of the New Testament were written to combat it.
 
@@ -77,7 +78,7 @@ Historians say that within one hundred years after Christ, as many as thirty spl
 
 Further evidence of early apostasy in the Church is brought forcefully and particularly to our attention by the manner in which Paul wrote his first letter to the Corinthians.
 
-In it he testified that there can be no divisions in Christ. Rather, he said, “... I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment.” (1 Cor. 1:10.)
+In it he testified that there can be no divisions in Christ. Rather, he said, “… I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment.” ([[1 Corinthians 1.10|1 Cor. 1:10]].)
 
 Some of the denominations which developed during the very early years of Christianity were these:
 
@@ -103,7 +104,7 @@ The Manecheans, and a number of others.
 
 After the fall of Jerusalem about a.d. 70, the Hellenists seized the upper hand in the Christian religion, taking advantage of the Greek influence, which was being superimposed on the existing culture of the area. Greek philosophical ideas entered strongly into the Christian picture, changing the doctrines and practices of the gospel. This will be understood more readily when it is remembered that both Arius and Athanasius of the Nicene Creed controversy were Greek philosophers. This also is why the early New Testament manuscripts were written in Greek.
 
-These bits of history reveal clearly the importance of avoiding splinter groups, for as Paul expressed it, some “saith I am of Paul; and I of Apollos; and I of Cephas” (1 Cor. 1:12), but Christ cannot be divided. There is no Savior but Jesus, and he saves only in his own strait and narrow way and not according to man-made creeds and rituals.
+These bits of history reveal clearly the importance of avoiding splinter groups, for as Paul expressed it, some “saith I am of Paul; and I of Apollos; and I of Cephas” ([[1 Corinthians 1.12|1 Cor. 1:12]]), but Christ cannot be divided. There is no Savior but Jesus, and he saves only in his own strait and narrow way and not according to man-made creeds and rituals.
 
 It is all important, then, that members should not separate themselves from the true church, nor apostatize from it, nor be guilty of behavior which would justify their excommunication.
 
@@ -117,7 +118,7 @@ There is one verse particularly in that section which they fail to consider. It 
 
 Listen to the Lord’s words:
 
-“And they who are of the High Priesthood, whose names are not found written in the book of the law, or that are found to have apostatized, or to have been cut off from the church, as well as the lesser priesthood, or the members, in that day shall not find an inheritance among the Saints of the Most High.” (D&C 85:11.)
+“And they who are of the High Priesthood, whose names are not found written in the book of the law, or that are found to have apostatized, or to have been cut off from the church, as well as the lesser priesthood, or the members, in that day shall not find an inheritance among the Saints of the Most High.” ([[D&C 85.11|D&C 85:11]].)
 
 But cultists are not the only ones who are excommunicated from the Church. There are those who are cut off for moral transgressions and other infractions of the Lord’s rules of behavior. They too should ponder this scripture most carefully.
 
@@ -131,19 +132,19 @@ And then he added: “If the candle of the Almighty does not shine from this pla
 
 And then this mighty man in Israel declared:
 
-“Whenever there is a disposition manifested in any of the members of the Church to question the right of the President of the whole Church to direct in all things, you see manifested evidences of apostasy—of a spirit which, if encouraged, will lead to a separation from the Church and to final destruction; wherever there is a disposition to operate against any legally appointed officer of this Kingdom, no matter in what capacity he is called to act, if persisted in, it will be followed by the same results.” So spoke President Brigham Young. (Discourses of Brigham Young [Deseret Book Co., 1943], pp. 82–83, 85.)
+“Whenever there is a disposition manifested in any of the members of the Church to question the right of the President of the whole Church to direct in all things, you see manifested evidences of apostasy—of a spirit which, if encouraged, will lead to a separation from the Church and to final destruction; wherever there is a disposition to operate against any legally appointed officer of this Kingdom, no matter in what capacity he is called to act, if persisted in, it will be followed by the same results.” So spoke President Brigham Young. (*Discourses of Brigham Young* \[Deseret Book Co., 1943\], pp. 82–83, 85.)
 
 The language of the Lord is simple and easily understood. If any have apostatized from the Church or have been cut off by the duly appointed courts provided by the Lord, they shall not find an inheritance among the Saints of the Most High unless they repent.
 
 Salvation is not to be found in splinter groups today any more than it was to be found in the various denominations which polluted the teachings of Moses anciently or which, in the days of early Christianity, transgressed the laws, changed the ordinances, and broke the everlasting covenant.
 
-The Lord says further in this same section of the Doctrine & Covenants: “... all they who are not found written in the book of remembrance shall find none inheritance in that day, but they shall be cut asunder, and their portion shall be appointed them among unbelievers, where are wailing and gnashing of teeth.” (D&C 85:9.)
+The Lord says further in this same section of the Doctrine & Covenants: “… all they who are not found written in the book of remembrance shall find none inheritance in that day, but they shall be cut asunder, and their portion shall be appointed them among unbelievers, where are wailing and gnashing of teeth.” ([[D&C 85.9|D&C 85:9]].)
 
-There are some who claim that even though they are excommunicated from the Church, their priesthood and temple blessings are not taken away. Let us remind those persons that the power to seal is also the power to loose, for the Lord has said of his true servants that “whatsoever thou shalt bind on earth shall be bound in heaven: and whatsoever thou shalt loose on earth shall be loosed in heaven.” (Matt. 16:19; D&C 132:46.) Excommunication takes away all rights, privileges, and blessings of the Church.
+There are some who claim that even though they are excommunicated from the Church, their priesthood and temple blessings are not taken away. Let us remind those persons that the power to seal is also the power to loose, for the Lord has said of his true servants that “whatsoever thou shalt bind on earth shall be bound in heaven: and whatsoever thou shalt loose on earth shall be loosed in heaven.” ([[Matthew 16.19|Matt. 16:19]]; [[D&C 132.46|D&C 132:46]].) Excommunication takes away all rights, privileges, and blessings of the Church.
 
 What is so precious as salvation? And how is it to be obtained? Only through the Church and “being anxiously engaged” in its program.
 
-There is no other way. If we are not valiant in the testimony of Jesus and if we fail to repent, we lose the crown over the kingdom and are assigned elsewhere. (See D&C 76:79.)
+There is no other way. If we are not valiant in the testimony of Jesus and if we fail to repent, we lose the crown over the kingdom and are assigned elsewhere. (See [[D&C 76.79|D&C 76:79]].)
 
 But how wonderful is repentance. The Lord has said that if we will repent of our sins and from then on keep all of his statutes, forgiveness will result and reformation is made possible.
 
@@ -151,7 +152,7 @@ What greater promise can the wayward expect?
 
 The Lord came to save sinners. He taught that it is the sick who need the physician. Therefore, he invites the sick—as well as all others—to come unto him, repent, and be cleansed, sanctified, and saved in his kingdom.
 
-“Have I any pleasure at all that the wicked should die? saith the Lord God: and not that he should return from his ways, and live?” (Ezek. 18:23.)
+“Have I any pleasure at all that the wicked should die? saith the Lord God: and not that he should return from his ways, and live?” ([[Ezekiel 18.23|Ezek. 18:23]].)
 
 And so in his goodness and mercy, he calls out and says:
 
@@ -159,7 +160,10 @@ And so in his goodness and mercy, he calls out and says:
 
 “Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls.
 
-“For my yoke is easy, and my burden is light.” (Matt. 11:28–30.)
+“For my yoke is easy, and my burden is light.” ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].)
 
 But let us remember that his yoke cannot be separated from his church, and his burden requires that each one of us live by every word that proceedeth from the mouth of God. And to this I testify humbly in the sacred name of the Lord Jesus Christ. Amen.
+
+
+
 

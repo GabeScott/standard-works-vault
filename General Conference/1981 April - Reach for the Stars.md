@@ -1,5 +1,6 @@
 # Reach for the Stars
-*By By Barbara B. Smith - Relief Society General President*
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -9,19 +10,19 @@ President Kimball, President Tanner, President Romney, my beloved Brethren, and 
 
 Most Saturday afternoons my husband and I make a trip to the grocery store for our weekly supplies and food storage items. Recently, after filling our shopping cart and while waiting to be checked out, we watched the cashier totaling the purchases of customers ahead of us. Nearly all were in sizable double-digit figures. We discussed the high cost of food for large families with limited incomes, elderly people with small pensions, and single parents often with uncertain means. We concluded that in most households resources must be managed very carefully in order to meet current demands.
 
-The economic situation today is sobering. It requires us as women to be very resourceful if we are to meet this challenge successfully and at the same time find satisfaction in doing it well.
+The economic situation today *is* sobering. It requires us as women to be very resourceful if we are to meet this challenge successfully and at the same time find satisfaction in doing it well.
 
 A young bride went to be with her husband at an army camp on the edge of a desert. Housing was scarce and costly. All they could afford was a small cabin near an Indian village. The 115-degree heat was unbearable in the daytime. The wind blew constantly, spreading dust and sand over everything. The days were long and lonely. When her husband was ordered into the desert for two weeks of maneuvers, she just couldn’t bear the living conditions any longer, and she wrote to her mother that she was coming home. An almost immediate reply included these lines:
 
-Two men look out from prison bars;
-
-One saw the mud, the other saw the stars.
+>Two men look out from prison bars;
+>One saw the mud, the other saw the stars.
+>
 
 She read the lines over and over. All right, she would look for the stars.
 
 She determined to make friends with her neighbors, the Indians. She admired their artful weaving and pottery work and asked them to teach her. As soon as they sensed her interest was genuine, they were most willing. She became fascinated with their culture, their history—everything about them. The desert changed from a desolate, forbidding place to a world of wondrous beauty.
 
-What had changed? Not the desert, not her environment; her own attitude transformed a miserable experience into a highly rewarding one. (From Bits and Pieces, Vol. C no. 5, pp. 21–23.)
+What had changed? Not the desert, not her environment; her own attitude transformed a miserable experience into a highly rewarding one. (From *Bits and Pieces,* Vol. C no. 5, pp. 21–23.)
 
 How might Relief Society enable a woman to look to the stars—stars to steer by? How might Relief Society enable a woman to create an environment of optimism and adventure, while at the same time helping her stretch her dollars and resources by implementing sound economic principles in the home?
 
@@ -33,7 +34,7 @@ The first hard rule of fixing our scale of living below our means is to budget, 
 
 We should help all women enjoy the peace of mind that comes from making and following a plan for spending. Their lives will begin to have an aura of serenity when their expenses stay within their income.
 
-Women must learn to budget and to help their children learn to budget also. Women and children should know that, no matter how important or how worthwhile an item might seem to be, if they cannot afford it, it is an unwise expenditure. Such expenditures lead to debt; and unwise debt leads to economic insecurity, which most often causes stress in the family. You can make it easier for your children if you do as Elder Marvin J. Ashton suggests: “‘Save your money’ is a hollow pronouncement from a parent to a child. ‘Save your money for a mission, a bicycle, a doll house, a trousseau, or a car’ makes understandable sense.” (Ensign, July 1975, p. 73.)
+Women must learn to budget and to help their children learn to budget also. Women and children should know that, no matter how important or how worthwhile an item might seem to be, if they cannot afford it, it is an unwise expenditure. Such expenditures lead to debt; and unwise debt leads to economic insecurity, which most often causes stress in the family. You can make it easier for your children if you do as Elder Marvin J. Ashton suggests: “‘Save your money’ is a hollow pronouncement from a parent to a child. ‘Save your money for a mission, a bicycle, a doll house, a trousseau, or a car’ makes understandable sense.” (*Ensign,* July 1975, p. 73.)
 
 Living on a budget is not a chore. It need not even be a deprivation. Budgeting should be a great learning experience.
 
@@ -58,4 +59,7 @@ I have thought about the emergency preparation necessary when Noah’s ark was m
 Could we be as diligent today? Can we as women be accountable and help meet the great challenge of economic stress by our wise stewardship over that with which the Lord has blessed us?
 
 May we look for the stars and find satisfaction, even joy, in living according to the directions of these prophets and Apostles, whom the Lord has chosen to lead us in our day, is my humble prayer, in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # To All the World in Testimony
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2000 General Conference*
+
+>*In this great hall … the voices of prophets will go out to all the world in testimony of the Redeemer of mankind.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2000/04/to-all-the-world-in-testimony?lang=eng)
 
@@ -9,11 +12,11 @@ My dearly beloved brethren and sisters, what a magnificent sight you are, this v
 
 The organ is not completed, and there are various construction details yet to be attended to. But fortunately the work is far enough along that we are able to use it for this conference. A year or so ago in speaking concerning it, I expressed the opinion that we may not be able to fill it initially. It seats three and a half times the capacity of the Tabernacle. But already we are in trouble. People are filling all of the seats.
 
-During the four general sessions and the priesthood session we will be able to accommodate about 100,000. We had requests for 370,000 tickets. The Tabernacle and Assembly Hall will serve as overflow. But with all of this, many, very many, will be disappointed. We apologize. We ask for your forgiveness. We are powerless to do anything about it. So many wanted to attend this first conference in the new hall. Unfortunately, that is impossible. I was somewhat shocked to learn that the people from my own ward, who are nearby and whom I love, have received no tickets.
+During the four general sessions and the priesthood session, we will be able to accommodate about 100,000. We had requests for 370,000 tickets. The Tabernacle and Assembly Hall will serve as overflow. But with all of this, many, very many, will be disappointed. We apologize. We ask for your forgiveness. We are powerless to do anything about it. So many wanted to attend this first conference in the new hall. Unfortunately, that is impossible. I was somewhat shocked to learn that the people from my own ward, who are nearby and whom I love, have received no tickets.
 
 But we are grateful for the enthusiasm of the Latter-day Saints concerning this new meeting place. I hope that enthusiasm will continue and that we shall have a full house at every conference in the future.
 
-This is the newest in a series of meeting places constructed by our people. When first they came to this valley they built a bowery. It shaded them from the sun but provided no warmth and very little comfort. Then they built the old Tabernacle. That was followed by the new Tabernacle, which has served us so very well for more than 130 years.
+This is the newest in a series of meeting places constructed by our people. When first they came to this valley, they built a bowery. It shaded them from the sun but provided no warmth and very little comfort. Then they built the old Tabernacle. That was followed by the new Tabernacle, which has served us so very well for more than 130 years.
 
 Now in this historic season, when we mark the birth of a new century and the beginning of a new millennium, we have built this new and wonderful Conference Center.
 
@@ -21,15 +24,15 @@ Each of the undertakings of the past was a bold venture, and particularly the Ta
 
 The building of this structure has been a bold undertaking. We worried about it. We prayed about it. We listened for the whisperings of the Spirit concerning it. And only when we felt the confirming voice of the Lord did we determine to go forward.
 
-At the general conference of April 1996, I said: “I regret that many who wish to meet with us in the Tabernacle this morning are unable to get in. There are very many out on the grounds. This unique and remarkable hall, built by our pioneer forebears and dedicated to the worship of the Lord, comfortably seats about 6,000. Some of you seated on those hard benches for two hours may question the word comfortably.
+At the general conference of April 1996, I said: “I regret that many who wish to meet with us in the Tabernacle this morning are unable to get in. There are very many out on the grounds. This unique and remarkable hall, built by our pioneer forebears and dedicated to the worship of the Lord, comfortably seats about 6,000. Some of you seated on those hard benches for two hours may question the word *comfortably.*
 
-“My heart reaches out to those who wish[ed] to get in and could not be accommodated. About a year ago I suggested to the Brethren that perhaps the time has come when we should study the feasibility of constructing another dedicated house of worship on a much larger scale that would accommodate three or four times the number who can be seated in this building” (in Conference Report, Apr. 1996, 88–89; or Ensign, May 1996, 65).
+“My heart reaches out to those who wish to get in and could not be accommodated. About a year ago I suggested to the Brethren that perhaps the time has come when we should study the feasibility of constructing another dedicated house of worship on a much larger scale that would accommodate three or four times the number who can be seated in this building” (in Conference Report, Apr. 1996, 88–89; or *Ensign,* May 1996, 65).
 
 The vision of a new hall was clearly in mind. Various architectural schemes were studied. One was finally selected. It included a massive structure to seat 21,000 with a theater accommodating another thousand. There would be no interior pillars to obstruct the view of the speaker. There would be trees and running water on the roof.
 
 Ground was broken July 24, 1997, the 150th anniversary of the arrival of the first pioneers in this valley. That was an historic event.
 
-We did not know it at the time, but in 1853 Brigham Young, in speaking of temples, said, “The time will come when ... we shall build ... on the top, groves and fish ponds” (Deseret News Weekly, 30 Apr. 1853, 46).
+We did not know it at the time, but in 1853 Brigham Young, in speaking of temples, said, “The time will come when … we shall build … on the top, groves and fish ponds” (*Deseret News Weekly,* 30 Apr. 1853, 46).
 
 In 1924 Elder James E. Talmage of the Council of the Twelve wrote, “I have long seen the possible erection of a great pavilion on the north side of the Tabernacle, seating perhaps twenty thousand people or even double that number, with amplifiers capable of making all hear the addresses given from the Tabernacle stands, and in addition to this a connection with the broadcasting system, with receivers in the several chapels or other meeting houses throughout the intermountain region” (journal of James E. Talmage, 29 Aug. 1924, Special Collections and Manuscripts, Harold B. Lee Library, Brigham Young University, Provo, Utah).
 
@@ -49,11 +52,14 @@ And now, my brothers and sisters, I would like to tell you about another feature
 
 I love trees. When I was a boy we lived on a farm in the summer, a fruit farm. Every year at this season we planted trees. I think I have never missed a spring since I was married, except for two or three years when we were absent from the city, that I have not planted trees, at least one or two—fruit trees, shade trees, ornamental trees, and spruce, fir, and pine among the conifers. I love trees.
 
-Well, some 36 years ago I planted a black walnut. It was in a crowded area where it grew straight and tall to get the sunlight. A year ago, for some reason it died. But walnut is a precious furniture wood. I called Brother Ben Banks of the Seventy, who, before giving his full time to the Church, was in the business of hardwood lumber. He brought his two sons, one a bishop and the other recently released as a bishop and who now run the business, to look at the tree. From all they could tell it was solid, good, and beautiful wood. One of them suggested that it would make a pulpit for this hall. The idea excited me. The tree was cut down and then cut into two heavy logs. Then followed the long process of drying, first naturally and then kiln drying. The logs were cut into boards at a sawmill in Salem, Utah. The boards were then taken to Fetzer’s woodworking plant, where expert craftsmen designed and built this magnificent pulpit with that wood.
+Well, some 36 years ago I planted a black walnut. It was in a crowded area where it grew straight and tall to get the sunlight. A year ago, for some reason it died. But walnut is a precious furniture wood. I called Brother Ben Banks of the Seventy, who, before giving his full time to the Church, was in the business of hardwood lumber. He brought his two sons, one a bishop and the other recently released from a bishopric and who now run the business, to look at the tree. From all they could tell it was solid, good, and beautiful wood. One of them suggested that it would make a pulpit for this hall. The idea excited me. The tree was cut down and then cut into two heavy logs. Then followed the long process of drying, first naturally and then kiln drying. The logs were cut into boards at a sawmill in Salem, Utah. The boards were then taken to Fetzer’s woodworking plant, where expert craftsmen designed and built this magnificent pulpit with that wood.
 
 The end product is beautiful. I wish all of you could examine it closely. It represents superb workmanship, and here I am speaking to you from the tree I grew in my backyard, where my children played and also grew.
 
-It is an emotional thing for me. I have planted another black walnut or two. I will be long gone before they mature. When that day comes and this beautiful pulpit has grown old, perhaps one of them will do to make a replacement. To Elder Banks and his sons, Ben and Bradley, and to the skilled workers who have designed and built this, I offer my profound thanks for making it possible to have a small touch of mine in this great hall where the voices of prophets will go out to all the world in testimony of the Redeemer of mankind.
+It is an emotional thing for me. I have planted another black walnut or two. I will be long gone before they mature. When that day comes and this beautiful pulpit has grown old, perhaps one of them will do to make a replacement. To Elder Banks and his sons, Ben and Bradford, and to the skilled workers who have designed and built this, I offer my profound thanks for making it possible to have a small touch of mine in this great hall where the voices of prophets will go out to all the world in testimony of the Redeemer of mankind.
 
 And so to all who have made this sacred edifice possible, and to all of you who are here assembled on this historic occasion, I express gratitude and appreciation, my love and my thanks for this day and this sacred and beautiful house of worship, in the name of Jesus Christ, amen.
+
+
+
 

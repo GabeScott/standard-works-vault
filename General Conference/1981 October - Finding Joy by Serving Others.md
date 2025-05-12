@@ -1,5 +1,6 @@
 # Finding Joy by Serving Others
-*By By JoAnn Randall - No Calling Found*
+
+By JoAnn Randall
 
 *Given in the October session of the 1981 General Conference*
 
@@ -9,7 +10,7 @@ My dear brothers and sisters: We are happy as a couple to be able to speak to yo
 
 It was with awe that our children first heard the story about a family who gave away their entire Christmas—tree, food, and gifts. It all began when their neighbor’s home burned early on the morning of Christmas Eve. When the children heard of their friends’ situation, a family meeting was called and they all agreed, without exception, that they would share their Christmas.
 
-The day’s activities soon centered around switching name tags on gifts and boxing up Christmas goodies, turkey and all. And at the last minute, they even took the tree! When they gathered back home after delivering their project in secret, they had feelings of excitement and love. (See Leon R. Hartshorn, Memorable Christmas Stories, p. 41.)
+The day’s activities soon centered around switching name tags on gifts and boxing up Christmas goodies, turkey and all. And at the last minute, they even took the tree! When they gathered back home after delivering their project in secret, they had feelings of excitement and love. (See Leon R. Hartshorn, *Memorable Christmas Stories,* p. 41.)
 
 Questions came from our children: “Wasn’t it hard for the first family to give?” “Wasn’t it difficult for the other family to receive?”
 
@@ -37,27 +38,30 @@ Family service projects don’t have to be spectacular or even original. We have
 
 Here are some other projects you may want to do:
 
-Pick up a child regularly for Primary. We did this and found that our little friend soon learned that we really would be by for him every Sunday.
+1. Pick up a child regularly for Primary. We did this and found that our little friend soon learned that we really would be by for him every Sunday.
 
-Write appreciation notes to your Primary, school, or home teachers. They will be surprised to find that someone cares.
+2. Write appreciation notes to your Primary, school, or home teachers. They will be surprised to find that someone cares.
 
-Sing willingly in the ward choir. The director will be grateful, and you’ll be serving through music.
+3. Sing willingly in the ward choir. The director will be grateful, and you’ll be serving through music.
 
-Share your garden crops.
+4. Share your garden crops.
 
-Invite someone who is usually alone in to dinner.
+5. Invite someone who is usually alone in to dinner.
 
-Serve secretly. We think it’s great fun to make some goodies together, put them on a porch, ring the bell, and run.
+6. Serve secretly. We think it’s great fun to make some goodies together, put them on a porch, ring the bell, and run.
 
-Encourage your daughter to babysit for free while a couple attends the temple.
+7. Encourage your daughter to babysit for free while a couple attends the temple.
 
-Organize a neighborhood potluck dinner to build better friendships. Nonmembers can be influenced through this kind of service.
+8. Organize a neighborhood potluck dinner to build better friendships. Nonmembers can be influenced through this kind of service.
 
-Plan ahead. Start a bank account so that mission service can come later.
+9. Plan ahead. Start a bank account so that mission service can come later.
 
-Be a good example of gospel living so others will be encouraged.
+10. Be a good example of gospel living so others will be encouraged.
 
 There is an old Relief Society story about a child who came in as his mother was putting the finishing touches on a cake. He asked: “Who are we giving that away to?” There is still merit in this little incident, as we can see that he is from a home where they are used to giving service to others.
 
 There are so many ways that our families can bring joy to others through service by extending ourselves. I am very thankful for the strengthened testimonies we have received through service, and I say this in the name of Jesus Christ, amen.
+
+
+
 

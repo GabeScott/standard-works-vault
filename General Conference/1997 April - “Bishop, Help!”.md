@@ -1,7 +1,10 @@
 # “Bishop, Help!”
-*By Dallin H. Oaks - Of the Quorum of the Twelve Apostles*
+
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
+
+>*The burden \[of a bishop\] is a heavy one that cannot be fulfilled without the supportive efforts of ward officers and members.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1997/04/bishop-help?lang=eng)
 
@@ -11,9 +14,9 @@ There are times in the lives of all of us when we must reach out to our bishop o
 
 A bishop (or branch president) has many duties. As the president of the Aaronic Priesthood, he personally oversees the programs and activities of the young men and young women in the ward. He and his counselors interview each one each year. They give special attention to teaching correct principles. Always they encourage our youth to prepare for the covenants they will make in the temple.
 
-As the presiding high priest, the bishop gives direction to all quorums, auxiliaries, activities, and programs in the ward. Calls to ward positions are under his direction. So is home teaching and visiting teaching, and the performing of ordinances like baptism. Assisted in all of this by his counselors, he is responsible for sacrament meeting and for the teaching of the gospel in all classes in the ward. The bishopric also directs all of the other meetings of the ward, including the priesthood executive committee and the ward council.
+As the presiding high priest, the bishop gives direction to all quorums, auxiliaries, activities, and programs in the ward. Calls to ward positions are under his direction. So are home teaching and visiting teaching, and the performing of ordinances like baptism. Assisted in all of this by his counselors, he is responsible for sacrament meeting and for the teaching of the gospel in all classes in the ward. The bishopric also directs all of the other meetings of the ward, including the priesthood executive committee and the ward council.
 
-The bishopric is also responsible for monitoring the Church service time of all ward members serving under their direction. Knowing the circumstances of the ward, they determine the appropriate balance of ward meetings and activities and the time remaining for families. They are also conscious of the purpose of our Sunday consolidated meeting schedule, which was not established to give time for more Sabbath meetings but to allow increased time for families to be together and for individual gospel study and service.
+The bishopric is also responsible for monitoring the Church-service time of all ward members serving under their direction. Knowing the circumstances of the ward, they determine the appropriate balance of ward meetings and activities and the time remaining for families. They are also conscious of the purpose of our Sunday consolidated meeting schedule, which was not established to give time for more Sabbath meetings but to allow increased time for families to be together and for individual gospel study and service.
 
 The bishopric (or branch presidency) is also in charge of unit finances. They receive tithes and offerings, oversee the unit budget and expenditures, remit funds, and see that records are properly kept. The bishop is the judge who determines how Church commodities and funds are used to provide for the temporal needs of the members. He is also responsible for seeking out the poor and the needy.
 
@@ -23,13 +26,13 @@ Although some of their duties cannot be delegated, in most of these tasks the bi
 
 I marvel at the work of our bishops and branch presidents. In my lifetime, our family has had many bishops. We have loved each of them and their counselors, and we have felt their love and assistance in our lives. Each of them was different in his personality, but each was a devoted servant of the Lord. I have seen the mantle of responsibility increase their stature, and I have rejoiced in their magnificent service to the people. God bless the bishops and bishoprics of this Church!
 
-There is something else we should mention about bishops. They are not specialists. We do not have bishops whose sole attentions are directed toward the youth, the aged, the married, the abused, or any particular occupational or ethnic group. Under the revelations of the Lord and the directions of His prophets, a bishop is ordained and set apart to preside over a ward whose boundaries are geographic and whose membership includes all who reside there. For this reason, a bishop looks after the old and the young, the married and the single, the rich and the poor, the active and the less active. In this he seeks to unify the flock so that we may be taught and serve in groups of Saints that transcend considerations of age, marital status, ancestry, and economic condition. Our bishops lead us all in our efforts to follow the Savior’s commandment to “be one; and if ye are not one ye are not mine” (D&C 38:27).
+There is something else we should mention about bishops. They are not specialists. We do not have bishops whose sole attentions are directed toward the youth, the aged, the married, the abused, or any particular occupational or ethnic group. Under the revelations of the Lord and the directions of His prophets, a bishop is ordained and set apart to preside over a ward whose boundaries are geographic and whose membership includes all who reside there. For this reason, a bishop looks after the old and the young, the married and the single, the rich and the poor, the active and the less active. In this he seeks to unify the flock so that we may be taught and serve in groups of Saints that transcend considerations of age, marital status, ancestry, and economic condition. Our bishops lead us all in our efforts to follow the Savior’s commandment to “be one; and if ye are not one ye are not mine” ([[D&C 38.27|D&C 38:27]]).
 
-The Lord told the early members of His Church that the voice of His servants is the voice of the Lord, and that the hand of His servants is the hand of the Lord (see D&C 1:38; D&C 36:2). I testify to the truthfulness of that principle, which imposes a solemn duty upon the members of this Church to be loyal to their leaders and faithful in following their direction. I affirm that the Lord will bless us for doing so. That principle also imposes a great responsibility on the holders of office in this Church. Leaders must assure that they exercise their sacred authority “by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned” (D&C 121:41).
+The Lord told the early members of His Church that the voice of His servants is the voice of the Lord, and that the hand of His servants is the hand of the Lord (see [[D&C 1.38|D&C 1:38]]; [[D&C 36.2|36:2]]). I testify to the truthfulness of that principle, which imposes a solemn duty upon the members of this Church to be loyal to their leaders and faithful in following their direction. I affirm that the Lord will bless us for doing so. That principle also imposes a great responsibility on the holders of office in this Church. Leaders must assure that they exercise their sacred authority “by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned” ([[D&C 121.41|D&C 121:41]]).
 
 We now have over 15,000 bishops and over 8,000 branch presidents in this Church. When we count their counselors, the total serving in bishoprics and branch presidencies is over 65,000. We praise and honor these worthy shepherds of the flock, judges in Israel, leaders and teachers of the people, men who love and are loved by those whom they serve as undershepherds of the Lord Jesus Christ. God bless these good men! And God bless their faithful wives, whose loyalty and support make their service possible.
 
-As I began this talk, I quoted the words of a three-year-old who called, “Bishop, help!” I will now reverse those words and make them a challenge for each of us: “Help [the] bishop!”
+As I began this talk, I quoted the words of a three-year-old who called, “Bishop, help!” I will now reverse those words and make them a challenge for each of us: “Help the bishop!”
 
 Our current circumstances are different from those experienced by bishops and their counselors and members in earlier times. Today we have local leaders in most parts of the world. Many geographic wards and branches are in large cities and include hundreds of thousands or even millions of people. Some bishops travel during the week or commute long hours and great distances to work, effectively isolated from their families and their members for most of the hours of the week. Nevertheless, we also have communication and transportation resources undreamed of in earlier times. Whatever the physical changes over time, the nature of our local leaders’ callings has not changed, nor has their compensation. They are totally uncompensated by the coin of mortality. For the reward of their labors, all rely on the Lord’s deferred compensation plan.
 
@@ -41,7 +44,7 @@ Each of us should do all that we can, in the spirit of gospel self-reliance, to 
 
 Another way to help our busy bishops and their counselors is to be careful not to occupy their time with matters that others can handle. If we need an address or a phone number or help with some other routine task, we should not call a member of the bishopric. Let us reserve their time for the heavy responsibilities that are uniquely theirs. Let us call on others for the things others can handle.
 
-When contacting our local leaders is necessary, we should remember that they have employment responsibilities too. Don’t contact them at their place of work unless there is a true emergency. Let us be careful not to put our leaders’ employment in jeopardy. Members should also be careful not to expect their local leaders to give them the products of those leaders’ occupations. Our leaders are called to give us Church service, not professional services or merchandise inventories.
+When contacting our local leaders *is* necessary, we should remember that they have employment responsibilities too. Don’t contact them at their place of work unless there is a true emergency. Let us be careful not to put our leaders’ employment in jeopardy. Members should also be careful not to expect their local leaders to give them the products of those leaders’ occupations. Our leaders are called to give us Church service, not professional services or merchandise inventories.
 
 We should remember that our leaders are also husbands and fathers. They are bishops or counselors for a season, but they will never be released from their family responsibilities, which are for eternity. Our leaders need time to perform their family responsibilities also, and our thoughtful consideration will help.
 
@@ -52,4 +55,7 @@ A more familiar example was mentioned in a ward I recently attended in Salt Lake
 Brothers and sisters, the offices of bishop and branch president and counselors are sacred in this Church. The men who hold those offices are respected by the Lord, inspired by His Spirit, and given the powers of discernment necessary to their office. We honor and love them, and we show this by our consideration for them.
 
 I testify of the Lord Jesus Christ, whose Church this is and whose servants they are. I ask the blessings of the Lord on the members and leaders of this Church, general and local. In the name of Jesus Christ, amen.
+
+
+
 

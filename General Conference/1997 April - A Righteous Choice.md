@@ -1,5 +1,6 @@
 # A Righteous Choice
-*By By Fono Lavatai - Center Third Ward, Salt Lake Riverside Stake*
+
+By Fono Lavatai - *Center Third Ward, Salt Lake Riverside Stake*
 
 *Given in the April session of the 1997 General Conference*
 
@@ -15,9 +16,12 @@ One day my mom asked me about it. I told her that everything was OK. But she kne
 
 I thought about this for several weeks and came to my final decision. I decided to quit basketball and go to seminary. I knew that if I chose basketball over seminary it would be pretty sad and embarrassing at seminary graduation. I didn’t want to watch others graduate when I couldn’t. Maybe that was the misery my mom was talking about. I decided that I should get my priorities straight. Even though I love basketball so much, first things first. I am hoping to make the basketball team next year. As I plan my schedule, I am making sure that I won’t have to drop seminary again in order to practice.
 
-Right now I’m back in seminary. I have a great teacher, a fun class, and I’m very proud of myself for making the right decision. This experience reminds me of a scripture found in Matthew 6:33 [Matt. 6:33]: “But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.”
+Right now I’m back in seminary. I have a great teacher, a fun class, and I’m very proud of myself for making the right decision. This experience reminds me of a scripture found in Matthew 6:33 \[[[Matthew 6.33|Matt. 6:33]]\]: “But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.”
 
-In my native language, I would like to bear my testimony. [Sister Lavatai then spoke the italicized text in Samoan.] I know this Church is true. Its doctrines are true. I am grateful for this Young Women program, for it has taught us many things to improve our lives.
+In my native language, I would like to bear my testimony. \[Sister Lavatai then spoke the italicized text in Samoan.\] *I know this Church is true. Its doctrines are true. I am grateful for this Young Women program, for it has taught us many things to improve our lives.*
 
 I know this gospel is true. It has helped me a lot throughout my life. I know our leaders are here to help us. I love you all. In the name of Jesus Christ, amen.
+
+
+
 

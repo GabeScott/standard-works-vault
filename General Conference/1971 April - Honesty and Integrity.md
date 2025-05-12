@@ -1,13 +1,14 @@
 # Honesty and Integrity
-*By Delbert L. Stapley - Of the Council of the Twelve*
+
+By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1971/04/honesty-and-integrity?lang=eng)
 
-My brothers and sisters: This has been a wonderful conference. Most worthwhile messages have been given, which recalls a statement by a young man in his late teens. He sought out his stake president following a stake conference attended by our beloved brother, the late Elder Thorpe B. Isaacson, and enthusiastically said, in the jargon of youth, “President, this conference really shook me. Elder Isaacson was really round.” And then he added, “This was a hairy conference.” Now you dig his meaning.
+My brothers and sisters: This has been a wonderful conference. Most worthwhile messages have been given, which recalls a statement by a young man in his late teens. He sought out his stake president following a stake conference attended by our beloved brother, the late Elder Thorpe B. Isaacson, and enthusiastically said, in the jargon of youth, “President, this conference really shook me. Elder Isaacson was really round.” And then he added, “This was a hairy conference.” Now you dig his meaning.
 
-The first part of the thirteenth Article of Faith states: “We believe in being honest.” Honesty embraces many meanings, such as integrity, sincerity, according to the truth, just, honorable, virtuous, purity of life, moral character, and uprightness in mutual dealings.
+The first part of the [[Articles of Faith 1.13|thirteenth Article of Faith]] states: “We believe in being honest.” Honesty embraces many meanings, such as integrity, sincerity, according to the truth, just, honorable, virtuous, purity of life, moral character, and uprightness in mutual dealings.
 
 These principles are required virtues of true Latter-day Saints.
 
@@ -17,13 +18,13 @@ Robert Burns said: “An honest man’s the noblest work of God.” Today, with 
 
 In all humility and sincerity we must admit a power higher than ourselves from whom is derived a positive moral code that will give our lives significance and purpose. We also must remember once and for all that honesty, respect, and honor as such are not for sale on the market block. They are ingredients that you and I and all people should put into our daily lives.
 
-Carlyle said: “Make yourself an honest man, and then you may be sure there is one rascal less in the world.” Can there be a truly honest man without him being a good man, or can there be a truly good man without him being an honest man? It seems honesty must begin with oneself; otherwise we could not recognize this quality in others. We see things not as they are, but as we are. It is the responsibility of each of us to be honest ourselves—honest in our dealings and relationships, honest in our church membership, honest in keeping the commandments of God.
+Carlyle said: “Make yourself an honest man, and then you may be sure there is one rascal less in the world.” Can there be a truly honest man without him being a good man, or can there be a truly good man without him being an honest man? It seems honesty must begin with oneself; otherwise we could not recognize this quality in others. We see things not as *they* are, but as *we* are. It is the responsibility of each of us to be honest ourselves—honest in our dealings and relationships, honest in our church membership, honest in keeping the commandments of God.
 
-It was said of King Mosiah’s sons: “... they were men of truth and soberness, for they had been taught to keep the commandments of God and to walk uprightly before him.” (Alma 53:21.)
+It was said of King Mosiah’s sons: “… they were men of truth and soberness, for they had been taught to keep the commandments of God and to walk uprightly before him.” ([[Alma 53.21|Alma 53:21]].)
 
-Honesty and integrity as perfected virtues in parents are more likely to become the heritage and rich endowments of their children. Parents cannot give to their children that which they do not possess. All these fine ideals and principles that are a part of the gospel teachings, together with all the virtues that make for good character and good life, should be perfected in each of us. In that perfection they become a part of our nature, and when parenthood comes, these virtues are more apt to be transmitted to our children. We read in Proverbs: “The just man walketh in his integrity: his children are blessed after him.” (Prov. 20:7.) How true and basic this statement is!
+Honesty and integrity as perfected virtues in parents are more likely to become the heritage and rich endowments of their children. Parents cannot give to their children that which they do not possess. All these fine ideals and principles that are a part of the gospel teachings, together with all the virtues that make for good character and good life, should be perfected in each of us. In that perfection they become a part of our nature, and when parenthood comes, these virtues are more apt to be transmitted to our children. We read in Proverbs: “The just man walketh in his integrity: his children are blessed after him.” ([[Proverbs 20.7|Prov. 20:7]].) How true and basic this statement is!
 
-As parents, are we honest with our children? Do they hear us tell little white lies to excuse ourselves from certain responsibilities? Can we blame them too much if they follow the example of their erring parents? The instruction to parents is found in the Doctrine and Covenants: “And they shall also teach their children to pray, and to walk uprightly before the Lord.” (D&C 68:28.)
+As parents, are we honest with our children? Do they hear us tell little white lies to excuse ourselves from certain responsibilities? Can we blame them too much if they follow the example of their erring parents? The instruction to parents is found in the Doctrine and Covenants: “And they shall also teach their children to pray, and to walk uprightly before the Lord.” ([[D&C 68.28|D&C 68:28]].)
 
 In order to teach children to walk uprightly, the example must be set by parents. Husbands and wives, are you faithful and true to your mate? Are you living lives of moral soundness and purity? We cannot afford to support iniquity. To do so would be dangerous to our eternal salvation and that of our children. We must walk uprightly before the Lord and be scrupulously honest, and thus be blessed with a high moral and ethical sense that governs all our actions.
 
@@ -39,9 +40,9 @@ If in business, do we “pad the bill” to get a little extra benefit we are no
 
 And you teachers, are you honest in the grades you give? Do you mark according to what the student has earned, or do you let personalities interfere? The juggling of grades or disregarding rules and regulations to produce winning teams are acts of dishonesty and should be avoided. When winning becomes more important than the character and spiritual values these activities are planned to produce, then there is something lacking in leadership. We must not justify ourselves doing what the law or rule does not encompass. Laws and rules cannot make people honest. Evil practices encourage youth to be dishonest. It is the small and seemingly unimportant practices that lead to more serious habits of dishonesty, dishonor, and lack of strong moral integrity. We must inculcate into the heart and character of an individual the virtues that he so much needs to meet honorably the problems of life.
 
-And on behalf of students and youth, do we honestly and sincerely listen to their wants and needs? Do we really try to understand them, or are we giving them what we think they should have?
+And on behalf of students and youth, do we honestly and sincerely listen to their wants and needs? Do we really try to understand them, or are we giving them what *we think* they should have?
 
-And those of us who teach in church organizations—are we honest in living as we teach, or do we have a double standard? It was observed recently that a young married woman teacher appeared at church in a very short mini-dress. Can she be honestly teaching the dress standards of the Church while not keeping them herself? Shakespeare said it so well: “This above all: to thine own self be true, and it must follow, as the night the day, thou canst not then be false to any man.” (Hamlet, act 1, sc. 3.)
+And those of us who teach in church organizations—are we honest in living as we teach, or do we have a double standard? It was observed recently that a young married woman teacher appeared at church in a very short mini-dress. Can she be honestly teaching the dress standards of the Church while not keeping them herself? Shakespeare said it so well: “This above all: to thine own self be true, and it must follow, as the night the day, thou canst not then be false to any man.” (*Hamlet,* act 1, sc. 3.)
 
 One’s purpose in life must exemplify honesty and sincerity. A person should always abide by his agreements and be willing to pay for his own mistakes. Honesty and integrity build confidence, friendships, and secure the goodwill and support of people that so often pay satisfying dividends. When a person sees the honesty and integrity of another, he will go out of his way to be of help and assistance to such a sincere and reliable individual.
 
@@ -60,4 +61,7 @@ Yes, “we believe in being honest.” We also believe in “being true, chaste,
 I have a firm conviction, my brethren and sisters, to the truths of the gospel of Christ. I know they are given for our guidance, benefit, blessing, and the salvation of man.
 
 I bear witness to you of these things. I know that we must be Christlike in all of our relationships with our fellowmen. If so, we will be exemplary and will be fit servants of the Lord and Savior, Jesus Christ. This I humbly pray, in the name of Jesus Christ. Amen.
+
+
+
 

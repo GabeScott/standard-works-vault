@@ -1,5 +1,6 @@
 # The Pearl of Great Price
-*By J. Thomas Fyans - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -34,4 +35,7 @@ And we talked about the cross-referencing of these scriptures. They are not isol
 We have many wonderful teachings in this Church, all of which contribute to an uplifting, wonderful life. And yet as we look through all these trappings, and down to the very center core, we find that there is the message: yes, the Lord Jesus Christ came in the meridian of time. There he called others—Apostles and seventy, and others—to assist him in the task. He was placed on the cross and then in the tomb, and on the third day he arose. He lives today, and because he lives today, we will live tomorrow. That, I told my friend, is how we console the bereaved.
 
 And I bear my witness, brothers and sisters, that I know that Jesus is the Christ, that this is the Church of Jesus Christ. There are many testaments of him—the Old Testament, the New Testament, another testament commonly known as the Book of Mormon. May we drink deeply from these testaments to bear up that testimony in our hearts. And may we share it with others so that the kingdom of God will be here upon the earth, that the kingdom of heaven may come, I pray humbly in the holy name of the Lord Jesus Christ, amen.
+
+
+
 

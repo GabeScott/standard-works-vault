@@ -1,31 +1,31 @@
 # Finding Joy in Sharing the Gospel
-*By By Cristina B. Franco - Second Counselor in the Primary General Presidency*
+
+By Cristina B. Franco - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2019 General Conference*
+
+>*We have a loving Father in Heaven, who is waiting for us to turn to Him to bless our lives and the lives of those around us.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/10/42franco?lang=eng)
 
 One of my favorite Primary songs begins with these words:
 
-I belong to The Church of Jesus Christ of Latter-day Saints.
-
-I know who I am.
-
-I know God’s plan.
-
-I’ll follow him in faith.
-
-I believe in the Savior, Jesus Christ.
+>I belong to The Church of Jesus Christ of Latter-day Saints.
+>I know who I am.
+>I know God’s plan.
+>I’ll follow him in faith.
+>I believe in the Savior, Jesus Christ.[^1]
+>
 
 What a simple and beautiful statement of the truths we believe!
 
-As members of The Church of Jesus Christ of Latter-day Saints, we know who we are. We know that “God is the Father of our spirits. We are ... His children, and He loves us. We lived [with Him in heaven] before we [came to] earth.”
+As members of The Church of Jesus Christ of Latter-day Saints, we know who we are. We know that “God is the Father of our spirits. We are … His children, and He loves us. We lived \[with Him in heaven\] before we \[came to\] earth.”
 
-We know God’s plan. We were there with Him as He presented it. Our Father in Heaven’s “whole purpose—His work and His glory—is to enable each of us to enjoy all His blessings. He ... provided a perfect plan to accomplish His purpose. We understood and accepted this plan ... of happiness, ... redemption, and ... salvation” before we came to earth.
+We know God’s plan. We were there with Him as He presented it. Our Father in Heaven’s “whole purpose—His work and His glory—is to enable each of us to enjoy all His blessings. He … provided a perfect plan to accomplish His purpose. We understood and accepted this plan … of happiness, … redemption, and … salvation” before we came to earth.
 
 “Jesus Christ is central to God’s plan. Through His Atonement, Jesus Christ fulfilled His Father’s purpose and made it possible for each of us to enjoy immortality and exaltation. Satan, or the devil, is an enemy to God’s plan” and has been from the beginning.
 
-“Agency, or the ability to choose, is one of God’s greatest gifts to His children. ... We must choose whether to follow Jesus Christ or follow Satan.”
+“Agency, or the ability to choose, is one of God’s greatest gifts to His children. … We must choose whether to follow Jesus Christ or follow Satan.”[^2]
 
 These are simple truths we can share with others.
 
@@ -75,39 +75,53 @@ Susana also said, “Other times I just smile while I am waiting for the train. 
 
 When he said no, she gave him a pass-along card and invited him to attend the upcoming Sunday services. The following Sunday, she greeted him at the door.
 
-President Dallin H. Oaks taught:
+President Dallin H. Oaks taught:
 
-“There are three things all members can do to help share the gospel. ...
+“There are three things all members can do to help share the gospel. …
 
-“First, we can all pray for desire to help with this vital part of the work of salvation. ...
+“*First,* we can all pray for desire to help with this vital part of the work of salvation. …
 
-“Second, we can keep the commandments. ... Faithful members will always have the Savior’s Spirit ... with them to guide them as they seek to participate in the great work of sharing the restored gospel of Jesus Christ.
+“*Second,* we can keep the commandments. … Faithful members will always have the Savior’s Spirit … with them to guide them as they seek to participate in the great work of sharing the restored gospel of Jesus Christ.
 
-“Third, we can pray for inspiration on what we can do ... to share the gospel with others ... [and] pray with a commitment to act upon the inspiration [we] receive.”
+“*Third,* we can pray for inspiration on what *we* can do … to share the gospel with others … \[and\] pray with a commitment to act upon the inspiration \[we\] receive.”[^3]
 
-Brothers, sisters, children, and youth, can we be like my friend Susana and share the gospel with others? Can we invite a friend who is not of our faith to come to church with us on Sunday? Or can we perhaps share a copy of the Book of Mormon with a relative or a friend? Can we help others find their ancestors on FamilySearch or share with others what we have learned during the week as we have been studying Come, Follow Me? Can we be more like our Savior, Jesus Christ, and share with others what brings us joy to our lives? The answer to all of these questions is yes! We can do it!
+Brothers, sisters, children, and youth, can we be like my friend Susana and share the gospel with others? Can we invite a friend who is not of our faith to come to church with us on Sunday? Or can we perhaps share a copy of the Book of Mormon with a relative or a friend? Can we help others find their ancestors on FamilySearch or share with others what we have learned during the week as we have been studying *Come, Follow Me*? Can we be more like our Savior, Jesus Christ, and share with others what brings us joy to our lives? The answer to all of these questions is yes! We can do it!
 
-In the scriptures we read that “members of the Church of Jesus Christ are sent forth ‘to labor in his vineyard for the salvation of the souls of men’ (Doctrine and Covenants 138:56). This work of salvation includes member missionary work, convert retention, activation of less-active members, temple and family history work, and teaching the gospel.”
+In the scriptures we read that “members of the Church of Jesus Christ are sent forth ‘to labor in his vineyard for the salvation of the souls of men’ ([[D&C 138.56|Doctrine and Covenants 138:56]]). This work of salvation includes member missionary work, convert retention, activation of less-active members, temple and family history work, and teaching the gospel.”[^4]
 
-My dear friends, the Lord needs us to gather Israel. In the Doctrine and Covenants, He has said, “Neither take ye thought beforehand what ye shall say; but treasure up in your minds continually the words of life, and it shall be given you in the very hour that portion that shall be meted unto every man.”
+My dear friends, the Lord needs us to gather Israel. In the Doctrine and Covenants, He has said, “Neither take ye thought beforehand what ye shall say; but treasure up in your minds continually the words of life, and it shall be given you in the very hour that portion that shall be meted unto every man.”[^5]
 
 In addition, He has promised us:
 
 “And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!
 
-“And now, if your joy will be great with one soul that you have brought unto me into the kingdom of my Father, how great will be your joy if you should bring many souls unto me!”
+“And now, if your joy will be great with one soul that you have brought unto me into the kingdom of my Father, how great will be your joy if you should bring many souls unto me!”[^6]
 
 The Primary song I began with concludes with this profound statement:
 
-I believe in the Savior, Jesus Christ.
-
-I’ll honor his name.
-
-I’ll do what is right;
-
-I’ll follow his light.
-
-His truth I will proclaim.
+>I believe in the Savior, Jesus Christ.
+>I’ll honor his name.
+>I’ll do what is right;
+>I’ll follow his light.
+>His truth I will proclaim.[^7]
+>
 
 I bear witness that these words are true and that we have a loving Father in Heaven, who is waiting for us to turn to Him to bless our lives and the lives of those around us. May we have the desire to bring our brothers and sisters to Christ is my prayer in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: “The Church of Jesus Christ,” *Children’s Songbook,* 77.
+
+[^2]: *Preach My Gospel: A Guide to Missionary Service,* rev. ed. (2018), 48.
+
+[^3]: Dallin H. Oaks, “[[2016 October - Sharing the Restored Gospel.md|Sharing the Restored Gospel]],” *Ensign* or *Liahona,* Nov. 2016, 58.
+
+[^4]: *Handbook 2: Administering the Church,* [5.0](https://churchofjesuschrist.org/study/manual/handbook-2-administering-the-church/the-work-of-salvation-in-the-ward-and-stake/the-work-of-salvation-in-the-ward-and-stake?lang=eng), ChurchofJesusChrist.org; see also L. Whitney Clayton, “[The Work of Salvation: Then and Now](https://churchofjesuschrist.org/study/liahona/2014/09/the-work-of-salvation-then-and-now?lang=eng),” *Ensign,* Sept. 2014, 63; *Liahona,* Sept. 2014, 23.
+
+[^5]: [[D&C 84.85|Doctrine and Covenants 84:85]].
+
+[^6]: [[D&C 18.15|Doctrine and Covenants 18:15–16]][[D&C 18.16|]].
+
+[^7]: “The Church of Jesus Christ,” 77.
 

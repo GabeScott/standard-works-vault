@@ -1,19 +1,20 @@
 # “I Will Look unto the Lord”
-*By Marion D. Hanks - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder Marion D. Hanks - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1986/10/i-will-look-unto-the-lord?lang=eng)
 
-In the early days of the Restoration, the Lord commanded one of his servants to “declare glad tidings,” and to do this “with all humility, trusting in me, reviling not against revilers” (D&C 19:29–30). In the constructive spirit of that directive, I desire to bear my testimony this morning about the vital effect in our lives and the lives of others of the day-by-day decisions all of us are making—and where we can find help in making them.
+In the early days of the Restoration, the Lord commanded one of his servants to “declare glad tidings” and to do this “with all humility, trusting in me, reviling not against revilers” ([[D&C 19.29|D&C 19:29–30]][[D&C 19.30|]]). In the constructive spirit of that directive, I desire to bear my testimony this morning about the vital effect in our lives and the lives of others of the day-by-day decisions all of us are making—and where we can find help in making them.
 
 A teacher once wrote of the unanticipated consequences of some of our decisions. We didn’t really ever intend those consequences, but we followed the paths that led to them. “He who chooses the beginning of a road chooses the place it leads to,” he said. “He who picks up one end of a stick, picks up the other.” And it is not only our own course we are affecting when we choose the beginning of a road; we inevitably travel with others, and sometimes we bring anguish and distress to those we love and to other innocent persons.
 
 Over this pulpit President David O. McKay taught us:
 
-“Next to the bestowal of life itself, the right to direct that life is God’s greatest gift to man. ... Freedom of choice is more to be treasured than any possession earth can give” (in Conference Report, Apr. 1950, p. 32).
+“Next to the bestowal of life itself, the right to direct that life is God’s greatest gift to man. … Freedom of choice is more to be treasured than any possession earth can give” (in Conference Report, Apr. 1950, p. 32).
 
-The oppressing presence of problems all about us—personal, family, and in our society—accentuates the peril as well as the privilege of free agency. The ancient Psalmist surely seems to be singing to our time: “Have mercy upon me, O Lord, for I am in trouble” (Ps. 31:9).
+The oppressing presence of problems all about us—personal, family, and in our society—accentuates the peril as well as the privilege of free agency. The ancient Psalmist surely seems to be singing to our time: “Have mercy upon me, O Lord, for I am in trouble” ([[Psalms 31.9|Ps. 31:9]]).
 
 Why is there so much trouble? “With all that fairway, why do we spend so much time in the rough?” someone said.
 
@@ -21,15 +22,15 @@ Part of the answer is that without opposition and testing, free agency loses its
 
 Much that happens to us in this life we cannot control; we only respond. But much of the pain we suffer and inevitably impose upon others is self-induced through our own bad judgment, through poor choices. Where can we look for help?
 
-The ancient prophet Micah perhaps surprisingly seemed to rule out the nearest and most normal sources of assistance—family, friends, and leaders. Some of us have perhaps experienced a measure of the deep disappointment he felt because of Israel’s rebelliousness when he declared that “the good man is perished out of the earth” (Micah 7:2). He spoke of princes and judges asking for rewards, and of great men uttering “mischievous desires” (Micah 7:3). For Micah, the source of help was clear and sure: “Therefore I will look unto the Lord,” he said. “I will wait for the God of my salvation: my God will hear me” (Micah 7:7).
+The ancient prophet Micah perhaps surprisingly seemed to rule out the nearest and most normal sources of assistance—family, friends, and leaders. Some of us have perhaps experienced a measure of the deep disappointment he felt because of Israel’s rebelliousness when he declared that “the good man is perished out of the earth” ([[Micah 7.2|Micah 7:2]]). He spoke of princes and judges asking for rewards, and of great men uttering “mischievous desire” (see [[Micah 7.3|v. 3]]). For Micah, the source of help was clear and sure: “Therefore I will look unto the Lord,” he said. “I will wait for the God of my salvation: my God will hear me” ([[Micah 7.7|Micah 7:7]]).
 
-Jeremiah warned “the man that trusteth in man, and maketh flesh his arm, and whose heart departeth from the Lord” (Jer. 17:5). Other prophets have similarly spoken.
+Jeremiah warned “the man that trusteth in man, and maketh flesh his arm, and whose heart departeth from the Lord” ([[Jeremiah 17.5|Jer. 17:5]]). Other prophets have similarly spoken.
 
-Does this mean that we may never have confidence in the integrity of others? Must we never trust parents or friends or caring counselors or humble servants of God? This is obviously not the meaning of the scriptures, which themselves are the record of revelation and inspired instruction; what they are emphasizing is the care we must exercise in choosing counsel or example.
+Does this mean that we may never have confidence in the integrity of others? Must we never trust parents or friends or caring counselors or humble servants of God? This is obviously not the meaning of the scriptures, which themselves are the record of revelation and inspired instruction; what they are emphasizing is the *care* we must exercise in *choosing* counsel or example.
 
-There is accessible, for those who will accommodate it, much that is not uplifting or wholesome, which sometimes seems so perverse in its portrayal of marriage, and of the family, and of personal integrity that the undiscerning might be led to believe that this is the normal way for people or families or neighborhoods to behave.
+There is accessible, for those who will accommodate it, much that is *not* uplifting or wholesome, which sometimes seems so perverse in its portrayal of marriage, and of the family, and of personal integrity that the undiscerning might be led to believe that this is the normal way for people or families or neighborhoods to behave.
 
-Only last week a comment was made by an Assistant United States Attorney General after she had witnessed a popular play in which drug use was made to appear acceptable and even desirable: “‘We perpetuate the falsehood that drugs make you cute, bold, insightful, philosophical or chic,’” she said (Lois Haight Herrington, as quoted by Godfrey Sperling, Jr., “Tolerance for Drugs Is Undermining U.S. ‘War’ Commitment,” Deseret News, 24 Sept. 1986, sec. A, p. 9). And a columnist, in quoting her, added an interesting line: “Our society still sanctions the use of alcohol. There is really no more dangerous drug—and certainly none that has done more damage or wrecked more lives over the years—than alcohol” (Sperling, Deseret News, 24 Sept. 1986, p. A9).
+Only last week a comment was made by an assistant United States attorney general after she had witnessed a popular play in which drug use was made to appear acceptable and even desirable: “‘We perpetuate the falsehood that drugs make you cute, bold, insightful, philosophical or chic,’” she said (Lois Haight Herrington, as quoted by Godfrey Sperling, Jr., “Tolerance for Drugs Is Undermining U.S. ‘War’ Commitment,” *Deseret News,* 24 Sept. 1986, p. A9). And a columnist, in quoting her, added an interesting line: “Our society still sanctions the use of alcohol. There is really no more dangerous drug—and certainly none that has done more damage or wrecked more lives over the years—than alcohol” (Sperling, *Deseret News,* 24 Sept. 1986, p. A9).
 
 But most of us also have available sound sources of wise guidance if we will look for them. There is great power in trust and love, and, of course, we must learn to trust because our confidence in the integrity of man supports our confidence in God. Yet, in matters of lasting importance, one must not rely only on “the arm of flesh” at the expense of looking to the Lord in scripture and in prayer.
 
@@ -49,35 +50,38 @@ When he returned to the ship, overleave overseas in wartime, out of control, and
 
 The charges against him, indelibly imprinted on his previously perfect service record, were heartbreaking. I won’t forget his tearful anguish as he said over and over, “What will I tell my mom? What will I tell my girl?”
 
-He had time now—and the disposition to listen and to think. We read together the sweet counsel of the Lord concerning Christ’s atoning sacrifice and his mission of redemption and of forgiveness and mercy (see Alma 42).
+He had time now—and the disposition to listen and to think. We read together the sweet counsel of the Lord concerning Christ’s atoning sacrifice and his mission of redemption and of forgiveness and mercy (see [[Alma 42.1|Alma 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]]).
 
 About two thousand years ago, the Apostle Peter wrote in remarkable detail of our times and what is transpiring in them as individuals, young and old, are sometimes led into tragedy by others who have no wholesome interest in their happiness or their future. These “others,” and the results of their evil influence, are clearly described. I pray that some who sorely need it, or some who can help those who sorely need it, will hear these remarkable words. They come from the book of Second Peter, chapter 2:
 
-“The Lord knoweth how to deliver the godly out of temptations, and to reserve the unjust unto the day of judgment. ...
+“The Lord knoweth how to deliver the godly out of temptations, and to reserve the *unjust* unto the day of judgment. …
 
-“But chiefly them that walk after the flesh in the lust of uncleanness, and despise government. Presumptuous are they, selfwilled, they are not afraid to speak evil of dignities. ...
+“But chiefly them that walk after the flesh in the lust of uncleanness, and despise government. Presumptuous are they, selfwilled, they are not afraid to speak evil of dignities. …
 
-“... of the things that they understand not; ...
+“… of the things that they understand not; …
 
-“Having eyes full of adultery, and that cannot cease from sin; beguiling unstable souls: ...
+“Having eyes full of adultery, and that cannot cease from sin; beguiling unstable souls: …
 
-“These are wells without water, clouds that are carried with a tempest; ...
+“These are wells without water, clouds that are carried with a tempest; …
 
 “For when they speak great swelling words of vanity, they allure through the lusts of the flesh, through much wantonness, those that were clean escaped from them who live in error.
 
-“While they promise them liberty, they themselves are the servants of corruption: for of whom a man is overcome, of the same is he brought in bondage” (2 Pet. 2:9–10, 12, 14, 17–19; italics added).
+“While they promise them liberty, they themselves are the servants of corruption: for of whom a man is overcome, of the same is he brought in bondage” ([[2 Peter 2.9|2 Pet. 2:9–10, 12, 14, 17–19]][[2 Peter 2.10|]][[2 Peter 2.12|]][[2 Peter 2.14|]][[2 Peter 2.17|]][[2 Peter 2.18|]][[2 Peter 2.19|]]; italics added).
 
 I have never been able to refer to these powerful words without thinking about a clean young man of strong promise who followed bad counsel and bad example into tragedy, with compromise to conscience and with heartbreak to himself and to those who loved him. We cannot with impunity follow the example or heed the counsels of unwisdom or unrighteousness, or of ignorance or immaturity or ego or greed or bravado.
 
 There is no bravery in evil, no true courage in behavior that can only result in deep disappointment. There is no lasting joy in the euphoria resulting from substances taken into our bodies which ultimately sabotage our self-control, and overcome our capacity to think for ourselves, and move us to act in ways incompatible with our best understanding.
 
-We see much that is glorious and reassuring in good human beings, but mortal men have limitations. None of us has ever met a mortal in whom we could comfortably rest our salvation. Only one qualifies for that trust, and he is the Holy One of Israel. His love for us was and is so great that he volunteered for the unspeakable burden of carrying the weight of our sins. He is our Mediator and our Advocate with the Father. The prophet Micah spoke truthfully and faithfully long ago when, in a time of great trouble, he testified: “I will look unto the Lord; I will wait for the God of my salvation: my God will hear me” (Micah 7:7).
+We see much that is glorious and reassuring in good human beings, but mortal men have limitations. None of us has ever met a mortal in whom we could comfortably rest our salvation. Only one qualifies for that trust, and he is the Holy One of Israel. His love for us was and is so great that he volunteered for the unspeakable burden of carrying the weight of our sins. He is our Mediator and our Advocate with the Father. The prophet Micah spoke truthfully and faithfully long ago when, in a time of great trouble, he testified: “I will look unto the Lord; I will wait for the God of my salvation: my God will hear me” ([[Micah 7.7|v. 7]]).
 
-All of us have much to learn and need good counsel. And beyond sound human help, beyond the “arm of flesh,” it is written, “Counsel with the Lord in all thy doings, and he will direct thee for good” (Alma 37:37). “He will console you in your afflictions, and he will plead your cause” (Jacob 3:1).
+All of us have much to learn and need good counsel. And beyond sound human help, beyond the “arm of flesh,” it is written, “Counsel with the Lord in all thy doings, and he will direct thee for good” ([[Alma 37.37|Alma 37:37]]). “He will console you in your afflictions, and he will plead your cause” ([[Jacob 3.1|Jacob 3:1]]).
 
 Mormon’s last words to his son are my prayer for my children and grandchildren also, and for the children of men everywhere:
 
-“My son, be faithful in Christ; and may not the things which I have written grieve thee, to weigh thee down unto death; but may Christ lift thee up, and may his sufferings and death, and [resurrection], ... and his mercy and long-suffering, and the hope of his glory and of eternal life, rest in your mind forever” (Moro. 9:25).
+“My son, be faithful in Christ; and may not the things which I have written grieve thee, to weigh thee down unto death; but may Christ lift thee up, and may his sufferings and death, and \[resurrection\], … and his mercy and long-suffering, and the hope of his glory and of eternal life, rest in your mind forever” ([[Moroni 9.25|Moro. 9:25]]).
 
 In the name of Jesus Christ, amen.
+
+
+
 

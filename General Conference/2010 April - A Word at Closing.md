@@ -1,7 +1,10 @@
 # A Word at Closing
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2010 General Conference*
+
+>*The lighthouse of the Lord sends forth signals readily recognized and never failing.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/04/a-word-at-closing?lang=eng)
 
@@ -11,15 +14,15 @@ One brief scripture:
 
 “Trust in the Lord with all thine heart; and lean not unto thine own understanding.
 
-“In all thy ways acknowledge him, and he shall direct thy paths.”1
+“In all thy ways acknowledge him, and he shall direct thy paths.”[^1]
 
 That has been the story of my life.
 
 My dear brothers and sisters, we come now to the conclusion of a most uplifting and inspiring conference. After listening to the counsel and testimonies of those who have spoken to us, I believe we have been richly blessed and are all more determined to live the principles of the gospel of Jesus Christ. It has been good for us to be here. We express our gratitude to each one who has spoken to us, as well as to those who have offered prayers.
 
-The music has been magnificent. I am reminded of the scripture found in the Doctrine and Covenants: “For my soul delighteth in the song of the heart; yea, the song of the righteous is a prayer unto me, and it shall be answered with a blessing upon their heads.”2
+The music has been magnificent. I am reminded of the scripture found in the Doctrine and Covenants: “For my soul delighteth in the song of the heart; yea, the song of the righteous is a prayer unto me, and it shall be answered with a blessing upon their heads.”[^2]
 
-Remember that the messages we have heard during this conference will be printed in the May issues of the Ensign and Liahona magazines. I urge you to study the messages, to ponder their teachings, and then to apply them in your life.
+Remember that the messages we have heard during this conference will be printed in the May issues of the *Ensign* and *Liahona* magazines. I urge you to study the messages, to ponder their teachings, and then to apply them in your life.
 
 I know you join with me in expressing gratitude to those brethren and sisters who have been released during this conference. They have served well and have made significant contributions to the work of the Lord. Their dedication has been complete. We thank them from the bottom of our hearts.
 
@@ -31,7 +34,7 @@ Permissiveness, immorality, pornography, dishonesty, and a host of other ills ca
 
 My counsel for all of us is to look to the lighthouse of the Lord. There is no fog so dense, no night so dark, no gale so strong, no mariner so lost but what its beacon light can rescue. It beckons through the storms of life. The lighthouse of the Lord sends forth signals readily recognized and never failing.
 
-I love the words found in Psalms: “The Lord is my rock, and my fortress, and my deliverer; my God, my strength, in whom I will trust; ... I will call upon the Lord ... so [I shall] be saved from mine enemies.”3
+I love the words found in Psalms: “The Lord is my rock, and my fortress, and my deliverer; my God, my strength, in whom I will trust; … I will call upon the Lord … so \[I shall\] be saved from mine enemies.”[^3]
 
 The Lord loves us, my brothers and sisters, and will bless us as we call upon Him.
 
@@ -42,4 +45,13 @@ Now, as we come to the final moments of this conference, my heart is full and my
 As we leave this conference, I invoke the blessings of heaven upon each of you. As you return to your homes around the world, I pray our Heavenly Father will bless you and your families. May the messages and spirit of this conference find expression in all that you do—in your homes, in your work, in your meetings, and in all your comings and goings.
 
 I love you. I pray for you. May God bless you. May His promised peace be with you now and always, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
+
+[^2]: [[D&C 25.12|Doctrine and Covenants 25:12]].
+
+[^3]: [[Psalms 18.2|Psalm 18:2–3]][[Psalms 18.3|]].
 

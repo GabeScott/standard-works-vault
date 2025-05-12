@@ -1,5 +1,6 @@
 # Prepare for Honorable Employment
-*By Howard W. Hunter - Of the Council of the Twelve*
+
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -7,7 +8,7 @@
 
 This morning we have heard many important things about preparing ourselves, our families, our wards, indeed, the Church to meet the challenges of these times. One of those aspects of preparation, as Bishop Brown and his counselors explained in their discussions of family preparedness, is employment and career development. I should like to discuss this in more detail, because it is so important to most of us, who as leaders, give assistance to others.
 
-It is interesting that the first recorded instruction given to Adam after the Fall, dealt with the eternal principle of work. The Lord said: “In the sweat of thy face shalt thou eat bread.” (Gen. 3:19.) Our Heavenly Father loves us so completely that he has given us a commandment to work. This is one of the keys to eternal life. He knows that we will learn more, grow more, achieve more, serve more, and benefit more from a life of industry than from a life of ease.
+It is interesting that the first recorded instruction given to Adam after the Fall, dealt with the eternal principle of work. The Lord said: “In the sweat of thy face shalt thou eat bread.” ([[Genesis 3.19|Gen. 3:19]].) Our Heavenly Father loves us so completely that he has given us a commandment to work. This is one of the keys to eternal life. He knows that we will learn more, grow more, achieve more, serve more, and benefit more from a life of industry than from a life of ease.
 
 There are several principles which undergird the significance of work in the Lord’s plan. First, as the covenant people we must be as self-sufficient as possible. We are to be free from dependence upon a dole or any program that might endanger our free agency. Second, we must work to support the families with which the Lord has blessed us. Every true son of God wants to care for his own, and many a noble mother, from whom a husband has been taken, struggles to support her children, both as a breadwinner and a single parent. Finally, we work so that we may have the necessities of life, conserving time and energy left over for service in the Lord’s work. Sometimes it seems that the men who work the hardest at their occupations are the men most willing to devote time to church service.
 
@@ -44,4 +45,7 @@ There are impelling reasons for our sisters to plan toward employment also. We w
 Brothers and Sisters, we need to do everything necessary to adequately prepare ourselves for employment or careers. We owe it to ourselves to do our best, and we owe our best in providing for our families. In addition to preparing ourselves for success, we need to help others. This is the spirit of our priesthood responsibility.
 
 I am grateful for my membership in a church that has this concern for its members, and for my association with brethren who have a concern for each other’s welfare. This is the Lord’s church. This is his work led by his prophet. May we follow the counsel given for preparedness, I pray in the name of Jesus Christ. Amen.
+
+
+
 

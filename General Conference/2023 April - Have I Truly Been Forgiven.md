@@ -1,7 +1,10 @@
 # Have I Truly Been Forgiven?
-*By K. Brett Nattress - Of the Seventy*
+
+By Elder K. Brett Nattress - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
+
+>*The promise of complete and perfect forgiveness is made to everyone—in and through the infinite Atonement of Jesus Christ.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/04/33nattress?lang=eng)
 
@@ -11,7 +14,7 @@ On one such day after our family lunch, I noticed that our five-year-old daughte
 
 It simply read, “Dad, remember to love me. Love, Michelle.” This was a powerful reminder to a young father about those things that matter most.
 
-Brothers and sisters, I testify that our Heavenly Father always remembers us and that He loves us perfectly. My question is this: Do we remember Him? And do we love Him?
+Brothers and sisters, I testify that *our Heavenly Father always remembers us* and that He loves us perfectly. My question is this: Do we remember Him? And do we love Him?
 
 Years ago, I served as a local Church leader. One of our young men, Danny, was outstanding in every way. He was obedient, kind, good, and had a great heart. However, when he graduated from high school, he started to associate with a rough crowd. He got involved in drugs, specifically methamphetamine, and traveled down the slippery slope of addiction and destruction. Before long, his appearance completely changed. He was hardly recognizable. The most significant change was in his eyes—the light in his eyes had dimmed. Several times I reached out to him, but to no avail. He wasn’t interested.
 
@@ -25,19 +28,19 @@ Although he had a desire to change, it was difficult for Danny. His addictions a
 
 One particular afternoon, when I was out mowing our lawn, Danny pulled up in his car unannounced. He was struggling terribly. I turned off the mower, and we sat down together in the shade of the front porch. It was then that he shared the feelings of his heart. He truly wanted to come back. However, turning away from his addictions and lifestyle was extremely difficult. Adding to this, he felt so guilty, so ashamed for falling so far. He asked, “Can I really be forgiven? Is there really a way back?”
 
-After he poured out his heart with these concerns, we read Alma chapter 36 together:
+After he poured out his heart with these concerns, we read [[Alma 36.1|Alma chapter 36]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]] together:
 
-“Yea, I did remember all my sins and iniquities. ...
+“Yea, I did remember all my sins and iniquities. …
 
-“Yea, ... the very thought of coming into the presence of my God did rack my soul with inexpressible horror” (verses 13–14).
+“Yea, … the very thought of coming into the presence of my God did rack my soul with inexpressible horror” ([[Alma 36.13|verses 13–14]][[Alma 36.14|]]).
 
 After those verses, Danny said, “This is exactly how I feel!”
 
 We continued:
 
-“While I was harrowed up by the memory of my many sins, behold, I remembered also to have heard my father prophesy unto the people concerning the coming of one Jesus Christ, a Son of God, to atone for the sins of the world. ...
+“While I was harrowed up by the memory of my many sins, behold, I remembered also to have heard my father prophesy unto the people concerning the coming of one Jesus Christ, a Son of God, to atone for the sins of the world. …
 
-“And oh, what joy, and what marvelous light I did behold” (verses 17, 20).
+“And oh, what joy, and what marvelous light I did behold” ([[Alma 36.17|verses 17, 20]][[Alma 36.20|]]).
 
 As we read these passages, tears began to flow. Alma’s joy was the joy he had been searching for!
 
@@ -73,9 +76,9 @@ I said, “Danny! Have you looked in the mirror? Have you seen your eyes? They a
 
 Danny’s miracle continues today. He married in the temple and returned to school, where he received a master’s degree. He continues to serve the Lord with honor and dignity in his callings. More important, he has become an incredible husband and a faithful father. He is a devoted disciple of Jesus Christ.
 
-President Russell M. Nelson taught, “Without the [Savior’s] infinite Atonement, all mankind would be irretrievably lost.”1 Danny wasn’t lost, and neither are we to the Lord. He stands at the door to lift us, to strengthen us, and to forgive us. He always remembers to love us!
+President Russell M. Nelson taught, “Without the \[Savior’s\] infinite Atonement, all mankind would be irretrievably lost.”[^1] Danny wasn’t lost, and neither are we to the Lord. He stands at the door to lift us, to strengthen us, and to forgive us. He always remembers to love us!
 
-An incredible demonstration of the Savior’s love for God’s children is recorded in the Book of Mormon: “When Jesus had thus spoken, he cast his eyes round about again on the multitude, and beheld they were in tears, and did look steadfastly upon him as if they would ask him to tarry a little longer with them” (3 Nephi 17:5).
+An incredible demonstration of the Savior’s love for God’s children is recorded in the Book of Mormon: “When Jesus had thus spoken, he cast his eyes round about again on the multitude, and beheld they were in tears, and did look steadfastly upon him as if they would ask him to tarry a little longer with them” ([[3 Nephi 17.5|3 Nephi 17:5]]).
 
 The Savior had already spent a full day ministering to the people. Yet He had more to do—He was to visit His other sheep; He was to go to His Father.
 
@@ -89,15 +92,20 @@ He ministered to their children one by one.
 
 He prayed for them; He wept with them.
 
-And He healed them. (See 3 Nephi 17.)
+And He healed them. (See [[3 Nephi 17.1|3 Nephi 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]].)
 
 His promise is eternal: He will heal us.
 
 To those who have strayed from the covenant path, please know there is always hope, there is always healing, and there is always a way back.
 
-His eternal message of hope is the healing balm for all who live in a troubled world. The Savior said, “I am the way, the truth, and the life” (John 14:6).
+His eternal message of hope is the healing balm for all who live in a troubled world. The Savior said, “I am the way, the truth, and the life” ([[John 14.6|John 14:6]]).
 
 Brothers and sisters, let us remember to seek Him, to love Him, and to always remember Him.
 
 I testify that God lives and that He loves us. I further testify that Jesus Christ is the Savior and Redeemer of the world. He is the mighty healer. I know that my Redeemer lives! In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Russell M. Nelson, “[Prepare for Blessings of the Temple](https://churchofjesuschrist.org/study/ensign/2002/03/prepare-for-blessings-of-the-temple?lang=eng&id=p50#p50),” *Ensign*, Mar. 2002, 21.
 

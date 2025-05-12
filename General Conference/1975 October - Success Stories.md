@@ -1,5 +1,6 @@
 # Success Stories
-*By Sterling W. Sill - Assistant to the Council of the Twelve*
+
+By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -21,59 +22,41 @@ Mark Antony went to Egypt where he fell in love with the bewitching queen, Cleop
 
 It didn’t require an army to overcome Mark Antony now. Just a handful of the meanest soldiers was all that was necessary. However, Mark Antony avoided arrest by thrusting a dagger into his own heart, and as he lay dying he recounted to Cleopatra that there had been no power in the world sufficient to overthrow him, except his own power. He said, “Only Antony could conquer Antony.” And then as he contemplated the arrival of the Roman soldiers and thought of the awful disgrace that he had brought upon his country and the shame and humiliation that he had caused his family, he made his last speech, which William Haines Lytle has translated into verse, in which Antony says to Cleopatra:
 
-Let not Caesar’s servile minions
-
-Mock the lion thus laid low;
-
-’Twas no foreman’s arm that fell’d him,
-
-’Twas his own that struck the blow;
-
-His who, pillow’d on thy bosom,
-
-Turn’d aside from glory’s ray,
-
-His who, drunk with thy caresses,
-
-Madly threw a world away.
-
-“Antony and Cleopatra,” The Best Loved Poems of the American People, comp. Hazel Felleman, Garden City, New York: Doubleday & Company, 1936, p. 203.
+>Let not Caesar’s servile minions
+>Mock the lion thus laid low;
+>’Twas no foreman’s arm that fell’d him,
+>’Twas his own that struck the blow;
+>His who, pillow’d on thy bosom,
+>Turn’d aside from glory’s ray,
+>His who, drunk with thy caresses,
+>Madly threw a world away.
+>
 
 Mark Antony had held securely in his hands the control of an entire world, and there was no one upon the earth with sufficient power to take it from him except himself. But every one of us has within his reach a world that is far more significant than the world which belonged to Mark Antony. There is no power in the universe that can come between us and the celestial kingdom, except our own power. Only Antony can conquer Antony.
 
-Success story number two comes from John Bunyan’s The Pilgrim’s Progress. He gives an account of the man with the muckrake who had spent his lifetime raking unto himself the chaff and muck of the earth. However, there was an angel standing over his head with a celestial crown in his hand, offering to exchange the crown for the muckrake. But because this man had trained himself to look in no direction but down, he disregarded the offer of the angel as he continued to rake unto himself the chaff and dust of the earth.
+Success story number two comes from John Bunyan’s *The Pilgrim’s Progress.* He gives an account of the man with the muckrake who had spent his lifetime raking unto himself the chaff and muck of the earth. However, there was an angel standing over his head with a celestial crown in his hand, offering to exchange the crown for the muckrake. But because this man had trained himself to look in no direction but down, he disregarded the offer of the angel as he continued to rake unto himself the chaff and dust of the earth.
 
 There is also an angel standing over our head with a celestial crown in his hand offering to exchange it for our muckrakes if we will just look up to God and faith and righteousness and understanding. The beast was put down on all fours and thus his vision is cast upon the ground, but man was created upright in the image of his maker that he might look up to God.
 
 We have a song in which we sing,
 
-Look up, my soul, be not cast down;
-
-Keep not thine eyes upon the ground.
-
-Break off the shackles of the earth,
-
-Receive, my soul, the spirit’s birth.
-
-“Before Thee, Lord, I Bow My Head,” Hymns, no. 231.
+>Look up, my soul, be not cast down;
+>Keep not thine eyes upon the ground.
+>Break off the shackles of the earth,
+>Receive, my soul, the spirit’s birth.
+>
 
 And one who did this recalls the experience by saying:
 
-I raised my eyes to yonder heights
-
-And longed for lifting wings
-
-To bear me to their sunlit crests,
-
-As on my spirit sings.
-
-And though my feet must keep the paths
-
-That wind along the valley’s floor
-
-Yet after every upward glance
-
-I’m stronger than before.
+>I raised my eyes to yonder heights
+>And longed for lifting wings
+>To bear me to their sunlit crests,
+>As on my spirit sings.
+>And though my feet must keep the paths
+>That wind along the valley’s floor
+>Yet after every upward glance
+>I’m stronger than before.
+>
 
 Success story number three is the inspiring story of Pygmalion and Galatea from Grecian mythology. Pygmalion was a sculptor from Cyprus, and, like all great artists, Pygmalion loved his work. Then the day came when he would create the great masterpiece of his life. In deathless ivory he would carve the statue of a beautiful woman and show the human form and human personality at its best. Week after week and month after month he labored until finally the statue was completed. And so great was the devotion and love that Pygmalion had lavished upon his work that the gods decreed that the statue would have the power to breathe and move and live. As she stepped down off the pedestal, Pygmalion called her name Galatea, and Pygmalion married his work.
 
@@ -89,7 +72,7 @@ I suppose that Richard’s arm wasn’t much stronger than any other warrior’s
 
 Ivanhoe did not know who this man was. He knew that Richard fought like this, but no one fought like the King, and he believed Richard to be a prisoner in an Austrian dungeon. And then he paid this great tribute to an unknown leader. He didn’t know what this man’s name was, but he knew the traits that characterized greatness, and he said to Rebecca, “I swear by the honor of my house, I would endure ten years of captivity to fight a single day by that great man’s side in such a quarrel as this.” Captivity would have been the greatest punishment to which Ivanhoe could have been subjected, and yet he said, “I would gladly languish ten years in a dungeon cell for the privilege of fighting by the side and under the banner of a great man in a great cause.”
 
-Now we have a great cause, we have the greatest cause ever known in the world. And the only question that remains unanswered is, “How will we fight?” And our own leader has said to us, “O ye that embark in the service of God, see that ye serve him with all your heart, might, mind and strength, that ye may stand blameless before God at the last day.” (D&C 4:2.)
+Now we have a great cause, we have the greatest cause ever known in the world. And the only question that remains unanswered is, “How will we fight?” And our own leader has said to us, “O ye that embark in the service of God, see that ye serve him with all your heart, might, mind and strength, that ye may stand blameless before God at the last day.” ([[D&C 4.2|D&C 4:2]].)
 
 Now as a special bonus, I would like to give you a thirty second witness of one of the greatest success experiences ever to take place upon this earth wherein the first prophet of our dispensation has said to all the world:
 
@@ -97,7 +80,10 @@ Now as a special bonus, I would like to give you a thirty second witness of one 
 
 “For we saw him, even on the right hand of God; and we heard the voice bearing record that he is the Only Begotten of the Father—
 
-“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” (D&C 76:22–24.)
+“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” ([[D&C 76.22|D&C 76:22–24]][[D&C 76.23|]][[D&C 76.24|]].)
 
 And may the Lord bless us with a sufficient amount of his success that we might be lifted up to him in celestial glory. For this I sincerely pray in the name of Jesus Christ. Amen.
+
+
+
 

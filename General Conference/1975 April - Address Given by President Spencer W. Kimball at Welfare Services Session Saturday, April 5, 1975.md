@@ -1,5 +1,6 @@
 # Address Given by President Spencer W. Kimball at Welfare Services Session Saturday, April 5, 1975
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -52,4 +53,7 @@ But here and there we finally got him to be willing to do this. And it was only 
 Well I am sure that there are ways and means. I want to mention a story I have told about Uncle Golden. You have heard about my Uncle J. Golden Kimball, who was a rather interesting person. I don’t think it is true, but it was told of him that his creditors kept coming and bothering him all the time and they wanted payments on their accounts. And he began to get a little tired of it, and he said, “Now listen here, fellows. You know the way I handle my accounts. I take all of the bills at the end of the month and I put them in the waste basket. Then I stir them around and if I see one that looks good and I can I’ll pay it. But,” he said, “if you don’t quit bothering me I won’t even put yours in the waste basket.”
 
 As I close I would only like to commend these brethren on the wonderful work they do. We meet with the Bishopric every Friday morning and consider matters that are of importance. We are grateful that they have the insight that they do, that they are carrying forward so valiantly. It is a great program. We have seen it working in many fields in many ways. I pray the Lord will bless us all that we may be wise as we administer this program to the people of this Church. And I ask His blessings upon us, in the name of Jesus Christ. Amen.
+
+
+
 

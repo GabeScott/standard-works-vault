@@ -1,5 +1,6 @@
 # The Answers Will Come
-*By Hans B. Ringger - Of the First Quorum of the Seventy*
+
+By Elder Hans B. Ringger - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
 
@@ -12,4 +13,7 @@ It’s a long way from Switzerland to this stand in Salt Lake City. I had to cro
 I’m really happy to be here and to serve. I don’t know at the moment all the questions I will be asked or how I will find solutions for them. But I know that I will get an answer when I work on it and pray about it. If I do that, I know I will be blessed in all I do.
 
 I am very thankful for my priesthood leaders, my parents, my sisters, my brethren, my teachers in Sunday School—all who have given me the strength to fulfill the assignments I get in my life. Hopefully, I can serve so that our Lord will be pleased. I am very thankful to the First Presidency for this privilege—for calling me to be a General Authority. I leave you my testimony that I know that our Lord lives, that Jesus is the Christ, and that Joseph Smith is a true prophet. This I say in the name of Jesus Christ, amen.
+
+
+
 

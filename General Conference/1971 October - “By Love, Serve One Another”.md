@@ -1,5 +1,6 @@
 # “By Love, Serve One Another”
-*By S. Dilworth Young - Of the Seventy*
+
+By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -9,17 +10,17 @@ It is my desire to be led by the Spirit of the Lord in what I say. The wards and
 
 This may be because they do not understand the responsibility they have to the Church of Jesus Christ. Each of us has the same general calling. Each of us has the same responsibility as a result of entering into the waters of baptism and making the covenant. The Lord will not hold us blameless if we allow organizational responsibility, or the lack of it, to interfere with this special calling. Let me point out some necessary obligations in the words of the prophets.
 
-Jeremiah said to a people who were rebellious and recalcitrant: “... do no violence to the stranger [he may have needed to say it in that day], the fatherless, nor the widow.” (Jer. 22:3.)
+Jeremiah said to a people who were rebellious and recalcitrant: “… do no violence to the stranger \[he may have needed to say it in that day\], the fatherless, nor the widow.” ([[Jeremiah 22.3|Jer. 22:3]].)
 
-Of a king he said with approbation, “He judged the cause of the poor and needy; then it was well with him: was not this to know me? saith the Lord.” (Jer. 22:16.)
+Of a king he said with approbation, “He judged the cause of the poor and needy; then it was well with him: was not this to know me? saith the Lord.” ([[Jeremiah 22.16|Jer. 22:16]].)
 
-These thoughts were later reiterated by the Lord through Micah when he told the people that what was required was “to do justly, and to love mercy, and to walk humbly with thy God.” (Micah 6:8.)
+These thoughts were later reiterated by the Lord through Micah when he told the people that what was required was “to do justly, and to love mercy, and to walk humbly with thy God.” ([[Micah 6.8|Micah 6:8]].)
 
-Paul told the saints to be kind to one another, tenderhearted, forgiving, having charity one to another. (Eph. 4:32.)
+Paul told the saints to be kind to one another, tenderhearted, forgiving, having charity one to another. ([[Ephesians 4.32|Eph. 4:32]].)
 
-Alma was a little more specific. He urged them to cry to the Lord over all of their activities and their possessions and for the welfare of themselves and those about them. Their whole attitude should be one of prayer to the Lord for all they had and all they were. Then he said, “... do not suppose that this is all; for after ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.
+Alma was a little more specific. He urged them to cry to the Lord over all of their activities and their possessions and for the welfare of themselves and those about them. Their whole attitude should be one of prayer to the Lord for all they had and all they were. Then he said, “… do not suppose that this is all; for after ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.
 
-“Therefore, if ye do not remember to be charitable, ye are as dross, which the refiners do cast out, (it being of no worth) and is trodden under foot of men.” (Alma 34:28–29.)
+“Therefore, if ye do not remember to be charitable, ye are as dross, which the refiners do cast out, (it being of no worth) and is trodden under foot of men.” ([[Alma 34.28|Alma 34:28–29]][[Alma 34.29|]].)
 
 The revelations given to Joseph Smith on this subject are numerous and were among the early ones. To care for the poor is one of the first and early obligations. To help the needy and those who mourn follows close behind. All of us have some time, but those who are not given great responsibility in the organizations have more time to seek out the poor, needy, and helpless.
 
@@ -43,9 +44,12 @@ I know that home teachers are responsible for these needs, but often those at ho
 
 The needy neighbor could be next door. The one in need may not be a member of the Church. It can be anybody who stands in need. I know of no one who is exempt from the responsibility of constant succor and personal encouragement to many who never report their difficulties to the bishop, but who, in spite of pride, and even of means, badly need the help, understanding, and love we all can give as individuals.
 
-This echoes what James said: “Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.” (James 1:27.)
+This echoes what James said: “Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.” ([[James 1.27|James 1:27]].)
 
-One last word from the Lord to us in this day: “And remember in all things the poor and the needy, the sick and the afflicted, for he that doeth not these things, the same is not my disciple.” (D&C 52:40.)
+One last word from the Lord to us in this day: “And remember in all things the poor and the needy, the sick and the afflicted, for he that doeth not these things, the same is not my disciple.” ([[D&C 52.40|D&C 52:40]].)
 
 I know that Jesus Christ lives, and that his Holy Father lives also. I sustain President Joseph Fielding Smith as the living prophet with all my heart. I know too of the blessings that come to both the giver and the receiver when one obeys the injunction that the way to love the Lord is to love and serve his neighbors. In the name of Jesus Christ. Amen.
+
+
+
 

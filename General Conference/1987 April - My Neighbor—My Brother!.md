@@ -1,25 +1,26 @@
 # My Neighbor—My Brother!
-*By David B. Haight - Of the Quorum of the Twelve Apostles*
+
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1987/04/my-neighbor-my-brother?lang=eng)
 
-Jesus was once asked a provocative question by a lawyer: “Who is my neighbour?” (Luke 10:29). Indeed, that is a question we all should ask—“Who is my neighbor?”
+Jesus was once asked a provocative question by a lawyer: “Who is my neighbour?” ([[Luke 10.29|Luke 10:29]]). Indeed, that is a question we all should ask—“Who is my neighbor?”
 
 The Savior provided a penetrating, unexpected answer to the lawyer. He taught him with a parable—the parable of the Good Samaritan.
 
 An unfortunate victim traveling to Jericho fell among thieves. He was robbed, beaten, and left for dead.
 
-A priest, on his way to the temple, saw him and passed by. Likewise, a Levite, who in that day assisted the priests, passed him by. To the Jews in Jesus’ day this unconcern for the victim in the parable was considered appropriate religious behavior. Their rabbinical teaching declared, “We are not to contrive the death of the Gentiles, but if they are in any danger of death we are not bound to deliver them, ... for such a one is not thy neighbour” (in A Commentary on the Holy Bible, ed. J. R. Dummelow, New York: The Macmillan Co., 1936, p. 751).
+A priest, on his way to the temple, saw him and passed by. Likewise, a Levite, who in that day assisted the priests, passed him by. To the Jews in Jesus’ day this unconcern for the victim in the parable was considered appropriate religious behavior. Their rabbinical teaching declared, “We are not to contrive the death of the Gentiles, but if they are in any danger of death we are not bound to deliver them, … for such a one is not thy neighbour” (in *A Commentary on the Holy Bible,* ed. J. R. Dummelow, New York: The Macmillan Co., 1936, p. 751).
 
-The Samaritan, though despised by the Jews, saw the suffering victim and did three things: (1) he had compassion on him, (2) he went to him and bound up his wounds, and (3) he cared for him (see Luke 10:30–35).
+The Samaritan, though despised by the Jews, saw the suffering victim and did three things: (1) he had compassion on him, (2) he went to him and bound up his wounds, and (3) he cared for him (see [[Luke 10.30|Luke 10:30–35]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]]).
 
-After relating the parable, Jesus asked the lawyer which of the three was neighbor to him that fell among the thieves—the priest, the Levite, or the Samaritan. The lawyer could not avoid the evident truth. “He that shewed mercy on him,” he replied. To which the Savior said, “Go, and do thou likewise” (Luke 10:37).
+After relating the parable, Jesus asked the lawyer which of the three was neighbor to him that fell among the thieves—the priest, the Levite, or the Samaritan. The lawyer could not avoid the evident truth. “He that shewed mercy on him,” he replied. To which the Savior said, “Go, and do thou likewise” ([[Luke 10.37|Luke 10:37]]).
 
 A more perfect parable could not have been conceived to teach the eternal truth that God is the Father of us all and therefore we are brothers one to another.
 
-My neighbor—my brother! Such is the teaching of our Lord and Savior. We are to esteem every man as our brother, our neighbor as ourselves (see D&C 38:24).
+My neighbor—my brother! Such is the teaching of our Lord and Savior. We are to esteem every man as our brother, our neighbor as ourselves (see [[D&C 38.24|D&C 38:24]]).
 
 This truth is the fundamental basis for our inspired missionary effort throughout the world—to share the glorious truths of the restored gospel with our neighbors, who are our brothers and sisters.
 
@@ -31,7 +32,7 @@ Today, that call—in the spirit of “Box B”—has been extended to all young
 
 Eleven years ago, President Spencer W. Kimball announced:
 
-“We could use hundreds of couples, older people like some of you folks, whose families are reared, who have retired in their business, who are able to go and spend their own money, to teach the gospel. We could use hundreds of couples. You just go and talk to your bishop,” he continued, “that is all you need to do. Tell him, ‘We are ready to go, if you can use us.’ I think you will probably get a call” (Talk given at dedication of Fair Oaks California Stake Center, 9 October 1976, quoted in Edward L. Kimball, ed., The Teachings of Spencer W. Kimball, Salt Lake City: Bookcraft, 1982, p. 551).
+“We could use hundreds of couples, older people like some of you folks, whose families are reared, who have retired in their business, who are able to go and spend their own money, to teach the gospel. We could use hundreds of couples. You just go and talk to your bishop,” he continued, “that is all you need to do. Tell him, ‘We are ready to go, if you can use us.’ I think you will probably get a call” (Talk given at dedication of Fair Oaks California Stake Center, 9 October 1976, quoted in Edward L. Kimball, ed., *The Teachings of Spencer W. Kimball,* Salt Lake City: Bookcraft, 1982, p. 551).
 
 Since President Kimball made that plea, the demand has continued to increase, and today we could use not only hundreds but thousands of prepared couples.
 
@@ -43,7 +44,7 @@ They were Baptists and had no thought of changing religions this late in life. B
 
 As they arrived at the Missionary Training Center, the Kerseys remarked:
 
-“We gave away the chickens, turkeys, rabbits, took the pony and two dogs ... [to our] son, ... emptied the freezers and gave away the cats, ... boarded up the windows, nailed up the sheds, had everything turned off, went and kissed our ten grandchildren good-bye, and here we are!”
+“We gave away the chickens, turkeys, rabbits, took the pony and two dogs … \[to our\] son, … emptied the freezers and gave away the cats, … boarded up the windows, nailed up the sheds, had everything turned off, went and kissed our ten grandchildren good-bye, and here we are!”
 
 What a marvelous attitude!
 
@@ -59,7 +60,7 @@ It is not necessary for you to proselyte in the same way as our young elders and
 
 An example of this comes from a mission president as he describes an unforgettable couple:
 
-“I confess,” he said, “that when Elder and Sister Leslie arrived, I wondered how well they would do. He was seriously overweight and wore a hearing aid. She was limited with two artificial knee implants. But their spirit was sweet and their enthusiasm so strong. Two wonderfully ordinary people—full of love.
+“I confess,” he said, “that when Elder and Sister Leslie arrived, I wondered how well they would do. He was seriously overweight and wore a hearing aid. She was limited with two artificial knee implants. But their spirit was sweet and their enthusiasm so strong. *Two wonderfully ordinary people—full of love.*
 
 “I felt inspired to send them to Jamestown, Tennessee,” he said, “where we had a tiny, struggling branch that had been without missionaries for years.
 
@@ -71,7 +72,7 @@ And the mission president went on to say, “I doubt that either of them could g
 
 “Today, the Jamestown Branch is thriving, with a new building and more than 100 members attending. Many contributed their faith and works, but none more significantly or generously than Harry and Frances Leslie.”
 
-Compassion ... service ... caring—these are qualities of those who truly love their neighbors as themselves.
+Compassion … service … caring—these are qualities of those who truly love their neighbors as themselves.
 
 Though you have had many years of married life together, you will discover new blessings. You will never work so closely and so intensely with one another in such a rewarding effort. Your love will deepen and you will discover wonderful new dimensions of your companion’s inner soul and the depth of his understanding. You will have a greater feeling of unity, and a heavenly relationship will be strengthened.
 
@@ -79,19 +80,19 @@ Who is your neighbor? Like the Good Samaritan, by bringing the true gospel to th
 
 When Lynn and Dorothea Shawcroft arrived in Ecuador, they were in a state of cultural shock for two weeks and were unable to communicate very well.
 
-“We thought, ‘[Eighteen] months [will be] a very long time.’”
+“We thought, ‘\[Eighteen\] months \[will be\] a very long time.’”
 
-But then they went on to say, “We saw vividly the conditions in which [some of the] missionaries lived. ... Our first thoughts were—until we learned more of our own duties—we could at least make life more pleasant for the [full-time missionaries]. So we shopped for pans and ingredients to make cookies and cinnamon rolls. We bought chocolate bars and cut them up to make chocolate chip cookies.
+But then they went on to say, “We saw vividly the conditions in which \[some of the\] missionaries lived. … Our first thoughts were—until we learned more of our own duties—we could at least make life more pleasant for the \[full-time missionaries\]. So we shopped for pans and ingredients to make cookies and cinnamon rolls. We bought chocolate bars and cut them up to make chocolate chip cookies.
 
-“We learned so much from the [missionaries]. It didn’t matter that they learned the language more quickly than we did. Seeing the joy ... on their faces as they enjoyed a chocolate chip cookie was worth every effort. We represented a bit of home, a bit of something they missed.
+“We learned so much from the \[missionaries\]. It didn’t matter that they learned the language more quickly than we did. Seeing the joy … on their faces as they enjoyed a chocolate chip cookie was worth every effort. We represented a bit of home, a bit of something they missed.
 
-“It [may] sound like we did nothing but make cookies for the missionaries. Not so! ... [We worked] with the [local Church] leaders in activation, teaching, music, ... genealogy, and welfare. We had open house each week for the ... missionaries and their investigators. We worked together. ...
+“It \[may\] sound like we did nothing but make cookies for the missionaries. Not so! … \[We worked\] with the \[local Church\] leaders in activation, teaching, music, … genealogy, and welfare. We had open house each week for the … missionaries and their investigators. We worked together. …
 
-“On preparation day, [the missionaries] came and made cookies or cinnamon rolls. [We] ... discussed the scriptures. When ... discouraged, they came and talked about it. ... How we loved them! ...
+“On preparation day, \[the missionaries\] came and made cookies or cinnamon rolls. \[We\] … discussed the scriptures. When … discouraged, they came and talked about it. … How we loved them! …
 
-“After teaching a young couple to read or seeing the happiness in a family [because] the father was again attending Church, we would walk back to our [little] apartment with a heart that was singing and feet that hardly touched the cobblestone street. Seeing a young mother clap her hands with joy as she truly realized that she was reading or watching a baby ... and knowing that perhaps [this child] wouldn’t be alive now had we not [been serving in that city at that time]. These experiences, each and every one, made our mission worth every minute of it.
+“After teaching a young couple to read or seeing the happiness in a family \[because\] the father was again attending church, we would walk back to our \[little\] apartment with a heart that was singing and feet that hardly touched the cobblestone street. Seeing a young mother clap her hands with joy as she truly realized that she was reading or watching a baby … and knowing that perhaps \[this child\] wouldn’t be alive now had we not \[been serving in that city at that time\]. These experiences, each and every one, made our mission worth every minute of it.
 
-“Was it worth it to struggle with [another] language? It certainly was! ... Did we feel that we had to keep up with [the younger missionaries]? No. We worked in our own way. ... Were we accepted? Were we ever!”
+“Was it worth it to struggle with \[another\] language? It certainly was! … Did we feel that we had to keep up with \[the younger missionaries\]? No. We worked in our own way. … Were we accepted? Were we ever!”
 
 Sister Shawcroft recommends that every couple take on their mission a good chocolate chip cookie recipe, lots of love, a good recipe for cinnamon rolls, a strong testimony of the gospel, the scriptures, and then more love!
 
@@ -105,11 +106,14 @@ Deep inside the human soul is a longing to be identified with and involved in so
 
 The goal of every physically able couple in the Church, just as it is for every 19-year-old young man in the Church, should be to serve a mission. No finer example can be given, no finer testimony can be borne by parents to children or grandchildren, than through missionary service in their mature years.
 
-Who are our neighbors? They are all of our Father’s children. What a blessing we can be to them as we, with mature wisdom and love, bring them the gospel of our Savior, with its eternal covenants and blessings.
+Who are our neighbors? They are *all* of our Father’s children. What a blessing we can be to them as we, with mature wisdom and love, bring them the gospel of our Savior, with its eternal covenants and blessings.
 
-We invite bishops to prayerfully review possible calls with appropriate couples, who, after following our Savior’s promise to the Nephites to “pray unto the Father in my name; ... believing that ye shall receive, [and] it shall be given unto you,” will know by the Spirit how to respond (3 Ne. 18:19–20).
+We invite bishops to prayerfully review possible calls with appropriate couples, who, after following our Savior’s promise to the Nephites to “pray unto the Father in my name; … believing that ye shall receive, \[and\] it shall be given unto you,” will know by the Spirit how to respond ([[3 Nephi 18.19|3 Ne. 18:19–20]][[3 Nephi 18.20|]]).
 
 Great joy and fulfillment will come to you as you humbly serve in your newly expanded world of neighbors.
 
 This work is divinely directed. God lives. Jesus is the Son of God. I so testify in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # The Aaronic Priesthood
-*By Boyd K. Packer - Of the Quorum of the Twelve Apostles*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -13,11 +14,11 @@ Some think that unless a power is visible it cannot be real. I think I can convi
 
 No one has ever seen electricity, not even a scientist with the finest instruments. However, like you they have felt it. And we can see the results of it. We can measure it, control it, and produce light, and heat, and power. No one questions that it is real simply because he cannot see it.
 
-Although you cannot see the power of the priesthood, you can feel it, and you can see the results of it. The priesthood can be a guiding and protecting power in your life. Let me give you an example.
+Although you cannot see the power of the priesthood, you can *feel* it, and you can see the results of it. The priesthood can be a guiding and protecting power in your life. Let me give you an example.
 
 After President Wilford Woodruff joined the Church he desired to serve a mission.
 
-“I was but a Teacher,” he wrote, “and it is not a Teacher’s office to go abroad and preach. I dared not tell any of the authorities of the Church that I wanted to preach, lest they might think I was seeking for an office.” (Leaves from My Journal, Salt Lake City: Juvenile Instructor Office, 1882, p. 8.)
+“I was but a Teacher,” he wrote, “and it is not a Teacher’s office to go abroad and preach. I dared not tell any of the authorities of the Church that I wanted to preach, lest they might think I was seeking for an office.” (*Leaves from My Journal,* Salt Lake City: Juvenile Instructor Office, 1882, p. 8.)
 
 He prayed to the Lord, and without disclosing his desire to any others, he was ordained a priest and sent on a mission. They went to the Arkansas Territory.
 
@@ -31,29 +32,33 @@ A large audience of the rich and fashionable people of Memphis gathered and were
 
 None would sing or pray, so Brother Woodruff did both. He knelt before them and begged the Lord to give him His Spirit and to show him the hearts of the people. And the Spirit came! Brother Woodruff preached with great power. He was able to reveal the secret deeds of those who came to ridicule him.
 
-When he was finished, no one laughed at this humble holder of the Aaronic Priesthood. Thereafter he was treated with kindness. (See Leaves from My Journal, pp. 16–18.)
+When he was finished, no one laughed at this humble holder of the Aaronic Priesthood. Thereafter he was treated with kindness. (See *Leaves from My Journal,* pp. 16–18.)
 
 He was under the guiding, protecting power of his Aaronic Priesthood. The same power can be with you as well.
 
 Let me teach you some very basic things about the Aaronic Priesthood.
 
-It “is called the Priesthood of Aaron, because it was conferred upon Aaron and his seed, throughout all their generations.” (D&C 107:13.)
+It “is called the Priesthood of Aaron, because it was conferred upon Aaron and his seed, throughout all their generations.” ([[D&C 107.13|D&C 107:13]].)
 
 The Aaronic Priesthood goes by other names as well. Let me list them and tell you what they mean.
 
+## The Lesser Priesthood
+
 First, the Aaronic Priesthood is sometimes called the lesser priesthood.
 
-“Why it is called the lesser priesthood is because it is an appendage to the greater, or the Melchizedek Priesthood, and has power in administering outward ordinances.” (D&C 107:14.)
+“Why it is called the lesser priesthood is because it is an appendage to the greater, or the Melchizedek Priesthood, and has power in administering outward ordinances.” ([[D&C 107.14|D&C 107:14]].)
 
-This means that the higher priesthood, the Melchizedek Priesthood, always presides over the Aaronic, or the lesser, Priesthood. Aaron was the high priest, or the presiding priest, of the Aaronic Priesthood. But Moses presided over Aaron because Moses held the Melchizedek Priesthood.
+This means that the higher priesthood, the Melchizedek Priesthood, *always* presides over the Aaronic, or the lesser, Priesthood. Aaron was the high priest, or the presiding priest, of the Aaronic Priesthood. But Moses presided over Aaron because Moses held the Melchizedek Priesthood.
 
-The fact that it is called the lesser priesthood does not diminish at all the importance of the Aaronic Priesthood. The Lord said it is necessary to the Melchizedek Priesthood. (See D&C 84:29.) Any holder of the higher priesthood should feel greatly honored to perform the ordinances of the Aaronic Priesthood, for they have great spiritual importance.
+The fact that it is called the lesser priesthood does not diminish at all the importance of the Aaronic Priesthood. The Lord said it is necessary to the Melchizedek Priesthood. (See [[D&C 84.29|D&C 84:29]].) Any holder of the higher priesthood should feel greatly honored to perform the ordinances of the Aaronic Priesthood, for they have great spiritual importance.
 
 I have, as a member of the Quorum of the Twelve Apostles, passed the sacrament. I assure you I have felt honored and humbled beyond expression to do what some might consider a routine task.
 
-The Aaronic Priesthood is also called the Levitical Priesthood. The word Levitical comes from the name Levi, one of the twelve sons of Israel. Moses and Aaron, who were brothers, were Levites.
+## The Levitical Priesthood
 
-When the Aaronic Priesthood was given to Israel, Aaron and his sons received the presiding and administrative responsibility. The male members of all other Levite families were put in charge of the ceremonies of the tabernacle, including the Mosaic law of sacrifice.
+The Aaronic Priesthood is also called the Levitical Priesthood. The word *Levitical* comes from the name Levi, one of the twelve sons of Israel. Moses and Aaron, who were brothers, were Levites.
+
+When the Aaronic Priesthood was given to Israel, Aaron and his sons received the *presiding* and administrative responsibility. The male members of all other Levite families were put in charge of the ceremonies of the tabernacle, including the Mosaic law of sacrifice.
 
 The law of sacrifice had been observed since the days of Adam. It was symbolic of the redemption that would come with the sacrifice and the atonement of the Messiah. The Mosaic law of sacrifice was fulfilled with the crucifixion of Christ.
 
@@ -65,15 +70,19 @@ This is indeed a sacred responsibility and includes you in a brotherhood with th
 
 Can you see that it is correct to call it the Aaronic or the Levitical Priesthood? It is a matter of designating duties; it is all one priesthood.
 
+## The Preparatory Priesthood
+
 Finally, the Aaronic Priesthood is referred to as the preparatory priesthood. This, too, is a proper title because the Aaronic Priesthood prepares young men to hold the higher priesthood, for missions, and for temple marriage.
 
-I have thought it very symbolic that John the Baptist, a priest in the Aaronic Priesthood, prepared the way for the coming of the Lord in ancient times. He came also to restore the Aaronic Priesthood to the Prophet Joseph Smith and Oliver Cowdery to prepare for the coming of the higher priesthood. The Lord Himself said that there “hath not risen a greater than John the Baptist.” (Matt. 11:11.)
+I have thought it very symbolic that John the Baptist, a priest in the Aaronic Priesthood, prepared the way for the coming of the Lord in ancient times. He came also to restore the Aaronic Priesthood to the Prophet Joseph Smith and Oliver Cowdery to prepare for the coming of the higher priesthood. The Lord Himself said that there “hath not risen a greater than John the Baptist.” ([[Matthew 11.11|Matt. 11:11]].)
 
 You would do well to watch your fathers and your leaders, to study how the Melchizedek Priesthood works. You are preparing to join the elders, seventies, high priests, and patriarchs and to serve as missionaries, quorum leaders, bishoprics, stake leaders, and as fathers of families.
 
-A few of you who now sit there as deacons, teachers, and priests will one day sit here as Apostles and prophets and will preside over the Church. You must be prepared.
+A few of you who now sit there as deacons, teachers, and priests will one day sit here as Apostles and prophets and will preside over the Church. *You must be prepared.*
 
 It is indeed correct to call the Aaronic Priesthood the preparatory priesthood.
+
+## Priesthood Principles
 
 Let me teach you some important principles of the priesthood. When you receive the Aaronic Priesthood, you receive all of it. There are three kinds of authority relating to your priesthood. You should understand them.
 
@@ -81,11 +90,11 @@ First, there is the priesthood itself. The ordination you received carries with 
 
 Next, there are offices within the priesthood. Each has different privileges. Three of them—deacon, teacher, and priest—may be conferred upon you when you are in your teenage years. The fourth office, that of bishop, may come to you when you are mature and worthy to become a high priest as well.
 
-The deacon is to watch over the church as a standing minister. (See D&C 84:111; 20:57–59.) The quorum consists of twelve deacons. (See D&C 107:85.)
+The deacon is to watch over the church as a standing minister. (See [[D&C 84.111|D&C 84:111]]; [[D&C 20.57|20:57–59]][[D&C 20.58|]][[D&C 20.59|]].) The quorum consists of twelve deacons. (See [[D&C 107.85|D&C 107:85]].)
 
-The teacher is to “watch over the church always, and be with and strengthen them.” (D&C 20:53.) The teachers quorum numbers twenty-four. (See D&C 107:86.)
+The teacher is to “watch over the church always, and be with and strengthen them.” ([[D&C 20.53|D&C 20:53]].) The teachers quorum numbers twenty-four. (See [[D&C 107.86|D&C 107:86]].)
 
-The priest is to “preach, teach, expound, exhort, and baptize, and administer the sacrament, and visit the house of each member.” (D&C 20:46–47.) The priests quorum numbers forty-eight. The bishop is the president of the priests quorum. (See D&C 107:87–88.)
+The priest is to “preach, teach, expound, exhort, and baptize, and administer the sacrament, and visit the house of each member.” ([[D&C 20.46|D&C 20:46–47]][[D&C 20.47|]].) The priests quorum numbers forty-eight. The bishop is the president of the priests quorum. (See [[D&C 107.87|D&C 107:87–88]][[D&C 107.88|]].)
 
 You always hold one of these offices. When you receive the next higher office, you still retain the authority of the first. For instance, when you become a priest, you still have authority to do all that you did as a deacon and teacher. Even when you receive the higher priesthood, you keep all of the authority of, and, with proper authorization, can act in the offices of, the lesser priesthood.
 
@@ -113,7 +122,7 @@ Unless your father is in the bishopric, he would not have those keys.
 
 These keys of presidency are temporary. The priesthood, and the offices within it, are permanent.
 
-One more thing: You can receive the priesthood only from one who has the authority and “it is known to the church that he has authority.” (D&C 42:11.)
+One more thing: You can receive the priesthood only from one who has the authority and “it is known to the church that he has authority.” ([[D&C 42.11|D&C 42:11]].)
 
 The priesthood cannot be conferred like a diploma. It cannot be handed to you as a certificate. It cannot be delivered to you as a message or sent to you in a letter. It comes only by proper ordination. An authorized holder of the priesthood has to be there. He must place his hands upon your head and ordain you.
 
@@ -121,7 +130,7 @@ That is one reason why the General Authorities travel so much—to convey the ke
 
 Remember these things. The priesthood is very, very precious to the Lord. He is very careful about how it is conferred, and by whom. It is never done in secret.
 
-I have told you how the authority is given to you. The power you receive will depend on what you do with this sacred, unseen gift.
+I have told you how the *authority* is given to you. The *power* you receive will depend on what you do with this sacred, unseen gift.
 
 Your authority comes through your ordination; your power comes through obedience and worthiness.
 
@@ -151,11 +160,14 @@ Much of what I have told you about the Aaronic Priesthood applies to the Melchiz
 
 Power in the priesthood comes from doing your duty in ordinary things: attending meetings, accepting assignments, reading the scriptures, keeping the Word of Wisdom.
 
-President Woodruff said: “I traveled thousands of miles and preached the Gospel as a Priest, and, as I have said to congregations before, the Lord sustained me and made manifest His power in the defense of my life as much while I held that office as He has done while I have held the office of an Apostle. The Lord sustains any man that holds a portion of the Priesthood, whether he is a Priest, an Elder, a Seventy, or an Apostle, if he magnifies his calling and does his duty.” (Millennial Star, 28 Sept. 1905, p. 610.)
+President Woodruff said: “I traveled thousands of miles and preached the Gospel as a Priest, and, as I have said to congregations before, the Lord sustained me and made manifest His power in the defense of my life as much while I held that office as He has done while I have held the office of an Apostle. The Lord sustains any man that holds a portion of the Priesthood, whether he is a Priest, an Elder, a Seventy, or an Apostle, if he magnifies his calling and does his duty.” (*Millennial Star,* 28 Sept. 1905, p. 610.)
 
 John the Baptist restored the Aaronic Priesthood with these words:
 
-“Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins.” (D&C 13.)
+“Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins.” ([[D&C 13.1|D&C 13]][[D&C 13.2|]][[D&C 13.3|]][[D&C 13.4|]][[D&C 13.5|]][[D&C 13.6|]][[D&C 13.7|]][[D&C 13.8|]][[D&C 13.9|]][[D&C 13.10|]][[D&C 13.11|]][[D&C 13.12|]][[D&C 13.13|]][[D&C 13.14|]][[D&C 13.15|]][[D&C 13.16|]][[D&C 13.17|]][[D&C 13.18|]][[D&C 13.19|]][[D&C 13.20|]][[D&C 13.21|]][[D&C 13.22|]][[D&C 13.23|]][[D&C 13.24|]][[D&C 13.25|]][[D&C 13.26|]][[D&C 13.27|]][[D&C 13.28|]][[D&C 13.29|]][[D&C 13.30|]][[D&C 13.31|]][[D&C 13.32|]][[D&C 13.33|]][[D&C 13.34|]][[D&C 13.35|]][[D&C 13.36|]][[D&C 13.37|]][[D&C 13.38|]][[D&C 13.39|]][[D&C 13.40|]][[D&C 13.41|]][[D&C 13.42|]][[D&C 13.43|]][[D&C 13.44|]][[D&C 13.45|]][[D&C 13.46|]][[D&C 13.47|]][[D&C 13.48|]][[D&C 13.49|]][[D&C 13.50|]][[D&C 13.51|]][[D&C 13.52|]][[D&C 13.53|]][[D&C 13.54|]][[D&C 13.55|]][[D&C 13.56|]][[D&C 13.57|]][[D&C 13.58|]][[D&C 13.59|]][[D&C 13.60|]][[D&C 13.61|]][[D&C 13.62|]][[D&C 13.63|]][[D&C 13.64|]][[D&C 13.65|]][[D&C 13.66|]][[D&C 13.67|]][[D&C 13.68|]][[D&C 13.69|]][[D&C 13.70|]][[D&C 13.71|]][[D&C 13.72|]][[D&C 13.73|]][[D&C 13.74|]].)
 
 You—our deacons, teachers, and priests—have been given sacred authority. May the angels minister unto you. May the power of the priesthood be upon you, our beloved young brethren, and upon your sons throughout the generations ahead. I bear witness that the gospel is true, that the priesthood holds great power, a guiding, protecting power for those who hold the Aaronic Priesthood. In the name of Jesus Christ, amen.
+
+
+
 

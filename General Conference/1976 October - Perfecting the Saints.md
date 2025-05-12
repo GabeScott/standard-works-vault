@@ -1,5 +1,6 @@
 # Perfecting the Saints
-*By Franklin D. Richards - Of the Seventy*
+
+By Elder Franklin D. Richards - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -13,13 +14,13 @@ We are living in a difficult but a remarkable age, the dispensation of the fulne
 
 I am grateful that my spirit was reserved to come forth at this particular time and for the knowledge that God lives and that Jesus is the Christ, our Savior and Redeemer.
 
-It is a great privilege to be able to bear witness that the gospel of Jesus Christ has been restored in its fulness, through the instrumentality of the Prophet Joseph Smith, and that there is a prophet of God on the earth today, our beloved prophet and president, Spencer W. Kimball. May the Lord bless and sustain him, and may we have the wisdom and courage to follow his counsel.
+It is a great privilege to be able to bear witness that the gospel of Jesus Christ has been restored in its fulness, through the instrumentality of the Prophet Joseph Smith, and that there is a prophet of God on the earth today, our beloved prophet and president, Spencer W. Kimball. May the Lord bless and sustain him, and may we have the wisdom and courage to follow his counsel.
 
 The Church of Jesus Christ was established in the meridian of time and reestablished in this dispensation for two great purposes: first, to proclaim the truth concerning man’s salvation to all the world, and second, to perfect those who accept the gospel of Jesus Christ.
 
 To accomplish the first objective—to take the gospel to every nation, kindred, tongue, and people—The Church of Jesus Christ of Latter-day Saints is engaged in a worldwide missionary effort, with approximately 150 missions and 25,000 full-time missionaries. With additional thousands of stake and district missionaries, and with the “every member a missionary” program becoming more effective, the Church is growing at an accelerated rate.
 
-With reference to the perfecting of the Saints, the Savior has asked us to become perfect even as our Father in heaven is perfect. (See Matt. 5:48.) In modern revelation we are told that we “are not able to abide the presence of God now, neither the ministering of angels; wherefore, continue in patience until ye are perfected.” (D&C 67:13.)
+With reference to the perfecting of the Saints, the Savior has asked us to become perfect even as our Father in heaven is perfect. (See [[Matthew 5.48|Matt. 5:48]].) In modern revelation we are told that we “are not able to abide the presence of God now, neither the ministering of angels; wherefore, continue in patience until ye are perfected.” ([[D&C 67.13|D&C 67:13]].)
 
 To accomplish the second objective, the perfecting of the Saints, The Church of Jesus Christ of Latter-day Saints provides opportunities for all members to become involved in many different kinds of activities that develop them mentally, morally, physically, and spiritually in the perfection process.
 
@@ -27,7 +28,7 @@ A high percentage of the members of the Church are active in the perfection proc
 
 There are, however, many inactive men who do not hold the Melchizedek Priesthood. These potential leaders are called prospective elders. We have a great challenge to bring these, our brothers, more actively into the perfection process.
 
-President Spencer W. Kimball, referring to this challenge in a talk in which he asked members of the Church to lengthen their stride, said, “The cycles of inactivity and indifference are recurring cycles from father to son. The Church must now break that cycle at two points simultaneously: We must reach out and hold many more of our young men of the Aaronic Priesthood to keep them faithful, to help them to be worthy to go on missions, and to be married in the holy temple; we must, at the same time, reach and hold more of the fathers and the prospective holders of the Melchizedek Priesthood!
+President Spencer W. Kimball, referring to this challenge in a talk in which he asked members of the Church to lengthen their stride, said, “The cycles of inactivity and indifference are recurring cycles from father to son. The Church must now break that cycle at two points simultaneously: We must reach out and hold many more of our young men of the Aaronic Priesthood to keep them faithful, to help them to be worthy to go on missions, and to be married in the holy temple; we must, at the same time, reach and hold more of the fathers and the prospective holders of the Melchizedek Priesthood!
 
 “We must find improved ways of vitalizing our Melchizedek Priesthood quorums, particularly in order to reach the prospective elders who are, in so many cases, the fathers of so many of our boys and girls and our young men and women.” (“Lengthening Our Stride,” Seminar for Regional Representatives of the Twelve, Oct. 3, 1974.)
 
@@ -41,7 +42,7 @@ We must recognize that the programs of the Aaronic Priesthood quorums and auxili
 
 The living example set by parents is consciously and unconsciously absorbed by children.
 
-Solomon, in his wisdom, has told us: “Train up a child in the way he should go: and when he is old he will not depart from it.” (Prov. 22:6.)
+Solomon, in his wisdom, has told us: “Train up a child in the way he should go: and when he is old he will not depart from it.” ([[Proverbs 22.6|Prov. 22:6]].)
 
 Recently, I was staying in the home of a stake president who had a young son nine years of age. I was to sleep in this young man’s bedroom and noticed on his dresser a little cardboard bank with three compartments, one for his tithing, one for his mission, and one for fun. I asked this young man if he was going on a mission, and he replied, “That’s what I’m saving my money for.” I am sure that with this type of planning he will be worthy to be ordained an elder and prepared for missionary service.
 
@@ -55,7 +56,7 @@ A reactivated elder recently stood in a fast and testimony meeting and explained
 
 Recently, a former prospective elder told me what it meant to him for the elders quorum president to ask him to serve as an assistant secretary in the elders quorum presidency. He took a week to decide to accept the assignment, but when he did, he marveled at the change that came into his life. He said, “Suddenly, I felt not only wanted, but actually needed.”
 
-I am convinced that we can lengthen our stride by working with groups of prospective elders in firesides or cottage meetings. These wonderful men can move more rapidly and comfortably into Church activity when grouped according to age, education, hobbies, etc., and when approached as compatible groups together with their wives.
+I am convinced that we can lengthen our stride by working with *groups* of prospective elders in firesides or cottage meetings. These wonderful men can move more rapidly and comfortably into Church activity when grouped according to age, education, hobbies, etc., and when approached as compatible groups together with their wives.
 
 High priests and seventies can be called upon to assist in teaching and fellowshipping those of similar age groups.
 
@@ -80,4 +81,7 @@ His letter then tells of the great joy he and his wife felt when they went to th
 To you who are not now involved in Church activity, we extend to you our love and want you to know how eager we are to share with you the blessings of the priesthood and the gospel. There will never be a better time than now to become active in the process of self-perfection. I promise you it will bring you peace, happiness, and joy, along with growth and development.
 
 May all of us seek to perfect our lives in the pattern of the Savior, and may we help each other in the perfection process, I pray in the name of Jesus Christ. Amen.
+
+
+
 

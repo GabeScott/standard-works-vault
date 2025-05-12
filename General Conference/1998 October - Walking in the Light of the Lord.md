@@ -1,7 +1,10 @@
 # Walking in the Light of the Lord
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1998 General Conference*
+
+>*My message to you, my challenge to you, my prayer is that you will rededicate yourselves to the strengthening of your homes.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/10/walking-in-the-light-of-the-lord?lang=eng)
 
@@ -13,9 +16,9 @@ You are the keepers of the homes. You give encouragement to your husbands. You t
 
 Speaking of the Relief Society, President Joseph F. Smith said on one occasion:
 
-“This organization is divinely made, divinely authorized, divinely instituted, divinely ordained of God to minister for the salvation of the souls of women and of men. Therefore there is not any organization that can compare with it, ... that can ever occupy the same stand and platform that this can. ...
+“This organization is divinely made, divinely authorized, divinely instituted, divinely ordained of God to minister for the salvation of the souls of women and of men. Therefore there is not any organization that can compare with it, … that can ever occupy the same stand and platform that this can. …
 
-“Make [Relief Society] first, make it foremost, make it the highest, the best and the deepest of any organization in existence in the world. You are called by the voice of the Prophet of God to do it, to be uppermost, to be the greatest and the best, the purest and the most devoted to the right” (Minutes of the General Board of the Relief Society, 17 Mar. 1914, Historical Department Archives, The Church of Jesus Christ of Latter-day Saints, 54–56).
+“Make \[Relief Society\] first, make it foremost, make it the highest, the best and the deepest of any organization in existence in the world. You are called by the voice of the Prophet of God to do it, to be uppermost, to be the greatest and the best, the purest and the most devoted to the right” (Minutes of the General Board of the Relief Society, 17 Mar. 1914, Historical Department Archives, The Church of Jesus Christ of Latter-day Saints, 54–56).
 
 A great challenge! At the marriage of each of our daughters and granddaughters, my wife has presented a special gift. It is not a vacuum cleaner or dishes or anything utilitarian. It is a seven-generation family history chart of her maternal line, beautifully framed. It is made up of photographs of her maternal great-great-grandmother, of her great-grandmother, of her grandmother, her mother, herself, her daughter, and her newly married granddaughter.
 
@@ -96,4 +99,7 @@ Three years ago, in this same meeting, I read for the first time in public the p
 Now, in closing, I wish to reemphasize my deep gratitude, my profound appreciation for the women of this Church and the tremendous sons and daughters you are teaching, training, helping to take their places in the world. But the task will never be finished. It will never be complete. May the light of the Lord shine upon you. May the Lord bless you in your great and sacred work.
 
 I leave my blessing, my testimony, and my love with you in the name of the Lord Jesus Christ, amen.
+
+
+
 

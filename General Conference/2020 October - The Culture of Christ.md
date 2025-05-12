@@ -1,7 +1,10 @@
 # The Culture of Christ
-*By William K. Jackson - Of the Seventy*
+
+By Elder William K. Jackson - *Of the Seventy*
 
 *Given in the October session of the 2020 General Conference*
+
+>*We can cherish the best of our individual earthly cultures and be full participants in the eternal culture that comes from the gospel of Jesus Christ.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/10/27jackson?lang=eng)
 
@@ -15,11 +18,11 @@ When I offered to teach him the principles of the gospel and share our beliefs w
 
 In most man-made cultures, there is found both good and bad, constructive and destructive.
 
-Many of our world’s problems are a direct result of clashes between those of differing ideas and customs arising from their culture. But virtually all conflict and chaos would quickly fade if the world would only accept its original culture, the one we all possessed not so very long ago. This culture dates back to our premortal existence. It was the culture of Adam and Enoch. It was the culture founded on the Savior’s teachings in the meridian of time, and it is available to all women and men once again in our day. It is unique. It is the greatest of all cultures and comes from the great plan of happiness, authored by God and championed by Christ. It unites rather than divides. It heals rather than harms.
+Many of our world’s problems are a direct result of clashes between those of differing ideas and customs arising from their culture. But virtually *all* conflict and chaos would quickly fade if the world would only accept its original culture, the one we all possessed not so very long ago. This culture dates back to our premortal existence. It was the culture of Adam and Enoch. It was the culture founded on the Savior’s teachings in the meridian of time, and it is available to all women and men once again in our day. It is unique. It is the greatest of all cultures and comes from the great plan of happiness, authored by God and championed by Christ. It unites rather than divides. It heals rather than harms.
 
 The gospel of Jesus Christ teaches us that there is purpose in life. Our being here is not just some big cosmic accident or mistake! We are here for a reason.
 
-This culture is grounded in the testimony that our Heavenly Father exists, that He is real and loves each one of us individually. We are His “work and [His] glory.”1 This culture espouses the concept of equal worth. There is no recognition of caste or class. We are, after all, brothers and sisters, spirit children of our heavenly parents—literally. There is no prejudice or “us versus them” mentality in the greatest of all cultures. We are all “us.” We are all “them.” We believe that we are responsible and accountable for ourselves, one another, the Church, and our world. Responsibility and accountability are important factors in our growth.
+This culture is grounded in the testimony that our Heavenly Father exists, that He is real and loves each one of us individually. We are His “work and \[His\] glory.”[^1] This culture espouses the concept of equal worth. There is no recognition of caste or class. We are, after all, brothers and sisters, spirit children of our heavenly parents—literally. There is no prejudice or “us versus them” mentality in the greatest of all cultures. We are all “us.” We are all “them.” We believe that we are responsible and accountable for ourselves, one another, the Church, and our world. Responsibility and accountability are important factors in our growth.
 
 Charity, true Christlike caring, is the bedrock of this culture. We feel real concern for the needs of our fellowman, temporal and spiritual, and act on those feelings. This dispels prejudice and hatred.
 
@@ -43,15 +46,24 @@ It is a culture of missionary work. The worth of souls is great.
 
 In the culture of Christ, women are elevated to their proper and eternal status. They are not subservient to men, as in many cultures in today’s world, but full and equal partners here and in the world to come.
 
-This culture sanctions the sanctity of the family. The family is the basic unit of eternity. The perfection of the family is worth any sacrifice because, as has been taught, “no other success can compensate for failure in the home.”2 The home is where our best work is done and where our greatest happiness is attained.
+This culture sanctions the sanctity of the family. The family is the basic unit of eternity. The perfection of the family is worth any sacrifice because, as has been taught, “no other success can compensate for failure in the home.”[^2] The home is where our best work is done and where our greatest happiness is attained.
 
 In the culture of Christ, there is perspective—and eternal focus and direction. This culture is concerned with things of lasting worth! It comes from the gospel of Jesus Christ, which is eternal and explains the why, what, and where of our existence. (It is inclusive, not exclusive.) Because this culture results from the application of our Savior’s teachings, it helps provide a healing balm of which our world is in such desperate need.
 
-What a blessing it is to be part of this grand and noble way of life! To be part of this, the greatest of all cultures, will require change. The prophets have taught that it is necessary to leave behind anything in our old cultures that is inconsistent with the culture of Christ. But that doesn’t mean we have to leave behind everything. The prophets have also emphasized that we are invited, one and all, to bring our faith and talents and knowledge—all that is good in our lives and our individual cultures—with us and let the Church “add to it” through the message of the gospel.3
+What a blessing it is to be part of this grand and noble way of life! To be part of this, the greatest of all cultures, will require change. The prophets have taught that it is necessary to leave behind anything in our old cultures that is inconsistent with the culture of Christ. But that doesn’t mean we have to leave behind *everything.* The prophets have also emphasized that we are invited, one and all, to bring our faith and talents and knowledge—all that is good in our lives and our individual cultures—*with* us and let the Church “add to it” through the message of the gospel.[^3]
 
 The Church of Jesus Christ of Latter-day Saints is hardly a Western society or an American cultural phenomenon. It is an international church, as it was always meant to be. More than that, it is supernal. New members from around the world bring richness, diversity, and excitement into our ever-growing family. Latter-day Saints everywhere still celebrate and honor their own heritage and heroes, but now they are also part of something far grander. The culture of Christ helps us to see ourselves as we really are, and when seen through the lens of eternity, tempered with righteousness, it serves to increase our ability to fulfill the great plan of happiness.
 
 So what happened to my friend? Well, he was taught the lessons and joined the Church. His family has since been sealed for time and all eternity in the Sydney Australia Temple. He has given up little—and gained the potential for everything. He discovered that he can still celebrate his history, still be proud of his ancestry, his music and dance and literature, his food, his land and its people. He has found that there is no problem incorporating the best of his local culture into the greatest of all cultures. He discovered that bringing that which is consistent with truth and righteousness from his old life into his new one serves only to enhance his fellowship with the Saints and to assist in uniting all as one in the society of heaven.
 
 We can, indeed, all cherish the best of our individual earthly cultures and still be full participants in the oldest culture of them all—the original, the ultimate, the eternal culture that comes from the gospel of Jesus Christ. What a marvelous heritage we all share. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Moses 1.39|Moses 1:39]].
+
+[^2]: J. E. McCulloch, in *Teachings of Presidents of the Church: David O. McKay* (2011), 154.
+
+[^3]: See *Teachings of Presidents of the Church: George Albert Smith* (2011), xxviii; Gordon B. Hinckley, “[[2002 October - The Marvelous Foundation of Our Faith.md|The Marvelous Foundation of Our Faith]],” *Ensign* or *Liahona,* Nov. 2002, 78–81.
 

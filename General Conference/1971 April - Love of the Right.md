@@ -1,11 +1,12 @@
 # Love of the Right
-*By Marvin J. Ashton - Assistant to the Council of the Twelve*
+
+By Elder Marvin J. Ashton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1971/04/love-of-the-right?lang=eng)
 
-The past few days my thoughts have turned repeatedly to that great message of strength, “... for I, the Lord, love him [Hyrum Smith] because of the integrity of his heart, and because he loveth that which is right before me. ...” (D&C 124:15.) What a blessing it is to be one who loves that which is right.
+The past few days my thoughts have turned repeatedly to that great message of strength, “… for I, the Lord, love him \[Hyrum Smith\] because of the integrity of his heart, and because he loveth that which is right before me. …” ([[D&C 124.15|D&C 124:15]].) What a blessing it is to be one who loves that which is right.
 
 There seems to be a tendency among many of us in our society today to live by compromise, rationalization, comparison, and self-justification. Love of right has been replaced by love of acceptance and convenience. Some mistakenly think the pathway of safety is somewhere between the path of righteousness and the road to destruction. Others seem to have convinced themselves that the way to perfection is reached by traveling the highway of compromise.
 
@@ -19,7 +20,7 @@ Drugs are causing many of our young people to drop out before they start. Drugs 
 
 May I recommend, as we look at drug abuse or other social problems, that we focus on the cause rather than the symptoms.
 
-When a youth asks the question of himself or a friend, “Why shouldn’t I take drugs?” he is very possibly asking the wrong question. What he may really want to know and need to know is “Why should I want to take any kind of a stimulant or depressant at all? What is there in my life that I am unhappy enough about to want to escape into a diabolic world of illusion?” If we as parents and friends advise our youth that drugs are bad, evil, and immoral, and yet we do not try to understand why our youth turn to this evil substitute for reality, then the drugs themselves become the issue and not the symptom of the greater issue of unhappiness. We need to know why our loved ones want to run from their present life to the unknown yet dangerous life of addiction. What causes a strong, lovely, vibrant young person to allow a chemical to control his or her behavior? What is there at home, school, work, or church that is so uncomfortable that an escape seems necessary?
+When a youth asks the question of himself or a friend, “Why shouldn’t I take drugs?” he is very possibly asking the wrong question. What he may really want to know and need to know is “Why should I want to take *any* kind of a stimulant or depressant at all? What is there in my life that I am unhappy enough about to want to escape into a diabolic world of illusion?” If we as parents and friends advise our youth that drugs are bad, evil, and immoral, and yet we do not try to understand why our youth turn to this evil substitute for reality, then the drugs themselves become the issue and not the symptom of the greater issue of unhappiness. We need to know why our loved ones want to run from their present life to the unknown yet dangerous life of addiction. What causes a strong, lovely, vibrant young person to allow a chemical to control his or her behavior? What is there at home, school, work, or church that is so uncomfortable that an escape seems necessary?
 
 If we were not faced with the evils of marijuana, LSD, speed, and heroin, we would be faced with some other type of escape mechanism, because some of us as brothers, sisters, parents, friends, and teachers have not yet been able to reach our youth in such a way as to give them the confidence and love they seek. Some of us are not providing the stability in the home, the respect, and the care that every person needs. They need more than Church upbringing—they need a loving home life.
 
@@ -55,7 +56,7 @@ Our Heavenly Father is so concerned that we do right that he will bless each of 
 
 Brothers and sisters, we compromise our blessings, we rationalize ourselves out of the sure and safe way, when we do not ask our God to guide us in the decisions that are part of our daily lives.
 
-The Lord has promised that he will help us in our pursuit of happiness if we will trust in him and follow his path. The abundant life will be ours if we rely on his strength. If we will magnify the priesthood we hold and share our talents every day, Satan will have no power over us, and our Heavenly Father’s strength will make all righteous things possible. Ammon, in his comments to his brother Aaron in the twenty-sixth chapter of Alma, verse 12, points to a way of life that brings security: “Yea, I know that I am nothing; as to my strength I am weak; therefore I will not boast of myself, but I will boast of my God, for in his strength I can do all things; ... for which we will praise his name forever.” All we need to do to enjoy eternal, happy lives is to live the gospel of Jesus Christ.
+The Lord has promised that he will help us in our pursuit of happiness if we will trust in him and follow his path. The abundant life will be ours if we rely on his strength. If we will magnify the priesthood we hold and share our talents every day, Satan will have no power over us, and our Heavenly Father’s strength will make all righteous things possible. Ammon, in his comments to his brother Aaron in the twenty-sixth chapter of Alma, verse 12, points to a way of life that brings security: “Yea, I know that I am nothing; as to my strength I am weak; therefore I will not boast of myself, but I will boast of my God, for in his strength I can do all things; … for which we will praise his name forever.” All we need to do to enjoy eternal, happy lives is to live the gospel of Jesus Christ.
 
 Following one of our recent general conference sessions, a troubled mother approached me and said, “I need to know what is meant by the statement, ‘No success can compensate for failure in the home.’” Knowing a little of the burdens this friend of mine carries in her mind and heart because of a rebellious, wayward daughter, I shared this meaning with her: I believe we start to fail in the home when we give up on each other. We have not failed until we have quit trying. As long as we are working diligently with love, patience, and long-suffering, despite the odds or the apparent lack of progress, we are not classified as failures in the home. We only start to fail when we give up on a son, daughter, mother, or father.
 
@@ -65,5 +66,8 @@ To our young friends and bewildered parents caught in the vicious grip of drug a
 
 I bear witness to you this day that a love for that which is right will bring us our Heavenly Father’s strength and protection. In his paths we will find security. My prayer is that we will have the desire in our hearts to earnestly seek the pathways of safety from evils such as drugs by honestly keeping all of his commandments.
 
-As we unitedly work to help our youth in combatting and avoiding all of the temptations of the day, may we be reminded, “... let every man be swift to hear, slow to speak, slow to wrath: For the wrath of man worketh not the righteousness of God.” (James 1:19–20.) I pray for our Heavenly Father to help us teach and love that which is right, in the name of Jesus Christ. Amen.
+As we unitedly work to help our youth in combatting and avoiding all of the temptations of the day, may we be reminded, “… let every man be swift to hear, slow to speak, slow to wrath: For the wrath of man worketh not the righteousness of God.” ([[James 1.19|James 1:19–20]][[James 1.20|]].) I pray for our Heavenly Father to help us teach and love that which is right, in the name of Jesus Christ. Amen.
+
+
+
 

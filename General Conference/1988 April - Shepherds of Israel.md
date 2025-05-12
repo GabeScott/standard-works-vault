@@ -1,5 +1,6 @@
 # Shepherds of Israel
-*By John R. Lasater - Of the First Quorum of the Seventy*
+
+By Elder John R. Lasater - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1988 General Conference*
 
@@ -27,7 +28,7 @@ The words of the Master Shepherd rang loudly in my ears:
 
 “And when he putteth forth his own sheep, he goeth before them, and the sheep follow him: for they know his voice.
 
-“And a stranger will they not follow, but will flee from him: for they know not the voice of strangers” (John 10:2–5).
+“And a stranger will they not follow, but will flee from him: for they know not the voice of strangers” ([[John 10.2|John 10:2–5]][[John 10.3|]][[John 10.4|]][[John 10.5|]]).
 
 My dear brothers and sisters, there are great lessons to be learned from these stirring words of the Master Shepherd. Into our hands, as members of this great Church, has been given responsibility to be the true shepherds unto the flocks of Israel. Do we understand the personal nature of the shepherd’s call? Whether we go as home teachers or visiting teachers, whether we serve as auxiliary leaders or teachers, or priesthood leaders at whatever level, we have received a divine injunction from God, through a living prophet, to become personal shepherds and ministers. No, it is not a new call; it has always been so.
 
@@ -38,4 +39,7 @@ Or are we strangers unto many? I promise you that you will not be a stranger, th
 There can be no greater example of the very personal nature of a true shepherd’s call than the events of that Easter weekend nearly two thousand years ago—the depth of the Master Shepherd’s love, His willingness to give freely of Himself, His undeviating loyalty and devotion to the cause, and His constant attention to the needs of the one. Those same qualities must mark our ministries as the shepherds of Israel.
 
 I testify, with all the fervency of my soul, regarding the need we have to be true shepherds and to come to know the personal nature of the true shepherd’s call. As one of His shepherds, I bear witness of the sacred responsibility that has been placed on our shoulders to be true shepherds unto the flocks of Israel and to know the personal nature of that calling. In the name of Jesus Christ, amen.
+
+
+
 

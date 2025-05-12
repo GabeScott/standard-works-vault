@@ -1,37 +1,31 @@
 # God Grant Us Faith
-*By Gordon B. Hinckley - Second Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1983 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1983/10/god-grant-us-faith?lang=eng)
 
-The Tabernacle Choir has sung “The Morning Breaks.” I think I should like to use those marvelous words written by Parley P. Pratt as something of a theme:
+The Tabernacle Choir has sung “The Morning Breaks.” I think I should like to use those marvelous words written by Parley P. Pratt as something of a theme:
 
-The morning breaks; the shadows flee;
-
-Lo, Zion’s standard is unfurled!
-
-The dawning of a brighter day
-
-Majestic rises on the world.
-
-The clouds of error disappear
-
-Before the rays of truth divine;
-
-The glory bursting from afar
-
-Wide o’er the nations soon will shine.
-
-(Hymns, no. 269.)
+>The morning breaks; the shadows flee;
+>Lo, Zion’s standard is unfurled!
+>The dawning of a brighter day
+>Majestic rises on the world.
+>
+>The clouds of error disappear
+>Before the rays of truth divine;
+>The glory bursting from afar
+>Wide o’er the nations soon will shine.
+>
 
 I greet you with appreciation for your love for the Lord and for your loyalty to his great cause.
 
 I see the fruits of your faith, and I am grateful. I thank you for the energy you put into this work. I know that at times it feels burdensome. Some of it may appear unnecessary. But out of effort and labor comes strength, and out of service comes gladness.
 
-I thank you for your faith in the payment of your tithes and offerings. You are making possible the growth and strengthening of this work across the world. But you do not need thanks. Every man and woman who pays his or her honest tithing has a testimony of the blessings that come therefrom. He or she can bear witness that the Lord opens the windows of heaven and pours out blessings as he has promised. (See Mal. 3:10.)
+I thank you for your faith in the payment of your tithes and offerings. You are making possible the growth and strengthening of this work across the world. But you do not need thanks. Every man and woman who pays his or her honest tithing has a testimony of the blessings that come therefrom. He or she can bear witness that the Lord opens the windows of heaven and pours out blessings as he has promised. (See [[Malachi 3.10|Mal. 3:10]].)
 
-I give you the assurance, my brothers and sisters, that the work is moving forward. Wherever it is established in more than eighty nations, it is growing in strength. The faith of the people is increasing, as reflected in their increased activity. The missionary work continues to flourish. Our young men and women continue to leave their homes to go into the world to bear witness of the Savior and of the restoration of his eternal gospel in this the dispensation of the fulness of times. (See D&C 124:41.) The work of salvation for the dead, through the vast genealogical program of the Church and the selfless labor of love that goes on in the temples, is moving at a pace never previously known.
+I give you the assurance, my brothers and sisters, that the work is moving forward. Wherever it is established in more than eighty nations, it is growing in strength. The faith of the people is increasing, as reflected in their increased activity. The missionary work continues to flourish. Our young men and women continue to leave their homes to go into the world to bear witness of the Savior and of the restoration of his eternal gospel in this the dispensation of the fulness of times. (See [[D&C 124.41|D&C 124:41]].) The work of salvation for the dead, through the vast genealogical program of the Church and the selfless labor of love that goes on in the temples, is moving at a pace never previously known.
 
 Our people are more faithful in attendance at their meetings, and since our last conference a very substantial number of them have had opportunity to demonstrate their love for neighbor as well as for God. In the floods which we have experienced in this area, there has been an unexcelled expression of neighborliness and Christian service. A woman who was not a member of the Church was interviewed on television and said, “I am not a Mormon, but I have come to know who my bishop is.” She went on to speak with unrestrained appreciation for her neighbors, who, almost entirely Latter-day Saints, had been as generous in their help toward her as they had been in their help toward one another. There is a stake not far from here where the members of each ward undertook the repair or replacement of a home damaged or lost in the flood. Hundreds of thousands of sandbags were filled and put in place. There were, of course, those not of the Church doing likewise, but all concerned have spoken with high praise for the Church organization which was able to muster forces so rapidly and so effectively.
 
@@ -73,7 +67,7 @@ The history of this Church is a history of the expression of such faith. It bega
 
 “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.
 
-“But let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed.” (James 1:5–6.)
+“But let him ask in faith, nothing wavering. For he that wavereth is like a wave of the sea driven with the wind and tossed.” ([[James 1.5|James 1:5–6]][[James 1.6|]].)
 
 It was faith, the simple faith of a fourteen-year-old boy, that took him into the woods that spring morning. It was faith that took him to his knees in pleading for understanding. The marvelous fruit of that faith was a vision glorious and beautiful, of which this great work is but the extended shadow.
 
@@ -89,11 +83,11 @@ With faith they established Winter Quarters on the Missouri. Hundreds died as pl
 
 It was by faith that Brigham Young looked over this valley, then hot and barren, and declared, “This is the place.” Again by faith, four days later, he touched his cane to the ground a few hundred feet east of where I stand and said, “Here will be the temple of our God.” The magnificent and sacred house of the Lord to the east of this Tabernacle is a testimony of faith, not only of the faith of those who built it but of the faith of those who now use it in a great selfless labor of love.
 
-Wrote Paul to the Hebrews, “Now faith is the substance of things hoped for, the evidence of things not seen.” (Heb. 11:1.) All of the great accomplishments of which I have spoken were once only “the substance of things hoped for, the evidence of things not seen.” But with vision, with labor, and with confidence in the power of God working through them, they brought their faith to reality.
+Wrote Paul to the Hebrews, “Now faith is the substance of things hoped for, the evidence of things not seen.” ([[Hebrews 11.1|Heb. 11:1]].) All of the great accomplishments of which I have spoken were once only “the substance of things hoped for, the evidence of things not seen.” But with vision, with labor, and with confidence in the power of God working through them, they brought their faith to reality.
 
 Behind us is a glorious history. It is bespangled with heroism, tenacity to principle, and unflagging fidelity. It is the product of faith. Before us is a great future. It begins today. We cannot pause. We cannot slow down. We cannot slacken our pace or shorten our stride.
 
-In a dark period of our history, when enemies were throwing accusations against the Church, the First Presidency issued a proclamation to the world in which they set forth the dimensions of this work. Said they: “Our motives are not selfish; our purposes not petty and earth-bound; we contemplate the human race—past, present, and yet to come—as immortal beings, for whose salvation it is our mission to labor; and to this work, broad as eternity and deep as the love of God, we devote ourselves, now, and forever.” (Messages of the First Presidency, comp. by James R. Clark, 6 vols., Salt Lake City: Bookcraft, 1965–75, 26 March 1907, 4:155.)
+In a dark period of our history, when enemies were throwing accusations against the Church, the First Presidency issued a proclamation to the world in which they set forth the dimensions of this work. Said they: “Our motives are not selfish; our purposes not petty and earth-bound; we contemplate the human race—past, present, and yet to come—as immortal beings, for whose salvation it is our mission to labor; and to this work, broad as eternity and deep as the love of God, we devote ourselves, now, and forever.” (*Messages of the First Presidency,* comp. by James R. Clark, 6 vols., Salt Lake City: Bookcraft, 1965–75, 26 March 1907, 4:155.)
 
 With faith we must go forward toward the fulfillment of that commitment. We must ever keep before us the big picture, while not neglecting the details. That large picture is a portrayal of the whole broad mission of the Church; but it is painted one brush stroke at a time through the lives of all members, the composite of whose activities becomes the Church at work.
 
@@ -103,15 +97,15 @@ Shall any of us say that with faith we cannot do better than we are now doing?
 
 There is no obstacle too great, no challenge too difficult, that we cannot meet with faith. We live in a world where the standards of the gospel are challenged, where they are ridiculed, where sacred things are mocked. Shall we compromise? Shall we revile those who speak ungraciously of us?
 
-In a more troubled day, the Lord said to Thomas B. Marsh:
+In a more troubled day, the Lord said to Thomas B. Marsh:
 
-“Be patient in afflictions, revile not against those that revile. Govern your house in meekness, and be steadfast. ...
+“Be patient in afflictions, revile not against those that revile. Govern your house in meekness, and be steadfast. …
 
-“Go your way whithersoever I will, and it shall be given you by the Comforter what you shall do and whither you shall go. ...
+“Go your way whithersoever I will, and it shall be given you by the Comforter what you shall do and whither you shall go. …
 
-“Be faithful unto the end, and lo, I am with you. These words are not of man nor of men, but of me, even Jesus Christ, your Redeemer, by the will of the Father.” (D&C 31:9, 11, 13.)
+“Be faithful unto the end, and lo, I am with you. These words are not of man nor of men, but of me, even Jesus Christ, your Redeemer, by the will of the Father.” ([[D&C 31.9|D&C 31:9, 11, 13]][[D&C 31.11|]][[D&C 31.13|]].)
 
-Said the Savior to his disciples, “Be ye therefore perfect, even as your Father which is in heaven is perfect.” (Matt. 5:48.)
+Said the Savior to his disciples, “Be ye therefore perfect, even as your Father which is in heaven is perfect.” ([[Matthew 5.48|Matt. 5:48]].)
 
 This is the commandment which is before us. Regrettably we have not reached perfection. We have a great distance to go. We must cultivate the faith to reform our lives, commencing where we are weak and moving on from there in our work of self-correction, thus gradually and consistently growing in strength to live more nearly as we should.
 
@@ -125,9 +119,12 @@ Let us never forget, my brethren and sisters, that each of us is a part of the w
 
 As our fathers labored in faith with a moving vision of the destiny of this work, even so can we. There is so much to be done, so much improvement to be made, but we can do it, walking in faith.
 
-“If ye have faith as a grain of mustard seed, ye shall say unto this mountain, Remove hence to yonder place; and it shall remove; and nothing shall be impossible unto you.” (Matt. 17:20; italics added.)
+“If ye have faith as a grain of mustard seed, ye shall say unto this mountain, Remove hence to yonder place; and it shall remove; *and nothing shall be impossible unto you.*” ([[Matthew 17.20|Matt. 17:20]]; italics added.)
 
 So declared the Lord.
 
 God grant us faith, I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

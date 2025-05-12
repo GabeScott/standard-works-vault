@@ -1,13 +1,16 @@
 # Until We Meet Again
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2014 General Conference*
+
+>*May the Spirit we have felt during these past two days be and abide with us as we go about those things which occupy us each day.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/04/until-we-meet-again?lang=eng)
 
 My brothers and sisters, what a wonderful conference this has been. We have been fed spiritually as we have listened to the inspired words of the men and women who have addressed us. The music has been superb, the messages have been prepared and delivered under the promptings of the Holy Spirit, and the prayers have drawn us nearer to heaven. We have been uplifted in every way as we have participated together.
 
-I hope that we will take the time to read the conference messages when they become available on LDS.org within the next few days and when they are printed in coming issues of the Ensign and Liahona magazines, for they are deserving of our careful review and study.
+I hope that we will take the time to read the conference messages when they become available on LDS.org within the next few days and when they are printed in coming issues of the *Ensign* and *Liahona* magazines, for they are deserving of our careful review and study.
 
 I know you join with me in expressing our sincere gratitude to those brethren and sisters who were released during this conference. They have served well and have made significant contributions to the work of the Lord. Their dedication has been complete.
 
@@ -24,4 +27,7 @@ I bear testimony that this work is true, that our Savior lives, and that He guid
 My brothers and sisters, may God bless you. May His promised peace be with you now and always.
 
 I bid you farewell until we meet again in six months’ time, and I do so in the name of Jesus Christ, our Lord and Savior, amen.
+
+
+
 

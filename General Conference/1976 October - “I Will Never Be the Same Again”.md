@@ -1,5 +1,6 @@
 # “I Will Never Be the Same Again”
-*By By Bishop J. Richard Clarke - Second Counselor in the Presiding Bishopric*
+
+By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -24,4 +25,7 @@ May I bear witness that I know that Jesus is the Christ, the Son of the Living G
 And may I express my love and appreciation to the Prophet Joseph Smith and all those who have given their lives or so much else that we might enjoy this hour in peaceful assembly.
 
 Now I pray for the Lord’s blessings upon all of us, that we may fulfill the righteous desires of our hearts and do His work as He would have it, in the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # To the Women of the Church
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2003 General Conference*
+
+>*Thank you for being the kind of people you are and doing the things you do. May the blessings of heaven rest upon you.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2003/10/to-the-women-of-the-church?lang=eng)
 
@@ -71,7 +74,7 @@ Mothers, take good care of your daughters. Be close to them. Listen to them. Tal
 
 Nurture your sons with love and counsel. Teach them the importance of personal cleanliness, of neatness in their dress. Sloppy ways lead to sloppy lives. Instill in them a sense of discipline. Keep them worthy of service to the Church as missionaries. Give them things to do so that they may learn to work. Teach them to be frugal. Labor and frugality lead to prosperity. Teach them that nothing really good happens after 11 o’clock at night. And do not spoil them. If they go on missions, they may be compelled to live in circumstances that you would not wish for them. Do not worry about them. Give them encouragement.
 
-Stir within your children the desire for education. This is the latchkey to success in life. And at the same time, teach them that as President David O. McKay was wont to remind us, “No other success can compensate for failure in the home.”1
+Stir within your children the desire for education. This is the latchkey to success in life. And at the same time, teach them that as President David O. McKay was wont to remind us, “No other success can compensate for failure in the home.”[^1]
 
 Now I speak to you single mothers whose burdens are so heavy because you have been abandoned or have been widowed. Yours is a terrible load. Bear it well. Seek the blessings of the Lord. Be grateful for any assistance that may come out of the quorums of the priesthood to help you in your home or with other matters. Pray silently in your closet, and let the tears flow if they must come. But put a smile on your face whenever you are before your children or others.
 
@@ -86,4 +89,9 @@ My dear friends of the Relief Society, whatever your circumstances, wherever you
 You know as I do that God our Eternal Father lives. He loves you. You know as I do that Jesus is the Christ, His immortal Son, our Redeemer. You know that the gospel is true and that heaven is near if we will cultivate it in our lives.
 
 You are the Relief Society of The Church of Jesus Christ of Latter-day Saints. There is no other organization to equal it. Walk with pride. Hold your heads up. Work with diligence. Do whatever the Church asks you to do. Pray with faith. You may never know how much good you accomplish. Someone’s life will be blessed by your effort. May you know the comforting, rewarding embrace of the Holy Spirit, I pray in the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: Quoted from J. E. McCulloch, *Home: The Savior of Civilization* (1924), 42; in Conference Report, Apr. 1935, 116.
 

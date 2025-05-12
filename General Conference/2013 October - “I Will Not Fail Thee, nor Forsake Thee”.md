@@ -1,15 +1,18 @@
 # “I Will Not Fail Thee, nor Forsake Thee”
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2013 General Conference*
+
+>*Our Heavenly Father … knows that we learn and grow and become stronger as we face and survive the trials through which we must pass.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/10/i-will-not-fail-thee-nor-forsake-thee?lang=eng)
 
 In my journal tonight, I shall write, “This has been one of the most inspiring sessions of any general conference I’ve attended. Everything has been of the greatest and most spiritual nature.”
 
-Brothers and sisters, six months ago as we met together in our general conference, my sweet wife, Frances, lay in the hospital, having suffered a devastating fall just a few days earlier. In May, after weeks of valiantly struggling to overcome her injuries, she slipped into eternity. Her loss has been profound. She and I were married in the Salt Lake Temple on October 7, 1948. Tomorrow would have been our 65th wedding anniversary. She was the love of my life, my trusted confidant, and my closest friend. To say that I miss her does not begin to convey the depth of my feelings.
+Brothers and sisters, six months ago as we met together in our general conference, my sweet wife, Frances, lay in the hospital, having suffered a devastating fall just a few days earlier. In May, after weeks of valiantly struggling to overcome her injuries, she slipped into eternity. Her loss has been profound. She and I were married in the Salt Lake Temple on October 7, 1948. Tomorrow would have been our 65th wedding anniversary. She was the love of my life, my trusted confidant, and my closest friend. To say that I miss her does not begin to convey the depth of my feelings.
 
-This conference marks 50 years since I was called to the Quorum of the Twelve Apostles by President David O. McKay. Through all these years I have felt nothing but the full and complete support of my sweet companion. Countless are the sacrifices she made so that I could fulfill my calling. Never did I hear a word of complaint from her as I was often required to spend days and sometimes weeks away from her and from our children. She was an angel, indeed.
+This conference marks 50 years since I was called to the Quorum of the Twelve Apostles by President David O. McKay. Through all these years I have felt nothing but the full and complete support of my sweet companion. Countless are the sacrifices she made so that I could fulfill my calling. Never did I hear a word of complaint from her as I was often required to spend days and sometimes weeks away from her and from our children. She was an angel, indeed.
 
 I wish to express my thanks, as well as those of my family, for the tremendous outpouring of love which has come to us since Frances’s passing. Hundreds of cards and letters were sent from around the world expressing admiration for her and condolences to our family. We received dozens of beautiful floral arrangements. We are grateful for the numerous contributions which have been offered in her name to the General Missionary Fund of the Church. On behalf of those of us whom she left behind, I express deep gratitude for your kind and heartfelt expressions.
 
@@ -17,15 +20,15 @@ Of utmost comfort to me during this tender time of parting have been my testimon
 
 Brothers and sisters, it may be safely assumed that no person has ever lived entirely free of suffering and sorrow, nor has there ever been a period in human history that did not have its full share of turmoil and misery.
 
-When the pathway of life takes a cruel turn, there is the temptation to ask the question “Why me?” At times there appears to be no light at the end of the tunnel, no sunrise to end the night’s darkness. We feel encompassed by the disappointment of shattered dreams and the despair of vanished hopes. We join in uttering the biblical plea, “Is there no balm in Gilead?”1 We feel abandoned, heartbroken, alone. We are inclined to view our own personal misfortunes through the distorted prism of pessimism. We become impatient for a solution to our problems, forgetting that frequently the heavenly virtue of patience is required.
+When the pathway of life takes a cruel turn, there is the temptation to ask the question “Why me?” At times there appears to be no light at the end of the tunnel, no sunrise to end the night’s darkness. We feel encompassed by the disappointment of shattered dreams and the despair of vanished hopes. We join in uttering the biblical plea, “Is there no balm in Gilead?”[^1] We feel abandoned, heartbroken, alone. We are inclined to view our own personal misfortunes through the distorted prism of pessimism. We become impatient for a solution to our problems, forgetting that frequently the heavenly virtue of patience is required.
 
 The difficulties which come to us present us with the real test of our ability to endure. A fundamental question remains to be answered by each of us: Shall I falter, or shall I finish? Some do falter as they find themselves unable to rise above their challenges. To finish involves enduring to the very end of life itself.
 
-As we ponder the events that can befall all of us, we can say with Job of old, “Man is born unto trouble.”2 Job was a “perfect and upright” man who “feared God, and eschewed evil.”3 Pious in his conduct, prosperous in his fortune, Job was to face a test which could have destroyed anyone. Shorn of his possessions, scorned by his friends, afflicted by his suffering, shattered by the loss of his family, he was urged to “curse God, and die.”4 He resisted this temptation and declared from the depths of his noble soul:
+As we ponder the events that can befall all of us, we can say with Job of old, “Man is born unto trouble.”[^2] Job was a “perfect and upright” man who “feared God, and eschewed evil.”[^3] Pious in his conduct, prosperous in his fortune, Job was to face a test which could have destroyed anyone. Shorn of his possessions, scorned by his friends, afflicted by his suffering, shattered by the loss of his family, he was urged to “curse God, and die.”[^4] He resisted this temptation and declared from the depths of his noble soul:
 
-“Behold, my witness is in heaven, and my record is on high.”5
+“Behold, my witness is in heaven, and my record is on high.”[^5]
 
-“I know that my redeemer liveth.”6
+“I know that my redeemer liveth.”[^6]
 
 Job kept the faith. Will we do likewise as we face those challenges which will be ours?
 
@@ -33,7 +36,7 @@ Whenever we are inclined to feel burdened down with the blows of life, let us re
 
 The history of the Church in this, the dispensation of the fulness of times, is replete with the experiences of those who have struggled and yet who have remained steadfast and of good cheer. The reason? They have made the gospel of Jesus Christ the center of their lives. This is what will pull us through whatever comes our way. We will still experience difficult challenges, but we will be able to face them, to meet them head-on, and to emerge victorious.
 
-From the bed of pain, from the pillow wet with tears, we are lifted heavenward by that divine assurance and precious promise: “I will not fail thee, nor forsake thee.”7 Such comfort is priceless.
+From the bed of pain, from the pillow wet with tears, we are lifted heavenward by that divine assurance and precious promise: “I will not fail thee, nor forsake thee.”[^7] Such comfort is priceless.
 
 As I have traveled far and wide throughout the world fulfilling the responsibilities of my calling, I have come to know many things—not the least of which is that sadness and suffering are universal. I cannot begin to measure all of the heartache and sorrow I have witnessed as I have visited with those who are dealing with grief, experiencing illness, facing divorce, struggling with a wayward son or daughter, or suffering the consequences of sin. The list could go on and on, for there are countless problems which can befall us. To single out one example is difficult, and yet whenever I think of challenges, my thoughts turn to Brother Brems, one of my boyhood Sunday School teachers. He was a faithful member of the Church, a man with a heart of gold. He and his wife, Sadie, had eight children, many of whom were the same ages as those in our family.
 
@@ -51,17 +54,13 @@ Our Heavenly Father, who gives us so much to delight in, also knows that we lear
 
 This should be our purpose—to persevere and endure, yes, but also to become more spiritually refined as we make our way through sunshine and sorrow. Were it not for challenges to overcome and problems to solve, we would remain much as we are, with little or no progress toward our goal of eternal life. The poet expressed much the same thought in these words:
 
-Good timber does not grow with ease,
-
-The stronger wind, the stronger trees.
-
-The further sky, the greater length.
-
-The more the storm, the more the strength.
-
-By sun and cold, by rain and snow,
-
-In trees and men good timbers grow.8
+>Good timber does not grow with ease,
+>The stronger wind, the stronger trees.
+>The further sky, the greater length.
+>The more the storm, the more the strength.
+>By sun and cold, by rain and snow,
+>In trees and men good timbers grow.[^8]
+>
 
 Only the Master knows the depths of our trials, our pain, and our suffering. He alone offers us eternal peace in times of adversity. He alone touches our tortured souls with His comforting words:
 
@@ -69,13 +68,36 @@ Only the Master knows the depths of our trials, our pain, and our suffering. He 
 
 “Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls.
 
-“For my yoke is easy, and my burden is light.”9
+“For my yoke is easy, and my burden is light.”[^9]
 
 Whether it is the best of times or the worst of times, He is with us. He has promised that this will never change.
 
 My brothers and sisters, may we have a commitment to our Heavenly Father that does not ebb and flow with the years or the crises of our lives. We should not need to experience difficulties for us to remember Him, and we should not be driven to humility before giving Him our faith and trust.
 
-May we ever strive to be close to our Heavenly Father. To do so, we must pray to Him and listen to Him every day. We truly need Him every hour, whether they be hours of sunshine or of rain. May His promise ever be our watchword: “I will not fail thee, nor forsake thee.”10
+May we ever strive to be close to our Heavenly Father. To do so, we must pray to Him and listen to Him every day. We truly need Him every hour, whether they be hours of sunshine or of rain. May His promise ever be our watchword: “I will not fail thee, nor forsake thee.”[^10]
 
 With all the strength of my soul, I testify that God lives and loves us, that His Only Begotten Son lived and died for us, and that the gospel of Jesus Christ is that penetrating light which shines through the darkness of our lives. May it ever be so, I pray in the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Jeremiah 8.22|Jeremiah 8:22]].
+
+[^2]: [[Job 5.7|Job 5:7]].
+
+[^3]: [[Job 1.1|Job 1:1]].
+
+[^4]: [[Job 2.9|Job 2:9]].
+
+[^5]: [[Job 16.19|Job 16:19]].
+
+[^6]: [[Job 19.25|Job 19:25]].
+
+[^7]: [[Joshua 1.5|Joshua 1:5]].
+
+[^8]: Douglas Malloch, “Good Timber,” in Sterling W. Sill, *Making the Most of Yourself* (1971), 23.
+
+[^9]: [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
+
+[^10]: [[Joshua 1.5|Joshua 1:5]].
 

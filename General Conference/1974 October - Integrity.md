@@ -1,5 +1,6 @@
 # Integrity
-*By Marion G. Romney - Second Counselor in the First Presidency*
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -11,7 +12,7 @@ I have decided to say a few words about integrity.
 
 One of the definitions of integrity reads, “The quality or state of being of sound moral principle; uprightness, honesty, and sincerity.”
 
-In distinguishing between the synonyms of integrity, honesty, honor, probity, and veracity, Webster’s New World Dictionary says that “integrity implies an incorruptible soundness of moral character, especially as displayed in fulfilling trusts.”
+In distinguishing between the synonyms of integrity, honesty, honor, probity, and veracity, *Webster’s New World Dictionary* says that “integrity implies an incorruptible soundness of moral character, especially as displayed in fulfilling trusts.”
 
 I need not belabor the fact that the world is at the present time in desperate need of men of integrity. The proof of this statement may be read in every publication, heard on every radio, and both seen and heard in every visual and sound production.
 
@@ -21,13 +22,13 @@ Our very civilization is in jeopardy. If it is to be rescued, it must be done by
 
 To accomplish this tremendous task, the Lord has called his priesthood. This means you and me and all our fellow priesthood-bearers, Aaronic and Melchizedek.
 
-The Lord has reposed in us the most sacred trust given to men. We must not fail him. We must be boys and men of integrity. Our individual exaltation depends upon our proving to the Lord that we will at all hazards and under all circumstances faithfully discharge the trust he has placed in us. (See History of The Church of Jesus Christ of Latter-day Saints, 3:380.)
+The Lord has reposed in us the most sacred trust given to men. We must not fail him. We must be boys and men of integrity. Our individual exaltation depends upon our proving to the Lord that we will at all hazards and under all circumstances faithfully discharge the trust he has placed in us. (See *History of The Church of Jesus Christ of Latter-day Saints,* 3:380.)
 
 The Prophet Joseph Smith taught that absolute integrity must precede the promise of eternal life. He said:
 
-“After a person has faith in Christ, repents of his sins, and is baptized for the remission of his sins and receives the Holy Ghost, ... then let him continue to humble himself before God, hungering and thirsting after righteousness, and living by every word of God, and the Lord will soon say unto him, Son, thou shalt be exalted.”
+“After a person has faith in Christ, repents of his sins, and is baptized for the remission of his sins and receives the Holy Ghost, … then let him continue to humble himself before God, hungering and thirsting after righteousness, and living by every word of God, and the Lord will soon say unto him, Son, thou shalt be exalted.”
 
-This promise is to come, however, only after “the Lord has thoroughly proved him, and finds that the man is determined to serve him at all hazards.” (History of the Church, 3:380.)
+This promise is to come, however, only after “the Lord has thoroughly proved him, and finds that the man is determined to serve him at all hazards.” (*History of the Church,* 3:380.)
 
 We have among our leaders in the Church, in all callings of the priesthood from deacons to apostles, examples of brethren whose performance demonstrates this integrity.
 
@@ -51,9 +52,9 @@ I shall now call attention to some circumstances in which this matter of integri
 
 “These boys had heard a sermon they would never hear duplicated in the pulpit. They were sick, ashamed, and crestfallen. As they left their half-filled glasses and walked out through the hotel lobby, they had the feeling that everyone was looking at them. The cover of darkness was kind as they made their way to their camp. ‘You just can’t win,’ said the boy who had proposed their dropping their true identity, trying to ease the tension. ‘I’m not so sure,’ replied the boy to who the stranger had spoken. ‘If we have any sense left, we can make this experience into the most winning lesson of our lives.’”
 
-Here is another experience—an experience of President Joseph F. Smith reported by the late President Charles W. Nibley, which you young elders might ponder to your profit:
+Here is another experience—an experience of President Joseph F. Smith reported by the late President Charles W. Nibley, which you young elders might ponder to your profit:
 
-“Another incident which I have heard him relate,” says Brother Nibley, speaking about President Joseph F. Smith, who was the president of the Church and father of our late president, Joseph Fielding Smith, “which shows his courage and integrity, occurred when he was returning from his mission to the Sandwich Islands, in the fall of 1857. He came home by way of Los Angeles, by what was called the Southern Route. In that year Johnston’s Army was on the move for Utah, and naturally enough there was much excitement and bitterness of feeling concerning the ‘Mormons.’ In southern California, just after the little train of wagons had traveled only a short distance and made their camp, several anti-‘Mormon’ toughs rode into the camp on horseback, cursing and swearing and threatening what they would do to the ‘Mormons.’ Joseph F. was a little distance from the camp gathering wood for the fire, but he saw that the few members of his own party had cautiously gone into the brush down the creek, out of sight. When he saw that, he told me,” says Brother Nibley, “the thought came into his mind, ‘Shall I run from these fellows? Why should I fear them?’ With that he marched up with his arm full of wood to the campfire where one of the ruffians, still with his pistol in his hand, shouting and cursing about the ‘Mormons,’ in a loud voice said to Joseph F.:
+“Another incident which I have heard him relate,” says Brother Nibley, speaking about President Joseph F. Smith, who was the president of the Church and father of our late president, Joseph Fielding Smith, “which shows his courage and integrity, occurred when he was returning from his mission to the Sandwich Islands, in the fall of 1857. He came home by way of Los Angeles, by what was called the Southern Route. In that year Johnston’s Army was on the move for Utah, and naturally enough there was much excitement and bitterness of feeling concerning the ‘Mormons.’ In southern California, just after the little train of wagons had traveled only a short distance and made their camp, several anti-‘Mormon’ toughs rode into the camp on horseback, cursing and swearing and threatening what they would do to the ‘Mormons.’ Joseph F. was a little distance from the camp gathering wood for the fire, but he saw that the few members of his own party had cautiously gone into the brush down the creek, out of sight. When he saw that, he told me,” says Brother Nibley, “the thought came into his mind, ‘Shall I run from these fellows? Why should I fear them?’ With that he marched up with his arm full of wood to the campfire where one of the ruffians, still with his pistol in his hand, shouting and cursing about the ‘Mormons,’ in a loud voice said to Joseph F.:
 
 “‘Are you a ‘Mormon?’
 
@@ -61,29 +62,32 @@ Here is another experience—an experience of President Joseph F. Smith reported
 
 “At that the ruffian grasped him by the hand and said:
 
-“‘Well, you are the ---- ---- pleasantest man I ever met! Shake, young fellow, I am glad to see a man that stands up for his convictions.’” (Joseph F. Smith, Gospel Doctrine, Deseret Book Co., 1939 ed., p. 518.)
+“‘Well, you are the ---- ---- pleasantest man I ever met! Shake, young fellow, I am glad to see a man that stands up for his convictions.’” (Joseph F. Smith, *Gospel Doctrine,* Deseret Book Co., 1939 ed., p. 518.)
 
-Abraham Lincoln demonstrated his great integrity in his famous house-divided speech. John Wesley Hill, in his book Abraham Lincoln—Man of God, says: “Lincoln showed his independence and tenacity of purpose when he wrote his address accepting the nomination for United States Senator. ... This is known as ‘The House Divided Against Itself’ speech. It embodied the historic declaration that the Union could not exist ‘half slave and half free.’ To his friend, Jesse K. Dubois, Lincoln said:
+Abraham Lincoln demonstrated his great integrity in his famous house-divided speech. John Wesley Hill, in his book *Abraham Lincoln—Man of God,* says: “Lincoln showed his independence and tenacity of purpose when he wrote his address accepting the nomination for United States Senator. … This is known as ‘The House Divided Against Itself’ speech. It embodied the historic declaration that the Union could not exist ‘half slave and half free.’ To his friend, Jesse K. Dubois, Lincoln said:
 
-“‘I refused to read the passage about the house divided against itself to you, because I knew you would ask me to change or modify it, and that I was determined not to do. I had willed it so and was willing, if necessary, to perish with it. I would rather be defeated with this expression in the speech ... than to be victorious without it.’” (Abraham Lincoln—Man of God, New York and London: G. P. Putnam’s Sons, 1927, p. 151.)
+“‘I refused to read the passage about the house divided against itself to you, because I knew you would ask me to change or modify it, and that I was determined not to do. I had willed it so and was willing, if necessary, to perish with it. I would rather be defeated with this expression in the speech … than to be victorious without it.’” (*Abraham Lincoln—Man of God,* New York and London: G. P. Putnam’s Sons, 1927, p. 151.)
 
 Now it took real courage for Lincoln to leave that “half slave and half free” sentence in his speech. He was ambitious, and it seemed that through the Senate was the way to the presidency, but the political climate at the time was not ready for the stand he took on that issue. The probability was that the statement would mean defeat in his race for the Senate, and that’s what it turned out to be. All this Lincoln well knew; nevertheless, he had the integrity to act in harmony with his convictions. Although his course did shut the door to the Senate, fortunately for the country, it later opened the door to the presidency.
 
-President J. Reuben Clark, Jr., was a man of like integrity. As a young man he presided for a short time over the Southern Branch of the State Normal College in Cedar City, Utah. He developed a great interest in that institution.
+President J. Reuben Clark, Jr., was a man of like integrity. As a young man he presided for a short time over the Southern Branch of the State Normal College in Cedar City, Utah. He developed a great interest in that institution.
 
-“Two years later ... his help was solicited to give encouragement to members of the legislature to provide the funds which had been requested by the institution.”
+“Two years later … his help was solicited to give encouragement to members of the legislature to provide the funds which had been requested by the institution.”
 
-Responding by letter he “explained in utter frankness and candor that he could not support the ... request” for $100,000.
+Responding by letter he “explained in utter frankness and candor that he could not support the … request” for $100,000.
 
-“‘... Frankly and freely,’ he said, ‘I believe you are asking too much. ...
+“‘… Frankly and freely,’ he said, ‘I believe you are asking too much. …
 
-“‘... I have thought the matter over very carefully, and have not been able to see my way clear to honestly recommend to your representatives the appropriation ... you ask. ...
+“‘… I have thought the matter over very carefully, and have not been able to see my way clear to honestly recommend to your representatives the appropriation … you ask. …
 
 “‘If you would say that you will drop the $100,000 and work for the $54,000 you may count on my active cooperation to the very limit of my poor ability; but if you still reach after the larger amount, you will at once see it will be better if I keep quiet; and I promise you that I shall do that.’
 
-“The frankness in this letter was to become a distinguishing characteristic of [President] Clark’s correspondence and dealings with men throughout his long career. Although his recommendations many times did not contain what others had hoped to receive, nonetheless his candor and complete honesty contributed greatly to men’s confidence in him for they knew they could depend upon him to say what he really thought.” (David H. Yarn, Jr., Young Reuben, Brigham Young University Press, Provo, Utah, pp. 113–14.)
+“The frankness in this letter was to become a distinguishing characteristic of \[President\] Clark’s correspondence and dealings with men throughout his long career. Although his recommendations many times did not contain what others had hoped to receive, nonetheless his candor and complete honesty contributed greatly to men’s confidence in him for they knew they could depend upon him to say what he really thought.” (David H. Yarn, Jr., *Young Reuben,* Brigham Young University Press, Provo, Utah, pp. 113–14.)
 
-How glorious, men of the priesthood, it would be if all of us possessed the integrity of a President Kimball, a Nathan Eldon Tanner, a Joseph F. Smith, an Abraham Lincoln, or a J. Reuben Clark, Jr. The Lord expects that from us, his priesthood bearers.
+How glorious, men of the priesthood, it would be if all of us possessed the integrity of a President Kimball, a Nathan Eldon Tanner, a Joseph F. Smith, an Abraham Lincoln, or a J. Reuben Clark, Jr. The Lord expects that from us, his priesthood bearers.
 
 God help us that we may think about this great quality of integrity and live lives of integrity, I humbly pray, in the name of Jesus Christ. Amen.
+
+
+
 

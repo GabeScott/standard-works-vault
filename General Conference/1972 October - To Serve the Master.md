@@ -1,5 +1,6 @@
 # To Serve the Master
-*By O. Leslie Stone - Assistant to the Council of the Twelve*
+
+By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -11,7 +12,7 @@ When President Lee called me to be a stake president about sixteen years ago, I 
 
 I feel humble, grateful, and assure you and the Brethren of my willingness to serve, to devote my time, energy, and means for the upbuilding of the kingdom.
 
-The Savior on one occasion, realizing the many temptations that we are faced with in this life, made this statement: “... seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.” (Matt. 6:33.) We have tried to live by that rule in our family. My sons, who have both been mission presidents, used to quote that to me when I was talking to them about their future.
+The Savior on one occasion, realizing the many temptations that we are faced with in this life, made this statement: “… seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.” ([[Matthew 6.33|Matt. 6:33]].) We have tried to live by that rule in our family. My sons, who have both been mission presidents, used to quote that to me when I was talking to them about their future.
 
 Now, I want you all to remember the program of prospective elders, and I am going to tell you why. I was a prospective elder when I met my wife in Blackfoot, Idaho; and after I had courted her for some time and decided (and let her know) that she was the girl of my dreams, she let me know in no uncertain terms that I had to “shape up.” A temple marriage was the only marriage she was interested in.
 
@@ -27,9 +28,12 @@ On the day I was put in as stake president, President Lee quoted this scripture.
 
 “Trust in the Lord with all thine heart; and lean not unto thine own understanding.
 
-“In all thy ways acknowledge him, and he shall direct thy paths.” (Prov. 3:5–6.)
+“In all thy ways acknowledge him, and he shall direct thy paths.” ([[Proverbs 3.5|Prov. 3:5–6]][[Proverbs 3.6|]].)
 
 I pray I may always do this, in the name of Jesus Christ.
 
 Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Ocean Currents and Family Influences
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -11,7 +12,7 @@ One day when we were well out into the ocean, there was excitement on the ship. 
 
 There it floated quietly in the water like a sharp peak of a high mountain range, a thing of beauty to behold. All my life I had heard about them, and now, for the first time, it was there before my eyes—a sharp mountain peak of ice.
 
-This recalled to our minds the tragic sinking of the Titanic, steamship of the White Star Line, on its maiden trip across the ocean. The huge iceberg collided with this large, new ship late in the evening, April 14, 1912. Fifteen hundred and three persons, many of them eminent in Britain and in the United States, were drowned as the ship sank and only 703 were saved.
+This recalled to our minds the tragic sinking of the *Titanic,* steamship of the White Star Line, on its maiden trip across the ocean. The huge iceberg collided with this large, new ship late in the evening, April 14, 1912. Fifteen hundred and three persons, many of them eminent in Britain and in the United States, were drowned as the ship sank and only 703 were saved.
 
 Then four years ago, flying from England to the United States, we passed over Greenland and saw them again. Much of our trip we had traveled above the blanket of clouds, but as we flew over Greenland, the sky was clear and free of clouds. The sun shone brightly. Seldom does the human eye ever see such beauty and grandeur. Stretching out in the distance was the mile-thick blanket of ice over the great, domed island. We saw the thick glaciers creeping slowly down the valleys to the sea, where they break off and become icebergs. The fjords were full of floating mountains of ice drifting on their way to the ocean. Here was the birthplace of countless such icebergs as we had seen 33 years earlier.
 
@@ -21,7 +22,7 @@ And we compared this conflict of the earth’s powers with the results in our ow
 
 Out of our view, under the ocean waves, there are forces of tremendous power with which we must reckon, and there are such powerful forces in our own lives.
 
-The mighty Mississippi River is a rivulet in comparison with the great ocean streams. One of the most spectacular of all is said to be the Labrador Current. The second most powerful is the Gulf Stream, which carries warm water from the eastern portion of the Gulf of Mexico parallel to the eastern coast of the United States and across the Atlantic to warm the shores of Europe. The Gulf Stream carries as much water as a thousand Mississippi Rivers combined. Though of lesser magnitude, the Labrador Current year after year carries thousands of icebergs down from their birthplace in Greenland, faithfully, steadily, until they disintegrate or melt in the warmer waters of the Gulf Stream. It is at this point, where the Labrador Current meets the Gulf Stream, that the Titanic met her fate.
+The mighty Mississippi River is a rivulet in comparison with the great ocean streams. One of the most spectacular of all is said to be the Labrador Current. The second most powerful is the Gulf Stream, which carries warm water from the eastern portion of the Gulf of Mexico parallel to the eastern coast of the United States and across the Atlantic to warm the shores of Europe. The Gulf Stream carries as much water as a thousand Mississippi Rivers combined. Though of lesser magnitude, the Labrador Current year after year carries thousands of icebergs down from their birthplace in Greenland, faithfully, steadily, until they disintegrate or melt in the warmer waters of the Gulf Stream. It is at this point, where the Labrador Current meets the Gulf Stream, that the *Titanic* met her fate.
 
 It is true of us, as of icebergs, that our course is, in important measure, determined by forces we only partly perceive. It is true also, however, that we are more like ships than icebergs. We have our own motive power, and if we are aware of the currents, we can take advantage of them.
 
@@ -29,7 +30,7 @@ Accordingly, if we can create in our families a strong, steady current flowing t
 
 Youth and adults are subjected to so many swirling winds that we sometimes wonder if they can survive. The winds of fashion push those about who are insecure and who require the feeling that they are in step with the crowd. The winds of sexual temptation drive some to destroy their marriage or to dash bright prospects or to degrade themselves. Bad companions, addicting drugs, the arrogance of profanity, the slough of pornography—all these and more act as influences pushing us, if we are not being carried forward by a strong, steady current toward the righteous life. The current of our lives should be determined and made strong by our parental and family life.
 
-In each of us is the potentiality to become a God—pure, holy, true, influential, powerful, independent of earthly forces. We learn from the scriptures that we each have eternal existence, that we were in the beginning with God. (See Abr. 3:22.) That understanding gives to us a unique sense of man’s dignity.
+In each of us is the potentiality to become a God—pure, holy, true, influential, powerful, independent of earthly forces. We learn from the scriptures that we each have eternal existence, that we were in the beginning with God. (See [[Abraham 3.22|Abr. 3:22]].) That understanding gives to us a unique sense of man’s dignity.
 
 I have sometimes seen children of good families rebel, resist, stray, sin, and even actually fight God. In this they bring sorrow to their parents, who have done their best to set in movement a current and to teach and live as examples. But I have repeatedly seen many of these same children, after years of wandering, mellow, realize what they have been missing, repent, and make great contribution to the spiritual life of their community. The reason I believe this can take place is that, despite all the adverse winds to which these people have been subjected, they have been influenced still more, and much more than they realized, by the current of life in the homes in which they were reared. When, in later years, they feel a longing to recreate in their own families the same atmosphere they enjoyed as children, they are likely to turn to the faith that gave meaning to their parents’ lives.
 
@@ -37,11 +38,11 @@ There is no guarantee, of course, that righteous parents will succeed always in 
 
 But if we as parents fail to influence our families and set them on the “strait and narrow way,” then certainly the waves, the winds of temptation and evil will carry the posterity away from the path.
 
-“Train up a child in the way he should go; and when he is old, he will not depart from it.” (Prov. 22:6.) What we do know is that righteous parents who strive to develop wholesome influences for their children will be held blameless at the last day, and that they will succeed in saving most of their children, if not all.
+“Train up a child in the way he should go; and when he is old, he will not depart from it.” ([[Proverbs 22.6|Prov. 22:6]].) What we do know is that righteous parents who strive to develop wholesome influences for their children will be held blameless at the last day, and that they will succeed in saving most of their children, if not all.
 
 The competition for our souls is described in Mosiah.
 
-“For the natural man is an enemy to God, and has been from the fall of Adam, and will be, forever and ever, unless he yields to the enticings of the Holy Spirit, and putteth off the natural man and becometh a saint through the atonement of Christ ... and becometh as a child, submissive, meek, humble, patient, full of love, willing to submit to all things which the Lord seeth fit to inflict upon him, even as a child doth submit to his father.” (Mosiah 3:19.)
+“For the natural man is an enemy to God, and has been from the fall of Adam, and will be, forever and ever, unless he yields to the enticings of the Holy Spirit, and putteth off the natural man and becometh a saint through the atonement of Christ … and becometh as a child, submissive, meek, humble, patient, full of love, willing to submit to all things which the Lord seeth fit to inflict upon him, even as a child doth submit to his father.” ([[Mosiah 3.19|Mosiah 3:19]].)
 
 The “natural man” is the “earthy man” who has allowed rude animal passions to overshadow his spiritual inclinations.
 
@@ -73,7 +74,10 @@ As we return to our homes, brothers and sisters, I hope we will not close the do
 
 As this conference concludes, we bless you, and we bring to you the blessings of the Lord of heaven. Brethren and sisters, I know that this is the work of the Lord. You haven’t come these long distances for nothing. It is to feed your souls.
 
-I know that the Lord lives—that God who was with Adam, that God who came to the banks of the Jordan River to say, “This is my beloved Son, in whom I am well pleased” (Matt. 3:17), to introduce his Son to a world that was to depend so completely on him. I know that was the God that we worship, who came on the Mount of Transfiguration and said again to those servants, Peter, James, and John, who were to carry on the work of the Lord even in their imperfections: “This is my beloved Son, in whom I am well pleased” (Matt. 17:5), the same God—we know he lives and exists—who came in the state of New York and said those same things that he had already said to the Nephites—and now said to a world that had been traveling in darkness for a long, long time—“This is My Beloved Son. Hear Him!” (JS—H 1:17.)
+I know that the Lord lives—that God who was with Adam, that God who came to the banks of the Jordan River to say, “This is my beloved Son, in whom I am well pleased” ([[Matthew 3.17|Matt. 3:17]]), to introduce his Son to a world that was to depend so completely on him. I know that was the God that we worship, who came on the Mount of Transfiguration and said again to those servants, Peter, James, and John, who were to carry on the work of the Lord even in their imperfections: “This is my beloved Son, in whom I am well pleased” ([[Matthew 17.5|Matt. 17:5]]), the same God—we know he lives and exists—who came in the state of New York and said those same things that he had already said to the Nephites—and now said to a world that had been traveling in darkness for a long, long time—“This is My Beloved Son. Hear Him!” ([[Joseph Smith History 1.17|JS—H 1:17]].)
 
 I know that Jesus is the Christ, the Son of the living God. I know that. I know that the gospel which we teach is the gospel of Jesus Christ and the church to which we belong is the church of Jesus Christ; it teaches his doctrines and his policies and his programs. I know that if all of us will live the program as he has given it and will continue to give it, that all the blessings promised will be ours. Now God bless you, and we leave his blessings with you with our affection, our appreciation for you, in the name of his Son, Jesus Christ. Amen.
+
+
+
 

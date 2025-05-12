@@ -1,7 +1,10 @@
 # Hold on Thy Way
-*By Koichi Aoyagi - Emeritus Member of the Seventy*
+
+By Elder Koichi Aoyagi - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
+
+>*Put God first, regardless of the trials you face. Love God. Have faith in Christ, and entrust yourself to Him in all things.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/10/hold-on-thy-way?lang=eng)
 
@@ -31,27 +34,42 @@ As we were talking, with love in his voice, he said, “Brother Aoyagi, isn’t 
 
 When I heard these words, I felt the Spirit of the Lord very strongly. I had heard this doctrine countless times, but the eyes of my understanding had never been opened to the extent they were at this time. I understood this was the answer that I had been seeking from the Lord in my prayers. I was able to clearly comprehend our Heavenly Father’s plan of salvation and understand anew this important principle.
 
-In Abraham, the Lord God declared, “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them.”1
+In Abraham, the Lord God declared, “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them.”[^1]
 
 The principle is that the God who created the heavens and the earth knows the grand design of this earth, that He has dominion over all things in the heavens and the earth, and that in order to bring to pass the plan of salvation, He provides us with many different experiences—including some trials—while we are on this earth.
 
 And the Lord said the following to Joseph Smith:
 
-“Know thou, my son, that all these things shall give thee experience, and shall be for thy good. ...
+“Know thou, my son, that all these things shall give thee experience, and shall be for thy good. …
 
-“Therefore, hold on thy way ... , for God shall be with you forever and ever.”2
+“Therefore, *hold on thy way … ,* for God shall be with you forever and ever.”[^2]
 
-The trials of this earth—including illness and death—are a part of the plan of salvation and are inevitable experiences. It is necessary for us to “hold on [our] way” and accept our trials with faith.
+The trials of this earth—including illness and death—are a part of the plan of salvation and are inevitable experiences. It is necessary for us to “hold on \[our\] way” and accept our trials with faith.
 
-However, the purpose of our lives is not merely to endure trials. Heavenly Father sent His Beloved Son, Jesus Christ, as our Savior and Redeemer so we could overcome the trials we face on this earth; in other words, He makes our weak things become strong,3 He atones for our sins and our imperfections, and He makes it possible for us to obtain immortality and eternal life.
+However, the purpose of our lives is not merely to endure trials. Heavenly Father sent His Beloved Son, Jesus Christ, as our Savior and Redeemer so we could overcome the trials we face on this earth; in other words, He makes our weak things become strong,[^3] He atones for our sins and our imperfections, and He makes it possible for us to obtain immortality and eternal life.
 
-President Henry B. Eyring stated: “The test a loving God has set before us is not to see if we can endure difficulty. It is to see if we can endure it well. We pass the test by showing that we remembered Him and the commandments He gave us.”4
+President Henry B. Eyring stated: “The test a loving God has set before us is not to see if we can endure difficulty. It is to see if we can endure it well. We pass the test by showing that we remembered Him and the commandments He gave us.”[^4]
 
 “Hold on thy way” is a key choice during times of trial. Turn your heart to God, especially when you face trials. Humbly obey the commandments of God. Show faith to reconcile your wishes with the will of God.
 
-Let’s now consider that rear-end collision in Nagoya. I could have died in that accident. Nevertheless, through the Lord’s grace, I miraculously survived. And I know that my sufferings were for my learning and for my growth.5 Heavenly Father schooled me to temper my impatience, to develop empathy, and to comfort those who are suffering. When I realized this, my heart was filled with feelings of thankfulness toward my Heavenly Father for this trial.
+Let’s now consider that rear-end collision in Nagoya. I could have died in that accident. Nevertheless, through the Lord’s grace, I miraculously survived. And I know that my sufferings were for my learning and for my growth.[^5] Heavenly Father schooled me to temper my impatience, to develop empathy, and to comfort those who are suffering. When I realized this, my heart was filled with feelings of thankfulness toward my Heavenly Father for this trial.
 
-Put God first, regardless of the trials you face. Love God. Have faith in Christ, and entrust yourself to Him in all things. Moroni makes the following promise to such people: “And if ye shall deny yourselves of all ungodliness, and love God with all your might, mind and strength, then is his grace sufficient for you, that by his grace ye may be perfect in Christ.”6
+Put God first, regardless of the trials you face. Love God. Have faith in Christ, and entrust yourself to Him in all things. Moroni makes the following promise to such people: “And if ye shall deny yourselves of all ungodliness, and love God with all your might, mind and strength, then is his grace sufficient for you, that by his grace ye may be perfect in Christ.”[^6]
 
-I sincerely testify that God the Father and His Beloved Son, Jesus Christ, live and that God’s promises to those who “hold on [their] way” and love Him will be fulfilled even in the midst of trials, in the sacred name of Jesus Christ, amen.
+I sincerely testify that God the Father and His Beloved Son, Jesus Christ, live and that God’s promises to those who “hold on \[their\] way” and love Him will be fulfilled even in the midst of trials, in the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Abraham 3.25|Abraham 3:25]].
+
+[^2]: [[D&C 122.7|Doctrine and Covenants 122:7, 9]][[D&C 122.9|]]; emphasis added.
+
+[^3]: See [[Ether 12.27|Ether 12:27]].
+
+[^4]: Henry B. Eyring, “In the Strength of the Lord,” *Ensign* or *Liahona,* May 2004, 17.
+
+[^5]: See [[Hebrews 12.7|Hebrews 12:7–9]][[Hebrews 12.8|]][[Hebrews 12.9|]].
+
+[^6]: [[Moroni 10.32|Moroni 10:32]].
 

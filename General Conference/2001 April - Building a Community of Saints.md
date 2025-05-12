@@ -1,7 +1,10 @@
 # Building a Community of Saints
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
+
+>*In any community of Saints, we all work to serve each other in the best way we know how. Our work has a higher purpose because it is work to bless others and to build the kingdom of God.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2001/04/building-a-community-of-saints?lang=eng)
 
@@ -21,7 +24,7 @@ Something about which I am most proud is how our forefathers, through their fait
 
 When Joseph Smith was incarcerated in Liberty Jail, with no prospect of release, an extermination order had been issued against the Saints. This made it necessary for Brigham Young to organize the Saints to move them from Missouri. The migration from Missouri in February of 1839 caused many to complain that the Lord had forsaken His people. Some of the Church members questioned the wisdom of once again gathering the Saints together in one location.
 
-Crossing the Mississippi and pausing in some of the smaller communities along its banks proved to be a respite necessary for the membership to receive new direction from their leaders. The Prophet Joseph Smith wrote from Liberty Jail, encouraging the Saints not to scatter but to gather together, then build from centers of strength.
+Crossing the Mississippi River and pausing in some of the smaller communities along its banks proved to be a respite necessary for the membership to receive new direction from their leaders. The Prophet Joseph Smith wrote from Liberty Jail, encouraging the Saints not to scatter but to gather together, then build from centers of strength.
 
 In April of that year, Joseph and Hyrum and their fellow prisoners were allowed to escape from the jail in Missouri. They arrived in Quincy, Illinois, on the 22nd day of April of 1839. The Prophet immediately went to work to find a place to gather the Saints. He found a spot on the banks of the Mississippi River that looked like it had promise. He named the city Nauvoo, meaning “beautiful,” but at that time it was anything but beautiful. It was a swampy peninsula that had not been drained. Out of the swamp-infested land rose a city that could truly be called beautiful.
 
@@ -31,19 +34,19 @@ The Prophet had a design to build a community of Saints. He had three major obje
 
 The Prophet Joseph Smith’s desire was that the Saints should become economically self-sufficient. Our Father in Heaven has given all of His children everything they have—their talents, their abilities, their material goods—and has made them stewards over these blessings.
 
-A treasured remnant of our heritage of economic self-sufficiency is the Church Welfare Services program. It has two key ingredients. The first is the principle of love and the second is that of work. The principle of love is the motivating power that moves us to give our time, our money, and services to this wonderful program. John the Beloved wrote:
+A treasured remnant of our heritage of economic self-sufficiency is the Church Welfare Services program. It has two key ingredients. The first is the principle of love, and the second is that of work. The principle of love is the motivating power that moves us to give our time, money, and services to this wonderful program. John the Beloved wrote:
 
 “Let us love one another: for love is of God; and every one that loveth is born of God, and knoweth God.
 
 “He that loveth not knoweth not God; for God is love.
 
-“In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. ...
+“In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. …
 
-“Beloved, if God so loved us, we ought also to love one another” (1 Jn. 4:7–9, 11).
+“Beloved, if God so loved us, we ought also to love one another” ([[1 John 4.7|1 Jn. 4:7–9, 11]][[1 John 4.8|]][[1 John 4.9|]][[1 John 4.11|]]).
 
-Then in 1 John, the third chapter, he wrote: “But whoso hath this world’s good, and seeth his brother have need, and shutteth up his bowels of compassion from him, how dwelleth the love of God in him?” (1 Jn. 3:17).
+Then in 1 John, the third chapter, he wrote: “But whoso hath this world’s good, and seeth his brother have need, and shutteth up his bowels of compassion from him, how dwelleth the love of God in him?” ([[1 John 3.17|1 Jn. 3:17]]).
 
-It is our understanding of the principle of love that encourages us to give generously to the fast offerings, a wonderful, revealed system in which on the first Sunday of each month, we voluntarily refrain from eating two meals and contribute the cost of those meals to our bishop. He then has the resources to help him help those in need. The system is mostly painless, and it raises our appreciation for those who are without and provides a means to satisfy their daily requirements.
+It is our understanding of the principle of love that encourages us to give generously to the fast offerings, a wonderful, revealed system in which on the first Sunday of each month we voluntarily refrain from eating two meals and contribute the cost of those meals to our bishop. He then has the resources to help him help those in need. The system is mostly painless, and it raises our appreciation for those who are without and provides a means to satisfy their daily requirements.
 
 May the Lord continue to bless us with the desire to love one another and give generously based on the principle of the fast.
 
@@ -53,7 +56,7 @@ In the Doctrine and Covenants we read:
 
 “Now, I, the Lord, am not well pleased with the inhabitants of Zion, for there are idlers among them; and their children are also growing up in wickedness; they also seek not earnestly the riches of eternity, but their eyes are full of greediness.
 
-“These things ought not to be, and must be done away from among them” (D&C 68:31–32).
+“These things ought not to be, and must be done away from among them” ([[D&C 68.31|D&C 68:31–32]][[D&C 68.32|]]).
 
 I have a special concern about the Lord’s reference to our children. We see evidence of many parents who overindulge their children without adding sufficient training about the value of work.
 
@@ -61,17 +64,17 @@ In any community of Saints, we all work to serve each other in the best way we k
 
 The second requirement in the Prophet Joseph’s community of Saints was that of education. As early as 1840, when he applied for the incorporation of Nauvoo, he also asked for authority to establish a university.
 
-From the Encyclopedia of Mormonism we read, “Educational ideas and practices of the Church grew directly out of certain revelations received by Joseph Smith that emphasize the eternal nature of knowledge and the vital role learning plays in the spiritual, moral, and intellectual development of mankind” (“Education: Attitudes Toward Education,” in Daniel H. Ludlow, ed., Encyclopedia of Mormonism, 5 vols. [1992], 2:441).
+From the *Encyclopedia of Mormonism* we read, “Educational ideas and practices of the Church grew directly out of certain revelations received by Joseph Smith that emphasize the eternal nature of knowledge and the vital role learning plays in the spiritual, moral, and intellectual development of mankind” (“Education,” in Daniel H. Ludlow, ed., *Encyclopedia of Mormonism,* 5 vols. \[1992\], 2:441).
 
-There are verses in our modern scripture that make special mention of the importance of secular and spiritual learning. A few of these are, first from the Book of Mormon, “But to be learned is good if they hearken unto the counsels of God” (2 Ne. 9:29).
+There are verses in our modern scripture that make special mention of the importance of secular and spiritual learning. A few of these are, first from the Book of Mormon, “But to be learned is good if they hearken unto the counsels of God” ([[2 Nephi 9.29|2 Ne. 9:29]]).
 
 And from the Doctrine and Covenants:
 
 “Whatever principle of intelligence we attain unto in this life, it will rise with us in the resurrection.
 
-“And if a person gains more knowledge and intelligence in this life through his diligence and obedience than another, he will have so much the advantage in the world to come” (D&C 130:18–19).
+“And if a person gains more knowledge and intelligence in this life through his diligence and obedience than another, he will have so much the advantage in the world to come” ([[D&C 130.18|D&C 130:18–19]][[D&C 130.19|]]).
 
-From the Articles of Faith, “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” (A of F 1:13).
+From the Articles of Faith, “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]).
 
 The final desire of the Prophet Joseph Smith was to build a community of spiritual Saints. This begins in the home. The most important instruction our children will ever receive will be that which parents give to them in their own home, if parents diligently teach their children the way our Father in Heaven would like them to follow. One instruction our leaders have given us is to hold regular family home evenings where we can meet together weekly, learn gospel principles, and build family unity. Here we can counsel together, read the scriptures, pray together, and play together. Our greatest goal is to become an eternal family. We build a community of Saints one family at a time.
 
@@ -79,9 +82,14 @@ To enable the eternal family, a magnificent temple was constructed in Nauvoo. It
 
 We now have temples scattered throughout the earth, giving many more the chance to receive the necessary ordinances to qualify for life eternal. Those who are worthy to enter the temple will receive great spiritual blessings if they continue to serve in faithfulness and keep their covenants. The Lord blesses His people when they keep His commandments and frequently visit His house. In God’s eternal plan, our temples are gathering places for communities of Saints working to build Zion.
 
-Our community of Saints is not one of exclusion but one of inclusion, built upon a foundation of apostles and prophets, Jesus Christ Himself being the chief cornerstone. It is open to all of us who love, appreciate, and have compassion for our Father in Heaven’s children. The dual foundations of our economic welfare are the principles of charity and hard work. It is a progressive community in which we educate our youth in courtesy and civility and also in the deeper truths of the restored gospel. Our community has a spiritual center, allowing us to live with the companionship of the Holy Spirit that guides and directs us in our lives.
+Our community of Saints is not one of exclusion but one of inclusion, built upon a foundation of apostles and prophets, Jesus Christ Himself being the chief cornerstone (see [[Ephesians 2.20|Eph. 2:20]]). It is open to all of us who love, appreciate, and have compassion for our Father in Heaven’s children. The dual foundations of our economic welfare are the principles of charity and hard work. It is a progressive community in which we educate our youth in courtesy and civility and also in the deeper truths of the restored gospel. Our community has a spiritual center, allowing us to live with the companionship of the Holy Spirit that guides and directs us in our lives.
 
 May God grant unto us the desire to live closer to Him so we may enjoy the blessings of peace, harmony, security, and love for all mankind—the hallmarks of a community that is one with Him. He is our God. We are His children. This is my witness to you in the name of Jesus Christ, amen.
 
-Historical information is from Church History in the Fulness of Times (Church Educational System manual, 2nd ed. [2000], 193–223).
+## Note
+
+Historical information is from *Church History in the Fulness of Times,* 2nd ed. (Church Educational System manual, 2000), 193–223.
+
+
+
 

@@ -1,7 +1,10 @@
 # “By This All Will Know That You Are My Disciples”
-*By Dieter F. Uchtdorf - Of the Quorum of the Twelve Apostles*
+
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
+
+>*Our love for God and His children is a powerful testimony to the world that this is truly the Savior’s Church.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2025/04/27uchtdorf?lang=eng)
 
@@ -27,61 +30,106 @@ She continued, “I’m so impressed with how people treat each other in your ch
 
 Well, I quickly repented of my judgmental attitude. I had wanted picture-perfect meetings to impress my friend. But what the members of this branch had achieved was a heart-perfect spirit of love, kindness, patience, and compassion.
 
-My dear brothers and sisters, my dear friends, I love The Church of Jesus Christ of Latter-day Saints. It is the Savior’s true and living Church, and it teaches the restored fulness of the gospel of Jesus Christ. His priesthood power and authority reside here. Jesus Christ leads this Church personally, through servants He has called and authorized, and by a living prophet, even President Russell M. Nelson. The Savior has given the Latter-day Saints a unique mission to gather God’s children and prepare the world for the Savior’s Second Coming. I bear my witness that all of this is true.
+## That Faith Might Increase in the Earth
+
+My dear brothers and sisters, my dear friends, I love The Church of Jesus Christ of Latter-day Saints. It is the Savior’s true and living Church, and it teaches the restored fulness of the gospel of Jesus Christ. His priesthood power and authority reside here. Jesus Christ leads this Church personally, through servants He has called and authorized, and by a living prophet, even President Russell M. Nelson. The Savior has given the Latter-day Saints a unique mission to gather God’s children and prepare the world for the Savior’s Second Coming. I bear my witness that all of this is true.
 
 But it’s important to remember that when most people experience the Church of Jesus Christ for the first time, they aren’t thinking about priesthood authority or ordinances or the gathering of Israel. What they’re likely to notice, above all else, is how they feel when they’re with us and how we treat each other.
 
-“Love one another,” Jesus said. “By this all will know that you are My disciples.” Very often, a person’s first testimony of Jesus Christ comes when he or she feels love among disciples of Jesus Christ.
+“Love one another,” Jesus said. “By this all will know that you are My disciples.”[^1] Very often, a person’s first *testimony* of Jesus Christ comes when he or she feels love among *disciples* of Jesus Christ.
 
-The Savior declared that He restored His Church so “that faith ... might increase in the earth.” Therefore, when people visit our Church meetings, the Savior wants them to leave with stronger faith in Him! The love our friends feel among us will lift them closer to Jesus Christ! That is our simple goal every time we gather.
+The Savior declared that He restored His Church so “that faith … might increase in the earth.”[^2] Therefore, when people visit our Church meetings, the Savior wants them to leave with stronger faith in Him! The love our friends feel among us will lift them closer to Jesus Christ! That is our simple goal every time we gather.
 
-Anyone who is seeking greater faith in Christ or a closer connection to Heavenly Father should feel right at home in The Church of Jesus Christ of Latter-day Saints. Inviting them to our meetings can be as normal and as natural as inviting them into our homes.
+Anyone who is seeking greater faith in Christ or a closer connection to Heavenly Father should feel right at home in The Church of Jesus Christ of Latter-day Saints. Inviting them to our meetings can be as normal and as natural as inviting them into our homes.[^3]
 
-Now, I realize that I’m describing the ideal. And in this mortal life, we rarely get to experience the ideal. And “until the perfect day,” there will always be a gap between the ideal and the real. So, what should we do when the Church doesn’t feel like the perfect day? When, for whatever reason, our ward doesn’t yet nurture perfect faith or love? Or when it feels that we don’t fit in?
+## The Ideal and the Real
 
-One thing we should not do is give up on the ideal!
+Now, I realize that I’m describing the ideal. And in this mortal life, we rarely get to experience the ideal. And “until the perfect day,”[^4] there will always be a gap between the ideal and the real. So, what should we do when the Church *doesn’t* feel like the perfect day? When, for whatever reason, our ward *doesn’t* yet nurture perfect faith or love? Or when it feels that we don’t fit in?
 
-The title page of the Book of Mormon includes this important caution: “If there are faults,” it says, “they are the mistakes of men; wherefore, condemn not the things of God.”
+One thing we should *not* do is give up on the ideal!
+
+The [title page of the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng) includes this important caution: “If there are faults,” it says, “they are the mistakes of men; wherefore, condemn not the things of God.”
 
 Can a book—or a church or a person—have “faults” and “mistakes” and still be the work of God?
 
-My answer is a resounding yes!
+My answer is a resounding *yes*!
 
 So, while we hold ourselves to the Lord’s high standards, let’s also be patient with one another. We are each a work in progress, and we all rely on the Savior for any progress we make. That’s true for us as individuals, and it’s true for the kingdom of God on earth.
 
-The Lord invites us not just to join His kingdom but also to be anxiously engaged in building it. God envisions a people who are “of one heart and one mind.” And to be of one heart, we must seek pure hearts, and that requires a mighty change of heart.
+The Lord invites us not just to *join* His kingdom but also to be anxiously engaged in *building* it. God envisions a people who are “of one heart and one mind.”[^5] And to be of *one* heart, we must seek *pure* hearts,[^6] and that requires a *mighty change of heart*.[^7]
 
 But that doesn’t mean changing my heart to align with yours. Nor does it mean changing your heart to align with mine. It means that we all change our hearts to align with the Savior.
 
-If we are not there yet, remember: with the Lord’s help, nothing is impossible.
+If we are not there yet, remember: with the Lord’s help, nothing is impossible.[^8]
 
-And if you ever feel like you don’t quite fit in, please know that you are not alone. Haven’t we all been in life situations when we felt like the stranger in the room? I have experienced this more than once. When I was 11 years old, my family was forced to leave our home and move to an unfamiliar region. Everything was different from what I was used to. And my accent made it clear to the other children that I was different from what they were used to. At a time when I desperately needed friendship and belonging, I felt lonely and displaced.
+## Fit and Belonging
 
-Here on earth, most of the differences we notice—the differences some of us use to categorize each other—have to do with earthly things: physical appearance, nationality, language, clothing, customs, and so on. But “God does not view things the way people do. People look on the outward appearance, but the Lord looks at the heart.”
+And if you ever feel like you don’t quite fit in, please know that you are not alone. Haven’t we all been in life situations when we felt like the stranger in the room? I have experienced this more than once. When I was 11 years old, my family was forced to leave our home and move to an unfamiliar region. Everything was different from what I was used to. And my accent made it clear to the other children that *I* was different from what *they* were used to. At a time when I desperately needed friendship and belonging, I felt lonely and displaced.
 
-From His perspective, there is one category that comes before all others: child of God. And we all fit perfectly in this one.
+Here on earth, most of the differences we notice—the differences some of us use to categorize each other—have to do with earthly things: physical appearance, nationality, language, clothing, customs, and so on. But “God does not view things the way people do. People look on the outward appearance, but the Lord looks at the heart.”[^9]
+
+From His perspective, there is one category that comes before all others: child of God.[^10] And we all fit perfectly in this one.
 
 It’s natural to want to be around people who look, talk, act, and think like we do. There is a place for that.
 
-But in the Savior’s Church, we gather all of God’s children who are willing to be gathered and who seek the truth. It is not our physical appearance, our political views, our culture, or our ethnicity that brings us together. It is not our common background that unites us. It is our common objective, our love for God and love for our neighbor, our commitment to Jesus Christ and His restored gospel. We are “one in Christ.”
+But in the Savior’s Church, we gather all of God’s children who are willing to be gathered and who seek the truth. It is not our physical appearance, our political views, our culture, or our ethnicity that brings us together. It is not our common background that unites us. It is our common objective, our love for God and love for our neighbor, our commitment to Jesus Christ and His restored gospel. We are “one in Christ.”[^11]
 
-The unity we seek is not to have everyone stand in the same place; it is to have everyone face in the same direction—toward Jesus Christ. We are one not because of where we’ve been but where we are striving to go, not because of who we are but who we seek to become.
+The unity we seek is not to have everyone stand in the same place; it is to have everyone face in the same direction—toward Jesus Christ.[^12] We are one not because of where we’ve been but where we are striving to go, not because of who we are but who we seek to become.
 
 That is what Christ’s true Church is all about.
 
+## One Body
+
 If you love God, if you want to know Him better by following His Son, then you belong here. If you’re earnestly seeking to keep the Savior’s commandments—even though you’re not perfect at it yet—then you are a perfect fit for The Church of Jesus Christ of Latter-day Saints.
 
-And what if you’re different from people around you? That doesn’t make you a misfit—it makes you a needed part of the body of Christ. All are needed in the body of Christ. The ears perceive things that the eyes never could. The feet do things that the hands would be ineffective at.
+And what if you’re different from people around you? That doesn’t make you a misfit—it makes you a needed part of the body of Christ. All are needed in the body of Christ.[^13] The ears perceive things that the eyes never could. The feet do things that the hands would be ineffective at.[^14]
 
 That doesn’t mean your job is to change everyone to be like yourself. But it does mean that you have something important to contribute—and that you have something important to learn!
 
+## One Voice
+
 In every session of general conference, we’re blessed with inspiring music from talented choirs. As you listen, you might notice that the singers don’t all sing the same notes. Sometimes one section carries the melody, sometimes another. But they all contribute to the beautiful sound, and they’re completely unified. Each choir member has the same central goal: to praise God and lift our hearts to Him. Each must have his or her mind and heart fixed on the same divine purpose. And when that happens, they truly become one voice.
 
-If you are not yet a member of The Church of Jesus Christ of Latter-day Saints, we invite you to join us as we rejoice in the Savior’s “song of redeeming love.” We need you. We love you. The Church will be better with your efforts to serve the Lord and His children.
+If you are not yet a member of The Church of Jesus Christ of Latter-day Saints, we invite you to join us as we rejoice in the Savior’s “song of redeeming love.”[^15] We need you. We love you. The Church will be better with your efforts to serve the Lord and His children.
 
-If you have already shown, through baptism, through making covenants with God, your desire to “come into the fold of God, and to be called his people,” thank you for being part of this great and divine work and for helping to make the Church of Jesus Christ what the Savior wants it to be.
+If you have already shown, through baptism, through making covenants with God, your desire to “come into the fold of God, and to be called his people,”[^16] thank you for being part of this great and divine work and for helping to make the Church of Jesus Christ what the Savior wants it to be.
 
 As I learned from my friend in Germany, our love for God and His children is a powerful testimony to the world that this is truly the Savior’s Church.
 
 May God bless us to patiently but diligently seek to live up to the ideals our Savior, Redeemer, and Master has set for us—so all will know that we are His disciples. In the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: John 13:34–35, New King James Version.
+
+[^2]: [[D&C 1.21|Doctrine and Covenants 1:21]].
+
+[^3]: See [[D&C 46.5|Doctrine and Covenants 46:5–6]][[D&C 46.6|]].
+
+[^4]: [[D&C 50.24|Doctrine and Covenants 50:24]].
+
+[^5]: [[Moses 7.18|Moses 7:18]].
+
+[^6]: See [[D&C 97.21|Doctrine and Covenants 97:21]].
+
+[^7]: See [[Alma 5.14|Alma 5:14]].
+
+[^8]: See [[Luke 1.37|Luke 1:37]].
+
+[^9]: [[1 Samuel 16.7|1 Samuel 16:7]], New English Translation.
+
+[^10]: See Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p47#p47)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
+
+[^11]: [[Galatians 3.28|Galatians 3:28]].
+
+[^12]: See [[D&C 6.36|Doctrine and Covenants 6:36]].
+
+[^13]: See [[1 Corinthians 12.12|1 Corinthians 12:12–27]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]]. In the body of Christ, we don’t ignore differences, and we don’t merely tolerate them. We are thankful for the unique contribution each member makes, for the good of the whole body.
+
+[^14]: Just as it would be incorrect for the ear to look at the body and say, “I’m not like the eye; there must not be a place for me here,” it would be equally incorrect for the eye to say to the ear, “You’re not like me; we have no need of you here” (see [[1 Corinthians 12.16|1 Corinthians 12:16, 21]][[1 Corinthians 12.21|]]).
+
+[^15]: [[Alma 5.26|Alma 5:26]].
+
+[^16]: [[Mosiah 18.8|Mosiah 18:8]]. When we are baptized, we witness that, among other things, we want to be part of a people who “bear one another’s burdens” and “mourn with those \[who\] mourn” and “comfort those that stand in need of comfort” ([[Mosiah 18.8|verses 8–9]][[Mosiah 18.9|]]). In other words, when we join the Church of Jesus Christ, we are saying—humbly but clearly—that we want to become more like our beloved Savior, and we want to do it together.
 

@@ -1,7 +1,10 @@
 # As We Meet Together Again
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2010 General Conference*
+
+>*Missionary service is a priesthood duty—an obligation the Lord expects of us who have been given so very much.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/10/as-we-meet-together-again?lang=eng)
 
@@ -21,7 +24,7 @@ The ordinances performed in our temples are vital to our salvation and to the sa
 
 Now, before we hear from our speakers this morning, may I mention a matter close to my heart and which deserves our serious attention. I speak of missionary work.
 
-First, to young men of the Aaronic Priesthood and to you young men who are becoming elders: I repeat what prophets have long taught—that every worthy, able young man should prepare to serve a mission. Missionary service is a priesthood duty—an obligation the Lord expects of us who have been given so very much. Young men, I admonish you to prepare for service as a missionary. Keep yourselves clean and pure and worthy to represent the Lord. Maintain your health and strength. Study the scriptures. Where such is available, participate in seminary or institute. Familiarize yourself with the missionary handbook Preach My Gospel.
+First, to young men of the Aaronic Priesthood and to you young men who are becoming elders: I repeat what prophets have long taught—that every worthy, able young man should prepare to serve a mission. Missionary service is a priesthood duty—an obligation the Lord expects of us who have been given so very much. Young men, I admonish you to prepare for service as a missionary. Keep yourselves clean and pure and worthy to represent the Lord. Maintain your health and strength. Study the scriptures. Where such is available, participate in seminary or institute. Familiarize yourself with the missionary handbook *Preach My Gospel.*
 
 A word to you young sisters: while you do not have the same priesthood responsibility as do the young men to serve as full-time missionaries, you also make a valuable contribution as missionaries, and we welcome your service.
 
@@ -30,4 +33,7 @@ And now to you mature brothers and sisters: we need many, many more senior coupl
 To those of you who are not yet to the season of life when you might serve a couples mission, I urge you to prepare now for the day when you and your spouse might do so. As your circumstances allow, as you are eligible for retirement, and as your health permits, make yourselves available to leave home and give full-time missionary service. There are few times in your lives when you will enjoy the sweet spirit and satisfaction that come from giving full-time service together in the work of the Master.
 
 Now, my brothers and sisters, may you be attuned to the Spirit of the Lord as we hear from His servants during the next two days. That this may be the blessing of each, I pray humbly in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # Living Worthy of the Girl You Will Someday Marry
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1998 General Conference*
+
+>*Make yourself worthy of the loveliest girl in all the world. Keep yourself worthy through all the days of your life.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/04/living-worthy-of-the-girl-you-will-someday-marry?lang=eng)
 
@@ -15,9 +18,9 @@ And so tonight, in this great priesthood meeting, I wish to speak to you young m
 
 The girl you marry will take a terrible chance on you. She will give her all to the young man she marries. He will largely determine the remainder of her life. She will even surrender her name to his name.
 
-As Adam declared in the Garden of Eden: “This is now bone of my bones, and flesh of my flesh. ...
+As Adam declared in the Garden of Eden: “This is now bone of my bones, and flesh of my flesh. …
 
-“Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh” (Gen. 2:23–24).
+“Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh” ([[Genesis 2.23|Gen. 2:23–24]][[Genesis 2.24|]]).
 
 As members of The Church of Jesus Christ of Latter-day Saints, as young men holding the priesthood of God, you have a tremendous obligation toward the girl you marry. Perhaps you are not thinking much of that now. But the time isn’t far away when you will think of it, and now is the time to prepare for that most important day of your lives when you take unto yourself a wife and companion equal with you before the Lord.
 
@@ -47,19 +50,19 @@ There is another serious thing to which many young men become addicted. This is 
 
 We hear much these days of the phenomenon called road rage. Drivers become provoked over some small irritation. They fly into a rage, even resulting in murder. A life of regret follows.
 
-As the writer of Proverbs has said, “He that is slow to anger is better than the mighty; and he that ruleth his spirit than he that taketh a city” (Prov. 16:32).
+As the writer of Proverbs has said, “He that is slow to anger is better than the mighty; and he that ruleth his spirit than he that taketh a city” ([[Proverbs 16.32|Prov. 16:32]]).
 
 If you have a temper, now is the time to learn to control it. The more you do so while you are young, the more easily it will happen. Let no member of this Church ever lose control of himself in such an unnecessary and vicious manner. Let him bring to his marriage words of peace and composure.
 
-I constantly deal with those cases of members of the Church who have been married in the temple and who later divorce and then apply for a cancellation of their temple sealing. When first married, they are full of great expectations, with a wonderful spirit of happiness. But the flower of love fades in an atmosphere of criticism and carping, of mean words and uncontrolled anger. Love flies out the window as contention enters. I repeat, my brethren, if any of you young men have trouble controlling your temper, I plead with you to begin the work of making that correction now. Otherwise you will bring only tears and sorrow into the homes which you will someday establish. Jacob, in the Book of Mormon, condemns his people for their wickedness in marriage. Says he: “Behold, ye have done greater iniquities than the Lamanites, our brethren. Ye have broken the hearts of your tender wives, and lost the confidence of your children, because of your bad examples before them; and the sobbings of their hearts ascend up to God against you. And because of the strictness of the word of God, which cometh down against you, many hearts died, pierced with deep wounds” (Jacob 2:35).
+I constantly deal with those cases of members of the Church who have been married in the temple and who later divorce and then apply for a cancellation of their temple sealing. When first married, they are full of great expectations, with a wonderful spirit of happiness. But the flower of love fades in an atmosphere of criticism and carping, of mean words and uncontrolled anger. Love flies out the window as contention enters. I repeat, my brethren, if any of you young men have trouble controlling your temper, I plead with you to begin the work of making that correction now. Otherwise you will bring only tears and sorrow into the homes which you will someday establish. Jacob, in the Book of Mormon, condemns his people for their wickedness in marriage. Says he: “Behold, ye have done greater iniquities than the Lamanites, our brethren. Ye have broken the hearts of your tender wives, and lost the confidence of your children, because of your bad examples before them; and the sobbings of their hearts ascend up to God against you. And because of the strictness of the word of God, which cometh down against you, many hearts died, pierced with deep wounds” ([[Jacob 2.35|Jacob 2:35]]).
 
-Work for an education. Get all the training that you can. The world will largely pay you what it thinks you are worth. Paul did not mince words when he wrote to Timothy, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” (1 Tim. 5:8).
+Work for an education. Get all the training that you can. The world will largely pay you what it thinks you are worth. Paul did not mince words when he wrote to Timothy, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” ([[1 Timothy 5.8|1 Tim. 5:8]]).
 
 It is your primary obligation to provide for your family.
 
 Your wife will be fortunate indeed if she does not have to go out and compete in the marketplace. She will be twice blessed if she is able to remain at home while you become the breadwinner of the family.
 
-Education is the key to economic opportunity. The Lord has laid a mandate upon us as a people to acquire learning “by study, and also by faith” (D&C 109:14). It is likely that you will be a better provider if your mind and hands are trained to do something worthwhile in the society of which you will become a part.
+Education is the key to economic opportunity. The Lord has laid a mandate upon us as a people to acquire learning “by study, and also by faith” ([[D&C 109.14|D&C 109:14]]). It is likely that you will be a better provider if your mind and hands are trained to do something worthwhile in the society of which you will become a part.
 
 Be modest in your wants. You do not need a big home with a big mortgage as you begin your lives together. You can and should avoid overwhelming debt. There is nothing that will cause greater tensions in marriage than grinding debt, which will make of you a slave to your creditors. You may have to borrow money to begin ownership of a home. But do not let it be so costly that it will preoccupy your thoughts day and night.
 
@@ -90,4 +93,7 @@ Young men, now is the time to prepare for the future. And in that future for mos
 You will know no greater happiness than that found in your home. You will have no more serious obligation than that which you face in your home. The truest mark of your success in life will be the quality of your marriage.
 
 God bless you, my dear young men. I could wish for you nothing more wonderful than the love, the absolute total love, of a companion of whom you are proud and worthy in every respect. This choice will be the most important of all the choices you make in your life. I pray that heaven may smile upon you in the choice you make, that you may be guided, that you may live without regret, in the name of Jesus Christ, amen.
+
+
+
 

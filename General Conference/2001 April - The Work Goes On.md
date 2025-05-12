@@ -1,7 +1,10 @@
 # The Work Goes On
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2001 General Conference*
+
+>*Let us be good people. Let us be friendly people. Let us be neighborly people. Let us be what members of The Church of Jesus Christ of Latter-day Saints ought to be.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2001/04/the-work-goes-on?lang=eng)
 
@@ -31,7 +34,7 @@ The great work of temple building goes on throughout the world. I looked the oth
 
 I have said before that the blessings of the temple represent that fulness of the priesthood of which the Lord spoke when He revealed His will unto the Prophet Joseph Smith. With the location of temples much nearer to the homes of our people, there is made more available to them all of the ordinances to be had in the Lord’s house for both the living and the dead.
 
-Temples will soon be dedicated in Winter Quarters, Nebraska; Guadalajara, Mexico; and Perth, Australia. They are under construction in Asunción, Paraguay; Campinas, Brazil; the Tri-Cities area of Washington; Copenhagen, Denmark; Lubbock, Texas; Monterrey, Mexico; Nauvoo, Illinois; Snowflake, Arizona; and The Hague, Netherlands. Another six temples have been announced and ground-breaking services will soon be held for these. In addition, we have visited and are giving consideration to a significant number of potential temple sites in the United States, Central and South America, Europe, and the isles of the sea. I will not mention their names because this would only create excitement when we do not yet have the ground on which to build them.
+Temples will soon be dedicated in Winter Quarters, Nebraska; Guadalajara, Mexico; and Perth, Australia. They are under construction in Asunción, Paraguay; Campinas, Brazil; the Tri-Cities area of Washington; Copenhagen, Denmark; Lubbock, Texas; Monterrey, Mexico; Nauvoo, Illinois; Snowflake, Arizona; and The Hague, Netherlands. Another six temples have been announced, and groundbreaking services will soon be held for these. In addition, we have visited and are giving consideration to a significant number of potential temple sites in the United States, Central and South America, Europe, and the isles of the sea. I will not mention their names because this would only create excitement when we do not yet have the ground on which to build them.
 
 The construction of each temple represents a maturing of the Church. We will continue to build these sacred houses of the Lord as rapidly as energy and resources will allow. We are grateful for the faithful Latter-day Saints who pay their tithing and make possible this important program.
 
@@ -42,4 +45,7 @@ My dearly beloved brethren and sisters, how much I appreciate your prayers and y
 We shall now be pleased to go forward with the proceedings of this great gathering.
 
 God bless you, my beloved associates, I pray in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Salvation for the Dead—A Missionary Activity
-*By Theodore M. Burton - Assistant to the Council of the Twelve*
+
+By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -7,13 +8,13 @@
 
 My beloved priesthood brethren, I have been asked to speak to you tonight about a challenging concept of the priesthood missionary work.
 
-One thing we often fail to realize is that our priesthood comes to us through the lineage of our fathers and mothers. The Lord explained it in these words: “Therefore, thus saith the Lord unto you, with whom the priesthood hath continued through the lineage of your fathers. ...” (D&C 86:8.)
+One thing we often fail to realize is that our priesthood comes to us through the lineage of our fathers and mothers. The Lord explained it in these words: “Therefore, thus saith the Lord unto you, with whom the priesthood hath continued through the lineage of your fathers. …” ([[D&C 86.8|D&C 86:8]].)
 
 “Oh,” I can hear some of you say, “there must be something wrong with that statement, for I am the only member of my family who has joined the Church. How could I have received the priesthood from my parents?”
 
-In this scripture the Lord was not talking about your priesthood line of authority. He was talking about your inherited right to receive and use priesthood power. This readiness to listen and believe is an inherited gift which enabled you to recognize and accept the truth. Jesus explained this thought as he said: “My sheep hear my voice, and I know them, and they follow me.” (John 10:27.)
+In this scripture the Lord was not talking about your priesthood line of authority. He was talking about your inherited right to receive and use priesthood power. This readiness to listen and believe is an inherited gift which enabled you to recognize and accept the truth. Jesus explained this thought as he said: “My sheep hear my voice, and I know them, and they follow me.” ([[John 10.27|John 10:27]].)
 
-That spirit of acceptance is a manifestation of your inherited right to priesthood blessings. Such willingness to believe does not represent predestination, but it does represent foreordination. The Lord continues the revelation: “For ye are lawful heirs, according to the flesh, and have been hid from the world with Christ in God.” (D&C 86:9.)
+That spirit of acceptance is a manifestation of your inherited right to priesthood blessings. Such willingness to believe does not represent predestination, but it does represent foreordination. The Lord continues the revelation: “For ye are lawful heirs, according to the flesh, and have been hid from the world with Christ in God.” ([[D&C 86.9|D&C 86:9]].)
 
 This means we receive a right to priesthood blessings from our blood ancestry. I hope you can understand that priesthood with its accompanying blessings is dependent to a great degree on family relationship.
 
@@ -21,39 +22,39 @@ What does the Lord mean by the expression “hid from the world with Christ in G
 
 “Blessed be the God and Father of our Lord Jesus Christ, who hath blessed us with all spiritual blessings in heavenly places in Christ:
 
-“According as he hath chosen us in him before the foundation of the world, that we should be holy and without blame before him in love.” (Eph. 1:3–4.)
+“According as he hath chosen us in him before the foundation of the world, that we should be holy and without blame before him in love.” ([[Ephesians 1.3|Eph. 1:3–4]][[Ephesians 1.4|]].)
 
 He then further explained to the Ephesian saints:
 
 “That in the dispensation of the fulness of times he might gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him:
 
-“In whom also we have obtained an inheritance.” (Eph. 1:10–11.)
+“In whom also we have obtained an inheritance.” ([[Ephesians 1.10|Eph. 1:10–11]][[Ephesians 1.11|]].)
 
 From the time the earth was originally planned, God the Eternal Father knew that in the last days Satan would become desperate. As the second coming of Jesus Christ approaches, Satan is doing everything in his power to destroy the work of God. He is using every artifice he can imagine to destroy the plan of salvation. He is raging in blood and horror on the earth. But God knew what Satan would attempt to do in these days and devised a plan to meet that challenge.
 
 God reserved for these days some of his most valiant sons and daughters. He held back for our day proved and trusted children, who he knew from their premortal behavior would hear the voice of the Shepherd and would accept the gospel of Jesus Christ. He knew they would qualify themselves to receive the priesthood, that they would use the holy priesthood to limit Satan’s destructiveness and make it possible for God to complete the work he had planned for the saving of his children.
 
-You young men of the Aaronic Priesthood represent, therefore, some of the finest men ever to be born on the earth. You are an elect generation, a royal priesthood. As Peter expressed it, “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.” (1 Pet. 2:9.)
+You young men of the Aaronic Priesthood represent, therefore, some of the finest men ever to be born on the earth. You are an elect generation, a royal priesthood. As Peter expressed it, “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.” ([[1 Peter 2.9|1 Pet. 2:9]].)
 
 This birthright is only possible for you because you have the finest fathers and mothers ever given to any generation. Alma, referring to men who receive the Melchizedek Priesthood, spoke of their inherited rights and said of those who are ordained to the high priesthood:
 
-“And this is the manner after which they were ordained—being called and prepared from the foundation of the world according to the foreknowledge of God, on account of their exceeding faith and good works [remember, this faith and works you demonstrated while you were still in the premortal world]; in the first place being left to choose good or evil; therefore they having chosen good, and exercising exceeding great faith, are called with a holy calling ... which was prepared with, and according to, a preparatory redemption for such.” (Alma 13:3.)
+“And this is the manner after which they were ordained—being called and prepared from the foundation of the world according to the foreknowledge of God, on account of their exceeding faith and good works \[remember, this faith and works you demonstrated while you were still in the premortal world\]; in the first place being left to choose good or evil; therefore they having chosen good, and exercising exceeding great faith, are called with a holy calling … which was prepared with, and according to, a preparatory redemption for such.” ([[Alma 13.3|Alma 13:3]].)
 
 Thus, you and your fathers were reserved to be born at a time and in a place where you could not fail to hear the gospel preached and accept the holy priesthood. Thus, a preparatory redemption was made for you through a priesthood heritage from your fathers and mothers.
 
-Now we might well ask the question: “What does God expect us to do with this priesthood?” The Lord himself answers that question in the following words, continuing from the Doctrine and Covenants: “Therefore your life and the priesthood have remained, and must needs remain through you and your lineage until the restoration of all things spoken by the mouths of all the holy prophets since the world began.” (D&C 86:10.)
+Now we might well ask the question: “What does God expect us to do with this priesthood?” The Lord himself answers that question in the following words, continuing from the Doctrine and Covenants: “Therefore your life and the priesthood have remained, and must needs remain through you and your lineage until the restoration of all things spoken by the mouths of all the holy prophets since the world began.” ([[D&C 86.10|D&C 86:10]].)
 
-What were those things spoken by the mouths of all the holy prophets since the world began? Why, they were those promises made to the fathers or patriarchal leaders of the Church from the very beginning that ways and means would be provided to bring back into the presence of God the Eternal Father every soul who desired that blessing.
+What *were* those things spoken by the mouths of all the holy prophets since the world began? Why, they were those promises made to the fathers or patriarchal leaders of the Church from the very beginning that ways and means would be provided to bring back into the presence of God the Eternal Father every soul who desired that blessing.
 
 With this clue, then, missionaries know exactly where to turn for their finest referrals. They will turn to the members of the Church in whose blood these priesthood promises have continued as a priesthood lineage blessing. If you join the Church, then you have the assurance that your parents and other blood relatives will join if you show them true love and affection. Every one of your blood relatives is a prospective member of the kingdom of God. With patient and kind teaching, they too will eventually join the Church, for they possess the same spiritual heritage and priesthood heritage you have.
 
 Because Jeremiah the prophet understood that blood lineage is more important than other factors in bringing people to the truth, he wrote the following revelation: “Turn O backsliding children, saith the Lord; for I am married unto you: and I will take you one of a city, and two of a family, and I will bring you to Zion:
 
-“And I will give you pastors according to mine heart, which shall feed you with knowledge and understanding.” (Jer. 3:14–15.)
+“And I will give you pastors according to mine heart, which shall feed you with knowledge and understanding.” ([[Jeremiah 3.14|Jer. 3:14–15]][[Jeremiah 3.15|]].)
 
 Everybody knows that more people live in a city than live in a family. Why then didn’t the Lord say two of a city and one of a family? It was because of this promise of priesthood heritage. The family to which we belong is more important than where we live.
 
-Now the Lord concludes the revelation with these inspiring and challenging words of instruction and promise: “Therefore, blessed are ye if ye continue in my goodness, a light unto the Gentiles, and through this priesthood, a savior unto my people Israel. The Lord hath said it. Amen.” (D&C 86:11.)
+Now the Lord concludes the revelation with these inspiring and challenging words of instruction and promise: “Therefore, blessed are ye if ye continue in my goodness, a light unto the Gentiles, and through this priesthood, a savior unto my people Israel. The Lord hath said it. Amen.” ([[D&C 86.11|D&C 86:11]].)
 
 In this final verse the Lord reminds us of two things. First, he reminds us of our responsibility to do missionary work here on the earth. Second, he informs us that we are not only to be messengers of salvation to the living, but saviors for our ancestors who went before us and who, though now dead, have paved the way whereby we might receive our present blessings. It is through them we received our priesthood. The promise was made that, even if they were born at a time and place where they could not hear the gospel preached in life, God would provide saviors for them from among their descendants. We are those saviors God promised through whom they can have every priesthood blessing.
 
@@ -73,5 +74,8 @@ There is another aspect of the work for the salvation of the dead which is causi
 
 Temple presidents are faced with a serious problem. We don’t want to hinder in any way our sisters from attending the temple, so we must increase male temple attendance. Just as you go as individual men or as quorums to work on welfare projects without taking your wives with you, so we want you to go as individual men or as priesthood quorums or groups on extra trips to the temples to keep this problem solved. I appeal to you to cooperate with your temple presidents to keep male and female names in balance.
 
-So, my brethren of the priesthood, the time has come for all of us to become more knowledgeable of our personal responsibilities to be saviors on Mount Zion. I repeat the statement Jesus made to Peter when he said: “When thou art converted, strengthen thy brethren.” (Luke 22:32.) I testify that the work for the salvation of our kindred dead is a personal responsibility for everyone who holds the priesthood. Salvation for the dead is a divine activity, of which I bear my witness in the name of Jesus Christ. Amen.
+So, my brethren of the priesthood, the time has come for all of us to become more knowledgeable of our personal responsibilities to be saviors on Mount Zion. I repeat the statement Jesus made to Peter when he said: “When thou art converted, strengthen thy brethren.” ([[Luke 22.32|Luke 22:32]].) I testify that the work for the salvation of our kindred dead is a personal responsibility for everyone who holds the priesthood. Salvation for the dead is a divine activity, of which I bear my witness in the name of Jesus Christ. Amen.
+
+
+
 

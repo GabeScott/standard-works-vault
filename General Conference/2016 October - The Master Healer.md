@@ -1,7 +1,10 @@
 # The Master Healer
-*By By Carole M. Stephens - First Counselor in the Relief Society General Presidency*
+
+By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2016 General Conference*
+
+>*You don’t have to experience the sorrow caused by sin, the pain caused by others’ actions, or the painful realities of mortality—alone.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/10/the-master-healer?lang=eng)
 
@@ -9,33 +12,33 @@ One of my most rewarding opportunities is to travel—to learn from my sisters t
 
 During one such experience, a Relief Society leader asked, “Is there something specific that women should focus on?”
 
-I answered, “Yes!” as President Russell M. Nelson’s talk “A Plea to My Sisters” entered my mind. President Nelson taught, “We need women who have a bedrock understanding of the doctrine of Christ.”
+I answered, “Yes!” as President Russell M. Nelson’s talk “A Plea to My Sisters” entered my mind. President Nelson taught, “We need women who have a bedrock understanding of the doctrine of Christ.”[^1]
 
 Nephi described the doctrine of Christ this way:
 
-“For the gate by which ye should enter is repentance and baptism by water; and then cometh a remission of your sins by fire and by the Holy Ghost. ...
+“For the gate by which ye should enter is *repentance* and *baptism* by water; and then cometh a remission of your sins by fire and by the *Holy Ghost*. …
 
-“And now ... I would ask if all is done? Behold, I say unto you, Nay; for ye have not come thus far save it were by the word of Christ with unshaken faith in him, relying wholly upon the merits of him who is mighty to save.
+“And now … I would ask if all is done? Behold, I say unto you, Nay; for ye have not come thus far save it were by the word of Christ with unshaken *faith* in him, relying wholly upon the merits of him who is mighty to save.
 
-“Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.
+“Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and *endure to the end,* behold, thus saith the Father: Ye shall have eternal life.
 
-“... This is the way; and there is none other way nor name given under heaven whereby man can be saved in the kingdom of God. And now, behold, this is the doctrine of Christ.”
+“… This is the way; and there is none other way nor name given under heaven whereby man can be saved in the kingdom of God. And now, behold, *this is the doctrine of Christ.*”[^2]
 
 Why do we need a bedrock understanding of these principles?
 
-I often meet Latter-day Saint women who are desperate for help, yet they do not turn to the One who can provide everlasting help. Too often they seek for understanding by searching “the great and spacious building.”
+I often meet Latter-day Saint women who are desperate for help, yet they do not turn to the One who can provide everlasting help. Too often they seek for understanding by searching “the great and spacious building.”[^3]
 
-As we increase our understanding of the doctrine of Christ, we soon discover that we are developing a deeper understanding of “the great plan of happiness.” We also recognize that our Savior, Jesus Christ, is at the very heart of the plan.
+As we increase our understanding of the doctrine of Christ, we soon discover that we are developing a deeper understanding of “the great plan of happiness.”[^4] We also recognize that our Savior, Jesus Christ, is at the very heart of the plan.
 
-When we learn how to apply the doctrine of Christ to our individual circumstances, our love for our Savior grows. And we recognize “that regardless of perceived differences, all of us are in need of the same infinite Atonement.” We realize that He is our foundation—“the rock of our Redeemer, ... a sure foundation ... whereon if [we] build [we] cannot fall.”
+When we learn how to apply the doctrine of Christ to our individual circumstances, our love for our Savior grows. And we recognize “that regardless of perceived differences, all of us are in need of the same infinite Atonement.”[^5] We realize that He is our foundation—“the rock of our Redeemer, … a sure foundation … whereon if \[we\] build \[we\] cannot fall.”[^6]
 
 How can this doctrine bless us as we seek peace and understanding and strive to endure joyfully in our unique mortal journeys?
 
-May I suggest that we begin, as Nephi says, “with unshaken faith in [Christ], relying wholly upon the merits of him who is mighty to save.” Our faith in Jesus Christ enables us to meet any challenge.
+May I suggest that we begin, as Nephi says, “with unshaken faith in \[Christ\], relying wholly upon the merits of him who is mighty to save.”[^7] Our faith in Jesus Christ enables us to meet any challenge.
 
 We, in fact, often find our faith deepened and our relationship with Heavenly Father and His Son refined in adversity. Let me share three examples.
 
-First, the Savior, the Master Healer, has the power to change our hearts and give us permanent relief from the sorrow caused by our own sin. When the Savior taught the Samaritan woman at the well, He knew about her serious sins. However, “the Lord looketh on the heart,” and He knew she had a teachable heart.
+**First, the Savior, the Master Healer, has the power to change our hearts and give us permanent relief from the sorrow caused by our own sin.** When the Savior taught the Samaritan woman at the well, He knew about her serious sins. However, “the Lord looketh on the heart,”[^8] and He knew she had a teachable heart.
 
 When the woman came to the well, Jesus—the embodiment of living water—said simply, “Give me to drink.” Our Savior will likewise speak to us in a voice we recognize when we come to Him—for He knows us. He meets us where we are. And because of who He is and what He has done for us, He understands. Because He has experienced our pain, He can give us living water when we seek it. He taught this to the Samaritan woman when He said, “If thou knewest the gift of God and who it is that saith to thee, Give me to drink; thou wouldest have asked of him, and he would have given thee living water.” Finally understanding, the woman responded in faith and asked, “Sir, give me this water, that I thirst not.”
 
@@ -43,21 +46,21 @@ After the Samaritan woman had this experience with the Savior, she “left her w
 
 “Come, see a man, which told me all things that ever I did: is not this the Christ?”
 
-She had received a witness—she had begun to partake of the living water—and she desired to witness of His divinity to others.
+She had received a witness—she had begun to partake of the living water—and she desired to witness of His divinity to others.[^9]
 
-When we come to Him with humble and teachable hearts—even if our hearts are heavy with mistakes, sins, and transgressions—He can change us, “for he is mighty to save.” And with hearts changed, we can, like the Samaritan woman, go into our own cities—our homes, schools, and workplaces—to witness of Him.
+When we come to Him with humble and teachable hearts—even if our hearts are heavy with mistakes, sins, and transgressions—He can change us, “for he is mighty to save.”[^10] And with hearts changed, we can, like the Samaritan woman, go into our own cities—our homes, schools, and workplaces—to witness of Him.
 
-Second, the Master Healer can comfort and strengthen us when we experience pain because of the unrighteous actions of others. I have had many conversations with women weighed down under heavy burdens. Their covenant path from the temple has become a difficult journey of healing. They suffer from broken covenants, broken hearts, and lost confidence. Many are victims of adultery and verbal, sexual, and emotional abuse, often as the result of other people’s addictions.
+**Second, the Master Healer can comfort and strengthen us when we experience pain because of the unrighteous actions of others.** I have had many conversations with women weighed down under heavy burdens. Their covenant path from the temple has become a difficult journey of healing. They suffer from broken covenants, broken hearts, and lost confidence. Many are victims of adultery and verbal, sexual, and emotional abuse, often as the result of other people’s addictions.
 
 These experiences, though no fault of their own, have left many feeling guilty and ashamed. Not understanding how to manage the powerful emotions they experience, many try to bury them, pushing them deeper into themselves.
 
-Hope and healing are not found in the dark abyss of secrecy but in the light and love of our Savior, Jesus Christ. Elder Richard G. Scott counseled: “If you are free [from] serious sin yourself, don’t suffer needlessly the consequences of another’s sins. ... You can feel compassion. ... Yet you should not take upon yourself a feeling of responsibility. ... When you have done what is reasonable to help one you love, lay the burden at the feet of the Savior. ... As you so act, not only will you find peace but will demonstrate your faith in the power of the Savior to lift the burden of sin from a loved one through his repentance and obedience.”
+Hope and healing are not found in the dark abyss of secrecy but in the light and love of our Savior, Jesus Christ.[^11] Elder Richard G. Scott counseled: “If you are free \[from\] serious sin yourself, don’t suffer needlessly the consequences of another’s sins. … You can feel compassion. … Yet you should not take upon yourself a feeling of responsibility. … When you have done what is reasonable to help one you love, lay the burden at the feet of the Savior. … As you so act, not only will you find peace but will demonstrate your faith in the power of the Savior to lift the burden of sin from a loved one through his repentance and obedience.”
 
-He continued: “Complete healing will come through your faith in Jesus Christ and His power and capacity, through His Atonement, to heal the scars of that which is unjust and undeserved.”
+He continued: “Complete healing will come through your faith in Jesus Christ and His power and capacity, through His Atonement, to heal the scars of that which is unjust and undeserved.”[^12]
 
 If you find yourself in this situation, sisters, healing may be a long process. It will require that you prayerfully seek guidance and appropriate help, including counseling with properly ordained priesthood holders. As you learn to communicate openly, set appropriate boundaries and perhaps seek professional counseling. Maintaining spiritual health throughout the process is vital! Remember your divine identity: you are a beloved daughter of Heavenly Parents. Trust your Father’s eternal plan for you. Continue daily to increase your understanding of the doctrine of Jesus Christ. Exercise faith each day to drink deeply from the Savior’s well of living water. Rely on the endowment of power made available to each of us through ordinances and covenants. And allow the healing power of the Savior and His Atonement into your life.
 
-Third, the Master Healer can comfort and sustain us as we experience painful “realities of mortality,” such as disaster, mental illness, disease, chronic pain, and death. I have recently become acquainted with a remarkable young woman named Josie who suffers from bipolar disorder. Here is just a little of her journey toward healing as she shared it with me:
+**Third, the Master Healer can comfort and sustain us as we experience painful “realities of mortality,” such as disaster, mental illness, disease, chronic pain, and death.** I have recently become acquainted with a remarkable young woman named Josie who suffers from bipolar disorder. Here is just a little of her journey toward healing as she shared it with me:
 
 “The worst of the darkness occurs on what my family and I have deemed ‘floor days.’ It begins with sensory overload and acute sensitivity and resistance to any type of sound, touch, or light. It is the apex of mental anguish. There is one day in particular that I will never forget.
 
@@ -69,11 +72,11 @@ Third, the Master Healer can comfort and sustain us as we experience painful “
 
 “Meanwhile, the darkness intensified, and when I was convinced I could take no more, just then something marvelous occurred.
 
-“A transcendent and wonderful power suddenly overtook my body. Then, with a ‘strength beyond my own,’ I declared to my mom with great conviction seven life-changing words in response to her repeated desire to bear my pain. I said, ‘You don’t have to; Someone already has.’”
+“A transcendent and wonderful power suddenly overtook my body. Then, with a ‘strength beyond my own,’[^14] I declared to my mom with great conviction seven life-changing words in response to her repeated desire to bear my pain. I said, ‘You don’t have to; Someone already has.’”
 
 From the dark abyss of debilitating mental illness, Josie summoned the strength to testify of Jesus Christ and of His Atonement.
 
-She was not healed completely that day, but she received the light of hope in a time of intense darkness. And today, supported by a bedrock understanding of the doctrine of Christ and refreshed daily by the Savior’s living water, Josie continues on her journey toward healing and exercises unshakable faith in the Master Healer. She helps others along the way. And she says, “When the darkness feels unremitting, I rely on the memory of His tender mercies. They serve as a guiding light as I navigate through hard times.”
+She was not healed completely that day, but she received the light of hope in a time of intense darkness. And today, supported by a bedrock understanding of the doctrine of Christ and refreshed daily by the Savior’s living water, Josie continues on her journey toward healing and exercises unshakable faith in the Master Healer. She helps others along the way. And she says, “When the darkness feels unremitting, I rely on the memory of His tender mercies. They serve as a guiding light as I navigate through hard times.”[^15]
 
 Sisters, I testify that—
 
@@ -87,7 +90,42 @@ The Savior pleads:
 
 “Will ye not now return unto me, and repent of your sins, and be converted, that I may heal you?
 
-“... If ye will come unto me ye shall have eternal life. Behold, mine arm of mercy is extended towards you, and whosoever will come ... will I receive.”
+“… If ye will come unto me ye shall have eternal life. Behold, mine arm of mercy is extended towards you, and whosoever will come … will I receive.”[^16]
 
-“[He] would do anything to take this from you.” In fact, “[He] already has.” In the name of Jesus Christ, the Master Healer, amen.
+“\[He\] would do anything to take this from you.” In fact, “\[He\] already has.” In the name of Jesus Christ, the Master Healer, amen.
+
+
+
+
+[^1]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 97.
+
+[^2]: [[2 Nephi 31.17|2 Nephi 31:17, 19–21]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; emphasis added.
+
+[^3]: [[1 Nephi 11.36|1 Nephi 11:36]].
+
+[^4]: [[Alma 42.8|Alma 42:8]].
+
+[^5]: Dale G. Renlund, “[[2015 April - Latter-day Saints Keep on Trying.md|Latter-day Saints Keep on Trying]],” *Ensign* or *Liahona,* May 2015, 57–58.
+
+[^6]: [[Helaman 5.12|Helaman 5:12]].
+
+[^7]: [[2 Nephi 31.19|2 Nephi 31:19]].
+
+[^8]: [[1 Samuel 16.7|1 Samuel 16:7]].
+
+[^9]: See [[John 4.5|John 4:5–30, 39–42]][[John 4.6|]][[John 4.7|]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]][[John 4.16|]][[John 4.17|]][[John 4.18|]][[John 4.19|]][[John 4.20|]][[John 4.21|]][[John 4.22|]][[John 4.23|]][[John 4.24|]][[John 4.25|]][[John 4.26|]][[John 4.27|]][[John 4.28|]][[John 4.29|]][[John 4.30|]][[John 4.39|]][[John 4.40|]][[John 4.41|]][[John 4.42|]].
+
+[^10]: [[Alma 34.18|Alma 34:18]].
+
+[^11]: For additional help for individuals, spouses and families, and Church leaders, see [overcomingpornography.org](https://www.overcomingpornography.org) and [mentalhealth.lds.org](https://www.lds.org/mentalhealth?lang=eng).
+
+[^12]: Richard G. Scott, “[[2002 October - To Be Free of Heavy Burdens.md|To Be Free of Heavy Burdens]],” *Ensign* or *Liahona,* Nov. 2002, 88.
+
+[^13]: See Paul B. Pieper, “[Revealed Realities of Mortality](https://churchofjesuschrist.org/study/liahona/2016/01/young-adults/revealed-realities-of-mortality?lang=eng),” *Ensign,* Jan. 2016, 18; *Liahona,* Jan. 2016, 44.
+
+[^14]: “Lord, I Would Follow Thee,” *Hymns,* no. 220.
+
+[^15]: For more about Josie’s journey toward healing, see Morgan Jones, “Bipolar Disorder Can’t Stop LDS Woman from Spreading Light, Joy through the 444 Project,” *Deseret News,* Mar. 21, 2016, deseretnews.com.
+
+[^16]: [[3 Nephi 9.13|3 Nephi 9:13–14]][[3 Nephi 9.14|]].
 

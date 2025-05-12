@@ -1,5 +1,6 @@
 # “An Honest Man—God’s Noblest Work”
-*By Gordon B. Hinckley - Of the Council of the Twelve*
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -25,7 +26,7 @@ One of our national magazines recently featured an account of fraud running into
 
 The book of Genesis contains this remarkable statement: “And Abram said to the king of Sodom, I have lift up mine hand unto the Lord, the most high God, the possessor of heaven and earth,
 
-“That I will not take from a thread even to a shoelatchet, and that I will not take any thing that is thine.” (Gen. 14:22–23.)
+“That I will not take from a thread even to a shoelatchet, and that I will not take any thing that is thine.” ([[Genesis 14.22|Gen. 14:22–23]][[Genesis 14.23|]].)
 
 Fortunately there are still those who observe such principles of personal rectitude. Recently we rode a train from Osaka to Nagoya, Japan. At the station were friends to greet us, and in the excitement my wife left her purse on the train. We called the Tokyo station to report it. When the train arrived at its destination some three hours later, the railroad telephoned to say the purse was there. We were not returning via Tokyo, and more than a month passed before it was delivered to us in Salt Lake City. Everything left in the purse was there when it was returned.
 
@@ -33,11 +34,11 @@ Such experiences, I fear, are becoming increasingly rare. In our childhood we we
 
 What was once controlled by the moral and ethical standards of the people, we now seek to handle by public law. And so the statutes multiply, enforcement agencies consume ever-increasing billions, prison facilities are constantly expanded, but the torrent of dishonesty pours on and grows in volume.
 
-Of course, falsehood is not new. It is as old as man. “The Lord said unto Cain, Where is Abel thy brother? And he said, I know not: Am I my brother’s keeper?” (Gen. 4:9.)
+Of course, falsehood is not new. It is as old as man. “The Lord said unto Cain, Where is Abel thy brother? And he said, I know not: Am I my brother’s keeper?” ([[Genesis 4.9|Gen. 4:9]].)
 
 Asked the prophet Malachi of ancient Israel: “Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robed thee? In tithes and offerings.
 
-“Ye are cursed with a curse: for ye have robbed me, even this whole nation.” (Mal. 3:8–9.)
+“Ye are cursed with a curse: for ye have robbed me, even this whole nation.” ([[Malachi 3.8|Mal. 3:8–9]][[Malachi 3.9|]].)
 
 Even following the miracle of Pentecost, deception was manifest among some who had come into the church. Those who were converted sold their lands and brought money and laid it at the apostles’ feet.
 
@@ -49,25 +50,25 @@ Even following the miracle of Pentecost, deception was manifest among some who h
 
 “Whiles it remained, was it not thine own? and after it was sold, was it not in thine own power? Why hast thou conceived this thing in thine heart? Thou has not lied unto men, but unto God.
 
-“And Ananias hearing these words fell down, and gave up the ghost. ...
+“And Ananias hearing these words fell down, and gave up the ghost. …
 
 “And it was about the space of three hours after, when his wife, not knowing what was done, came in.
 
 “And Peter answered unto her, Tell me whether ye sold the land for so much? And she said, Yea, for so much.
 
-“Then Peter said unto her, How is it that ye have agreed together to tempt the Spirit of the Lord? ...
+“Then Peter said unto her, How is it that ye have agreed together to tempt the Spirit of the Lord? …
 
-“Then she fell down straightway at his feet, and yielded up the ghost.” (Acts 5:1–10.)
+“Then she fell down straightway at his feet, and yielded up the ghost.” ([[Acts 5.1|Acts 5:1–10]][[Acts 5.2|]][[Acts 5.3|]][[Acts 5.4|]][[Acts 5.5|]][[Acts 5.6|]][[Acts 5.7|]][[Acts 5.8|]][[Acts 5.9|]][[Acts 5.10|]].)
 
 In our time those found in dishonesty do not die as did Ananias and Sapphira, but something within them dies. Conscience chokes, character withers, self-respect vanishes, integrity dies.
 
-On Mount Sinai the finger of the Lord wrote the law on tablets of stone: “Thou shall not steal.” (Ex. 20:15.) There was neither enlargement nor rationalization. And then that declaration was accompanied by three other commandments, the violation of each of which involves dishonesty: “Thou shalt not commit adultery.” “Thou shalt not bear false witness.” “Thou shalt not covet.” (Ex. 20:14, 16–17.)
+On Mount Sinai the finger of the Lord wrote the law on tablets of stone: “Thou shall not steal.” ([[Exodus 20.15|Ex. 20:15]].) There was neither enlargement nor rationalization. And then that declaration was accompanied by three other commandments, the violation of each of which involves dishonesty: “Thou shalt not commit adultery.” “Thou shalt not bear false witness.” “Thou shalt not covet.” ([[Exodus 20.14|Ex. 20:14, 16–17]][[Exodus 20.16|]][[Exodus 20.17|]].)
 
 Was there ever adultery without dishonesty? In the vernacular, the evil is described as “cheating.” And cheating it is, for it robs virtue, it robs loyalty, it robs sacred promises, it robs self-respect, it robs truth. It involves deception. It is personal dishonesty of the worst kind, for it becomes a betrayal of the most sacred of human relationships, and a denial of covenants and promises entered into before God and man. It is the sordid violation of a trust. It is a selfish casting aside of the law of God, and like other forms of dishonesty its fruits are sorrow, bitterness, heartbroken companions, and betrayed children.
 
 “Thou shalt not bear false witness.” Dishonesty again. Television recently carried the story of a woman imprisoned for twenty-seven years, she having been convicted on the testimony of witnesses who have now come forth to confess they had lied. I know that this is an extreme case, but are you not acquainted with instances of reputations damaged, of hearts broken, of careers destroyed by the lying tongues of those who have borne false witness?
 
-I am reading a book of history, a long and detailed account of the trickeries practiced by the nations involved in the Second World War. It is entitled Bodyguard of Lies, taken from the words of Winston Churchill who said: “In war-time, truth is so precious that she should always be attended by a bodyguard of lies.” (The Second World War, vol. 5, Closing the Ring, Boston, Houghton Mifflin, 1951, p. 383.) The book deals with the many deceptions practiced on each side of the conflict. While reading it, one is again led to the conclusion that war is the Devil’s own game, and that among its most serious victims is truth.
+I am reading a book of history, a long and detailed account of the trickeries practiced by the nations involved in the Second World War. It is entitled *Bodyguard of Lies,* taken from the words of Winston Churchill who said: “In war-time, truth is so precious that she should always be attended by a bodyguard of lies.” (*The Second World War,* vol. 5, *Closing the Ring,* Boston, Houghton Mifflin, 1951, p. 383.) The book deals with the many deceptions practiced on each side of the conflict. While reading it, one is again led to the conclusion that war is the Devil’s own game, and that among its most serious victims is truth.
 
 Unfortunately, the easy use of falsehood and deception goes on long after the treaties of peace are signed, and some of those schooled in the art in times of war continue to ply their skills in days of peace. Then, like a disease that is endemic, the evil spreads and grows in virulence.
 
@@ -87,15 +88,18 @@ Wrote the author of Proverbs:
 
 “An heart that deviseth wicked imaginations, feet that be swift in running to mischief,
 
-“A false witness that speaketh lies, and he that soweth discord among brethren.” (Prov. 6:16–19.)
+“A false witness that speaketh lies, and he that soweth discord among brethren.” ([[Proverbs 6.16|Prov. 6:16–19]][[Proverbs 6.17|]][[Proverbs 6.18|]][[Proverbs 6.19|]].)
 
-The appraisal spoken long ago by an English poet is true yet today: “An honest man’s the noblest work of God.” (Alexander Pope, An Essay on Man. Epistle IV, line 248.) Where there is honesty, other virtues will follow.
+The appraisal spoken long ago by an English poet is true yet today: “An honest man’s the noblest work of God.” (Alexander Pope, *An Essay on Man. Epistle IV,* line 248.) Where there is honesty, other virtues will follow.
 
-The final Article of Faith of The Church of Jesus Christ of Latter-day Saints affirms that, “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men.”
+The [[Articles of Faith 1.13|final Article of Faith]] of The Church of Jesus Christ of Latter-day Saints affirms that, “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men.”
 
 We cannot be less than honest, we cannot be less than true, we cannot be less than virtuous if we are to keep sacred the trust given us. Once it was said among our people that a man’s word was as good as his bond. Shall any of us be less reliable, less honest than our forebears?
 
 To those within the sound of my voice who are living this principle, the Lord bless you. Yours is the precious right to hold your heads in the sunlight of truth, unashamed before any man. On the other hand, if there be need for reformation, let it begin where we now stand. God will help us if we will seek that strength which comes from him. Sweet then will be our peace of mind. Blessed will be those with whom we live and associate.
 
 I leave you my testimony of the truth of the cause in which we labor, of the living reality of our Father who is our God, to whom someday each of us must make an accounting, and of his beloved Son, who is our Savior and Redeemer, the Author of Truth. In the name of Jesus Christ. Amen.
+
+
+
 

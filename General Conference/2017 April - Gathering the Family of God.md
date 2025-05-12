@@ -1,7 +1,10 @@
 # Gathering the Family of God
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2017 General Conference*
+
+>*God the Father wants His children home again, in families and in glory.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/04/gathering-the-family-of-god?lang=eng)
 
@@ -13,7 +16,7 @@ Wherever you are and however you are hearing my voice, please know that even tho
 
 I have felt impressed to speak to you today about another kind of gathering. This kind does not happen only every six months, as general conference does. Instead, it has been going on continuously since the early days of the Restoration of the Church, and it has been hastening in recent years. I refer to the gathering of the family of God.
 
-To describe this gathering, it may be best to begin before we were born, before what the Bible calls “the beginning” (Genesis 1:1). At that time, we lived with Heavenly Father as His spirit children. This is true of every person who has ever lived on earth.
+To describe this gathering, it may be best to begin before we were born, before what the Bible calls “the beginning” ([[Genesis 1.1|Genesis 1:1]]). At that time, we lived with Heavenly Father as His spirit children. This is true of every person who has ever lived on earth.
 
 You see, the names “brother” and “sister” are not just friendly greetings or terms of endearment for us. They are an expression of an eternal truth: God is the literal Father of all mankind; we are each part of His eternal family. Because He loves us with the love of a perfect Father, He wants us to progress and advance and become like Him. He ordained a plan by which we would come to earth, in families, and have experiences that would prepare us to return to Him and live as He lives.
 
@@ -29,11 +32,11 @@ Some may consider this unfair. They may even take it as evidence that there is n
 
 But you and I know, because of the truths restored through the Prophet Joseph Smith, that God’s plan is much more loving and just than that. Our Heavenly Father is anxious to gather and bless all of His family. While He knows that not all of them will choose to be gathered, His plan gives each of His children the opportunity to accept or reject His invitation. And families are at the heart of this plan.
 
-Centuries ago, the prophet Malachi said that in a coming day, God would send Elijah to “turn the heart of the fathers to the children, and the heart of the children to their fathers” (Malachi 4:6).
+Centuries ago, the prophet Malachi said that in a coming day, God would send Elijah to “turn the heart of the fathers to the children, and the heart of the children to their fathers” ([[Malachi 4.6|Malachi 4:6]]).
 
-This prophecy was so important the Savior quoted it when He visited the Americas after His Resurrection (see 3 Nephi 25:5–6). And when the angel Moroni visited the Prophet Joseph Smith, he too quoted the prophecy about Elijah and hearts, fathers, and children (see Joseph Smith—History 1:36–39).
+This prophecy was so important the Savior quoted it when He visited the Americas after His Resurrection (see [[3 Nephi 25.5|3 Nephi 25:5–6]][[3 Nephi 25.6|]]). And when the angel Moroni visited the Prophet Joseph Smith, he too quoted the prophecy about Elijah and hearts, fathers, and children (see [[Joseph Smith History 1.36|Joseph Smith—History 1:36–39]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]]).
 
-Today is April 1. Two days from now, April 3, marks 181 years from the day when Malachi’s prophecy was fulfilled. On that day, Elijah did come, and he gave to Joseph Smith the priesthood power to seal families eternally (see D&C 110:13–16).
+Today is April 1. Two days from now, April 3, marks 181 years from the day when Malachi’s prophecy was fulfilled. On that day, Elijah did come, and he gave to Joseph Smith the priesthood power to seal families eternally (see [[D&C 110.13|D&C 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]]).
 
 From that day to this, interest in exploring one’s family history has grown exponentially. At ever-increasing rates, people seem drawn to their ancestry with more than just casual curiosity. Genealogical libraries, associations, and technologies have emerged around the world to support this interest. The internet’s power to enhance communications has enabled families to work together to do family history research with a speed and thoroughness never before possible.
 
@@ -43,7 +46,7 @@ For example, as you follow the promptings to learn about your family history, yo
 
 Many of your ancestors did not receive those ordinances. But in the providence of God, you did. And God knew that you would feel drawn to your ancestors in love and that you would have the technology necessary to identify them. He also knew that you would live in a time when access to holy temples, where the ordinances can be performed, would be greater than ever in history. And He knew that He could trust you to accomplish this work in behalf of your ancestors.
 
-Of course, all of us have many pressing and important responsibilities that need our attention and time. All of us find parts of what the Lord expects us to do beyond our abilities. Fortunately, the Lord provides a way for each of us to gain confidence and satisfaction in all our service, including family history service. We gain strength to do what He asks through our faith that the Savior gives no commandment “save he shall prepare a way for [us] that [we] may accomplish the thing which he commandeth” (1 Nephi 3:7).
+Of course, all of us have many pressing and important responsibilities that need our attention and time. All of us find parts of what the Lord expects us to do beyond our abilities. Fortunately, the Lord provides a way for each of us to gain confidence and satisfaction in all our service, including family history service. We gain strength to do what He asks through our faith that the Savior gives no commandment “save he shall prepare a way for \[us\] that \[we\] may accomplish the thing which he commandeth” ([[1 Nephi 3.7|1 Nephi 3:7]]).
 
 I know this is true from experience. Many years ago, as a university student, I met a man who worked for one of the largest computer companies in the world. This was in the early days of computing, and it just so happened that his company had sent him to sell computers to The Church of Jesus Christ of Latter-day Saints.
 
@@ -61,11 +64,14 @@ In recent years, the youth of the Church have responded to the spirit of Elijah 
 
 It used to be a rare but welcome exception for youth to bring the names of their own ancestors to the temple. Now this is the norm, and very often it is the young people themselves who found those ancestors.
 
-In addition, many youth have discovered that giving of their time to do family history research and temple work has deepened their testimony of the plan of salvation. It has increased the influence of the Spirit in their lives and decreased the influence of the adversary. It has helped them feel closer to their families and closer to the Lord Jesus Christ. They have learned that this work saves not just the dead; it saves all of us (see D&C 128:18).
+In addition, many youth have discovered that giving of their time to do family history research and temple work has deepened their testimony of the plan of salvation. It has increased the influence of the Spirit in their lives and decreased the influence of the adversary. It has helped them feel closer to their families and closer to the Lord Jesus Christ. They have learned that this work saves not just the dead; it saves all of us (see [[D&C 128.18|D&C 128:18]]).
 
 The youth have caught the vision admirably; now their parents need to catch up. There are now many people who have accepted baptism in the spirit world because of the work done by the youth, and they are waiting for other ordinances that only adults can perform in temples in this world. The work of gathering Heavenly Father’s family is not just for young people, and it is not just for grandparents. It is for everyone. We are all gatherers.
 
-This is the work of our generation, what the Apostle Paul called “the dispensation of the fulness of times,” when he said God would “gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him” (Ephesians 1:10). This is made possible through the atoning work of God’s Beloved Son, Jesus Christ. Because of Him, our family members, “who sometimes were far off are made nigh by the blood of Christ. For he is our peace, who hath made both one, and hath broken down the middle wall of partition between us” (Ephesians 2:13–14). You have felt this, as I have, when you have experienced an increase of love as you looked at the picture of an ancestor. You have felt it in the temple when the name on a card seemed like more than a name, and you couldn’t help but sense that this person was aware of you and felt your love.
+This is the work of our generation, what the Apostle Paul called “the dispensation of the fulness of times,” when he said God would “gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him” ([[Ephesians 1.10|Ephesians 1:10]]). This is made possible through the atoning work of God’s Beloved Son, Jesus Christ. Because of Him, our family members, “who sometimes were far off are made nigh by the blood of Christ. For he is our peace, who hath made both one, and hath broken down the middle wall of partition between us” ([[Ephesians 2.13|Ephesians 2:13–14]][[Ephesians 2.14|]]). You have felt this, as I have, when you have experienced an increase of love as you looked at the picture of an ancestor. You have felt it in the temple when the name on a card seemed like more than a name, and you couldn’t help but sense that this person was aware of you and felt your love.
 
 I testify that God the Father wants His children home again, in families and in glory. The Savior lives. He directs and blesses this work, and He watches over and guides us. He thanks you for your faithful service in gathering His Father’s family, and I promise you the inspired help that you seek and need. In the name of Jesus Christ, amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # Welcome to Conference
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2010 General Conference*
+
+>*Thank you, my brothers and sisters, for your faith and devotion to the gospel of Jesus Christ.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/04/welcome-to-conference?lang=eng)
 
@@ -22,4 +25,7 @@ Many of you are aware that a short time after October conference, my dear wife, 
 Now, brothers and sisters, we have come here to be instructed and inspired. We welcome those of you who are new in the Church. Others of you are struggling with problems, with challenges, with disappointments, with losses. We love you and we pray for you. Many messages, covering a variety of gospel topics, will be given during the next two days. Those men and women who will speak to you have sought heaven’s help concerning the messages they will give.
 
 It is my prayer that we may be filled with His Spirit as we listen and learn. That this may be so, I pray in the name of Jesus Christ, our Lord and Savior, amen.
+
+
+
 

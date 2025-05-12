@@ -1,5 +1,6 @@
 # “Master, the Tempest Is Raging”
-*By Howard W. Hunter - Of the Quorum of the Twelve Apostles*
+
+By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
 
@@ -23,11 +24,11 @@ Following his discourse, the Savior invited his disciples to join him, and they 
 
 “And he said unto them, Why are ye so fearful? how is it that ye have no faith?
 
-“And they feared exceedingly, and said one to another, What manner of man is this, that even the wind and the sea obey him?” (Mark 4:36–41.)
+“And they feared exceedingly, and said one to another, What manner of man is this, that even the wind and the sea obey him?” ([[Mark 4.36|Mark 4:36–41]][[Mark 4.37|]][[Mark 4.38|]][[Mark 4.39|]][[Mark 4.40|]][[Mark 4.41|]].)
 
 All of us have seen some sudden storms in our lives. A few of them, though temporary like these on the Sea of Galilee, can be violent and frightening and potentially destructive. As individuals, as families, as communities, as nations, even as a church, we have had sudden squalls arise which have made us ask one way or another, “Master, carest thou not that we perish?” And one way or another we always hear in the stillness after the storm, “Why are ye so fearful? how is it that ye have no faith?”
 
-None of us would like to think we have no faith, but I suppose the Lord’s gentle rebuke here is largely deserved. This great Jehovah, in whom we say we trust and whose name we have taken upon us, is he who said, “Let there be a firmament in the midst of the waters, and let it divide the waters from the waters.” (Gen. 1:6.) And he is also the one who said, “Let the waters under the heaven be gathered together unto one place, and let the dry land appear.” (Gen. 1:9.) Furthermore, it was he who parted the Red Sea, allowing the Israelites to pass through on dry ground. (See Ex. 14:21–22.) Certainly it should be no surprise that he could command a few elements acting up on the Sea of Galilee. And our faith should remind us that he can calm the troubled waters of our lives.
+None of us would like to think we have *no* faith, but I suppose the Lord’s gentle rebuke here is largely deserved. This great Jehovah, in whom we say we trust and whose name we have taken upon us, is he who said, “Let there be a firmament in the midst of the waters, and let it divide the waters from the waters.” ([[Genesis 1.6|Gen. 1:6]].) And he is also the one who said, “Let the waters under the heaven be gathered together unto one place, and let the dry land appear.” ([[Genesis 1.9|Gen. 1:9]].) Furthermore, it was he who parted the Red Sea, allowing the Israelites to pass through on dry ground. (See [[Exodus 14.21|Ex. 14:21–22]][[Exodus 14.22|]].) Certainly it should be no surprise that he could command a few elements acting up on the Sea of Galilee. And our faith should remind us that he can calm the troubled waters of our lives.
 
 Let me recall for you the story of Mary Ann Baker. Her beloved and only brother suffered from the same respiratory disease that had taken their parents’ lives, and he left their home in Chicago to find a warmer climate in the southern part of the United States.
 
@@ -35,7 +36,7 @@ For a time he seemed to be improving, but then a sudden turn in his health came 
 
 The Baker family had been raised as faithful Christians, but Mary’s trust in a loving God broke under the strain of her brother’s death and her own diminished circumstances. “God does not care for me or mine,” said Mary Ann. “This particular manifestation of what they call ‘divine providence’ is unworthy of a God of love.” Does that sound at all familiar?
 
-“I have always tried to believe on Christ and give the Master a consecrated life,” she said, “but this is more than I can bear. What have I done to deserve this? What have I left undone that God should wreak His vengeance upon me in this way?” (Ernest K. Emurian, Living Stories of Famous Hymns, Boston: W. A Widdle Co., 1955, pp. 83–85.)
+“I have always tried to believe on Christ and give the Master a consecrated life,” she said, “but this is more than I can bear. What have I done to deserve this? What have I left undone that God should wreak His vengeance upon me in this way?” (Ernest K. Emurian, *Living Stories of Famous Hymns,* Boston: W. A Widdle Co., 1955, pp. 83–85.)
 
 I suppose we have all had occasion, individually or collectively, to cry out on some stormy sea, “Master, carest thou not that we perish?” And so cried Mary Ann Baker.
 
@@ -43,91 +44,67 @@ But as the days and the weeks went by, the God of life and love began to calm th
 
 Later, as something of a personal testimonial and caring very much for the faith of others who would be tried by personal despair, she wrote the words of the hymn we have all sung, “Master, the Tempest Is Raging.” May I share it with you?
 
-Master, the tempest is raging!
-
-The billows are tossing high!
-
-The sky is o’ershadowed with blackness.
-
-No shelter or help is nigh.
-
-Carest thou not that we perish?
-
-How canst thou lie asleep
-
-When each moment so madly is threatening
-
-A grave in the angry deep?
-
-Master, with anguish of spirit
-
-I bow in my grief today.
-
-The depths of my sad heart are troubled.
-
-Oh, waken and save, I pray!
-
-Torrents of sin and of anguish
-
-Sweep o’er my sinking soul,
-
-And I perish! I perish! dear Master.
-
-Oh, hasten and take control!
+>Master, the tempest is raging!
+>The billows are tossing high!
+>The sky is o’ershadowed with blackness.
+>No shelter or help is nigh.
+>
+>Carest thou not that we perish?
+>How canst thou lie asleep
+>When each moment so madly is threatening
+>A grave in the angry deep?
+>
+>Master, with anguish of spirit
+>I bow in my grief today.
+>The depths of my sad heart are troubled.
+>Oh, waken and save, I pray!
+>
+>Torrents of sin and of anguish
+>Sweep o’er my sinking soul,
+>And I perish! I perish! dear Master.
+>Oh, hasten and take control!
+>
 
 Then this beautiful, moving refrain:
 
-The winds and the waves shall obey my will;
-
-Peace, be still! Peace, be still!
-
-Whether the wrath of the storm-tossed sea
-
-Or demons or men or whatever it be,
-
-No waters can swallow the ship where lies
-
-The Master of ocean and earth and skies.
-
-They all shall sweetly obey my will.
-
-Peace, be still! Peace, be still!
-
-They all shall sweetly obey my will.
-
-Peace, peace, be still!
+>The winds and the waves shall obey my will;
+>Peace, be still! Peace, be still!
+>Whether the wrath of the storm-tossed sea
+>Or demons or men or whatever it be,
+>No waters can swallow the ship where lies
+>The Master of ocean and earth and skies.
+>
+>They all shall sweetly obey my will.
+>Peace, peace, be still!
+>
 
 Too often, I fear, both in the living of life and in the singing of this hymn, we fail to emphasize the sweet peace of this concluding verse:
 
-Master, the terror is over.
-
-The elements sweetly rest.
-
-Earth’s sun in the calm lake is mirrored,
-
-And heaven’s within my breast.
-
-Linger, Oh, blessed Redeemer!
-
-Leave me alone no more,
-
-And with joy I shall make the blest harbor
-
-And rest on the blissful shore.
-
-(Hymns, no. 106.)
+>Master, the terror is over.
+>The elements sweetly rest.
+>Earth’s sun in the calm lake is mirrored,
+>And heaven’s within my breast.
+>
+>Linger, Oh, blessed Redeemer!
+>Leave me alone no more,
+>And with joy I shall make the blest harbor
+>And rest on the blissful shore.
+>
 
 We will all have some adversity in our lives. I think we can be reasonably sure of that. Some of it will have the potential to be violent and damaging and destructive. Some of it may even strain our faith in a loving God who has the power to administer relief in our behalf.
 
-To those anxieties I think the Father of us all would say, “Why are ye so fearful? how is it that ye have no faith?” And of course that has to be faith for the whole journey, the entire experience, the fulness of our life, not simply around the bits and pieces and tempestuous moments. At the end of the journey, an end none of us can see now, we will say, “Master, the terror is over. ... Linger, Oh, blessed Redeemer! Leave me alone no more.”
+To those anxieties I think the Father of us all would say, “Why are ye so fearful? how is it that ye have no faith?” And of course that has to be faith for the whole journey, the entire experience, the fulness of our life, not simply around the bits and pieces and tempestuous moments. At the end of the journey, an end none of us can see now, we will say, “Master, the terror is over. … Linger, Oh, blessed Redeemer! Leave me alone no more.”
 
-Jesus said, “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.” (John 16:33.) On the same occasion, he said, “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you.” (John 14:27.) Throughout his life and ministry he spoke of peace, and when he came forth from the tomb and appeared unto his disciples, his first greeting was, “Peace be unto you.” (John 20:19.)
+Jesus said, “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.” ([[John 16.33|John 16:33]].) On the same occasion, he said, “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you.” ([[John 14.27|John 14:27]].) Throughout his life and ministry he spoke of peace, and when he came forth from the tomb and appeared unto his disciples, his first greeting was, “Peace be unto you.” ([[John 20.19|John 20:19]].)
 
-But Jesus was not spared grief and pain and anguish and buffeting. No tongue can speak the unutterable burden he carried, nor have we the wisdom to understand the prophet Isaiah’s description of him as “a man of sorrows.” (Isa. 53:3.) His ship was tossed most of his life, and, at least to mortal eyes, it crashed fatally on the rocky coast of Calvary. We are asked not to look on life with mortal eyes; with spiritual vision we know something quite different was happening upon the cross.
+But Jesus was not spared grief and pain and anguish and buffeting. No tongue can speak the unutterable burden he carried, nor have we the wisdom to understand the prophet Isaiah’s description of him as “a man of sorrows.” ([[Isaiah 53.3|Isa. 53:3]].) His ship was tossed most of his life, and, at least to mortal eyes, it crashed fatally on the rocky coast of Calvary. We are asked not to look on life with mortal eyes; with spiritual vision we know something quite different was happening upon the cross.
 
 Peace was on the lips and in the heart of the Savior no matter how fiercely the tempest was raging. May it so be with us—in our own hearts, in our own homes, in our nations of the world, and even in the buffetings faced from time to time by the Church. We should not expect to get through life individually or collectively without some opposition.
 
-One of the wisest of the ancient Romans once spoke a great gospel truth and probably never realized he had done so. Speaking of Roman naval power and the absolute imperative to control the oceans, Cicero said to a military aide, “He who commands the sea has command of everything.” (See W. Gurney Benham, Putnam’s Complete Book of Quotations, New York: G. P. Putnam’s Sons, 1926, p. 505.) Of that I so testify.
+One of the wisest of the ancient Romans once spoke a great gospel truth and probably never realized he had done so. Speaking of Roman naval power and the absolute imperative to control the oceans, Cicero said to a military aide, “He who commands the sea has command of everything.” (See W. Gurney Benham, *Putnam’s Complete Book of Quotations,* New York: G. P. Putnam’s Sons, 1926, p. 505.) Of that I so testify.
 
-“Whether the wrath of the storm-tossed sea or demons or men or whatever it be, no waters can swallow the ship where lies the Master of ocean and earth and skies. They all shall sweetly obey [his] will. Peace, be still!” In the name of Jesus Christ, amen.
+“Whether the wrath of the storm-tossed sea or demons or men or whatever it be, no waters can swallow the ship where lies the Master of ocean and earth and skies. They all shall sweetly obey \[his\] will. Peace, be still!” In the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # Our Responsibility to Care for Our Own
-*By By Bishop H. Burke Peterson - First Counselor in the Presiding Bishopric*
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -11,17 +12,17 @@ However, before going into the subject, I wish to build a threshold from which t
 
 Here were ten believing members of the Church. They believed enough that they were going, as a body, to meet the Bridegroom. It appears that they were not wicked, as we think of that descriptive term. I assume they had spent their lives, to that point, in “church activity”; however, as in the parable, five of them had been doing things of more import than had the other five. Half of them had been involved during their lives in doing things of consequence—in doing things that mattered most—in preparing oil for their lamps.
 
-In speaking of the foolish, the parable states, “And while they went to buy, the bridegroom came; and they that were ready went in with him to the marriage: and the door was shut.” (Matt. 25:10.)
+In speaking of the foolish, the parable states, “And while they went to buy, the bridegroom came; and they that were ready went in with him to the marriage: and the door was shut.” ([[Matthew 25.10|Matt. 25:10]].)
 
 With this as a warning and the word of the Lord instructing us to be about more important things, I’d like to remind us of the teachings of one of the great Book of Mormon prophets and missionaries, Alma.
 
 In one of the most important declarations of what it means to be a true disciple of the Master, Alma describes in clarity and simplicity the covenant and responsibility of one who would enter the waters of baptism. We have all entered the water. We have made the covenant. In the eighteenth chapter of Mosiah, Alma describes the conduct of a true follower of the Savior, a true disciple. For he said, “And now, as ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
 
-“Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things.” (Mosiah 18:8–9.)
+“Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things.” ([[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].)
 
 He has stated simply: If we are to be the Savior’s disciples, if we are to become like him, then we must serve one another, then we must assume responsibility to help with one another’s needs, then we must assist each other through the thorny pathways of life.
 
-We have been taught in other scripture that no matter how great and significant our mortal accomplishments, no matter how much was accomplished under our hand—as a bishop, a clerk, a president, a teacher, or a parent—unless we learn to exhibit charity, we are nothing. (See 1 Cor. 13:1–3.) All our good deeds will not weigh in our favor if charity is lacking.
+We have been taught in other scripture that no matter how great and significant our mortal accomplishments, no matter how much was accomplished under our hand—as a bishop, a clerk, a president, a teacher, or a parent—unless we learn to exhibit charity, we are nothing. (See [[1 Corinthians 13.1|1 Cor. 13:1–3]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]].) All our good deeds will not weigh in our favor if charity is lacking.
 
 Charity is measured in several ways. Perhaps a supreme form of charity may be exhibited by one who withholds judgment of another’s acts or conduct, remembering that there is only one who can look into the heart and know the intent—and know the honest desires found therein. There is only one whose right it is to judge the success of another’s journey through life. Uncalled-for judgments or prejudiced feelings keep many from displaying a truly charitable attitude or a willingness to help those in need, even those in our own family circle. A warning comes to us from King Benjamin, who said:
 
@@ -29,7 +30,7 @@ Charity is measured in several ways. Perhaps a supreme form of charity may be ex
 
 “Perhaps thou shalt say: The man has brought upon himself his misery; therefore I will stay my hand, and will not give unto him of my food, nor impart unto him of my substance that he may not suffer, for his punishments are just—
 
-“But I say unto you, O man, whosoever doeth this the same hath great cause to repent; and except he repenteth of that which he hath done he perisheth forever, and hath no interest in the kingdom of God.” (Mosiah 4:16–18.)
+“But I say unto you, O man, whosoever doeth this the same hath great cause to repent; and except he repenteth of that which he hath done he perisheth forever, and hath no interest in the kingdom of God.” ([[Mosiah 4.16|Mosiah 4:16–18]][[Mosiah 4.17|]][[Mosiah 4.18|]].)
 
 Are not our own family members entitled to every consideration as contained in this counsel? Too often, charity is extended to another when his actions or conduct are acceptable to us. The exhibition of charity to another must not be dependent on his performance. It should be given because of who we are—not because of how we behave.
 
@@ -45,15 +46,15 @@ Brothers and sisters, of all the places where our charitable acts should shine f
 
 From the content of this message, I’m sure you can tell we have great concern about the manner in which we, as families, are caring for the needs of each other. Much has been said from this pulpit about the responsibility we have to look after our own. The words are clear. We fear the understanding and application of these principles are not being followed as the Lord has prescribed.
 
-In his day, President Brigham Young said the following: “Ever since I have been in this Church I have never suffered a relative to be maintained by the Church. But some men and women cast their children and other relatives upon the Church. If one has an aged sister who cannot maintain herself, he passes her over to the Church; or if an aged father or mother, why, ‘let the Church ... take care of them and provide for them.’ It is a disgrace to every man and woman that has sense enough to live, not to take care of their own relatives, their own poor, and plan for them.” (Journal of Discourses, 8:145.)
+In his day, President Brigham Young said the following: “Ever since I have been in this Church I have never suffered a relative to be maintained by the Church. But some men and women cast their children and other relatives upon the Church. If one has an aged sister who cannot maintain herself, he passes her over to the Church; or if an aged father or mother, why, ‘let the Church … take care of them and provide for them.’ It is a disgrace to every man and woman that has sense enough to live, not to take care of their own relatives, their own poor, and plan for them.” (*Journal of Discourses,* 8:145.)
 
 Fearing that we may have strayed from some of the basic moorings, I would like to quote from the welfare handbook some of us used as bishops over twenty years ago:
 
-“Aid from Relatives:
+“*Aid from Relatives:*
 
-“Obviously no person should become a charge upon the public [or the Church] when his relatives are able to care for him. Every consideration of kinship, of justice and fairness, of the common good, and even of humanity itself, requires this.” Then listen to these words: “Where Church relatives, financially competent to take care of their kin, refuse to do so, the matter should be reported to the bishop of the ward in which such relatives reside.” (Welfare Plan of The Church of Jesus Christ of Latter-day Saints, Handbook of Instructions, 1969, p. 4.)
+“Obviously no person should become a charge upon the public \[or the Church\] when his relatives are able to care for him. Every consideration of kinship, of justice and fairness, of the common good, and even of humanity itself, requires this.” Then listen to these words: “Where Church relatives, financially competent to take care of their kin, refuse to do so, the matter should be reported to the bishop of the ward in which such relatives reside.” (*Welfare Plan of The Church of Jesus Christ of Latter-day Saints,* Handbook of Instructions, 1969, p. 4.)
 
-And then the handbook repeats the instruction of the Apostle Paul to Timothy: “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” (1 Tim. 5:8.)
+And then the handbook repeats the instruction of the Apostle Paul to Timothy: “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
 
 Perhaps we should clarify what it means to provide for our own. How do we do it? Does it mean money and other physical things only? Are there unmet needs that money cannot buy?
 
@@ -71,7 +72,7 @@ The father answered, “So she will remember that we’ve been here and that we 
 
 Then a pause. “Daddy, what color blanket would you like when I come to visit you?”
 
-There is no righteous way to avoid the commandment “Honour thy father and thy mother.” (Ex. 20:12.) No family that hopes to endure eternally can exclude grandmother and grandfather, brothers and sisters, or other relatives. Heaven forbid that any family member—regardless of age—should be considered a burden. Wouldn’t it be wonderful if family members would counsel together as they make plans to assist those in need?
+There is no righteous way to avoid the commandment “Honour thy father and thy mother.” ([[Exodus 20.12|Ex. 20:12]].) No family that hopes to endure eternally can exclude grandmother and grandfather, brothers and sisters, or other relatives. Heaven forbid that any family member—regardless of age—should be considered a burden. Wouldn’t it be wonderful if family members would counsel together as they make plans to assist those in need?
 
 Because of some personal experiences, I am a true believer that families who will fast and pray together can cause miracles to happen. They can literally pray righteous things to take place. Ofttimes it may take longer than we feel is necessary before it happens, however.
 
@@ -83,9 +84,12 @@ In an earlier day, when families refused to obey the charge of family responsibi
 
 “This people draweth nigh unto me with their mouth, and honoureth me with their lips; but their heart is far from me.
 
-“But in vain they do worship me, teaching for doctrines the commandments of men.” (Matt. 15:7–9.)
+“But in vain they do worship me, teaching for doctrines the commandments of men.” ([[Matthew 15.7|Matt. 15:7–9]][[Matthew 15.8|]][[Matthew 15.9|]].)
 
 This morning we have given you what the Lord has said. We may use our agency as to whether we shall obey or disobey; but, if we disobey, we must abide the penalty.
 
 I testify of the truth of these teachings and of the reality of the one who is the author, in the name of Jesus Christ, amen.
+
+
+
 

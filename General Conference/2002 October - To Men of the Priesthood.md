@@ -1,13 +1,16 @@
 # To Men of the Priesthood
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2002 General Conference*
 
+>*You men who hold this precious priesthood, bind it to your very souls. Be worthy of it at all times and in all circumstances.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2002/10/to-men-of-the-priesthood?lang=eng)
 
-Now my beloved brethren, I speak with a desire to be helpful. I pray for the Spirit of the Lord to guide me.
+Now, my beloved brethren, I speak with a desire to be helpful. I pray for the Spirit of the Lord to guide me.
 
-I need not tell you that we have become a very large and complex Church. Our program is so vast and our reach is so extensive that it is difficult to comprehend. We are a Church of lay leadership. What a remarkable and wonderful thing that is. It must ever remain so. It must never move in the direction of an extensive paid ministry. But we know that the administrative load is very heavy on our bishops and stake presidents, as well as some others. An awareness of that fact has led the Presidency and the Twelve to hold a number of meetings, some of them long and interesting, in which in effect we have taken the Church apart and then put it together again. Our objective has been to see whether there might be some programs we could do away with. But as we have analyzed these, we have not seen much that could be dropped. To drop one is like giving away one of your children. You haven’t the heart to do it. But I wish to assure you that we are aware of the burdens you carry and the time you spend. In this priesthood meeting I wish to mention a few of the items we have discussed. I think you will note that we have made some progress, although it may be small.
+I need not tell you that we have become a very large and complex Church. Our program is so vast and our reach is so extensive that it is difficult to comprehend. We are a Church of lay leadership. What a remarkable and wonderful thing that is. It must ever remain so. It must never move in the direction of an extensive paid ministry. But we know that the administrative load is very heavy on our bishops and stake presidents, as well as some others. An awareness of that fact has led the Presidency and the Twelve to hold a number of meetings, some of them long and interesting, in which, in effect, we have taken the Church apart and then put it together again. Our objective has been to see whether there might be some programs we could do away with. But as we have analyzed these, we have not seen much that could be dropped. To drop one is like giving away one of your children. You haven’t the heart to do it. But I wish to assure you that we are aware of the burdens you carry and the time you spend. In this priesthood meeting I wish to mention a few of the items we have discussed. I think you will note that we have made some progress, although it may be small.
 
 I shall speak to you about a number of miscellaneous items.
 
@@ -19,7 +22,7 @@ Another item.
 
 Elder Ballard has spoken to you concerning missionaries. I wish to endorse what he said. I hope that our young men, and our young women, will rise to the challenge he has set forth. We must raise the bar on the worthiness and qualifications of those who go into the world as ambassadors of the Lord Jesus Christ.
 
-Now we have an interesting custom in the Church. Departing missionaries are accorded a farewell. In some wards this has become a problem. Between outgoing missionaries and returning missionaries, most sacrament meetings are devoted to farewells and homecomings.
+Now, we have an interesting custom in the Church. Departing missionaries are accorded a farewell. In some wards this has become a problem. Between outgoing missionaries and returning missionaries, most sacrament meetings are devoted to farewells and homecomings.
 
 No one else in the Church has a farewell when entering a particular service. We never have a special farewell-type meeting for a newly called bishop, for a stake president, for a Relief Society president, for a General Authority, or anyone else of whom I can think. Why should we have missionary farewells?
 
@@ -41,7 +44,7 @@ Today some 5,000 men and women, most of them young, are being educated who other
 
 I give you one example. The first young woman to receive a loan has now completed a year of training and has applied for funds for her last year of training. She is studying to become a dental assistant.
 
-Previous to this she worked in a restaurant earning $130.00 a month. It is anticipated that when she completes her training in a short time she will receive $650.00 a month to begin with—an immediate 500 percent increase. That will grow through the years.
+Previous to this she worked in a restaurant earning $130.00 a month. It is anticipated that when she completes her training, in a short time she will receive $650.00 a month to begin with—an immediate 500 percent increase. That will grow through the years.
 
 What a marvelous difference a few dollars make when they are properly applied. Now, you multiply her experience by 5,000. It is a most remarkable thing to contemplate. Students are receiving training to become mechanics, systems analysts, administrative consultants, nursing technicians, information systems technicians, nurses, hospital workers, computer programmers, computer engineers, fashion designers, accountants, electricians, English teachers, bakers, hotel administrators, and graphic designers, to name a few.
 
@@ -57,19 +60,17 @@ Now there appears to be a growing tendency to schedule other events on Monday ni
 
 I have received not a few invitations to participate in community Monday gatherings of one kind or another. I have uniformly turned down these invitations with appreciation, but with the explanation that I have reserved Monday as family home evening time. I earnestly hope that each of you will do the same.
 
-The next item.
-
 Brethren, I wish to urge again the importance of self-reliance on the part of every individual Church member and family.
 
 None of us knows when a catastrophe might strike. Sickness, injury, unemployment may affect any of us.
 
-We have a great welfare program with facilities for such things as grain storage in various areas. It is important that we do this. But the best place to have some food set aside is within our homes, together with a little money in savings. The best welfare program is our own welfare program. Five or six cans of wheat in the home are better than a bushel in the welfare granary.
+We have a great welfare program, with facilities for such things as grain storage in various areas. It is important that we do this. But the best place to have some food set aside is within our homes, together with a little money in savings. The best welfare program is our own welfare program. Five or six cans of wheat in the home are better than a bushel in the welfare granary.
 
 I do not predict any impending disaster. I hope that there will not be one. But prudence should govern our lives. Everyone who owns a home recognizes the need for fire insurance. We hope and pray that there will never be a fire. Nevertheless, we pay for insurance to cover such a catastrophe, should it occur.
 
 We ought to do the same with reference to family welfare.
 
-We can begin ever so modestly. We can begin with a one week’s food supply and gradually build it to a month, and then to three months. I am speaking now of food to cover basic needs. As all of you recognize, this counsel is not new. But I fear that so many feel that a long-term food supply is so far beyond their reach that they make no effort at all.
+We can begin ever so modestly. We can begin with a one week’s food supply and gradually build it to a month and then to three months. I am speaking now of food to cover basic needs. As all of you recognize, this counsel is not new. But I fear that so many feel that a long-term food supply is so far beyond their reach that they make no effort at all.
 
 Begin in a small way, my brethren, and gradually build toward a reasonable objective. Save a little money regularly, and you will be surprised how it accumulates.
 
@@ -89,11 +90,11 @@ I beg of you, my dear young friends, to avoid such behavior. It will not be easy
 
 Stay away from the erotic stuff of the Internet. It can only pull you down. It can lead to your destruction.
 
-Never lose sight of the fact that you hold the priesthood of God. When John the Baptist conferred the Aaronic Priesthood upon Joseph Smith and Oliver Cowdery, he stated that this priesthood “holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins” (D&C 13).
+Never lose sight of the fact that you hold the priesthood of God. When John the Baptist conferred the Aaronic Priesthood upon Joseph Smith and Oliver Cowdery, he stated that this priesthood “holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins” ([[D&C 13.1|D&C 13]][[D&C 13.2|]][[D&C 13.3|]][[D&C 13.4|]][[D&C 13.5|]][[D&C 13.6|]][[D&C 13.7|]][[D&C 13.8|]][[D&C 13.9|]][[D&C 13.10|]][[D&C 13.11|]][[D&C 13.12|]][[D&C 13.13|]][[D&C 13.14|]][[D&C 13.15|]][[D&C 13.16|]][[D&C 13.17|]][[D&C 13.18|]][[D&C 13.19|]][[D&C 13.20|]][[D&C 13.21|]][[D&C 13.22|]][[D&C 13.23|]][[D&C 13.24|]][[D&C 13.25|]][[D&C 13.26|]][[D&C 13.27|]][[D&C 13.28|]][[D&C 13.29|]][[D&C 13.30|]][[D&C 13.31|]][[D&C 13.32|]][[D&C 13.33|]][[D&C 13.34|]][[D&C 13.35|]][[D&C 13.36|]][[D&C 13.37|]][[D&C 13.38|]][[D&C 13.39|]][[D&C 13.40|]][[D&C 13.41|]][[D&C 13.42|]][[D&C 13.43|]][[D&C 13.44|]][[D&C 13.45|]][[D&C 13.46|]][[D&C 13.47|]][[D&C 13.48|]][[D&C 13.49|]][[D&C 13.50|]][[D&C 13.51|]][[D&C 13.52|]][[D&C 13.53|]][[D&C 13.54|]][[D&C 13.55|]][[D&C 13.56|]][[D&C 13.57|]][[D&C 13.58|]][[D&C 13.59|]][[D&C 13.60|]][[D&C 13.61|]][[D&C 13.62|]][[D&C 13.63|]][[D&C 13.64|]][[D&C 13.65|]][[D&C 13.66|]][[D&C 13.67|]][[D&C 13.68|]][[D&C 13.69|]][[D&C 13.70|]][[D&C 13.71|]][[D&C 13.72|]][[D&C 13.73|]][[D&C 13.74|]]).
 
 Do you wish for the ministering of angels?
 
-That ministering will bring with it incomparable rewards. Take the high road in your lives, and God will bless you and nurture you and “lead [you] by the hand, and give [you] answer to [your] prayers” (D&C 112:10).
+That ministering will bring with it incomparable rewards. Take the high road in your lives, and God will bless you and nurture you and “lead \[you\] by the hand, and give \[you\] answer to \[your\] prayers” ([[D&C 112.10|D&C 112:10]]).
 
 To you mature men I extend the same plea and the same warning. Small beginnings lead to great tragedies. We deal with them constantly. There is so much of heartache, resentment, disillusionment, and divorce among us.
 
@@ -105,9 +106,12 @@ Child abuse is an affront toward God. Jesus spoke of the beauty and innocence of
 
 You men who hold this precious priesthood, bind it to your very souls. Be worthy of it at all times and in all circumstances.
 
-If you do so, you will enjoy that “peace of God, which passeth all understanding” (Philip. 4:7).
+If you do so, you will enjoy that “peace of God, which passeth all understanding” ([[Philippians 4.7|Philip. 4:7]]).
 
 May God bless you, my dear brethren of the priesthood, young and old. Fathers, set an example for your children. Boys, look to your fathers for wisdom and guidance and understanding.
 
 How great are the promises of the Lord to those who walk in faith. I leave with you my blessing, my love, and my testimony. What a great and marvelous force for good is in this priesthood if we are united and move forward as one. May the Lord bless us to do so, I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

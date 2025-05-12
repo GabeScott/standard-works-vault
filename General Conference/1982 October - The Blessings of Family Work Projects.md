@@ -1,17 +1,18 @@
 # The Blessings of Family Work Projects
-*By By Dean Jarman - President, Salt Lake University Second Stake*
+
+By Dean Jarman - *President, Salt Lake University Second Stake*
 
 *Given in the October session of the 1982 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1982/10/the-blessings-of-family-work-projects?lang=eng)
 
-The blessings that come from family work projects are both temporal and spiritual. The commandments given to Adam were spiritual, for the Lord himself said that he never gave to Adam a temporal commandment. (See D&C 29:35.) Work, then, as instituted in the beginning of this earth, was a spiritual principle.
+The blessings that come from family work projects are both temporal and spiritual. The commandments given to Adam were spiritual, for the Lord himself said that he never gave to Adam a temporal commandment. (See [[D&C 29.35|D&C 29:35]].) Work, then, as instituted in the beginning of this earth, was a spiritual principle.
 
 There are several influences in my life that have instilled in me a desire to teach our children to work. The first are experiences I enjoyed as a child growing up in the home of wise and wonderful parents. Our first family work project began when I was around nine years old. One night dad came home with a shoe-shining kit that had an adaptable shoe tree that fastened to the wall. He encouraged my brother and me to be industrious and earn some money by charging fifteen cents for every pair of shoes we shined. Of course, my parents’ shoes were always well shined, but our big opportunities came when my parents entertained. I would mingle among the guests and ask if any would like to have their shoes shined. Many a person was seen in our home sitting or visiting in his stocking feet.
 
 A few years passed, and dad came home one night with another idea. “Why don’t you boys sell Christmas wreaths?” he said. And thus we were off on another venture. We would go from door to door taking orders, and then we purchased the wreaths from a wholesaler for our customers. For the next several years mom and dad spent many hours helping us in this project.
 
-During my college years I began to realize that there were more values to work than simply the money one earns. Three individuals made statements that have left indelible impressions upon my mind. The first statement came while I was attending the University of Utah. The director of the Institute of Religion, Lowell L. Bennion, shared with me a philosophy of raising children. He grew a large vegetable garden, and when asked what he was growing, his reply was not the usual tomatoes, corn, or carrots, but simply, “boys.”
+During my college years I began to realize that there were more values to work than simply the money one earns. Three individuals made statements that have left indelible impressions upon my mind. The first statement came while I was attending the University of Utah. The director of the Institute of Religion, Lowell L. Bennion, shared with me a philosophy of raising children. He grew a large vegetable garden, and when asked what he was growing, his reply was not the usual tomatoes, corn, or carrots, but simply, “boys.”
 
 The second statement came from a student at BYU when he offered an explanation as to why he alone among his high school friends had remained active in the Church. He said it was because of a cow. He went on to explain that while his friends had nothing to do after school and began to get into trouble, he had to go home every day to milk the cow. Although he resented it at the time, he since has been very grateful to wise parents and the cow.
 
@@ -50,4 +51,7 @@ Their mother writes, “I watch other youth with too much free time and am grate
 May I add my own feelings. Our family work has become a big factor in bringing a higher degree of love, peace, and unity into our home. Many neighbors have commented on how much our children really enjoy each other. I am amazed as I witness our children stretching in their tender years toward self-reliance. Yes, work is a spiritual and essential principle. Our own beloved prophet has taught that “life is not wholly for fun and frolic.”
 
 I bear testimony that family work, when combined with family prayer and family scripture study, will do much to secure the blessings of heaven for families on earth. In the name of Jesus Christ, amen.
+
+
+
 

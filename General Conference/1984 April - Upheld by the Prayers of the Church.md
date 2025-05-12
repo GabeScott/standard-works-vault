@@ -1,5 +1,6 @@
 # Upheld by the Prayers of the Church
-*By John K. Carmack - Of the First Quorum of the Seventy*
+
+By Elder John K. Carmack - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
 
@@ -7,7 +8,7 @@
 
 What makes it possible for me to stand here, I think, is that you are all great friends.
 
-In the Lord’s special revelation on government in the Church, he says that the First Presidency is upheld by the confidence, faith, and prayer of the Church. (See D&C 107:22.) On behalf of these six who have just been called, I would like to express to the First Presidency our confidence, our faith, and our prayers. We love the First Presidency, and we appreciate the confidence they have in us. I would also like to thank those of you who have expressed your confidence to us. It’s the only possible way we can do this work. We have felt a rich outpouring of your love, and that has been an outstanding experience.
+In the Lord’s special revelation on government in the Church, he says that the First Presidency is upheld by the confidence, faith, and prayer of the Church. (See [[D&C 107.22|D&C 107:22]].) On behalf of these six who have just been called, I would like to express to the First Presidency our confidence, our faith, and our prayers. We love the First Presidency, and we appreciate the confidence they have in us. I would also like to thank those of you who have expressed your confidence to us. It’s the only possible way we can do this work. We have felt a rich outpouring of your love, and that has been an outstanding experience.
 
 I would like you also to know that we have felt the love of the Saints throughout the Church. And especially on behalf of myself, I feel the love of my fellow California Saints, who are here in such great number, and of those great Saints in Idaho—and if I could be allowed a point of personal privilege, of those great missionaries of the Idaho Boise Mission. I feel their strength. Of course, our families are the essential cornerstone of that sustaining love. It’s tremendous to belong to this great church.
 
@@ -25,21 +26,21 @@ The medicine didn’t work. We worried. But during the early morning hours, the 
 
 May I suggest to all of the Church, and particularly to you young people and you missionaries throughout the world, don’t neglect those early morning prayers to our Heavenly Father. Through those prayers, you reach him, and through that, you can have peace.
 
-“For we have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin.” (Heb. 4:15.)
+“For we have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin.” ([[Hebrews 4.15|Heb. 4:15]].)
 
-I think it was C. S. Lewis—I believe he was quoting George MacDonald—who said that we are like a house. When Christ comes in, it hurts abominably. We knew the roof and the gutters needed fixing, Lewis said, but all of a sudden we find that he starts putting up a new story here, and he shoots out a new wing there. We knew that the cottage needed fixing and those things needed doing, but this? (See Mere Christianity, New York: MacMillan Publishing Co., 1943, p. 174.)
+I think it was C. S. Lewis—I believe he was quoting George MacDonald—who said that we are like a house. When Christ comes in, it hurts abominably. We knew the roof and the gutters needed fixing, Lewis said, but all of a sudden we find that he starts putting up a new story here, and he shoots out a new wing there. We knew that the cottage needed fixing and those things needed doing, but this? (See *Mere Christianity,* New York: MacMillan Publishing Co., 1943, p. 174.)
 
-Well, Christ’s love can be tough. What is he trying to do with us? In his best-seller, The Road Less Traveled (New York: Simon and Schuster, 1978), Dr. M. Scott Peck said that no matter how much we may pussyfoot around it, all who ask the question “What is God’s love leading to?” come to a single terrifying conclusion: God wants us to become like himself. We are being prepared for godhood, and it hurts; it hurts abominably, but there is peace.
+Well, Christ’s love can be tough. What is he trying to do with us? In his best-seller, *The Road Less Traveled* (New York: Simon and Schuster, 1978), Dr. M. Scott Peck said that no matter how much we may pussyfoot around it, all who ask the question “What is God’s love leading to?” come to a single terrifying conclusion: God wants us to become like himself. We are being prepared for godhood, and it hurts; it hurts abominably, but there is peace.
 
-In those early morning hours, there came to my mind the theme from Ralph Rodgers’s play III Nephi:
+In those early morning hours, there came to my mind the theme from Ralph Rodgers’s play *III Nephi:*
 
-I feel my Savior’s love in all the world around me. ...
-
-He knows I will follow him, give all my life to him.
-
-I feel the Savior’s love, the love He freely gives me.
-
-(“I Feel My Savior’s Love,” The Choirbook, pp. 36–37.)
+>I feel my Savior’s love in all the world around me. …
+>He knows I will follow him, give all my life to him.
+>I feel the Savior’s love, the love He freely gives me.
+>
 
 On behalf of these brethren who have joined me, we pledge our energy, our love, our prayers, our faith, in humble obedience to a call we did not seek, in the name of Jesus Christ, amen.
+
+
+
 

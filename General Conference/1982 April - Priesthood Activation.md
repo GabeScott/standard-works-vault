@@ -1,5 +1,6 @@
 # Priesthood Activation
-*By By Bishop Victor L. Brown - Presiding Bishop*
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -7,11 +8,11 @@
 
 I approach this assignment tonight with a prayer in my heart. The subject assigned to me is one of great importance and one that does not necessarily have easy, quick answers. It is: “Steps that can be taken by the leaders and members of the Aaronic Priesthood to reactivate those members who are inactive.” My remarks, therefore, will be addressed primarily to bishops and their associates.
 
-I am well aware that all here tonight know what the Aaronic Priesthood is. Nevertheless, may I refresh our memories. The name Aaronic Priesthood comes from Aaron, a brother of Moses. Because Moses was halting in speech, Aaron became his spokesman. They were very close associates and went through many trials together. The Lord chose to give Aaron’s name to the Aaronic Priesthood.
+I am well aware that all here tonight know what the Aaronic Priesthood is. Nevertheless, may I refresh our memories. The name *Aaronic Priesthood* comes from Aaron, a brother of Moses. Because Moses was halting in speech, Aaron became his spokesman. They were very close associates and went through many trials together. The Lord chose to give Aaron’s name to the Aaronic Priesthood.
 
 I would think the most important event in all history in exercising this priesthood was when John the Baptist baptized the Savior in the river Jordan. The next most important event took place on May 15, 1829, when the same John the Baptist, now a heavenly messenger, laid his hands on the heads of Joseph Smith and Oliver Cowdery, saying,
 
-“Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins; and this shall never be taken again from the earth, until the sons of Levi do offer again an offering unto the Lord in righteousness.” (D&C 13.)
+“Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins; and this shall never be taken again from the earth, until the sons of Levi do offer again an offering unto the Lord in righteousness.” ([[D&C 13.1|D&C 13]][[D&C 13.2|]][[D&C 13.3|]][[D&C 13.4|]][[D&C 13.5|]][[D&C 13.6|]][[D&C 13.7|]][[D&C 13.8|]][[D&C 13.9|]][[D&C 13.10|]][[D&C 13.11|]][[D&C 13.12|]][[D&C 13.13|]][[D&C 13.14|]][[D&C 13.15|]][[D&C 13.16|]][[D&C 13.17|]][[D&C 13.18|]][[D&C 13.19|]][[D&C 13.20|]][[D&C 13.21|]][[D&C 13.22|]][[D&C 13.23|]][[D&C 13.24|]][[D&C 13.25|]][[D&C 13.26|]][[D&C 13.27|]][[D&C 13.28|]][[D&C 13.29|]][[D&C 13.30|]][[D&C 13.31|]][[D&C 13.32|]][[D&C 13.33|]][[D&C 13.34|]][[D&C 13.35|]][[D&C 13.36|]][[D&C 13.37|]][[D&C 13.38|]][[D&C 13.39|]][[D&C 13.40|]][[D&C 13.41|]][[D&C 13.42|]][[D&C 13.43|]][[D&C 13.44|]][[D&C 13.45|]][[D&C 13.46|]][[D&C 13.47|]][[D&C 13.48|]][[D&C 13.49|]][[D&C 13.50|]][[D&C 13.51|]][[D&C 13.52|]][[D&C 13.53|]][[D&C 13.54|]][[D&C 13.55|]][[D&C 13.56|]][[D&C 13.57|]][[D&C 13.58|]][[D&C 13.59|]][[D&C 13.60|]][[D&C 13.61|]][[D&C 13.62|]][[D&C 13.63|]][[D&C 13.64|]][[D&C 13.65|]][[D&C 13.66|]][[D&C 13.67|]][[D&C 13.68|]][[D&C 13.69|]][[D&C 13.70|]][[D&C 13.71|]][[D&C 13.72|]][[D&C 13.73|]][[D&C 13.74|]].)
 
 If we just had the capacity to understand the full meaning of the holding of the keys of the ministering of angels and of the gospel of repentance and of baptism by immersion for the remission of sins, I believe every young man who has gone into the waters of baptism would look forward to receiving the Aaronic Priesthood with all his heart and would do everything in his power to become worthy of it. I am confident there are some who feel this way, but there are many who do not.
 
@@ -19,11 +20,11 @@ Each bishop should know exactly how many boys in his ward have not been ordained
 
 As leaders, what are our attitudes toward percentages as they relate to active versus inactive? You have probably heard the story of the father who had four daughters. As each of them left on a date one evening, he cautioned them to be home by midnight. The first returned at 11:45; the next, at 11:50; and a third came in at midnight, whereupon he locked the doors, turned out the lights, and went to bed. When his wife reminded him that Mary had not come in yet, he said with great satisfaction, “Seventy-five percent of them are home—isn’t that a pretty good percentage?”
 
-It is so easy to love those who are active and responsive and sometimes so difficult to do the same for those who are inactive and rebellious. To help us be successful leaders of youth, the Lord gave us a lesson we should learn well. It is the story of the prodigal son found in Luke 15:11–32.
+It is so easy to love those who are active and responsive and sometimes so difficult to do the same for those who are inactive and rebellious. To help us be successful leaders of youth, the Lord gave us a lesson we should learn well. It is the story of the prodigal son found in [[Luke 15.11|Luke 15:11–32]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]].
 
 You will remember that a father divided his wealth between his two sons, the younger of whom “took his journey into a far country, and there wasted his substance with riotous living.” When famine came, he tended hogs for a rich man, eating from what he fed the animals.
 
-“And when he came to himself, he said, How many hired servants of my father’s have bread enough and to spare, and I perish with hunger! ...
+“And when he came to himself, he said, How many hired servants of my father’s have bread enough and to spare, and I perish with hunger! …
 
 “And he arose, and came to his father. But when he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him.
 
@@ -77,11 +78,14 @@ His son responded that it was adequate, but he had a friend at school who was ve
 
 A short time before this, he had asked his mother to pack larger lunches for him. She did so, thinking that as a growing teenager he was just extra hungry. He confessed to his father he had been sharing his lunch with this same friend, who otherwise would have gone hungry.
 
-The father was obviously touched by his son’s thoughtfulness but asked the reason for such action. The boy replied, “We studied the lesson of the Good Samaritan a few weeks ago. I wanted to know the real meaning of this lesson by being a good Samaritan, not just learning about one.” (See “Profiting for Others,” New Era, June 1979, p. 50.)
+The father was obviously touched by his son’s thoughtfulness but asked the reason for such action. The boy replied, “We studied the lesson of the Good Samaritan a few weeks ago. I wanted to know the real meaning of this lesson by being a good Samaritan, not just learning about one.” (See “Profiting for Others,” *New Era,* June 1979, p. 50.)
 
 When a young man participates in this kind of spiritual experience, his life changes. The priesthood means something to him that it did not mean before, and the chances are he will always be an active priesthood bearer. Such internalizing of the teachings of the Savior in the heart of any boy can become a protection from the evils of the world.
 
-There is no magic formula I know of which will cause an inactive boy to become active. It takes interested, caring, loving, consistent leadership on the part of adults and the quorum president, with the help of the quorum members. Whatever they do must be appealing, meaningful, and must result in a fulfilling experience. Fun and games will not save any boy. They may help him feel good about his association, but if he does not gain a testimony of the truthfulness of the gospel which causes him to live the gospel, we will have missed the mark as leaders.
+There is no magic formula I know of which will cause an inactive boy to become active. It takes interested, caring, loving, consistent leadership on the part of adults and the quorum president, with the help of the quorum members. Whatever they do must be appealing, meaningful, and must result in a fulfilling experience. *Fun and games will not save any boy.* They may help him feel good about his association, but if he does not gain a testimony of the truthfulness of the gospel which causes him to live the gospel, we will have missed the mark as leaders.
 
 May we be so perceptive as to look through the window of each boy’s heart and then have the wisdom to reach out, take his hand, and walk beside him on the pathway to exaltation and eternal life, I pray in the name of Jesus Christ, amen.
+
+
+
 

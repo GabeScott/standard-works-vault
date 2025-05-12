@@ -1,7 +1,10 @@
 # Counsel to the Saints and to the World
-*By Joseph Fielding Smith - President of the Church*
+
+By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1972 General Conference*
+
+>*Address delivered at the Thursday morning session of general conference, April 6, 1972*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/04/counsel-to-the-saints-and-to-the-world?lang=eng)
 
@@ -23,7 +26,7 @@ And so we invite all our Father’s children, everywhere, to believe in Christ, 
 
 To the honest in heart in all nations we say: The Lord loves you. He wants you to receive the full blessings of the gospel. He is now inviting you to believe the Book of Mormon, to accept Joseph Smith as a prophet, and to come into his earthly kingdom and thereby become heirs of eternal life in his heavenly kingdom.
 
-To those who have received the gospel we say: Keep the commandments. Walk in the light. Endure to the end. Be true to every covenant and obligation, and the Lord will bless you beyond your fondest dreams. As it was said by one of old: “Let us hear the conclusion of the whole matter: Fear God, and keep his commandments: for this is the whole duty of man.” (Eccl. 12:13.)
+To those who have received the gospel we say: Keep the commandments. Walk in the light. Endure to the end. Be true to every covenant and obligation, and the Lord will bless you beyond your fondest dreams. As it was said by one of old: “Let us hear the conclusion of the whole matter: Fear God, and keep his commandments: for this is the whole duty of man.” ([[Ecclesiastes 12.13|Eccl. 12:13]].)
 
 To all the families in Israel we say: The family is the most important organization in time or in eternity. Our purpose in life is to create for ourselves eternal family units. There is nothing that will ever come into your family life that is as important as the sealing blessings of the temple and then keeping the covenants made in connection with this order of celestial marriage.
 
@@ -31,15 +34,15 @@ To parents in the Church we say: Love each other with all your hearts. Keep the 
 
 It is the will of the Lord to strengthen and preserve the family unit. We plead with fathers to take their rightful place as the head of the house. We ask mothers to sustain and support their husbands and to be lights to their children.
 
-President Joseph F. Smith said: “Motherhood lies at the foundation of happiness in the home, and of prosperity in the nation. God has laid upon men and women very sacred obligations with respect to motherhood, and they are obligations that cannot be disregarded without invoking divine displeasure.” (Gospel Doctrine [Deseret Book, 1939], p. 288.) Also, “To be a successful father or a successful mother is greater than to be a successful general or a successful statesman.” (Ibid., p. 285.)
+President Joseph F. Smith said: “Motherhood lies at the foundation of happiness in the home, and of prosperity in the nation. God has laid upon men and women very sacred obligations with respect to motherhood, and they are obligations that cannot be disregarded without invoking divine displeasure.” (*Gospel Doctrine* \[Deseret Book, 1939\], p. 288.) Also, “To be a successful father or a successful mother is greater than to be a successful general or a successful statesman.” (Ibid., p. 285.)
 
 To the youth of Zion we say: The Lord bless you and keep you, which most assuredly will be so as you learn his laws and live in harmony with them. Be true to every trust. Honor thy father and thy mother. Dwell together in love and conformity. Be modest in your dress. Overcome the world, and do not be led astray by the fashions and practices of those whose interests are centered upon the things of this world.
 
-Marry in the temple, and live joyous and righteous lives. Remember the words of Alma: “Wickedness never was happiness.” (Alma 41:10.) Remember also that our hope for the future and the destiny of the Church and the cause of righteousness rest in your hands.
+Marry in the temple, and live joyous and righteous lives. Remember the words of Alma: “Wickedness never was happiness.” ([[Alma 41.10|Alma 41:10]].) Remember also that our hope for the future and the destiny of the Church and the cause of righteousness rest in your hands.
 
 To those who are called to positions of trust and responsibility in the Church we say: Preach the gospel in plainness and simplicity as it is found in the standard works of the Church. Testify of the truth of the work and the doctrines revealed anew in our day.
 
-Remember the words of the Lord Jesus Christ, who said, “I am among you as he that serveth” (Luke 22:27), and choose to serve with an eye single to the glory of God. Visit the fatherless and the widows in their affliction, and keep yourself unspotted from the sins of the world.
+Remember the words of the Lord Jesus Christ, who said, “I am among you as he that serveth” ([[Luke 22.27|Luke 22:27]]), and choose to serve with an eye single to the glory of God. Visit the fatherless and the widows in their affliction, and keep yourself unspotted from the sins of the world.
 
 Now there is much more that the Lord would have us hear and know and do, and I shall rely upon President Lee and President Tanner, upon the members of the Council of the Twelve and the other General Authorities to counsel further with you by the power of the Spirit about these things.
 
@@ -50,4 +53,7 @@ I know by the revelations of the Holy Ghost to my soul that God our Heavenly Fat
 I know and testify that the Lord’s purposes on earth shall prevail. The Church of Jesus Christ of Latter-day Saints is here to stay. The Lord’s work shall triumph. No power on earth can prevent the spread of truth and the preaching of the gospel in every nation.
 
 I feel to thank the Lord for his goodness and grace, for all the blessings he has showered upon us so abundantly; and I pray that we may all be worthy to receive the eternal fullness which he offers his saints through the gospel of his Son, and I do this in the name of Jesus Christ. Amen.
+
+
+
 

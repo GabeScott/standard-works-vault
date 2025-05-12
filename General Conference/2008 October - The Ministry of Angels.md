@@ -1,35 +1,38 @@
 # The Ministry of Angels
-*By Jeffrey R. Holland - Of the Quorum of the Twelve Apostles*
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
 
+>*God never leaves us alone, never leaves us unaided in the challenges that we face.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/10/the-ministry-of-angels?lang=eng)
 
-When Adam and Eve willingly stepped into mortality, they knew this telestial world would contain thorns and thistles and troubles of every kind. Perhaps their most challenging realization, however, was not the hardship and danger they would endure but the fact that they would now be distanced from God, separated from Him with whom they had walked and talked, who had given them face-to-face counsel. After this conscious choice, as the record of creation says, “they saw him not; for they were shut out from his presence.” Amidst all else that must have troubled them, surely this must have troubled them the most.
+When Adam and Eve willingly stepped into mortality, they knew this telestial world would contain thorns and thistles and troubles of every kind. Perhaps their most challenging realization, however, was not the hardship and danger they would endure but the fact that they would now be distanced from God, separated from Him with whom they had walked and talked, who had given them face-to-face counsel. After this conscious choice, as the record of creation says, “they saw him not; for they were shut out from his presence.”[^1] Amidst all else that must have troubled them, surely this must have troubled them the most.
 
-But God knew the challenges they would face, and He certainly knew how lonely and troubled they would sometimes feel. So He watched over His mortal family constantly, heard their prayers always, and sent prophets (and later apostles) to teach, counsel, and guide them. But in times of special need, He sent angels, divine messengers, to bless His children, reassure them that heaven was always very close and that His help was always very near. Indeed, shortly after Adam and Eve found themselves in the lone and dreary world, an angel appeared unto them, who taught them the meaning of their sacrifice and the atoning role of the promised Redeemer who was to come.
+But God knew the challenges they would face, and He certainly knew how lonely and troubled they would sometimes feel. So He watched over His mortal family constantly, heard their prayers always, and sent prophets (and later apostles) to teach, counsel, and guide them. But in times of special need, He sent angels, divine messengers, to bless His children and reassure them that heaven was always very close and that His help was always very near. Indeed, shortly after Adam and Eve found themselves in the lone and dreary world, an angel appeared unto them,[^2] who taught them the meaning of their sacrifice and the atoning role of the promised Redeemer who was to come.
 
-When the time for this Savior’s advent was at hand, an angel was sent to announce to Mary that she was to be the mother of the Son of God. Then a host of angels was commissioned to sing on the night the baby Jesus was born. Shortly thereafter an angel would announce to Joseph that the newborn baby was in danger and that this little family must flee to Egypt for safety. When it was safe to return, an angel conveyed that information to the family and the three returned to the land of their heritage.
+When the time for this Savior’s advent was at hand, an angel was sent to announce to Mary that she was to be the mother of the Son of God.[^3] Then a host of angels was commissioned to sing on the night the baby Jesus was born.[^4] Shortly thereafter an angel would announce to Joseph that the newborn baby was in danger and that this little family must flee to Egypt for safety.[^5] When it was safe to return, an angel conveyed that information to the family and the three returned to the land of their heritage.[^6]
 
 From the beginning down through the dispensations, God has used angels as His emissaries in conveying love and concern for His children. Time in this setting does not allow even a cursory examination of the scriptures or our own latter-day history, which are so filled with accounts of angels ministering to those on earth, but it is rich doctrine and rich history indeed.
 
-Usually such beings are not seen. Sometimes they are. But seen or unseen they are always near. Sometimes their assignments are very grand and have significance for the whole world. Sometimes the messages are more private. Occasionally the angelic purpose is to warn. But most often it is to comfort, to provide some form of merciful attention, guidance in difficult times. When in Lehi’s dream he found himself in a frightening place, “a dark and dreary waste,” as he described it, he was met by an angel, “a man ... dressed in a white robe; ... he spake unto me,” Lehi said, “and bade me follow him.” Lehi did follow him to safety and ultimately to the path of salvation.
+Usually such beings are *not* seen. Sometimes they are. But seen or unseen, they are *always* near. Sometimes their assignments are very grand and have significance for the whole world. Sometimes the messages are more private. Occasionally the angelic purpose is to warn. But most often it is to comfort, to provide some form of merciful attention, guidance in difficult times. When in Lehi’s dream he found himself in a frightening place, “a dark and dreary waste,” as he described it, he was met by an angel, “a man … dressed in a white robe; … he spake unto me,” Lehi said, “and bade me follow him.”[^7] Lehi did follow him to safety and ultimately to the path of salvation.
 
-In the course of life all of us spend time in “dark and dreary” places, wildernesses, circumstances of sorrow or fear or discouragement. Our present day is filled with global distress over financial crises, energy problems, terrorist attacks, and natural calamities. These translate into individual and family concerns not only about homes in which to live and food available to eat but also about the ultimate safety and well-being of our children and the latter-day prophecies about our planet. More serious than these—and sometimes related to them—are matters of ethical, moral, and spiritual decay seen in populations large and small, at home and abroad. But I testify that angels are still sent to help us, even as they were sent to help Adam and Eve, to help the prophets, and indeed to help the Savior of the world Himself. Matthew records in his gospel that after Satan had tempted Christ in the wilderness “angels came and ministered unto him.” Even the Son of God, a God Himself, had need for heavenly comfort during His sojourn in mortality. And so such ministrations will be to the righteous until the end of time. As Mormon said to his son Moroni, who would one day be an angel:
+In the course of life all of us spend time in “dark and dreary” places, wildernesses, circumstances of sorrow or fear or discouragement. Our present day is filled with global distress over financial crises, energy problems, terrorist attacks, and natural calamities. These translate into individual and family concerns not only about homes in which to live and food available to eat but also about the ultimate safety and well-being of our children and the latter-day prophecies about our planet. More serious than these—and sometimes related to them—are matters of ethical, moral, and spiritual decay seen in populations large and small, at home and abroad. But I testify that angels are *still* sent to help *us,* even as they were sent to help Adam and Eve, to help the prophets, and indeed to help the Savior of the world Himself. Matthew records in his gospel that after Satan had tempted Christ in the wilderness, “angels came and ministered unto him.”[^8] Even the Son of God, a God Himself, had need for heavenly comfort during His sojourn in mortality. And so such ministrations will be to the righteous until the end of time. As Mormon said to his son Moroni, who would one day *be* an angel:
 
 “Has the day of miracles ceased?
 
 “Or have angels ceased to appear unto the children of men? Or has he withheld the power of the Holy Ghost from them? Or will he, so long as time shall last, or the earth shall stand, or there shall be one man upon the face thereof to be saved?
 
-“Behold I say unto you, Nay; for ... it is by faith that angels appear and minister unto men. ...
+“Behold I say unto you, Nay; for … it is by faith that angels appear and minister unto men.”
 
-“For behold, they are subject unto [Christ], to minister according to the word of his command, showing themselves unto them of strong faith and a firm mind in every form of godliness.”
+“For behold, they are subject unto \[Christ\], to minister according to the word of his command, showing themselves unto them of strong faith and a firm mind in every form of godliness.”[^9]
 
-I ask everyone within the sound of my voice to take heart, be filled with faith, and remember the Lord has said He “would fight [our] battles, [our] children’s battles, and [the battles of our] children’s children.” And what do we do to merit such a defense? We are to “search diligently, pray always, and be believing[. Then] all things shall work together for [our] good, if [we] walk uprightly and remember the covenant wherewith [we] have covenanted.” The latter days are not a time to fear and tremble. They are a time to be believing and remember our covenants.
+I ask everyone within the sound of my voice to take heart, be filled with faith, and remember the Lord has said He “would fight \[*our*\] battles, \[our\] children’s battles, and \[the battles of our\] children’s children.”[^10] And what do we do to merit such a defense? We are to “search diligently, pray always, and be believing, and \[then\] all things shall work together for \[our\] good, if \[we\] walk uprightly and remember the covenant wherewith \[we\] have covenanted.”[^11] The latter days are *not* a time to fear and tremble. They *are* a time to be believing and remember our covenants.
 
-I have spoken here of heavenly help, of angels dispatched to bless us in time of need. But when we speak of those who are instruments in the hand of God, we are reminded that not all angels are from the other side of the veil. Some of them we walk with and talk with—here, now, every day. Some of them reside in our own neighborhoods. Some of them gave birth to us, and in my case, one of them consented to marry me. Indeed heaven never seems closer than when we see the love of God manifested in the kindness and devotion of people so good and so pure that angelic is the only word that comes to mind. Elder James Dunn, from this pulpit just moments ago, used that word in his invocation to describe this Primary choir—and why not? With the spirit, faces, and voices of those children in our mind and before our eyes, may I share with you an account by my friend and BYU colleague, the late Clyn D. Barrus. I do so with the permission of his wife, Marilyn, and their family.
+I have spoken here of heavenly help, of angels dispatched to bless us in time of need. But when we speak of those who are instruments in the hand of God, we are reminded that not all angels are from the other side of the veil. Some of them we walk with and talk with—here, now, every day. Some of them reside in our own neighborhoods. Some of them gave birth to us, and in my case, one of them consented to marry me. Indeed heaven never seems closer than when we see the love of God manifested in the kindness and devotion of people so good and so pure that *angelic* is the only word that comes to mind. Elder James Dunn, from this pulpit just moments ago, used that word in his invocation to describe this Primary choir—and why not? With the spirit, faces, and voices of those children in our mind and before our eyes, may I share with you an account by my friend and BYU colleague, the late Clyn D. Barrus. I do so with the permission of his wife, Marilyn, and their family.
 
-Referring to his childhood on a large Idaho farm, Brother Barrus spoke of his nightly assignment to round up the cows at milking time. Because the cows pastured in a field bordered by the occasionally treacherous Teton River, the strict rule in the Barrus household was that during the spring flood season the children were never to go after any cows who ventured across the river. They were always to return home and seek mature help.
+Referring to his childhood on a large Idaho farm, Brother Barrus spoke of his nightly assignment to round up the cows at milking time. Because the cows pastured in a field bordered by the occasionally treacherous Teton River, the strict rule in the Barrus household was that during the spring flood season, the children were *never* to go after any cows who ventured across the river. They were always to return home and seek mature help.
 
 One Saturday just after his seventh birthday, Brother Barrus’s parents promised the family a night at the movies if the chores were done on time. But when young Clyn arrived at the pasture, the cows he sought had crossed the river, even though it was running at high flood stage. Knowing his rare night at the movies was in jeopardy, he decided to go after the cows himself, even though he had been warned many times never to do so.
 
@@ -45,9 +48,42 @@ Here I turn to Brother Barrus’s own words:
 
 “Then a familiar voice said, ‘Son, I’ve been looking for you.’ In the darkness I recognized the voice of my father and ran to his outstretched arms. He held me tightly, then said gently, ‘I was worried. I’m glad I found you.’
 
-“I tried to tell him how sorry I was, but only disjointed words came out of my trembling lips—‘Thank you ... darkness ... afraid ... river ... alone.’ Later that night I learned that when I had not returned from the pasture, my father had come looking for me. When neither I nor the cows were to be found, he knew I had crossed the river and was in danger. Because it was dark and time was of the essence, he removed his clothes down to his long white thermal underwear, tied his shoes around his neck, and swam a treacherous river to rescue a wayward son.”
+“I tried to tell him how sorry I was, but only disjointed words came out of my trembling lips—‘Thank you … darkness … afraid … river … alone.’ Later that night I learned that when I had not returned from the pasture, my father had come looking for me. When neither I nor the cows were to be found, he knew I had crossed the river and was in danger. Because it was dark and time was of the essence, he removed his clothes down to his long white thermal underwear, tied his shoes around his neck, and swam a treacherous river to rescue a wayward son.”[^12]
 
-My beloved brothers and sisters, I testify of angels, both the heavenly and the mortal kind. In doing so I am testifying that God never leaves us alone, never leaves us unaided in the challenges that we face. “[N]or will he, so long as time shall last, or the earth shall stand, or there shall be one man [or woman or child] upon the face thereof to be saved.” On occasions, global or personal, we may feel we are distanced from God, shut out from heaven, lost, alone in dark and dreary places. Often enough that distress can be of our own making, but even then the Father of us all is watching and assisting. And always there are those angels who come and go all around us, seen and unseen, known and unknown, mortal and immortal.
+My beloved brothers and sisters, I testify of angels, both the heavenly and the mortal kind. In doing so I am testifying that God never leaves us alone, never leaves us unaided in the challenges that we face. “\[Nor\] will he, so long as time shall last, or the earth shall stand, or there shall be one man \[or woman or child\] upon the face thereof to be saved.”[^13] On occasions, global or personal, we may feel we are distanced from God, shut out from heaven, lost, alone in dark and dreary places. Often enough that distress can be of our own making, but even then the Father of us all is watching and assisting. And always there are those angels who come and go all around us, seen and unseen, known and unknown, mortal and immortal.
 
-May we all believe more readily in, and have more gratitude for, the Lord’s promise as contained in one of President Monson’s favorite scriptures: “I will go before your face. I will be on your right hand and on your left, ... my Spirit shall be in your [heart], and mine angels round about you, to bear you up.” In the process of praying for those angels to attend us, may we all try to be a little more angelic ourselves—with a kind word, a strong arm, a declaration of faith and “the covenant wherewith [we] have covenanted.” Perhaps then we can be emissaries sent from God when someone, perhaps a Primary child, is crying, “Darkness ... afraid ... river ... alone.” To this end I pray in the sacred name of Jesus Christ, amen.
+May we all believe more readily in, and have more gratitude for, the Lord’s promise as contained in one of President Monson’s favorite scriptures: “I will go before your face. I will be on your right hand and on your left, … my Spirit shall be in your \[heart\], and mine angels round about you, to bear you up.”[^14] In the process of praying for those angels to attend us, may we all try to be a little more angelic ourselves—with a kind word, a strong arm, a declaration of faith and “the covenant wherewith \[we\] have covenanted.”[^15] Perhaps then *we* can be emissaries sent from God when someone, perhaps a Primary child, is crying, “Darkness … afraid … river … alone.” To this end I pray in the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Moses 5.4|Moses 5:4]].
+
+[^2]: See [[Moses 5.6|Moses 5:6–8]][[Moses 5.7|]][[Moses 5.8|]].
+
+[^3]: See [[Luke 1.26|Luke 1:26–38]][[Luke 1.27|]][[Luke 1.28|]][[Luke 1.29|]][[Luke 1.30|]][[Luke 1.31|]][[Luke 1.32|]][[Luke 1.33|]][[Luke 1.34|]][[Luke 1.35|]][[Luke 1.36|]][[Luke 1.37|]][[Luke 1.38|]].
+
+[^4]: See [[Luke 2.8|Luke 2:8–14]][[Luke 2.9|]][[Luke 2.10|]][[Luke 2.11|]][[Luke 2.12|]][[Luke 2.13|]][[Luke 2.14|]].
+
+[^5]: See [[Matthew 2.13|Matthew 2:13–15]][[Matthew 2.14|]][[Matthew 2.15|]].
+
+[^6]: See [[Matthew 2.19|Matthew 2:19–23]][[Matthew 2.20|]][[Matthew 2.21|]][[Matthew 2.22|]][[Matthew 2.23|]].
+
+[^7]: [[1 Nephi 8.7|1 Nephi 8:7, 5–6]][[1 Nephi 8.5|]][[1 Nephi 8.6|]].
+
+[^8]: [[Matthew 4.11|Matthew 4:11]].
+
+[^9]: [[Moroni 7.35|Moroni 7:35–37, 30]][[Moroni 7.36|]][[Moroni 7.37|]][[Moroni 7.30|]].
+
+[^10]: [[D&C 98.37|D&C 98:37]].
+
+[^11]: [[D&C 90.24|D&C 90:24]].
+
+[^12]: See Clyn D. Barrus, “Coming Home,” *Liahona,* Nov. 1995, F5–F7; *Friend,* Apr. 1995, 2–4.
+
+[^13]: [[Moroni 7.36|Moroni 7:36]].
+
+[^14]: [[D&C 84.88|D&C 84:88]].
+
+[^15]: [[D&C 90.24|D&C 90:24]].
 

@@ -1,7 +1,10 @@
 # Good-bye to This Wonderful Old Tabernacle
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1999 General Conference*
+
+>*The Spirit of the Lord has been in this \[Tabernacle\]. It is sacred unto us. We hope, we anticipate, we pray that the new \[Conference Center\] will likewise radiate the same spirit.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1999/10/good-bye-to-this-wonderful-old-tabernacle?lang=eng)
 
@@ -19,7 +22,7 @@ Sheeting was then applied on the roof, and this was covered with shingles. The i
 
 The scaffolding was removed and the roof remained solid. It has so remained for a century and a third, although the shingles were replaced with aluminum some years ago.
 
-It has served the needs of this Church and this community through all of these years. General conferences of the Church have been held here. The voices of prophets have spoken out from this podium. The law and the testimony have been quoted and declared. Numerous other Church meetings have been held here. In this magnificent old structure the funeral services of beloved leaders have been conducted. Presidents of the nation and other distinguished men have spoken from where I now stand. This has been home to the Tabernacle Choir since the structure was completed. More recently it has been home also to the Mormon Youth Chorus and Symphony. It was the first home of the Utah Symphony. Handel’s Messiah has been presented here over a period of many years. Countless concerts of various kinds, a variety of musical ensembles, and many distinguished soloists have all entertained the public in this great and singular hall.
+The Tabernacle has served the needs of this Church and this community through all of these years. General conferences of the Church have been held here. The voices of prophets have spoken out from this podium. The law and the testimony have been quoted and declared. Numerous other Church meetings have been held here. In this magnificent old structure the funeral services of beloved leaders have been conducted. Presidents of the nation and other distinguished men have spoken from where I now stand. This has been home to the Tabernacle Choir since the structure was completed. More recently it has been home also to the Mormon Youth Chorus and Symphony. It was the first home of the Utah Symphony. Handel’s *Messiah* has been presented here over a period of many years. Countless concerts of various kinds, a variety of musical ensembles, and many distinguished soloists have all entertained the public in this great and singular hall.
 
 What a remarkable and useful building it has been. What great purposes it has served. I know of no other structure like it in all the world.
 
@@ -27,7 +30,7 @@ It is true that with electronic means we can broadcast to wherever we wish to be
 
 The new hall, which we are erecting on the adjoining block and which we have named the Conference Center, will seat 21,000—with its adjoining theater, 22,000—nearly three and a half times the capacity of this Tabernacle. I do not know if we will fill it, but I do know that we have spoken to much larger gatherings of Latter-day Saints. For instance, in Santiago, Chile, we spoke to 57,500 in a great football stadium; in Buenos Aires, Argentina, to 50,000; in Manila in the Philippines, in a great coliseum, we spoke to 35,000 gathered under one roof.
 
-This Tabernacle will continue to be used for a great variety of purposes. It is expected that the Choir will go on originating its weekly broadcast here. This building will continue to accommodate various Church gatherings, public gatherings, and serve a variety of purposes.
+This Tabernacle will continue to be used for a great variety of purposes. It is expected that the choir will go on originating its weekly broadcast here. This building will continue to accommodate various Church gatherings, public gatherings, and serve a variety of purposes.
 
 The new hall will take some getting accustomed to. But it will be more pleasant. It will be air-conditioned. The seating will be more comfortable than these hard wooden pews. My fear is that too many will fall asleep. It is not of the same design as this Tabernacle, but it is also of a unique and wonderful kind. It represents the very latest in architectural and engineering skills. Parking will be improved.
 
@@ -48,4 +51,7 @@ Now I leave with words that have been spoken so often from this great assembly h
 God our Eternal Father lives. His Son, our Redeemer, the resurrected Savior of the world, lives. They appeared to the boy Joseph Smith to part the curtains in opening a great work of restoration, ushering in the dispensation of the fulness of times. The Book of Mormon is true. It speaks as a voice from the dust in testimony of the divinity of the Lord. The priesthood with its keys, its authority, and all of its blessings is upon the earth.
 
 And we are partakers of these precious gifts. And so, as we might say to an old friend, good-bye. May the blessings of God rest upon this sacred and wonderful hall. And may we, as those who have come here frequently to partake of the Spirit felt here, live worthy of the title Latter-day Saints is my humble prayer in the name of the Lord Jesus Christ, amen.
+
+
+
 

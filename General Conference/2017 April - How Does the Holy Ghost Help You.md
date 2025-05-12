@@ -1,7 +1,10 @@
 # How Does the Holy Ghost Help You?
-*By Gary E. Stevenson - Of the Quorum of the Twelve Apostles*
+
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
+
+>*The Holy Ghost warns, the Holy Ghost comforts, and the Holy Ghost testifies.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/04/how-does-the-holy-ghost-help-you?lang=eng)
 
@@ -11,7 +14,7 @@ Following the opening song, prayer, and family business, the nine-year-old began
 
 Since then, I have continued to ask myself, “How does the Holy Ghost help you?”—a question especially relevant for Primary children turning eight and preparing for baptism and for those children who have recently been baptized and received the gift of the Holy Ghost. It is also relevant for the thousands of recent converts.
 
-I invite each of us, especially Primary children, to consider, “How does the Holy Ghost help you?” As I pondered this question, I immediately reflected upon an experience from my youth. This is a story I related to Elder Robert D. Hales shortly after my call to the Quorum of the Twelve Apostles and which he included in a Church magazine article he wrote about my life. Some of you may have heard this story, but many may not have.
+I invite each of us, especially Primary children, to consider, “How does the Holy Ghost help you?” As I pondered this question, I immediately reflected upon an experience from my youth. This is a story I related to Elder Robert D. Hales shortly after my call to the Quorum of the Twelve Apostles and which he included in a Church magazine article he wrote about my life.[^1] Some of you may have heard this story, but many may not have.
 
 When I was about 11 years old, my father and I went hiking on a hot summer day in the mountains near our home. As Dad hiked up the steep trail, I jumped from one large rock to another along the sides of the trail. Intending to climb one of the large rocks, I began to clamber to the top of it. As I did so, I was surprised when my dad grabbed me by my belt and quickly pulled me down, saying, “Don’t climb on that rock. Let’s just keep on the trail.”
 
@@ -21,21 +24,27 @@ Later, as we were driving home, I knew Dad was waiting for me to ask, “How did
 
 Can you see how the Holy Ghost helped me? I am forever grateful that my father listened to the still, small voice of the Holy Ghost, as it may have saved my life.
 
+## What We Know about the Holy Ghost
+
 Before we further consider the question “How does the Holy Ghost help you?” let’s review some of what the Lord has revealed about the Holy Ghost. There are many eternal truths we could look at, but today I will highlight just three.
 
-First, the Holy Ghost is the third member of the Godhead. We learn this truth in the first article of faith: “We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost.”
+First, the Holy Ghost is the third member of the Godhead. We learn this truth in the first article of faith: “We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost.”[^2]
 
-Second, the Holy Ghost is a personage of spirit, as described in modern scripture: “The Father has a body of flesh and bones as tangible as man’s; the Son also; but the Holy Ghost has not a body of flesh and bones, but is a personage of Spirit. Were it not so, the Holy Ghost could not dwell in us.” This means that the Holy Ghost has a spirit body, unlike God the Father and Jesus Christ, who have physical bodies. This truth clarifies other names given to the Holy Ghost and familiar to us, including Holy Spirit, Spirit of God, Spirit of the Lord, Holy Spirit of Promise, and Comforter.
+Second, the Holy Ghost is a personage of spirit, as described in modern scripture: “The Father has a body of flesh and bones as tangible as man’s; the Son also; but the Holy Ghost has not a body of flesh and bones, but is a personage of Spirit. Were it not so, the Holy Ghost could not dwell in us.”[^3] This means that the Holy Ghost has a spirit body, unlike God the Father and Jesus Christ, who have physical bodies. This truth clarifies other names given to the Holy Ghost and familiar to us, including Holy Spirit, Spirit of God, Spirit of the Lord, Holy Spirit of Promise, and Comforter.[^4]
 
-Third, the gift of the Holy Ghost comes by the laying on of hands. This ordinance, following baptism, qualifies us for the constant companionship of the Holy Ghost. To perform this ordinance, worthy Melchizedek Priesthood holders place their hands upon the head of the individual, call him or her by name, state their priesthood authority, and in the name of Jesus Christ, confirm him or her a member of The Church of Jesus Christ of Latter-day Saints, and utter the important phrase “Receive the Holy Ghost.”
+Third, the gift of the Holy Ghost comes by the laying on of hands. This ordinance, following baptism, qualifies us for the constant companionship of the Holy Ghost.[^5] To perform this ordinance, worthy Melchizedek Priesthood holders place their hands upon the head of the individual,[^6] call him or her by name, state their priesthood authority, and in the name of Jesus Christ, confirm him or her a member of The Church of Jesus Christ of Latter-day Saints, and utter the important phrase “Receive the Holy Ghost.”
+
+## How Does the Holy Ghost Help You?
 
 With that simple review of three key truths about the Holy Ghost, we return to our first question: “How does the Holy Ghost help you?”
 
+### The Holy Ghost Warns
+
 As I described in my childhood experience, the Holy Ghost can help you by warning you in advance of physical and spiritual dangers. I learned again of the important warning role of the Holy Ghost while I served in the Area Presidency in Japan.
 
-During this time, I worked closely with President Reid Tateoka of the Japan Sendai Mission. As part of his usual mission routine, President Tateoka planned a meeting for missionary leaders in the southern portion of his mission. A few days prior to the meeting, President Tateoka had an impression, a feeling in his heart, to invite all missionaries of that zone to the leadership meeting, instead of the prescribed small number of elder and sister leaders.
+During this time, I worked closely with President Reid Tateoka of the Japan Sendai Mission. As part of his usual mission routine, President Tateoka planned a meeting for missionary leaders in the southern portion of his mission. A few days prior to the meeting, President Tateoka had an impression, a feeling in his heart, to invite *all* missionaries of that zone to the leadership meeting, instead of the prescribed small number of elder and sister leaders.
 
-When he announced his intention, he was reminded that this meeting was not designed for all missionaries but only for mission leaders. However, setting convention aside in order to follow the prompting he had received, he invited all missionaries serving in several coastal cities, including the city of Fukushima, to the meeting. On the appointed day, March 11, 2011, the missionaries gathered together for the expanded mission meeting in the inland city of Koriyama.
+When he announced his intention, he was reminded that this meeting was not designed for all missionaries but only for mission leaders. However, setting convention aside in order to follow the prompting he had received, he invited all missionaries serving in several coastal cities, including the city of Fukushima, to the meeting. On the appointed day, March 11, 2011, the missionaries gathered together for the expanded mission meeting in the inland city of Koriyama.
 
 During this meeting a 9.0-magnitude earthquake and tsunami struck the region of Japan where the Japan Sendai Mission is located. Tragically, many coastal cities—including those from which the missionaries had been gathered—were devastated and suffered great loss of life. And the city of Fukushima suffered a subsequent nuclear event.
 
@@ -45,7 +54,9 @@ As you heed promptings from the Holy Ghost—impressions most often quiet and st
 
 Brothers and sisters, the Holy Ghost will help you by warning you, as He did my father and President Tateoka.
 
-To continue answering the question “How does the Holy Ghost help you?” let’s now explore His role as Comforter. Unexpected events in all our lives cause sadness, pain, and disappointment. Yet, amid these trials, the Holy Ghost serves us in one of His important roles—as Comforter, which is actually one of His names. These peaceful, reassuring words from Jesus Christ describe this sacred role: “I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever.”
+### The Holy Ghost Comforts
+
+To continue answering the question “How does the Holy Ghost help you?” let’s now explore His role as Comforter. Unexpected events in all our lives cause sadness, pain, and disappointment. Yet, amid these trials, the Holy Ghost serves us in one of His important roles—as Comforter, which is actually one of His names. These peaceful, reassuring words from Jesus Christ describe this sacred role: “I will pray the Father, and he shall give you another Comforter, that he may abide with you for ever.”[^7]
 
 To illustrate this further, I share the true account of a family with five sons who moved from Los Angeles, California, USA, to a small community some years ago. The two oldest sons began playing high school sports and associating with friends, leaders, and coaches—many of whom were faithful members of the Church. These relationships helped lead to the baptism of Fernando, the oldest, and his next younger brother.
 
@@ -53,11 +64,13 @@ Fernando later moved away from home, where he continued his education and played
 
 Yet as deep as was Fernando’s pain, as well as that of Bayley’s parents and siblings, so too was the depth of contrasting peace and comfort that distilled upon them almost immediately. The Holy Ghost in His role as Comforter truly sustained Fernando through this incomprehensible affliction. The Spirit communicated an abiding peace that led Fernando to an attitude of forgiveness and love toward everyone involved in the tragic crash.
 
-Bayley’s parents called her brother who was serving as a missionary at the time of the accident. He described in a letter his feelings upon hearing the difficult news of his beloved sister: “It was amazing to hear your voices so calm in the midst of a tempest. I did not know what to say. ... All I could think of is my sister may not be there when I come home. ... I was comforted by your infallible testimonies of the Savior and His plan. The same sweet spirit that brings me to the verge of tears as I study and teach filled my heart. I was then comforted and reminded of the things that I know.”
+Bayley’s parents called her brother who was serving as a missionary at the time of the accident. He described in a letter his feelings upon hearing the difficult news of his beloved sister: “It was amazing to hear your voices so calm in the midst of a tempest. I did not know what to say. … All I could think of is my sister may not be there when I come home. … I was comforted by your infallible testimonies of the Savior and His plan. The same sweet spirit that brings me to the verge of tears as I study and teach filled my heart. I was then comforted and reminded of the things that I know.”[^8]
 
 The Holy Ghost will help you by comforting you, as He did Fernando and Bayley’s family.
 
-The Holy Ghost also testifies and bears witness of the Father and the Son and of all truth. The Lord, speaking to His disciples, said, “But when the Comforter is come, whom I will send unto you from the Father, ... he shall testify of me.”
+### The Holy Ghost Testifies
+
+The Holy Ghost also testifies and bears witness of the Father and the Son and of all truth.[^9] The Lord, speaking to His disciples, said, “But when the Comforter is come, whom I will send unto you from the Father, … he shall testify of me.”[^10]
 
 In order to describe the valuable role of the Holy Ghost as witness, I will continue the story of Fernando and Bayley. If you remember, I shared that Fernando and his brother had been baptized, but his parents and three younger brothers had not. And, despite receiving numerous invitations to meet with the missionaries over the years, each time the family declined.
 
@@ -69,11 +82,42 @@ Two months after the loss of Bayley and their unborn granddaughter, Fernando’s
 
 Brothers and sisters, the Holy Ghost will help you by testifying to you as He did to Fernando’s family.
 
+## Summary
+
 Let’s now summarize. We have identified three revealed truths that bring us to a knowledge of the Holy Ghost. These are that the Holy Ghost is the third member of the Godhead, the Holy Ghost is a personage of spirit, and the gift of the Holy Ghost comes by the laying on of hands. We also identified three answers to the question “How does the Holy Ghost help you?” The Holy Ghost warns, the Holy Ghost comforts, and the Holy Ghost testifies.
+
+## Worthiness to Keep the Gift
 
 For those of you who are preparing to be baptized and confirmed, those who recently have been, or even those who were a long time ago, it is vital to our physical and spiritual safety that we keep the gift of the Holy Ghost. We begin to do so by striving to keep the commandments, having individual and family prayer, reading the scriptures, and seeking loving and forgiving relationships with family and loved ones. We should keep our thoughts, actions, and language virtuous. We should worship our Heavenly Father in our homes, at church, and, whenever possible, in the holy temple. Stay close to the Spirit, and the Spirit will stay close to you.
 
-I now close with an invitation and my sure testimony. I invite you to more fully live the words sung so often by our Primary children, words I am sure they recognize: “Listen, listen. The Holy Ghost will whisper. Listen, listen to the still small voice.”
+## Testimony
 
-My dear brothers and sisters, old and young, I offer my witness of the glorious existence of the divine beings who constitute the Godhead: God the Father, Jesus Christ, and the Holy Ghost. I bear testimony that one of the privileges we enjoy as Latter-day Saints living in the fulness of times is the gift of the Holy Ghost. I know that the Holy Ghost does and will help you. I also add my special witness of Jesus Christ and His role as our Savior and Redeemer and of God as our Heavenly Father. In the name of Jesus Christ, amen.
+I now close with an invitation and my sure testimony. I invite you to more fully live the words sung so often by our Primary children, words I am sure they recognize: “Listen, listen. The Holy Ghost will whisper. Listen, listen to the still small voice.”[^11]
+
+My dear brothers and sisters, old and young, I offer my witness of the glorious existence of the divine beings who constitute the Godhead: God the Father, Jesus Christ, and the Holy Ghost. I bear testimony that one of the privileges we enjoy as Latter-day Saints living in the fulness of times is the gift of the Holy Ghost. I know that the Holy Ghost *does and will* help you. I also add my special witness of Jesus Christ and His role as our Savior and Redeemer and of God as our Heavenly Father. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: See Robert D. Hales, “[Elder Gary E. Stevenson: An Understanding Heart](https://churchofjesuschrist.org/study/liahona/2016/06/elder-gary-e-stevenson-an-understanding-heart?lang=eng),” *Ensign,* June 2016, 26; *Liahona,* June 2016, 14.
+
+[^2]: [[Articles of Faith 1.1|Articles of Faith 1:1]].
+
+[^3]: [[D&C 130.22|Doctrine and Covenants 130:22]].
+
+[^4]: See [[Mosiah 18.13|Mosiah 18:13]]; [[Alma 5.46|Alma 5:46]]; [[Alma 9.21|9:21]]; [[D&C 88.3|Doctrine and Covenants 88:3]].
+
+[^5]: See [[1 Nephi 13.37|1 Nephi 13:37]]; [[2 Nephi 31.12|2 Nephi 31:12]]; [[D&C 121.46|Doctrine and Covenants 121:46]].
+
+[^6]: See [[D&C 138.33|Doctrine and Covenants 138:33]].
+
+[^7]: [[John 14.16|John 14:16]].
+
+[^8]: Personal correspondence, Dec. 18, 2016.
+
+[^9]: See [[Hebrews 10.15|Hebrews 10:15]]; [[2 Nephi 31.18|2 Nephi 31:18]]; [[Jacob 4.13|Jacob 4:13]].
+
+[^10]: [[John 15.26|John 15:26]].
+
+[^11]: “The Still Small Voice,” *Children’s Songbook,* 107.
 

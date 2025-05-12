@@ -1,5 +1,6 @@
 # The Miracle of Missionary Work
-*By Milton R. Hunter - Of the Seventy*
+
+By President Milton R. Hunter - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -25,7 +26,7 @@ Second, the modern miracle of extensive missionary work occurs because in severa
 
 “Go ye into all the world, preach the gospel to every creature, acting in the authority which I have given you, baptizing in the name of the Father, and of the Son, and of the Holy Ghost.
 
-“And he that believeth and is baptized shall be saved, and he that believeth not shall be damned.” (D&C 68:8–9.)
+“And he that believeth and is baptized shall be saved, and he that believeth not shall be damned.” ([[D&C 68.8|D&C 68:8–9]][[D&C 68.9|]].)
 
 As I have toured missions, many missionaries, as well as converts, have reported to me unusual missionary experiences or miracles. A stake president in California told me the following missionary experience.
 
@@ -86,4 +87,7 @@ Such a sacrifice to render Christian service is certainly astounding. It is a mo
 In closing, I bear my testimony that the true Church of Jesus Christ has been restored to earth by the Savior and other heavenly beings to the Prophet Joseph Smith. Membership in this church and living in accordance with the revealed teachings therein is the only way back to God. This church marks out the pathway that mankind must follow to attain eternal life in the presence of the Father and the Son.
 
 In the name of Jesus Christ. Amen.
+
+
+
 

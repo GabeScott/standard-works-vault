@@ -1,5 +1,6 @@
 # Hanging On
-*By Loren C. Dunn - Of the Seventy*
+
+By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -45,29 +46,28 @@ The months passed and one day my secretary asked if I could take a minute to see
 
 I don’t know all the reasons the Lord tries us in this life, but there are two or three that come to mind. First, I think he wants to know whom he can trust. The Lord found he could trust Abraham because he was willing to offer his own son as a sacrifice if that was what the Lord wanted. Many thought that Zion’s Camp was a tragic waste of time, until it was later demonstrated that the Lord used this ordeal to find whom he could trust. He wanted to know who had roots of faith and testimony that reached deep into the ground and who had such shallow roots that the first wind of adversity would blow them over.
 
-Secondly, the Lord tells us in the Doctrine and Covenants section 122 that adversity came to Joseph Smith to give him experience. There is something about the eternal purpose of life that requires us to meet and experience trial and sorrow as we seek to overcome, for the Lord has told us also, “... for if they never should have bitter they could not know the sweet. ...” (D&C 29:39.)
+Secondly, the Lord tells us in the Doctrine and Covenants section 122 that adversity came to Joseph Smith to give him experience. There is something about the eternal purpose of life that requires us to meet and experience trial and sorrow as we seek to overcome, for the Lord has told us also, “… for if they never should have bitter they could not know the sweet. …” ([[D&C 29.39|D&C 29:39]].)
 
-Thirdly, I believe that only through such experiences can a person develop true charity. And I mean by charity the pure love of Christ.
+Thirdly, I believe that only through such experiences can a person develop true charity. And I mean by *charity* the pure love of Christ.
 
-Let me read the following from Moroni in the Book of Mormon: “... if a man be meek and lowly in heart, and confesses by the power of the Holy Ghost that Jesus is the Christ, he must needs have charity; for if he have not charity he is nothing; wherefore he must needs have charity.
+Let me read the following from Moroni in the Book of Mormon: “… if a man be meek and lowly in heart, and confesses by the power of the Holy Ghost that Jesus is the Christ, he must needs have charity; for if he have not charity he is nothing; wherefore he must needs have charity.
 
-“And charity suffereth long, and is kind, and envieth not, and is not puffed up, seeketh not her own, is not easily provoked, thinketh no evil, and rejoiceth not in iniquity but rejoiceth in the truth, beareth all things, believeth all things, hopeth all things, endureth all things.
+“And charity *suffereth long,* and is kind, and envieth not, and is not puffed up, seeketh not her own, is not easily provoked, thinketh no evil, and rejoiceth not in iniquity but rejoiceth in the truth, *beareth all things,* believeth all things, hopeth all things, *endureth all things.*
 
 “Wherefore, my beloved brethren, if ye have not charity, ye are nothing, for charity never faileth. Wherefore, cleave unto charity, which is the greatest of all, for all things must fail—
 
-“But charity is the pure love of Christ. ...” (Moro. 7:44–47. Italics added.)
+“But charity is the pure love of Christ. …” ([[Moroni 7.44|Moro. 7:44–47]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]]. Italics added.)
 
 May I say then to those who are now or will be facing deep trials: May the Lord bless you that you may continue to hang on. There is purpose in it all, and he has promised us that the severity of it all will not be greater than we can endure, for as the words of the song tell us:
 
-“When through fiery trials thy pathway shall lie,
+>“When through fiery trials thy pathway shall lie,
+>My grace, all sufficient, shall be thy supply.
+>The flame shall not hurt thee; I only design
+>Thy dross to consume and thy gold to refine.”
+>
 
-My grace, all sufficient, shall be thy supply.
+And finally this promise from the Master: “And again, be patient in tribulation until I come; and, behold, I come quickly, and my reward is with me, and they who have sought me early shall find rest to their souls. …” ([[D&C 54.10|D&C 54:10]].) In the name of Jesus Christ. Amen.
 
-The flame shall not hurt thee; I only design
 
-Thy dross to consume and thy gold to refine.”
 
-(“How Firm a Foundation,” LDS Hymns, no. 66.)
-
-And finally this promise from the Master: “And again, be patient in tribulation until I come; and, behold, I come quickly, and my reward is with me, and they who have sought me early shall find rest to their souls. ...” (D&C 54:10.) In the name of Jesus Christ. Amen.
 

@@ -1,11 +1,14 @@
 # We Bear Testimony to the World
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2006 General Conference*
 
+>*The Lord is richly blessing His Church, and our duty is to do all we can to move it forward.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/10/we-bear-testimony-to-the-world?lang=eng)
 
-My brothers and sisters, as we gather in another general conference, I am pleased to report that the Church continues to grow in strength and influence. In 1982, some 24 years ago, I noted this in my journal: “There will be in place for the October general conference more than 300 downlinks in our satellite service. This means that we will have more than 300 stake centers, where our people may gather across the nation and participate in the conference.”
+My brothers and sisters, as we gather in another general conference, I am pleased to report that the Church continues to grow in strength and influence. In 1982, some 24 years ago, I noted this in my journal: “There will be in place for the October general conference more than 300 downlinks in our satellite service. This means that we will have more than 300 stake centers where our people may gather across the nation and participate in the conference.”
 
 I am now advised that there are 6,066 Church-owned satellite receiving sites in 83 countries. How grateful I am that with our growth in numbers there is also an increased ability to reach out and communicate with the Latter-day Saints throughout the world.
 
@@ -26,4 +29,7 @@ However, the faithfulness of our people continues to be demonstrated in the paym
 Altogether, I can only report that the Lord is richly blessing His Church, and our duty is to do all we can to move it forward.
 
 Now, brothers and sisters, after the singing of the choir, we shall hear the remarks of our brethren and sisters. And as we proceed with this great conference, may the Spirit of the Lord dictate all that is done and said, and may our hearts and minds be filled to overflowing is my prayer, in the name of Jesus Christ, amen.
+
+
+
 

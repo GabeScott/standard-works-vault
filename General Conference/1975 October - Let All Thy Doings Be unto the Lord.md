@@ -1,5 +1,6 @@
 # Let All Thy Doings Be unto the Lord
-*By Gene R. Cook - Of the Seventy*
+
+By Elder Gene R. Cook - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -13,7 +14,10 @@ I would just share this one thought with you this afternoon, my brothers and sis
 
 “Yea, and cry unto God for all thy support; yea, let all thy doings be unto the Lord, and whithersoever thou goest let it be in the Lord; yea, let thy thoughts be directed unto the Lord; yea, let the affections of thy heart be placed upon the Lord forever.
 
-“Counsel with the Lord in all thy doings, and he will direct thee for good; yea, when thou liest down at night lie down unto the Lord, that he may watch over you in your sleep; and when thou risest in the morning let thy heart be full of thanks unto God; and if ye do these things, ye shall be lifted up at the last day.” (Alma 37:33, 36–37.)
+“Counsel with the Lord in all thy doings, and he will direct thee for good; yea, when thou liest down at night lie down unto the Lord, that he may watch over you in your sleep; and when thou risest in the morning let thy heart be full of thanks unto God; and if ye do these things, ye shall be lifted up at the last day.” ([[Alma 37.33|Alma 37:33, 36–37]][[Alma 37.36|]][[Alma 37.37|]].)
 
 My brothers and sisters, I bear witness to you that this is the church of Jesus Christ, that he is at the head, that he is the rock of our salvation, that our affections must be totally placed, all of them, upon the Lord. And I bear witness that if they are placed elsewhere, we will not receive that promise to be lifted up at the last day. I bear my witness with a surety that goes beyond words of those promptings that come that this is the true church of Jesus Christ, the only one upon the face of the whole earth, because the Lord has so declared it. I bear witness that President Kimball is a prophet of God and want to express to these good Brethren in front of me that I pledge all of my efforts, my time, and talents, and resources, and all that I have, for as long as they’re desired by the Lord or by these Brethren, to do whatever they would have me do. And I bear this witness in the name of Jesus Christ. Amen.
+
+
+
 

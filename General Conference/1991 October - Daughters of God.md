@@ -1,5 +1,6 @@
 # Daughters of God
-*By Gordon B. Hinckley - First Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1991 General Conference*
 
@@ -13,7 +14,7 @@ A few days ago, a letter came to the office addressed to President Benson. I wis
 
 “Dear President Benson,
 
-“My name is Virginia. I am fourteen years old, and a matter has been on my mind a lot lately. In the scriptures I could not seem to find anywhere whether women may enter into the celestial kingdom if they are worthy. Also, when someone such as Joseph Smith had a vision of the celestial kingdom, he only seemed to see men there. I have prayed about it, but felt that I needed your words. ... In the scriptures, they talk about a woman being blessed if she is righteous, but not about celestial glory. This truly bothers me. If we are all Heavenly Father’s children, then why do the scriptures say that men are to rule over women? And why in the scriptures was Eve created from Adam? I may be foolish, but I honestly do not understand. I love the gospel, and I am learning of its truth. I have a testimony, and I know that I have a divine purpose in life. But I suppose what I am asking is—are men more important than women? And can women go to the celestial kingdom also? ...
+“My name is Virginia. I am fourteen years old, and a matter has been on my mind a lot lately. In the scriptures I could not seem to find anywhere whether women may enter into the celestial kingdom if they are worthy. Also, when someone such as Joseph Smith had a vision of the celestial kingdom, he only seemed to see men there. I have prayed about it, but felt that I needed your words. … In the scriptures, they talk about a woman being blessed if she is righteous, but not about celestial glory. This truly bothers me. If we are all Heavenly Father’s children, then why do the scriptures say that men are to rule over women? And why in the scriptures was Eve created from Adam? I may be foolish, but I honestly do not understand. I love the gospel, and I am learning of its truth. I have a testimony, and I know that I have a divine purpose in life. But I suppose what I am asking is—are men more important than women? And can women go to the celestial kingdom also? …
 
 “I am still young and learning, and I need help in this matter. Thank you so much.
 
@@ -27,7 +28,7 @@ On February 16,1832, Joseph Smith and Sidney Rigdon were given a remarkable visi
 
 “For thus saith the Lord—I, the Lord, am merciful and gracious unto those who fear me, and delight to honor those who serve me in righteousness and in truth unto the end.
 
-“Great shall be their reward and eternal shall be their glory.” (D&C 76:5–6.)
+“Great shall be their reward and eternal shall be their glory.” ([[D&C 76.5|D&C 76:5–6]][[D&C 76.6|]].)
 
 I am satisfied that He speaks here of His daughters as well as His sons. Infinite shall be the reward of each, and everlasting shall be his or her glory.
 
@@ -37,41 +38,41 @@ In this same revelation, Joseph Smith and Sidney Rigdon bear eloquent testimony 
 
 “For we saw him, even on the right hand of God; and we heard the voice bearing record that he is the Only Begotten of the Father—
 
-“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten sons and daughters unto God.” (D&C 76:22–24; italics added.)
+“That by him, and through him, and of him, the worlds are and were created, and the inhabitants thereof are begotten *sons and daughters* unto God.” ([[D&C 76.22|D&C 76:22–24]][[D&C 76.23|]][[D&C 76.24|]]; italics added.)
 
 Note that in this tremendous declaration, both sons and daughters are mentioned.
 
-While it is true that in the verses which follow, man is spoken of, I am confident that the word is used in a generic sense to include both men and women.
+While it is true that in the verses which follow, *man* is spoken of, I am confident that the word is used in a generic sense to include both men and women.
 
-The revelation then speaks of those who receive the testimony of Jesus, who were baptized after the manner of His burial, and who keep the commandments, and promises that they “shall dwell in the presence of God and his Christ forever and ever.” (D&C 76:62.)
+The revelation then speaks of those who receive the testimony of Jesus, who were baptized after the manner of His burial, and who keep the commandments, and promises that they “shall dwell in the presence of God and his Christ forever and ever.” ([[D&C 76.62|D&C 76:62]].)
 
-“These are they whose bodies are celestial, whose glory is that of the sun, even the glory of God, the highest of all, whose glory the sun of the firmament is written of as being typical.” (D&C 76:70.)
+“These are they whose bodies are celestial, whose glory is that of the sun, even the glory of God, the highest of all, whose glory the sun of the firmament is written of as being typical.” ([[D&C 76.70|D&C 76:70]].)
 
 Are women included in those who shall partake of such glory? Most assuredly. As a matter of fact, in attaining the highest degree of glory in the celestial kingdom, the man cannot enter without the woman, neither can the woman enter without the man. The two are inseparable as husband and wife in eligibility for that highest degree of glory. If she lives worthy of it, hers will be a glory as celestial and eternal as his. Never doubt it, Virginia. Only live to be worthy of that glory which is available to you as well as to your brothers.
 
 Some who are not married, through no fault of their own, ask whether they will always be denied the highest degree of glory in that kingdom. I am confident that under the plan of a loving Father and a divine Redeemer, no blessing of which you are otherwise worthy will forever be denied you.
 
-Beyond the wonderful and descriptive words found in sections 76 and 137 [D&C 76; D&C 137] we know relatively little concerning the celestial kingdom and those who will be there. At least some of the rules of eligibility for acceptance into that kingdom are clearly set forth, but other than that, we are given little understanding. However, I repeat that I am confident that the daughters of God will be as eligible as will be the sons of God.
+Beyond the wonderful and descriptive words found in sections 76 and 137 \[[[D&C 76.1|D&C 76]][[D&C 76.2|]][[D&C 76.3|]][[D&C 76.4|]][[D&C 76.5|]][[D&C 76.6|]][[D&C 76.7|]][[D&C 76.8|]][[D&C 76.9|]][[D&C 76.10|]][[D&C 76.11|]][[D&C 76.12|]][[D&C 76.13|]][[D&C 76.14|]][[D&C 76.15|]][[D&C 76.16|]][[D&C 76.17|]][[D&C 76.18|]][[D&C 76.19|]][[D&C 76.20|]][[D&C 76.21|]][[D&C 76.22|]][[D&C 76.23|]][[D&C 76.24|]][[D&C 76.25|]][[D&C 76.26|]][[D&C 76.27|]][[D&C 76.28|]][[D&C 76.29|]][[D&C 76.30|]][[D&C 76.31|]][[D&C 76.32|]][[D&C 76.33|]][[D&C 76.34|]][[D&C 76.35|]][[D&C 76.36|]][[D&C 76.37|]][[D&C 76.38|]][[D&C 76.39|]][[D&C 76.40|]][[D&C 76.41|]][[D&C 76.42|]][[D&C 76.43|]][[D&C 76.44|]][[D&C 76.45|]][[D&C 76.46|]][[D&C 76.47|]][[D&C 76.48|]][[D&C 76.49|]][[D&C 76.50|]][[D&C 76.51|]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.55|]][[D&C 76.56|]][[D&C 76.57|]][[D&C 76.58|]][[D&C 76.59|]][[D&C 76.60|]][[D&C 76.61|]][[D&C 76.62|]][[D&C 76.63|]][[D&C 76.64|]][[D&C 76.65|]][[D&C 76.66|]][[D&C 76.67|]][[D&C 76.68|]][[D&C 76.69|]][[D&C 76.70|]][[D&C 76.71|]][[D&C 76.72|]][[D&C 76.73|]][[D&C 76.74|]][[D&C 76.75|]][[D&C 76.76|]][[D&C 76.77|]][[D&C 76.78|]][[D&C 76.79|]][[D&C 76.80|]][[D&C 76.81|]][[D&C 76.82|]][[D&C 76.83|]][[D&C 76.84|]][[D&C 76.85|]][[D&C 76.86|]][[D&C 76.87|]][[D&C 76.88|]][[D&C 76.89|]][[D&C 76.90|]][[D&C 76.91|]][[D&C 76.92|]][[D&C 76.93|]][[D&C 76.94|]][[D&C 76.95|]][[D&C 76.96|]][[D&C 76.97|]][[D&C 76.98|]][[D&C 76.99|]][[D&C 76.100|]][[D&C 76.101|]][[D&C 76.102|]][[D&C 76.103|]][[D&C 76.104|]][[D&C 76.105|]][[D&C 76.106|]][[D&C 76.107|]][[D&C 76.108|]][[D&C 76.109|]][[D&C 76.110|]][[D&C 76.111|]][[D&C 76.112|]][[D&C 76.113|]][[D&C 76.114|]][[D&C 76.115|]][[D&C 76.116|]][[D&C 76.117|]][[D&C 76.118|]][[D&C 76.119|]]; [[D&C 137.1|D&C 137]][[D&C 137.2|]][[D&C 137.3|]][[D&C 137.4|]][[D&C 137.5|]][[D&C 137.6|]][[D&C 137.7|]][[D&C 137.8|]][[D&C 137.9|]][[D&C 137.10|]]\] we know relatively little concerning the celestial kingdom and those who will be there. At least some of the rules of eligibility for acceptance into that kingdom are clearly set forth, but other than that, we are given little understanding. However, I repeat that I am confident that the daughters of God will be as eligible as will be the sons of God.
 
 This should be a glorious goal for every woman in the Church. It should be a constant motivation to live with honor, to live with integrity, to live with virtue, to live with love and service.
 
-Do not be disturbed, my dear young friend, by the fact that the word man and the word men are used in scripture without also mentioning the words woman and women. I emphasize that these terms are generic, including both sexes. They are so used in the scripture and have been used in other writings through the centuries of time.
+Do not be disturbed, my dear young friend, by the fact that the word *man* and the word *men* are used in scripture without also mentioning the words *woman* and *women.* I emphasize that these terms are generic, including both sexes. They are so used in the scripture and have been used in other writings through the centuries of time.
 
 For instance, the Declaration of Independence, which led eventually to the establishment of the United States of America, includes the words, “We hold these truths to be self-evident, that all Men are created equal.”
 
-Note that the writers used the word men. Do you suppose for one moment that they did not intend their declaration to include women also? They might have said, “All men, women, and children.” But they simply used the word men in its generic sense.1
+Note that the writers used the word *men.* Do you suppose for one moment that they did not intend their declaration to include women also? They might have said, “All men, women, and children.” But they simply used the word men in its generic sense.[^1]
 
 The next question you ask is why Eve was created from Adam.
 
 I can only respond that an all-wise Creator did it that way. However, as I have noted before, there is something very interesting about this situation.
 
-In the sequence of events as set forth in the scripture, God first created the earth, and the earth was without form, and void.” (Gen. 1:2.) He then separated the light from the darkness, and the waters from the land. Then came the creation of vegetation of all kinds, giving the beauty of trees and grass, flowers and shrubs. Then followed the creation of animal life in the sea and upon the land.
+In the sequence of events as set forth in the scripture, God first created the earth, and the earth was without form, and void.” ([[Genesis 1.2|Gen. 1:2]].) He then separated the light from the darkness, and the waters from the land. Then came the creation of vegetation of all kinds, giving the beauty of trees and grass, flowers and shrubs. Then followed the creation of animal life in the sea and upon the land.
 
 Having looked over all of this, He declared it to be good. He then created man in His own likeness and image. Then as His final creation, the crowning of His glorious work, He created woman. I like to regard Eve as His masterpiece after all that had gone before, the final work before He rested from His labors.
 
 I do not regard her as being in second place to Adam. She was placed at his side as an helpmeet. They were together in the Garden, they were expelled together, and they labored together in the world into which they were driven.
 
-Now, Virginia, you call attention to the statement in the scriptures that Adam should rule over Eve. (See Gen. 3:16.) You ask why this is so. I do not know. I regrettably recognize that some men have used this through centuries of time as justification for abusing and demeaning women. But I am confident also that in so doing they have demeaned themselves and offended the Father of us all, who, I am confident, loves His daughters just as He loves His sons.
+Now, Virginia, you call attention to the statement in the scriptures that Adam should rule over Eve. (See [[Genesis 3.16|Gen. 3:16]].) You ask why this is so. I do not know. I regrettably recognize that some men have used this through centuries of time as justification for abusing and demeaning women. But I am confident also that in so doing they have demeaned themselves and offended the Father of us all, who, I am confident, loves His daughters just as He loves His sons.
 
 I sat with President David O. McKay on one occasion when he talked about that statement in Genesis. His eyes flashed with anger as he spoke of despotic husbands and stated that they would have to make an accounting of their evil actions when they stand to be judged by the Lord. He indicated that the very essence of the spirit of the gospel demands that any governance in the home must be done only in righteousness.
 
@@ -85,9 +86,9 @@ You do have a divine purpose, indeed you do. There is that same element of divin
 
 You state that most scripture is addressed to men. Yes, some of it is, in a specific sense, with reference to priesthood duties and obligations, and some of it in a generic sense, as I have indicated.
 
-I remind you of a great and remarkable revelation given through the Prophet Joseph Smith to his wife Emma and applicable to every woman in the Church, for the Lord said in concluding this revelation “that this is my voice unto all.” (D&C 25:16.)
+I remind you of a great and remarkable revelation given through the Prophet Joseph Smith to his wife Emma and applicable to every woman in the Church, for the Lord said in concluding this revelation “that this is my voice unto all.” ([[D&C 25.16|D&C 25:16]].)
 
-In the first verse of this revelation the Lord states that “all those who receive my gospel are sons and daughters in my kingdom.” (D&C 25:1)
+In the first verse of this revelation the Lord states that “all those who receive my gospel are sons and daughters in my kingdom.” ([[D&C 25.1|D&C 25:1]])
 
 Great and true are these words of divine promise. The revelation which follows these opening words is rich in counsel, in praise, in instruction, and in promise to Emma Smith, and to every other woman who heeds the word of the Lord as set forth therein.
 
@@ -101,11 +102,11 @@ However, recently I heard that someone had secured a copy of my talk, looking up
 
 I am therefore on this occasion going to take the liberty of rereading that portion of the talk which pertains to a matter over which some few women of the Church appear to be greatly exercised. I give it to all, in this forum, because of the activities of a few who evidently are seeking to lead others in the paths which they are following. I speak of those who advocate the offering of prayers to our Mother in Heaven. I quote from that earlier address:
 
-“This [practice] began in private prayer and is beginning to spread to prayers offered in some of our meetings.
+“This \[practice\] began in private prayer and is beginning to spread to prayers offered in some of our meetings.
 
-“It was Eliza R. Snow who wrote the words: ‘Truth is reason; truth eternal / Tells me I’ve a mother there.’ (Hymns, 1985, no. 292.)
+“It was Eliza R. Snow who wrote the words: ‘Truth is reason; truth eternal / Tells me I’ve a mother there.’ (*Hymns,* 1985, no. 292.)
 
-“It has been said that the Prophet Joseph Smith made no correction to what Sister Snow had written. Therefore, we have a Mother in Heaven. Therefore, [some assume] that we may appropriately pray to her.
+“It has been said that the Prophet Joseph Smith made no correction to what Sister Snow had written. Therefore, we have a Mother in Heaven. Therefore, \[some assume\] that we may appropriately pray to her.
 
 “Logic and reason would certainly suggest that if we have a Father in Heaven, we have a Mother in Heaven. That doctrine rests well with me.
 
@@ -113,25 +114,25 @@ I am therefore on this occasion going to take the liberty of rereading that port
 
 “The Lord Jesus Christ set the pattern for our prayers. In the Sermon on the Mount, He declared:
 
-‘After this manner therefore pray ye: Our Father which art in heaven, Hallowed be thy name.’ (Matt. 6:9; italics added here and in following references.)
+‘After this manner therefore pray ye: Our *Father* which art in heaven, Hallowed be thy name.’ ([[Matthew 6.9|Matt. 6:9]]; italics added here and in following references.)
 
-“When the resurrected Lord appeared to the Nephites and taught them, He said: ‘After this manner therefore pray ye: Our Father who art in heaven, hallowed be thy name.’ (3 Ne. 13:9.)
+“When the resurrected Lord appeared to the Nephites and taught them, He said: ‘After this manner therefore pray ye: Our *Father* who art in heaven, hallowed be thy name.’ ([[3 Nephi 13.9|3 Ne. 13:9]].)
 
-“While He was among them, He further taught them by example and precept concerning this practice. The record states that ‘He himself also knelt upon the earth; and behold he prayed unto the Father, and the things which he prayed cannot be written, and the multitude did bear record who heard him.’ (3 Ne. 17:15.)
+“While He was among them, He further taught them by example and precept concerning this practice. The record states that ‘He himself also knelt upon the earth; and behold he prayed unto the *Father,* and the things which he prayed cannot be written, and the multitude did bear record who heard him.’ ([[3 Nephi 17.15|3 Ne. 17:15]].)
 
-“Furthermore, He said: ‘Pray in your families unto the Father, always in my name, that your wives and your children may be blessed.’ (3 Ne. 18:21.)
+“Furthermore, He said: ‘Pray in your families unto the *Father,* always in my name, that your wives and your children may be blessed.’ ([[3 Nephi 18.21|3 Ne. 18:21]].)
 
 “On another occasion, ‘Jesus departed out of the midst of them, and went a little way off from them and bowed himself to the earth, and he said:
 
-“‘Father, I thank thee that thou hast given the Holy Ghost unto these whom I have chosen; and it is because of their belief in me that I have chosen them out of the world.
+“‘*Father,* I thank thee that thou hast given the Holy Ghost unto these whom I have chosen; and it is because of their belief in me that I have chosen them out of the world.
 
-“‘Father, I pray thee that thou wilt give the Holy Ghost unto all them that shall believe in their words.’ (3 Ne. 19:19–21.)
+“‘*Father,* I pray thee that thou wilt give the Holy Ghost unto all them that shall believe in their words.’ ([[3 Nephi 19.19|3 Ne. 19:19–21]][[3 Nephi 19.20|]][[3 Nephi 19.21|]].)
 
 “And so I might continue with other specific instances from the scripture. Search as I have, I find nowhere in the standard works an account where Jesus prayed other than to His Father in Heaven or where He instructed the people to pray other than to His Father in Heaven.
 
 “I have looked in vain for any instance where any President of the Church, from Joseph Smith to Ezra Taft Benson, has offered a prayer to ‘our Mother in Heaven.’
 
-“I suppose those ... who use this expression and who try to further its use are well-meaning, but they are misguided. The fact that we do not pray to our Mother in Heaven in no way belittles or denigrates her.”
+“I suppose those … who use this expression and who try to further its use are well-meaning, but they are misguided. The fact that we do not pray to our Mother in Heaven in no way belittles or denigrates her.”
 
 That is the end of the quotation from the talk I gave earlier, to which I may add that none of us can add to or diminish the glory of her of whom we have no revealed knowledge.
 
@@ -142,4 +143,9 @@ I know that many of you carry terribly heavy burdens. May your associates in the
 May you be blessed with strength for the work of the day and with love for all who are entrusted to your care.
 
 You know this work is true, as do I. You know that God our Eternal Father lives and that His Son Jesus Christ, born of Mary as the Only Begotten of the Father, was and is the Redeemer of the world. You know that their work has been restored in this dispensation through the instrumentality of the Prophet Joseph Smith. You can bear testimony of that as I can and do, as I leave my love and my blessing upon you, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: I am aware of Abigail Adams’s correspondence with John Adams on this point. However, it does not follow that all of the fifty-six signers of the Declaration were of the same view. Subsequent generations have regarded *men* in its generic sense. I might have used various other examples on which there could be no question.
 

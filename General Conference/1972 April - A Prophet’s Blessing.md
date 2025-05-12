@@ -1,5 +1,6 @@
 # A Prophet’s Blessing
-*By Joseph Fielding Smith - President of the Church*
+
+By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -21,7 +22,10 @@ I am pleased with the growth and development of the Church, with the increased m
 
 I pray that the Lord will bless all the members of the Church; and by virtue of the keys and power which I hold, I bless the Saints—those who dwell in the household of faith, those who love and seek the Lord.
 
-What a glorious thing it is to have the saving truths of the everlasting gospel, to be members of “the only true and living church upon the face of the whole earth” (D&C 1:30), to be on the path leading to eternal life in our Father’s kingdom!
+What a glorious thing it is to have the saving truths of the everlasting gospel, to be members of “the only true and living church upon the face of the whole earth” ([[D&C 1.30|D&C 1:30]]), to be on the path leading to eternal life in our Father’s kingdom!
 
 O God our Heavenly and Eternal Father, look down in love and in mercy upon this thy church and upon the members of the church who keep thy commandments. Let thy Spirit dwell in our hearts forever; and when the trials and woes of this life are over, may we return to thy presence, with our loved ones, and dwell in thy house forever, I humbly pray, in the name of Jesus Christ. Amen.
+
+
+
 

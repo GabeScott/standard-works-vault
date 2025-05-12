@@ -1,5 +1,6 @@
 # This Is the Work of the Master
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1995 General Conference*
 
@@ -11,7 +12,7 @@ We have mourned in recent days the passing of our beloved friend and leader, How
 
 He suffered much in his body before he was finally taken from us on the morning of March 3, 1995. More than twenty-five thousand men, women, and children passed by his bier as his body lay in state in the beautiful rotunda of the Church Administration Building. With measured step they came one by one, reverently and with love for the man they had sustained only a few months before.
 
-On Wednesday, March 8, 1995, his funeral services were held in this historic tabernacle and broadcast far and wide. Those services were a fitting memorial to a man of goodness and greatness who now belongs to the ages. Our hearts reach out with love and sympathy to his bereaved widow and to his sons and their families, now spanning three generations. May they be comforted, sustained, and blessed by Him who declared, “I, even I, am he that comforteth you” (Isa. 51:12).
+On Wednesday, March 8, 1995, his funeral services were held in this historic tabernacle and broadcast far and wide. Those services were a fitting memorial to a man of goodness and greatness who now belongs to the ages. Our hearts reach out with love and sympathy to his bereaved widow and to his sons and their families, now spanning three generations. May they be comforted, sustained, and blessed by Him who declared, “I, even I, am he that comforteth you” ([[Isaiah 51.12|Isa. 51:12]]).
 
 With President Hunter’s passing, the First Presidency was dissolved. Brother Monson and I, who had served as his counselors, took our places in the Quorum of the Twelve, which became the presiding authority of the Church.
 
@@ -57,11 +58,11 @@ I love the elderly who have faced into the storms of life and who, regardless of
 
 Now, my brethren and sisters, in conclusion I wish to leave with you one thought which I hope you will never forget.
 
-This church does not belong to its President. Its head is the Lord Jesus Christ, whose name each of us has taken upon ourselves. We are all in this great endeavor together. We are here to assist our Father in His work and His glory, “to bring to pass the immortality and eternal life of man” (Moses 1:39). Your obligation is as serious in your sphere of responsibility as is my obligation in my sphere. No calling in this church is small or of little consequence. All of us in the pursuit of our duty touch the lives of others. To each of us in our respective responsibilities the Lord has said: “Wherefore, be faithful; stand in the office which I have appointed unto you; succor the weak, lift up the hands which hang down, and strengthen the feeble knees” (D&C 81:5).
+This church does not belong to its President. Its head is the Lord Jesus Christ, whose name each of us has taken upon ourselves. We are all in this great endeavor together. We are here to assist our Father in His work and His glory, “to bring to pass the immortality and eternal life of man” ([[Moses 1.39|Moses 1:39]]). Your obligation is as serious in your sphere of responsibility as is my obligation in my sphere. No calling in this church is small or of little consequence. All of us in the pursuit of our duty touch the lives of others. To each of us in our respective responsibilities the Lord has said: “Wherefore, be faithful; stand in the office which I have appointed unto you; succor the weak, lift up the hands which hang down, and strengthen the feeble knees” ([[D&C 81.5|D&C 81:5]]).
 
-“And in doing these things thou wilt do the greatest good unto thy fellow beings, and wilt promote the glory of him who is your Lord” (D&C 81:4).
+“And in doing these things thou wilt do the greatest good unto thy fellow beings, and wilt promote the glory of him who is your Lord” ([[D&C 81.4|D&C 81:4]]).
 
-Further, “And if thou art faithful unto the end thou shalt have a crown of immortality, and eternal life in the mansions which I have prepared in the house of my Father” (D&C 81:6).
+Further, “And if thou art faithful unto the end thou shalt have a crown of immortality, and eternal life in the mansions which I have prepared in the house of my Father” ([[D&C 81.6|D&C 81:6]]).
 
 All of us in this great cause are of one mind, of one belief, of one faith.
 
@@ -73,21 +74,24 @@ I plead with our people everywhere to live with respect and appreciation for tho
 
 I call attention to these striking words of Joseph Smith spoken in 1843:
 
-“If it has been demonstrated that I have been willing to die for a ‘Mormon,’ I am bold to declare before Heaven that I am just as ready to die in defending the rights of a Presbyterian, a Baptist, or a good man of any other denomination; for the same principle which would trample upon the rights of the Latter-day Saints would trample upon the rights of the Roman Catholics, or of any other denomination” (History of the Church, 5:498).
+“If it has been demonstrated that I have been willing to die for a ‘Mormon,’ I am bold to declare before Heaven that I am just as ready to die in defending the rights of a Presbyterian, a Baptist, or a good man of any other denomination; for the same principle which would trample upon the rights of the Latter-day Saints would trample upon the rights of the Roman Catholics, or of any other denomination” (*History of the Church,* 5:498).
 
 Now, my brethren and sisters, the time has come for us to stand a little taller, to lift our eyes and stretch our minds to a greater comprehension and understanding of the grand millennial mission of this The Church of Jesus Christ of Latter-day Saints. This is a season to be strong. It is a time to move forward without hesitation, knowing well the meaning, the breadth, and the importance of our mission. It is a time to do what is right regardless of the consequences that might follow. It is a time to be found keeping the commandments. It is a season to reach out with kindness and love to those in distress and to those who are wandering in darkness and pain. It is a time to be considerate and good, decent and courteous toward one another in all of our relationships. In other words, to become more Christlike.
 
 We have nothing to fear. God is at the helm. He will overrule for the good of this work. He will shower down blessings upon those who walk in obedience to His commandments. Such has been His promise. Of His ability to keep that promise none of us can doubt.
 
-The little stone which was cut out of the mountain without hands as seen in Daniel’s vision is rolling forth to fill the whole earth (see Dan. 2:44–45). No force under the heavens can stop it if we will walk in righteousness and be faithful and true. The Almighty Himself is at our head. Our Savior, who is our Redeemer, the Great Jehovah, the mighty Messiah, has promised: “I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” (D&C 84:88).
+The little stone which was cut out of the mountain without hands as seen in Daniel’s vision is rolling forth to fill the whole earth (see [[Daniel 2.44|Dan. 2:44–45]][[Daniel 2.45|]]). No force under the heavens can stop it if we will walk in righteousness and be faithful and true. The Almighty Himself is at our head. Our Savior, who is our Redeemer, the Great Jehovah, the mighty Messiah, has promised: “I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” ([[D&C 84.88|D&C 84:88]]).
 
-“Therefore,” said He, “fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail. ...
+“Therefore,” said He, “fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail. …
 
 “Look unto me in every thought; doubt not, fear not.
 
-“Behold the wounds which pierced my side, and also the prints of the nails in my hands and feet; be faithful, keep my commandments, and ye shall inherit the kingdom of heaven” (D&C 6:34, 36–37).
+“Behold the wounds which pierced my side, and also the prints of the nails in my hands and feet; be faithful, keep my commandments, and ye shall inherit the kingdom of heaven” ([[D&C 6.34|D&C 6:34, 36–37]][[D&C 6.36|]][[D&C 6.37|]]).
 
 Unitedly, working hand in hand, we shall move forward as servants of the living God, doing the work of His Beloved Son, our Master, whom we serve and whose name we seek to glorify.
 
 I repeat, this, my brethren and sisters, is the work of the Almighty. He lives, our Father and our friend. It is the work of our Redeemer, who out of a love beyond comprehension gave His life for each of us. It is a divine work restored through a chosen prophet. It is a work to which we dedicate our lives as we invoke choice blessings upon you, our beloved associates, in the name of Jesus Christ, amen.
+
+
+
 

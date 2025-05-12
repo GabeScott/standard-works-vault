@@ -1,5 +1,6 @@
 # Teachings of a Loving Father
-*By Horacio A. Tenorio - Of the Seventy*
+
+By Elder Horacio A. Tenorio - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
 
@@ -29,13 +30,13 @@ Challenges are true opportunities to obtain blessings which are received by over
 
 Many people complain or murmur when trials, illness, accidents, loss of employment, or death come. They say, “Why me? This isn’t fair,” or they become so depressed that they suffer breakdowns from which it is difficult to recover.
 
-Another reason for our trials is taught in Doctrine and Covenants 29:39: “And it must needs be that the devil should tempt the children of men, or they could not be agents unto themselves; for if they never should have bitter they could not know the sweet.” [D&C 29:39]
+Another reason for our trials is taught in [[D&C 29.39|Doctrine and Covenants 29:39]]: “And it must needs be that the devil should tempt the children of men, or they could not be agents unto themselves; for if they never should have bitter they could not know the sweet.”
 
 A short time ago, our family had the opportunity to be taught. It was a painful trial, but it became a sweet experience. Last December my wife and I were together with our three daughters. The oldest is married and lives in the state of Delaware. She came to visit us with her husband and three little children. The youngest of her children is David, fifteen months old, who is also the youngest of our four grandchildren. The days of their visit were beautiful and unforgettable. We enjoyed ourselves immensely as a family, and it was an opportunity to get to know David, whom we had only seen at birth. David is an extremely sweet child, the best I have ever known. He never cries, even when sick or in pain. He is independent but very loving—a special spirit.
 
 Those days together came to an end, and my daughter’s family returned home. Two days after they arrived, tragically David had to be taken to the hospital, and four hours later he died.
 
-My wife and I immediately left to be with our children at this difficult time. We flew all night, and it was painful for us to talk about what had happened. We spent long waking hours in thought and prayer. I didn’t know how I could comfort our children. What could I say when I, myself, felt such deep pain? So I prayed a great deal, and a loving Father came to my aid. The answers came one by one at the appropriate time, fulfilling the Lord’s promise: “Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me.” (D&C 19:23.)
+My wife and I immediately left to be with our children at this difficult time. We flew all night, and it was painful for us to talk about what had happened. We spent long waking hours in thought and prayer. I didn’t know how I could comfort our children. What could I say when I, myself, felt such deep pain? So I prayed a great deal, and a loving Father came to my aid. The answers came one by one at the appropriate time, fulfilling the Lord’s promise: “Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me” ([[D&C 19.23|D&C 19:23]]).
 
 We met our children, who were in deep mourning. They were suffering so intensely that their pain did not allow them to see the purposes and teachings. They are faithful members of the Church, but as young people they never expected anything so devastating.
 
@@ -43,7 +44,7 @@ My wife and I shared the answers that we had, and they, upon understanding and a
 
 “Verily, verily, I say unto you, if you desire a further witness, cast your mind upon the night that you cried unto me in your heart, that you might know concerning the truth of these things.
 
-“Did I not speak peace to your mind concerning the matter? What greater witness can you have than from God?” (D&C 6:22–23.)
+“Did I not speak peace to your mind concerning the matter? What greater witness can you have than from God?” ([[D&C 6.22|D&C 6:22–23]][[D&C 6.23|]]).
 
 The sense of pain and suffering diminished, leaving in its place sweet feelings from the Spirit.
 
@@ -56,4 +57,7 @@ Because we realize that God lives and, as our Father, he loves us. He doesn’t 
 So many blessings, so many teachings! We changed and grew during that time. How grateful we are to our Father in Heaven for this experience.
 
 A few days after David left us, my daughter learned that she was pregnant again. So much love from our Father! Additional teachings. I testify that our teacher, our Shepherd, is Christ, our best friend, who clears up all our doubts. He heals our wounds and turns our pain into sweet experiences. I say this in the name of Jesus Christ, amen.
+
+
+
 

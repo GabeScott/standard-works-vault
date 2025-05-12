@@ -1,5 +1,6 @@
 # Testimony
-*By Franklin D. Richards - Assistant to the Council of the Twelve*
+
+By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -11,11 +12,11 @@ In The Church of Jesus Christ of Latter-day Saints members frequently use words 
 
 Members bear, or relate, their testimonies to other members at special testimony meetings and at times avail themselves of the opportunity to bear their testimonies to nonmembers. In bearing their testimonies, members generally testify that they know that God lives and that his Son Jesus Christ is our Savior and Redeemer and that the restored gospel of Jesus Christ is the divine plan of life that brings happiness and growth to those who accept it and make it a part of their daily lives.
 
-President Harold B. Lee expressed it this way: “Within the Gospel of Jesus Christ may be found the solution of every problem confronting us, which will enable us to find happiness here and eternal life in the world to come.” (Church News, March 9, 1974, p. 2.)
+President Harold B. Lee expressed it this way: “Within the Gospel of Jesus Christ may be found the solution of every problem confronting us, which will enable us to find happiness here and eternal life in the world to come.” (*Church News,* March 9, 1974, p. 2.)
 
 It has been stated that the purpose of the gospel is to change peoples’ lives, to make bad people good and good people better, to change human nature; and how true this is!
 
-President Brigham Young said, “You cannot find a compass on the earth, that points, so directly, as the Gospel plan of salvation. It has a place for every thing, and puts everything in its place.” (Journal of Discourses, vol. 3, p. 96.)
+President Brigham Young said, “You cannot find a compass on the earth, that points, so directly, as the Gospel plan of salvation. It has a place for every thing, and puts everything in its place.” (*Journal of Discourses,* vol. 3, p. 96.)
 
 Some members of the Church possess powerful and unfaltering testimonies, while others possess less forceful testimonies. It should be recognized that testimonies can be acquired, testimonies can be kept, and testimonies can be lost.
 
@@ -35,21 +36,21 @@ This formula when followed will bring a conviction or testimony that the restore
 
 The interested person must study the gospel, and the gospel is to be found primarily in the Bible, Book of Mormon, Doctrine and Covenants, and Pearl of Great Price, the four standard works of The Church of Jesus Christ of Latter-day Saints.
 
-In this dispensation the Lord has counseled us to “seek ... out of the best books words of wisdom: seek learning, even by study. ...” (D&C 88:118.)
+In this dispensation the Lord has counseled us to “seek … out of the best books words of wisdom: seek learning, even by study. …” ([[D&C 88.118|D&C 88:118]].)
 
-Jesus said, “... know the truth, and the truth shall make you free.” (John 8:32.)
+Jesus said, “… know the truth, and the truth shall make you free.” ([[John 8.32|John 8:32]].)
 
 I feel sure that part of this freedom Jesus refers to must be freedom from ignorance, as ignorance is a deterrent to happiness, growth, and development.
 
 Through study of the scriptures we can understand our relationship to God and how the basic gospel principles apply to our daily lives. Our study, however, should be constant and intensive, for the gospel of Jesus Christ embraces all truth.
 
-Now regarding the second step to acquire a testimony—prayer—the Prophet Joseph Smith observed that “it is the first principle of the gospel to know for a certainty the character of God, and to know that we may converse with Him as one man converses with another. ...” (Documentary History of the Church, vol. 6, p. 305.)
+Now regarding the second step to acquire a testimony—*prayer*—the Prophet Joseph Smith observed that “it is the first principle of the gospel to know for a certainty the character of God, and to know that we may converse with Him as one man converses with another. …” (*Documentary History of the Church,* vol. 6, p. 305.)
 
 Near the end of the Book of Mormon, Moroni, a great leader, gave this promise:
 
 “And when ye shall receive these things, I would exhort you that ye would ask God, the Eternal Father, in the name of Christ, if these things are not true; and if ye shall ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost.
 
-“And by the power of the Holy Ghost ye may know the truth of all things.” (Moro. 10:4–5.)
+“And by the power of the Holy Ghost ye may know the truth of all things.” ([[Moroni 10.4|Moro. 10:4–5]][[Moroni 10.5|]].)
 
 Although this promise specifically refers to the Book of Mormon, I am sure as you study the Bible, the Doctrine and Covenants, and the Pearl of Great Price you will find that the promise is likewise applicable to these scriptures.
 
@@ -77,9 +78,12 @@ To those of you who feel that you have a firm testimony, remember: a testimony i
 
 I bear my testimony to you that the Holy Ghost has borne witness to me that God lives and is the Father of our spirits, that Jesus Christ is our Redeemer and Savior, and that Joseph Smith was a great prophet chosen by God to restore the gospel in its fullness and the power to act in his name in this dispensation.
 
-The Holy Ghost has also borne witness to me that President Spencer W. Kimball is a modern-day prophet who leads and directs The Church of Jesus Christ of Latter-day Saints today. May the Lord bless and sustain him in his great calling, and may we sustain him and have the courage and foresight to follow his counsel.
+The Holy Ghost has also borne witness to me that President Spencer W. Kimball is a modern-day prophet who leads and directs The Church of Jesus Christ of Latter-day Saints today. May the Lord bless and sustain him in his great calling, and may we sustain him and have the courage and foresight to follow his counsel.
 
 This testimony has a beneficial influence in every phase of my life, and I can readily understand why so many Church members bear witness that their testimony is their most prized possession.
 
 I bear this witness to you in the name of Jesus Christ. Amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # The Lord’s Way
-*By Thomas S. Monson - Second Counselor in the First Presidency*
+
+By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
 
@@ -9,13 +10,13 @@ As a foundation for my remarks this evening, I turn to the scriptures, that we m
 
 In the book of Malachi, the Lord instructs: “Even from the days of your fathers ye are gone away from mine ordinances, and have not kept them. Return unto me, and I will return unto you, saith the Lord of hosts. But ye said, Wherein shall we return?
 
-“Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. ...
+“Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
 
 “Bring ye all the tithes into the storehouse, that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.
 
-“And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the field, saith the Lord of hosts. ...
+“And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the field, saith the Lord of hosts. …
 
-“For ye shall be a delightsome land, saith the Lord of hosts.” (Mal. 3:7–8, 10–12.)
+“For ye shall be a delightsome land, saith the Lord of hosts.” ([[Malachi 3.7|Mal. 3:7–8, 10–12]][[Malachi 3.8|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]].)
 
 Elder Packer has mentioned briefly the matter of tithing. President Hinckley will amplify in greater detail this commandment of the Lord which pertains to the financing of His church here on earth. I set forth the passage that we might recognize that this is the Lord’s way—tithes and offerings—that His work may go forward so that His people may be blessed.
 
@@ -29,7 +30,7 @@ Third, there was eliminated the per-capita welfare assessment utilized to provid
 
 Finally, the new local unit budget allowance program will replace local ward and stake budgets, with many costs heretofore borne by individual Church members now being covered through their tithes.
 
-These steps were preceded by lengthy discussion and fervent prayer on the part of those sustained as prophets, seers, and revelators. In the words of the Apostle Paul, “This thing was not done in a corner.” (Acts 26:26.)
+These steps were preceded by lengthy discussion and fervent prayer on the part of those sustained as prophets, seers, and revelators. In the words of the Apostle Paul, “This thing was not done in a corner.” ([[Acts 26.26|Acts 26:26]].)
 
 The details relating to the new budget allowance program have been communicated to bishops and stake presidents, that the membership of the Church in the United States and Canada might be advised. I shall not recount that detail this evening. However, a few comments on the objectives and the scope of the program might prove helpful.
 
@@ -43,15 +44,15 @@ How grateful I am for this giant step forward in funding all such costs through 
 
 Not so well understood, and perhaps less appreciated, is the announcement pertaining to local unit budgets. It will be helpful if we keep in mind the principles that govern the budget allowance program:
 
-The budget allowance program was created to reduce financial burdens on members.
+- The budget allowance program was created to reduce financial burdens on members.
 
-Members should not pay fees or be assessed to participate in Church programs.
+- Members should not pay fees or be assessed to participate in Church programs.
 
-Priesthood leaders should reduce and simplify activities whenever possible.
+- Priesthood leaders should reduce and simplify activities whenever possible.
 
-Activities should be planned at little or no cost, should build testimonies and provide meaningful service to others.
+- Activities should be planned at little or no cost, should build testimonies and provide meaningful service to others.
 
-One of our objectives has been to insure that all budget costs be funded either through the 100-percent reimbursed items or the per-person budget allowance and that there be no separate assessments or fund-raising activities to support the programs of the Church. An exception would be that relating to our affiliation with the Scouting program, which has as a basic tenet that a boy earns his own way. Permitted under the budget allowance program is the financing of prescribed Cub, Scout, Varsity, and Explorer activities. This same exception is made for Young Women for camping activities outlined in the Young Women Handbook. It is the desire that restraint be used in programming youth activities and that consistency between Young Women and Young Men programs be achieved.
+One of our objectives has been to insure that all budget costs be funded either through the 100-percent reimbursed items or the per-person budget allowance and that there be no separate assessments or fund-raising activities to support the programs of the Church. An exception would be that relating to our affiliation with the Scouting program, which has as a basic tenet that a boy earns his own way. Permitted under the budget allowance program is the financing of prescribed Cub, Scout, Varsity, and Explorer activities. This same exception is made for Young Women for camping activities outlined in the *Young Women Handbook.* It is the desire that restraint be used in programming youth activities and that consistency between Young Women and Young Men programs be achieved.
 
 The primary responsibility for building testimonies and providing faith-building experiences in our members, including our youth, resides in the home. The Church should continue to support the determination of the family to do this. Priesthood leaders will wish to increase their efforts to build strong, gospel-centered homes. Families vary in size and composition. All are to receive our devoted attention. The building of testimonies is not related to financial costs. It is not necessary to buy the activity of our youth. Our youth activities depart from the pattern of the world.
 
@@ -71,13 +72,11 @@ Ever shall I remember a bus trek from Salt Lake City to the Clarkston Cemetery n
 
 With rapt attention the young men listened to a brief retelling of the experiences and testimony of Martin Harris. The value of the Book of Mormon in the mind of each youth soared. Then we walked a few paces to a pioneer grave with a very small marker. It bore the name of John P. Malmberg and contained the verse:
 
-A light from our household is gone;
-
-A voice we loved is stilled.
-
-A place is vacant in our hearts
-
-That never can be filled.
+>A light from our household is gone;
+>A voice we loved is stilled.
+>A place is vacant in our hearts
+>That never can be filled.
+>
 
 We talked with the boys about sacrifice, about dedication to the truth. Duty, honor, service, and love all were taught by that tombstone. I can, in the bright memory provided by God, see each boy reach for a handkerchief to wipe away a tear. Heard yet are the sniffles which testified that hearts were touched and commitments made. Each youth had determined to be a pioneer—even one who goes before, showing others the way to follow.
 
@@ -97,11 +96,14 @@ A letter from a member in the eastern part of the United States, received just l
 
 “Please know of our great love and respect for you and the Brethren. We rejoice in the continual revelation the Lord is sending to His saints. Our prayers continue to be with the prophet and his associates in this great latter-day work.”
 
-My brothers and sisters, these are momentous times in the history of the Church. The Lord has opened the windows of heaven and showered us with His benevolent blessings. Let us be faithful in our tithing obligation to the Lord. Let us be generous in our fast offerings, that the poor and needy may be blessed. Let us help in proclaiming His glorious message to all the world. Then we can be the beneficiaries of the Lord’s beautiful promise found in Isaiah. He gave the quiet assurance, Thou shalt “call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am ...
+My brothers and sisters, these are momentous times in the history of the Church. The Lord has opened the windows of heaven and showered us with His benevolent blessings. Let us be faithful in our tithing obligation to the Lord. Let us be generous in our fast offerings, that the poor and needy may be blessed. Let us help in proclaiming His glorious message to all the world. Then we can be the beneficiaries of the Lord’s beautiful promise found in Isaiah. He gave the quiet assurance, Thou shalt “call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am …
 
 “Then shall thy light rise in obscurity, and thy darkness be as the noonday:
 
-“And the Lord shall guide thee continually, and satisfy thy soul in drought, ... and thou shalt be like a watered garden, and like a spring of water, whose waters fail not.” (Isa. 58:9–11.)
+“And the Lord shall guide thee continually, and satisfy thy soul in drought, … and thou shalt be like a watered garden, and like a spring of water, whose waters fail not.” ([[Isaiah 58.9|Isa. 58:9–11]][[Isaiah 58.10|]][[Isaiah 58.11|]].)
 
 That we may, as a people, merit the blessings of God, I pray in the name of Jesus Christ, amen.
+
+
+
 

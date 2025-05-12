@@ -1,5 +1,6 @@
 # Creator and Savior
-*By Mark E. Petersen - Of the Quorum of the Twelve Apostles*
+
+By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -7,11 +8,11 @@
 
 Springtime always brings Easter, and Easter turns our minds to Jesus Christ, our Savior.
 
-It was He who was born in Bethlehem, the Son of God, the Prince of Peace (Isa. 9:6), who holds out the promise of good will to all mankind.
+It was He who was born in Bethlehem, the Son of God, the Prince of Peace ([[Isaiah 9.6|Isa. 9:6]]), who holds out the promise of good will to all mankind.
 
 It was He who gave us the true meaning of Easter through His glorious resurrection, with the assurance of everlasting life. Think of it! Everlasting life!
 
-When He was born, He was called Jesus because He would save His people from their sins. But He also was Immanuel (Isa. 7:14), meaning “God with us.”
+When He was born, He was called Jesus because He would save His people from their sins. But He also was Immanuel ([[Isaiah 7.14|Isa. 7:14]]), meaning “God with us.”
 
 How appropriate that name, for He was God, and indeed He came into the world to be with us. “God with us”! This He was in fact. He was deity before he was born into mortality, and He was His divine self while on the earth. He did not change His identity. He forever remains the Son of God, our Redeemer and our Savior.
 
@@ -19,13 +20,13 @@ He died on the cross to atone for the sins of all who will obey Him, and He brok
 
 His atonement was the most important event that ever happened. The creation of this earth, the establishment of the Twelve Tribes of Israel, and the labors of the great patriarchs and prophets—all were prelude to His achievement on Calvary.
 
-Offerings were burned on the altars of Israel throughout Old Testament times in symbolic anticipation of the great sacrifice of Him who was called the “Lamb slain from the foundation of the world.” (Rev. 13:8.)
+Offerings were burned on the altars of Israel throughout Old Testament times in symbolic anticipation of the great sacrifice of Him who was called the “Lamb slain from the foundation of the world.” ([[Revelation 13.8|Rev. 13:8]].)
 
 As Jehovah of the premortal life, Jesus was the central figure in making the primeval arrangements for the mortal existence of the human race.
 
-It was He who volunteered to die for us. It was He who gave all honor to our Heavenly Father. It was He who became the author of eternal salvation “unto all them that obey him.” (Heb. 5:9.)
+It was He who volunteered to die for us. It was He who gave all honor to our Heavenly Father. It was He who became the author of eternal salvation “unto all them that obey him.” ([[Hebrews 5.9|Heb. 5:9]].)
 
-As the Apostle Peter said, “There is none other name under heaven given among men, whereby we must be saved.” (Acts 4:12.)
+As the Apostle Peter said, “There is none other name under heaven given among men, whereby we must be saved.” ([[Acts 4.12|Acts 4:12]].)
 
 Much advance preparation was required for His atonement, even before He was born in the flesh. For one thing, an earth was required on which we, the children of God, could live during our mortal existence.
 
@@ -45,13 +46,13 @@ Without this earth, would there have been Roman soldiers to nail Him to the cros
 
 Could He have manifested Himself physically to His disciples as proof of His resurrection?
 
-Would “the other” Mary have been in the garden on that first Easter morning (Matt. 28:1) to hear the angel say: “He is not here: for he is risen”? (Matt. 28:6.)
+Would “the other” Mary have been in the garden on that first Easter morning ([[Matthew 28.1|Matt. 28:1]]) to hear the angel say: *“He is not here: for he is risen”?* ([[Matthew 28.6|Matt. 28:6]].)
 
 The special creation of this earth was a vital part of the plan of salvation. It had a particular purpose. It was no afterthought. Neither was it an accident of any proportion, nor a spontaneous development of any kind.
 
 It was the result of deliberate, advance planning and purposeful creation. The Divine Architect devised it. The Almighty Creator made it and assigned to it a particular mission.
 
-This earth was not designed merely as a home for mortals, however. Not at all. It has a greater destiny than that. This earth will not remain in its present condition. It is to become immortal. It will pass through a refining process by which it will become a celestial globe and be like a Urim and Thummim in the skies. (See D&C 130:9.) That will require further acts of divine creation, and, of course, ordinary common sense tells us that no spontaneous accident could produce a change like that.
+This earth was not designed merely as a home for mortals, however. Not at all. It has a greater destiny than that. This earth will not remain in its present condition. It is to become immortal. It will pass through a refining process by which it will become a celestial globe and be like a Urim and Thummim in the skies. (See [[D&C 130.9|D&C 130:9]].) That will require further acts of divine creation, and, of course, ordinary common sense tells us that no spontaneous accident could produce a change like that.
 
 The Savior will reside here when the earth is celestialized, and His Father will visit it from time to time. It then will be the eternal home of those who achieve celestial glory in the kingdom of God.
 
@@ -63,23 +64,23 @@ And who was the Creator?
 
 Our Heavenly Father declares that it was His own Beloved Son who accomplished the mighty task.
 
-“All things were made by him; and without him was not anything made that was made,” said the Apostle John. (John 1:3.)
+“All things were made by him; and without him was not anything made that was made,” said the Apostle John. ([[John 1.3|John 1:3]].)
 
 “By him were all things created, that are in heaven, and that are in earth, visible and invisible, whether they be thrones, or dominions, or principalities, or powers: all things were created by him, and for him:
 
-“And he is before all things, and by him all things consist.” (Col. 1:16–17.) So said the Apostle Paul.
+“And he is before all things, and by him all things consist.” ([[Colossians 1.16|Col. 1:16–17]][[Colossians 1.17|]].) So said the Apostle Paul.
 
-The Almighty also affirmed it when he told Moses: “Worlds without number have I created; and I also created them for mine own purpose; and by the Son I created them, which is mine Only Begotten.” (Moses 1:33; italics added.)
+The Almighty also affirmed it when he told Moses: “Worlds without number have I created; and I also created them for mine own purpose; and *by the Son I created them, which is mine Only Begotten.*” ([[Moses 1.33|Moses 1:33]]; italics added.)
 
-Christ also taught that He Himself was the Creator. Said He to the Prophet Joseph Smith: “Behold, I am Jesus Christ ... who created the heavens and the earth.” (D&C 14:9.)
+Christ also taught that He Himself was the Creator. Said He to the Prophet Joseph Smith: “Behold, I am Jesus Christ … who created the heavens and the earth.” ([[D&C 14.9|D&C 14:9]].)
 
 One of our most touching and impressive revelations of the Savior is provided in the Book of Ether, where the appearance of the Lord to the brother of Jared is recorded. I quote briefly from it. Said the Savior to the brother of Jared:
 
-“Behold, I am he who was prepared from the foundation of the world to redeem my people. Behold, I am Jesus Christ. ...
+“Behold, I am he who was prepared from the foundation of the world to redeem my people. Behold, I am Jesus Christ. …
 
-“Never have I shown myself unto man whom I created, for never has man believed in me as thou hast. Seest thou that ye are created after mine own image? Yea, even all men were created in the beginning after mine own image. ...
+“Never have I shown myself unto man whom I created, for never has man believed in me as thou hast. Seest thou that ye are created after mine own image? Yea, even all men were created in the beginning after mine own image. …
 
-“This body, which ye now behold, is the body of my spirit; and man have I created after the body of my spirit; and even as I appear unto thee to be in the spirit will I appear unto my people in the flesh.” (Ether 3:14–16; italics added.)
+“This body, which ye now behold, is the body of my spirit; and *man have I created* after the body of my spirit; and even as I appear unto thee to be in the spirit will I appear unto my people in the flesh.” ([[Ether 3.14|Ether 3:14–16]][[Ether 3.15|]][[Ether 3.16|]]; italics added.)
 
 There we have it in His own words! The glorious, irrefutable truth! Christ is the Creator! Shall we not accept His word in preference to uninspired theories of men?
 
@@ -99,19 +100,19 @@ But He is the Creator! He is the Redeemer! He is the Savior of the world! He did
 
 Can anyone ask for a plainer definition of creation and the purpose of life than is given in our scriptures?
 
-We even have the word of our Eternal Heavenly Father. He bore testimony that Jesus Christ is His Beloved Son and in addition declared that He is very well pleased with Him. (See Matt. 3:17.)
+We even have the word of our Eternal Heavenly Father. He bore testimony that Jesus Christ is His Beloved Son and in addition declared that He is very well pleased with Him. (See [[Matthew 3.17|Matt. 3:17]].)
 
 He not only affirmed that Christ created the worlds, but, after each step in creation, did He not say that the work was well done?
 
-When the waters and the firmament were put in position, “God saw that it was good.” When life was placed on the earth, “God saw that it was good,” and when creation was finished, “God saw everything that he had made, and, behold, it was very good.” (See Gen. 1:10–31; italics added.)
+When the waters and the firmament were put in position, “God saw that it was good.” When life was placed on the earth, “God saw that it was good,” and when creation was finished, “God saw everything that he had made, and, behold, *it was very good.*” (See [[Genesis 1.10|Gen. 1:10–31]][[Genesis 1.11|]][[Genesis 1.12|]][[Genesis 1.13|]][[Genesis 1.14|]][[Genesis 1.15|]][[Genesis 1.16|]][[Genesis 1.17|]][[Genesis 1.18|]][[Genesis 1.19|]][[Genesis 1.20|]][[Genesis 1.21|]][[Genesis 1.22|]][[Genesis 1.23|]][[Genesis 1.24|]][[Genesis 1.25|]][[Genesis 1.26|]][[Genesis 1.27|]][[Genesis 1.28|]][[Genesis 1.29|]][[Genesis 1.30|]][[Genesis 1.31|]]; italics added.)
 
-The Father is a God of truth, and He said that the Savior is “full of grace and truth.” (Moses 1:6.) Then dare we disbelieve Him or reject His words? The Savior did the work of creation, and the Father was well pleased with Him! Then should we not be pleased to accept Him and serve Him?
+The Father is a God of truth, and He said that the Savior is “full of grace and truth.” ([[Moses 1.6|Moses 1:6]].) Then dare we disbelieve Him or reject His words? The Savior did the work of creation, and the Father was well pleased with Him! Then should we not be pleased to accept Him and serve Him?
 
-The Father repeatedly expressed His satisfaction with the ministry of His Son. Did He not so speak at the baptism of Christ? “This is my beloved Son, in whom I am well pleased.” (Matt. 3:17; italics added.)
+The Father repeatedly expressed His satisfaction with the ministry of His Son. Did He not so speak at the baptism of Christ? “This is my beloved Son, *in whom I am well pleased.*” ([[Matthew 3.17|Matt. 3:17]]; italics added.)
 
-Did He not repeat it on the Mount of Transfiguration? “This is my beloved Son, in whom I am well pleased.” (Matt. 17:5; italics added.)
+Did He not repeat it on the Mount of Transfiguration? “This is my beloved Son, *in whom I am well pleased.*” ([[Matthew 17.5|Matt. 17:5]]; italics added.)
 
-Did He not introduce the Savior to the Nephites with the same expression? “Behold my Beloved Son, in whom I am well pleased.” (3 Ne. 11:7; italics added.)
+Did He not introduce the Savior to the Nephites with the same expression? “Behold my Beloved Son, *in whom I am well pleased.*” ([[3 Nephi 11.7|3 Ne. 11:7]]; italics added.)
 
 And when He appeared to the boy Joseph Smith, did He not give His Beloved Son another positive endorsement?
 
@@ -129,7 +130,7 @@ Therefore, let us follow Him and worship Him in spirit and in truth. He holds ou
 
 “Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls.
 
-“For my yoke is easy, and my burden is light.” (Matt. 11:28–30.)
+“For my yoke is easy, and my burden is light.” ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].)
 
 When He was born the angels sang.
 
@@ -144,4 +145,7 @@ Shall we be like Mary and believe and accept Him? Or shall we join the doubters 
 Jesus is a God of light and life, not a symbol of death and doubt. He lives, and will save everyone who is willing to serve Him. He is our divine Redeemer and our eternal Creator. He is the resurrection and the life. This is our testimony to the world.
 
 Yes, today is Easter, and to us Easter means Christ—the resurrected Christ, the Son of God, our Creator and our Redeemer. In the name of Jesus Christ, amen.
+
+
+
 

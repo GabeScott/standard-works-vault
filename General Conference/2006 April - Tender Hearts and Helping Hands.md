@@ -1,21 +1,24 @@
 # Tender Hearts and Helping Hands
-*By By Bishop H. David Burton - Presiding Bishop*
+
+By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the April session of the 2006 General Conference*
+
+>*To each of you whose tender hearts and helping hands have eased the burdens of so many, please accept my heartfelt gratitude.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/04/tender-hearts-and-helping-hands?lang=eng)
 
 Last evening Sister Burton and I were enjoying a little Chinese food. Embedded in my fortune cookie was the message, “The stress you are experiencing will soon be relieved.” True story.
 
-A group of men were talking with the Prophet Joseph Smith one day when news arrived that the house of a poor brother who lived some distance from town was burned down. Everyone expressed sorrow for what had happened. The Prophet listened for a moment, then “put his hand in his pocket, took out five dollars and said, ‘I feel sorry for this brother to the amount of five dollars; how much do you all feel sorry?’” The immediacy of the Prophet’s response is significant. Last year millions of you responded to the sorrow of others with your means, tender hearts, and helping hands. Thank you for your wonderful measure of generosity.
+A group of men were talking with the Prophet Joseph Smith one day when news arrived that the house of a poor brother who lived some distance from town was burned down. Everyone expressed sorrow for what had happened. The Prophet listened for a moment, then “put his hand in his pocket, took out five dollars and said, ‘I feel sorry for this brother to the amount of five dollars; how much do you all feel sorry?’”[^1] The immediacy of the Prophet’s response is significant. Last year millions of you responded to the sorrow of others with your means, tender hearts, and helping hands. Thank you for your wonderful measure of generosity.
 
 Compassion for others has always been a fundamental characteristic of members of The Church of Jesus Christ of Latter-day Saints. The prophet Alma said:
 
-“Ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light; yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort.”
+“Ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light; yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort.”[^2]
 
-The Savior asks us to “succor the weak, lift up the hands which hang down, and strengthen the feeble knees.”
+The Savior asks us to “succor the weak, lift up the hands which hang down, and strengthen the feeble knees.”[^3]
 
-I have witnessed firsthand the commitment of Latter-day Saints and others not of our faith who have tender hearts and helping hands, who “bear ... one another’s burdens.” I have been deeply sorrowed as I have seen massive devastation and visited victims who are without hope.
+I have witnessed firsthand the commitment of Latter-day Saints and others not of our faith who have tender hearts and helping hands, who “bear … one another’s burdens.”[^4] I have been deeply sorrowed as I have seen massive devastation and visited victims who are without hope.
 
 In recent years, Mother Nature has displayed her vengeance and supremacy in unusual and powerful ways. Late December 2004 brought a terrible earthquake off the coast of Indonesia creating a deadly tsunami that killed thousands and shattered the lives of those who remained behind. Under the direction of local priesthood leaders and adult missionary couples, help was mobilized immediately, providing urgent assistance to hospitals, first responders, and communities in Indonesia, Sri Lanka, India, and Thailand.
 
@@ -41,7 +44,7 @@ The 2005 hurricane season in the southern United States and the western Caribbea
 
 Brother Michael Kagle took a convoy of trucks loaded with equipment from his own company to Mississippi. Many employees, who are not of our faith, volunteered to go with him every weekend to give assistance in the storm-stricken areas. Walkie-talkies were used for communication along the way. Mike’s high priests group leader, while driving along with them in his pickup truck, said he had white knuckles from driving so fast. Trying to slow the convoy down, he got on the walkie-talkie and said, “Gentlemen, do you realize we are going 80 miles per hour?” One of the truck drivers came on and said, “Well, you have to understand that’s all these big trucks will do. We can’t go any faster.”
 
-Hundreds of letters of gratitude have been received. One woman, a nurse from Mississippi, wrote: “I was speechless. Had God answered my prayers so quickly? Tears immediately began to roll down my cheeks as men in hard hats and boots, with chainsaws of all shapes and sizes, appeared out of the debris. It was absolutely, unequivocally, one of the most supreme sacrifices that has ever happened to me personally.”
+Hundreds of letters of gratitude have been received. One woman, a nurse from Mississippi, wrote: “I was speechless. Had God answered my prayers so quickly? Tears immediately began to roll down my cheeks as men in hard hats and boots, with chain saws of all shapes and sizes, appeared out of the debris. It was absolutely, unequivocally, one of the most supreme sacrifices that has ever happened to me personally.”
 
 May I express thanks to the nimble fingers that have produced thousands of beautiful blankets and a special thanks to the not-so-nimble fingers of our more senior sisters who have also crafted the much-needed quilts. One 92-year-old great-grandmother has produced several hundred blankets. In her case, both the creator and receiver have been blessed. As her son admired her handiwork, she asked, “Do you think anyone will ever use one of my blankets?” A letter from a young mother in Louisiana answers that question:
 
@@ -57,15 +60,30 @@ Many wheelchairs have been supplied that allow the disabled to become self-relia
 
 Bridges of understanding and respect have been built in many nations as we collaborate with other established and trusted agencies.
 
-Dr. Simbi Mubako, former African ambassador to the United States, has said, “The work of The Church of Jesus Christ of Latter-day Saints is all the more impressive because it is not limited to just the members of the Church, but it spreads to all human beings of different cultures and different religions because [they] see in every person the image of Jesus Christ.”
+Dr. Simbi Mubako, former African ambassador to the United States, has said, “The work of The Church of Jesus Christ of Latter-day Saints is all the more impressive because it is not limited to just the members of the Church, but it spreads to all human beings of different cultures and different religions because \[they\] see in every person the image of Jesus Christ.”
 
-Our beloved President Gordon B. Hinckley has been instrumental in the development of this great humanitarian work. “We must reach out to all mankind,” he has said. “They are all sons and daughters of God our Eternal Father, and He will hold us accountable for what we do concerning them. ... May we bless humanity with an outreach to all, lifting those who are downtrodden and oppressed, feeding and clothing the hungry and the needy, extending love and neighborliness to those about us who may not be part of this Church.”
+Our beloved President Gordon B. Hinckley has been instrumental in the development of this great humanitarian work. “We must reach out to all mankind,” he has said. “They are all sons and daughters of God our Eternal Father, and He will hold us accountable for what we do concerning them. … May we bless humanity with an outreach to all, lifting those who are downtrodden and oppressed, feeding and clothing the hungry and the needy, extending love and neighborliness to those about us who may not be part of this Church.”[^5]
 
 This modern-day humanitarian effort is a wonderful manifestation of the charity that burns within the souls of those whose hearts are tender and whose hands are ready to help. This selfless service truly demonstrates the pure love of Christ.
 
-The Savior promises great blessings to those who give of themselves: “Give, and it shall be given unto you. ... For with the same measure that ye mete withal it shall be measured to you again.”
+The Savior promises great blessings to those who give of themselves: “Give, and it shall be given unto you. … For with the same measure that ye mete withal it shall be measured to you again.”[^6]
 
 The things I have spoken of today are not even a hundredth part of what is happening in villages and nations throughout the world. Everywhere I travel, expressions of profound gratitude are received. On behalf of the First Presidency, the Quorum of the Twelve, and the Church Welfare Executive Committee, whose assignment it is to guide this work, may I express our deepest appreciation and admiration.
 
-It is impossible for me to find the words to adequately express the sacred feelings burning within my soul. The simple word thanks seems almost trite. To each of you whose tender hearts and helping hands have eased the burdens of so many, please accept my heartfelt gratitude. I invoke the Lord’s choicest blessings to be with you and your families as you continue to remember those with heavy hearts and hands that hang down, in the name of Jesus Christ, amen.
+It is impossible for me to find the words to adequately express the sacred feelings burning within my soul. The simple word *thanks* seems almost trite. To each of you whose tender hearts and helping hands have eased the burdens of so many, please accept my heartfelt gratitude. I invoke the Lord’s choicest blessings to be with you and your families as you continue to remember those with heavy hearts and hands that hang down, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Andrew Workman, in “Recollections of the Prophet Joseph Smith,” *Juvenile Instructor,* Oct. 15, 1892, 641.
+
+[^2]: [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].
+
+[^3]: [[D&C 81.5|D&C 81:5]].
+
+[^4]: [[Galatians 6.2|Galatians 6:2]].
+
+[^5]: In Conference Report, Oct. 2001, 4–5; or *Ensign,* Nov. 2001, 6.
+
+[^6]: [[Luke 6.38|Luke 6:38]].
 

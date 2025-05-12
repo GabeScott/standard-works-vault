@@ -1,7 +1,10 @@
 # The Priesthood Man
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
+
+>*You can be a great model, an average one, or a bad model. You may think it doesn’t matter to you, but it does to the Lord.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/04/the-priesthood-man?lang=eng)
 
@@ -29,7 +32,7 @@ Each of you will be a model of a priesthood man whether you want to be or not. Y
 
 “Neither do men light a candle, and put it under a bushel, but on a candlestick; and it giveth light unto all that are in the house.
 
-“Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.”1
+“Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.”[^1]
 
 I have been blessed by examples of great priesthood holders in quorums where I was fortunate to serve. You can do what they have done for me by being an example for others to follow.
 
@@ -63,7 +66,7 @@ We have accepted the Lord’s warning that if we seek credit in this world for o
 
 “But when thou doest alms, let not thy left hand know what thy right hand doeth:
 
-“That thine alms may be in secret: and thy Father which seeth in secret himself shall reward thee openly.”2
+“That thine alms may be in secret: and thy Father which seeth in secret himself shall reward thee openly.”[^2]
 
 Those who have been my models of great priesthood holders do not easily recognize that they possess heroic qualities. In fact, they seem to have difficulty seeing those things that I so much admire in them. I mentioned my father was a faithful president of a tiny branch of the Church in New Jersey. He later was a member of the Sunday School general board for the Church. Yet I am careful today to speak modestly about his priesthood service, because he was modest.
 
@@ -79,11 +82,20 @@ Above all, remember that of all the service you give, none is greater than to he
 
 “And as one earth shall pass away, and the heavens thereof even so shall another come; and there is no end to my works, neither to my words.
 
-“For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.”3
+“For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.”[^3]
 
 We are to help in that work. Each of us can make a difference. We have been prepared for our time and place in the last days of that sacred work. Each of us has been blessed with examples of those who have made that work the overriding purpose of their time on earth.
 
 I pray that we may help each other rise to that opportunity.
 
 God the Father lives and will answer your prayers for the help you need to serve Him well. Jesus Christ is the risen Lord. This is His Church. The priesthood you hold is the power to act in His name in His work to serve the children of God. As you give your whole heart to this work, He will magnify you. I so promise in the name of Jesus Christ, our Savior, amen.
+
+
+
+
+[^1]: [[Matthew 5.14|Matthew 5:14–16]][[Matthew 5.15|]][[Matthew 5.16|]].
+
+[^2]: [[Matthew 6.1|Matthew 6:1–4]][[Matthew 6.2|]][[Matthew 6.3|]][[Matthew 6.4|]].
+
+[^3]: [[Moses 1.37|Moses 1:37–39]][[Moses 1.38|]][[Moses 1.39|]].
 

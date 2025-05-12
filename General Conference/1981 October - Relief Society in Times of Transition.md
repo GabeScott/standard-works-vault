@@ -1,5 +1,6 @@
 # Relief Society in Times of Transition
-*By By Barbara B. Smith - Relief Society General President*
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -19,7 +20,7 @@ We each should take seriously the counsel to prepare. Recall the parable of the 
 
 “They that were foolish took their lamps, and took no oil with them:
 
-“But the wise took oil in their vessels with their lamps.” When the bridegroom came, they were ready. They “went in with him to the marriage: and the door was shut.” (Matt. 25:1–10.)
+“But the wise took oil in their vessels with their lamps.” When the bridegroom came, they were ready. They “went in with him to the marriage: and the door was shut.” ([[Matthew 25.1|Matt. 25:1–10]][[Matthew 25.2|]][[Matthew 25.3|]][[Matthew 25.4|]][[Matthew 25.5|]][[Matthew 25.6|]][[Matthew 25.7|]][[Matthew 25.8|]][[Matthew 25.9|]][[Matthew 25.10|]].)
 
 We should have the wisdom to personally prepare by understanding truth and living it with integrity so that we might be worthy disciples of Christ. Then, with him as the center of our lives, we can develop those Christlike qualities which will make us worthy of exaltation. We will gain added strength and a greater capacity for love. We will improve the skills of giving our love in such a way that we are prepared in the time of need.
 
@@ -29,7 +30,7 @@ Jesus directs us to do that in poignant parables, saying:
 
 “For I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in:
 
-“Naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me.” (Matt. 25:35–36.)
+“Naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me.” ([[Matthew 25.35|Matt. 25:35–36]][[Matthew 25.36|]].)
 
 He clearly explains that we must care enough to offer ourselves to meet the physical and spiritual needs of those around us. Doing this is charity. It is a beginning of the pure love of Christ.
 
@@ -49,13 +50,13 @@ A woman at a singles conference shared with me the terrible reality of her recen
 
 Can we really appreciate what another suffers? Probably not, but we have learned some important things about hard transitions that may help us to better understand ourselves or someone else in those difficult periods of change:
 
-A transition may prove an opportunity for spiritual, physical, intellectual and psychological development—or it can become a time of serious deterioration. The way is new and often difficult. It takes a great deal of courage and sometimes support from others to make a transition a time of growth.
+1. A transition may prove an opportunity for spiritual, physical, intellectual and psychological development—or it can become a time of serious deterioration. The way is new and often difficult. It takes a great deal of courage and sometimes support from others to make a transition a time of growth.
 
-In a time of transition, it is less the traumas of childhood that shape our ability to adjust to the change. It is more often the quality of sustained relationships with other people that makes the difference. Positive, supportive, ongoing relationships are a valuable resource in times of major change in one’s life.
+2. In a time of transition, it is less the traumas of childhood that shape our ability to adjust to the change. It is more often the quality of sustained relationships with other people that makes the difference. Positive, supportive, ongoing relationships are a valuable resource in times of major change in one’s life.
 
-It is not the transition itself that is of primary importance in seeking adjustment, but rather how the transition fits an individual’s circumstance at the time it occurs. Each person’s adjustment will be different because people are different, even though the crisis may seem to be the same.
+3. It is not the transition itself that is of primary importance in seeking adjustment, but rather how the transition fits an individual’s circumstance at the time it occurs. Each person’s adjustment will be different because people are different, even though the crisis may seem to be the same.
 
-There is often a measure of disorganization in a time of transition, but adaptation is more rapid and secure when there is reliable support from friends and associates.
+4. There is often a measure of disorganization in a time of transition, but adaptation is more rapid and secure when there is reliable support from friends and associates.
 
 Can you begin to realize how important the sisterhood of Relief Society is? Secure friendships and faith can make good transitions possible. Both were there as the widow asked for help, as the divorced woman received courage, as the returned missionary adjusted to her new life-style, as the young mother adapted to her encroaching blindness.
 
@@ -69,9 +70,9 @@ We can heighten our sensitivity to our neighbor’s needs, increasing our capaci
 
 We can develop attitudes of love and caring by remembering our basic Christian commitment to forgiveness, gentleness, and kindness. We can promote the good will among people that heralded the birth of the Savior, and we can encourage a profound personal appeal to our Heavenly Father for peace and strength to face adversity.
 
-But even immense goodwill cannot help us reach out to all sisters, making certain that none is overlooked. We must have a program, and we do. Relief Society is designed for this very purpose. During one of the first meetings of the Nauvoo Relief Society, Lucy Mack Smith stated: “This institution is a good one. ... We must cherish one another, watch over one another, comfort one another, and gain instruction.” (Minutes of the Female Relief Society of Nauvoo, March 17, 1842, in History of Relief Society 1842–1966, pub. by The General Board of Relief Society, 1966, p. 20.)
+But even immense goodwill cannot help us reach out to all sisters, making certain that none is overlooked. We must have a program, and we do. Relief Society is designed for this very purpose. During one of the first meetings of the Nauvoo Relief Society, Lucy Mack Smith stated: “This institution is a good one. … We must cherish one another, watch over one another, comfort one another, and gain instruction.” (Minutes of the Female Relief Society of Nauvoo, March 17, 1842, in *History of Relief Society 1842–1966,* pub. by The General Board of Relief Society, 1966, p. 20.)
 
-The Relief Society program can help us reach even the needs we may not know exist. I was told about one visiting teacher who, in a caring attitude, sent the sisters she visits a Christmas card. When she went to preparation meeting, the message teacher asked the visiting teachers to send a Christmas card to each of the sisters they visit and include their personal note with the card.
+The Relief Society program can help us reach even the needs we may not know exist. I was told about one visiting teacher who, in a caring attitude, sent the sisters she visits a Christmas card. When she went to preparation meeting, the message teacher asked the visiting teachers to send a Christmas card to each of the sisters they visit *and* include their personal note with the card.
 
 The visiting teacher was perplexed. She had already sent the cards, but she did not write the personal note. After debating with herself for some time she finally determined to send another card, this one with a personal note.
 
@@ -97,17 +98,20 @@ Relief Society’s response to aging sisters like her must take into account the
 
 Relief Society has a practical communication network to ensure that no sister, young or old, is neglected or forgotten. Visiting teachers, I plead that you bring the spirit of Relief Society into each home. Care for the lonely. Be at the bedside of the ailing. Share the light of the gospel in a world of much gloom.
 
-James Thomson observed: “Light! nature’s resplendent robe; without whose vesting beauty all were wrapt in gloom.” (In The New Dictionary of Thoughts, orig. comp. by Tryon Edwards, D.D., USA: Standard Book Co., 1961, p. 363.)
+James Thomson observed: “Light! nature’s resplendent robe; without whose vesting beauty all were wrapt in gloom.” (In *The New Dictionary of Thoughts,* orig. comp. by Tryon Edwards, D.D., USA: Standard Book Co., 1961, p. 363.)
 
 Help dispel gloom. Bring the light of truth. Do it through your senses, through your reason, and most significantly through the Spirit. It does not matter who you are or what you are currently doing with your life. The light of truth is there waiting to be discovered, and, being discovered, waiting to illuminate the life of each child of God.
 
 In times of transition and often great upheaval, it is easier for individuals to become paralyzed by the gloom than to have the illumination of the Spirit. That is why they need us to search for them and share the gospel light. This should become a resolve in the heart of each sister.
 
-In the play Winterset, Mio says, “I came here seeking light in darkness, running from the dawn, and stumbled on a morning.” I want each of you to prepare and to give of your light, even in the darkness of your own nights, so that you too will stumble on a beautiful morning. Remember your covenant of baptism as discussed in Mosiah, when Alma asks if we “are willing to bear one another’s burdens, that they may be light;
+In the play *Winterset,* Mio says, “I came here seeking light in darkness, running from the dawn, and stumbled on a morning.” I want each of you to prepare and to give of your light, even in the darkness of your own nights, so that you too will stumble on a beautiful morning. Remember your covenant of baptism as discussed in Mosiah, when Alma asks if we “are willing to bear one another’s burdens, that they may be light;
 
-“Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places.” (Mosiah 18:8–9.)
+“Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places.” ([[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]].)
 
 This passage beautifully portrays the role we should assume as women in the Church and as sisters in Relief Society who help one another through periods of transition, for it speaks of commitment to compassionate giving, to sympathetic understanding, and to encompassing concern.
 
 May we be wise enough to let our light shine out and our love reach out until we find ourselves illuminated and warmed by a charity that never faileth, I pray in the name of Jesus Christ, amen.
+
+
+
 

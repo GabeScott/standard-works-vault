@@ -1,21 +1,24 @@
 # “O That I Were an Angel, and Could Have the Wish of Mine Heart”
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2002 General Conference*
+
+>*I urge you … to utilize the temples of the Church. Go there and carry forward the great and marvelous work which the God of heaven has outlined for us.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2002/10/o-that-i-were-an-angel-and-could-have-the-wish-of-mine-heart?lang=eng)
 
 My beloved brethren and sisters, we greet you again in a great worldwide conference of The Church of Jesus Christ of Latter-day Saints.
 
-Alma declared, “O that I were an angel, and could have the wish of mine heart, that I might go forth and speak with the trump of God, with a voice to shake the earth, and cry repentance unto every people!” (Alma 29:1).
+Alma declared, “O that I were an angel, and could have the wish of mine heart, that I might go forth and speak with the trump of God, with a voice to shake the earth, and cry repentance unto every people!” ([[Alma 29.1|Alma 29:1]]).
 
-We have reached a point where we can almost do that. The proceedings of this conference will be carried across the world, and the speakers will be heard and seen by Latter-day Saints on every continent. We have come a very long way in realizing the fulfillment of the vision set forth in the book of Revelation: “And I saw another angel fly in the midst of heaven, having the everlasting gospel to preach unto them that dwell on the earth, and to every nation, and kindred, and tongue, and people” (Rev. 14:6).
+We have reached a point where we can almost do that. The proceedings of this conference will be carried across the world, and the speakers will be heard and seen by Latter-day Saints on every continent. We have come a very long way in realizing the fulfillment of the vision set forth in the book of Revelation: “And I saw another angel fly in the midst of heaven, having the everlasting gospel to preach unto them that dwell on the earth, and to every nation, and kindred, and tongue, and people” ([[Revelation 14.6|Rev. 14:6]]).
 
 What a tremendous occasion this is, my brothers and sisters. It is difficult to comprehend. We speak from this marvelous Conference Center. I know of no other building to compare with it.
 
 We are as one great family, representatives of the human family in this vast and beautiful world.
 
-Many of you participated in the dedication of the Nauvoo temple last June. It was a great and marvelous occasion, one to be long remembered. We not only dedicated a magnificent building, a house of the Lord, but we also dedicated a beautiful memorial to the Prophet Joseph Smith.
+Many of you participated in the dedication of the Nauvoo Temple last June. It was a great and marvelous occasion, one to be long remembered. We not only dedicated a magnificent building, a house of the Lord, but we also dedicated a beautiful memorial to the Prophet Joseph Smith.
 
 In 1841, two years after he came to Nauvoo, he broke ground for a house of the Lord that should stand as a crowning jewel to the work of God.
 
@@ -47,9 +50,9 @@ Under the prompting of the Spirit, and motivated by the desires of my father, wh
 
 Excitement filled the air. Men and women came forth with a desire to be helpful. Large contributions of money and skills were offered. Again, no expense was spared. We were to rebuild the house of the Lord as a memorial to the Prophet Joseph and as an offering to our God. On the recent 27th of June, in the afternoon at about the same time Joseph and Hyrum were shot in Carthage 158 years earlier, we held the dedication of the magnificent new structure. It is a place of great beauty. It stands on exactly the same site where the original temple stood. Its outside dimensions are those of the original. It is a fitting and appropriate memorial to the great Prophet of this dispensation, Joseph the Seer.
 
-How grateful I am, how profoundly grateful for what has happened. Today, facing west, on the high bluff overlooking the city of Nauvoo, thence across the Mississippi, and over the plains of Iowa, there stands Joseph’s temple, a magnificent house of God. Here in the Salt Lake Valley, facing east to that beautiful temple in Nauvoo, stands Brigham’s temple, the Salt Lake Temple. They look toward one another as bookends between which there are volumes that speak of the suffering, the sorrow, the sacrifice, even the deaths of thousands who made the long journey from the Mississippi River to the valley of the Great Salt Lake.
+How grateful I am, how profoundly grateful for what has happened. Today, facing west, on the high bluff overlooking the city of Nauvoo, thence across the Mississippi and over the plains of Iowa, there stands Joseph’s temple, a magnificent house of God. Here in the Salt Lake Valley, facing east to that beautiful temple in Nauvoo, stands Brigham’s temple, the Salt Lake Temple. They look toward one another as bookends between which there are volumes that speak of the suffering, the sorrow, the sacrifice, even the deaths of thousands who made the long journey from the Mississippi River to the valley of the Great Salt Lake.
 
-Nauvoo became the 113th working temple. We have since dedicated another in The Hague, Netherlands, making 114 in all. These wonderful buildings of various sizes and architectural designs are now scattered through the nations of the earth. They have been constructed to accommodate our people in carrying forward the work of the Almighty, whose design it is to bring to pass the immortality and eternal life of man (see Moses 1:39). These temples have been constructed to be used. We honor our Father as we make use of them.
+Nauvoo became the 113th working temple. We have since dedicated another in The Hague, Netherlands, making 114 in all. These wonderful buildings of various sizes and architectural designs are now scattered through the nations of the earth. They have been constructed to accommodate our people in carrying forward the work of the Almighty, whose design it is to bring to pass the immortality and eternal life of man (see [[Moses 1.39|Moses 1:39]]). These temples have been constructed to be used. We honor our Father as we make use of them.
 
 At the opening of the conference, I urge you, my brethren and sisters, to utilize the temples of the Church.
 
@@ -58,4 +61,7 @@ Go there and carry forward the great and marvelous work which the God of heaven 
 And there may we extend these same blessings to those of previous generations, even our own forebears who await the service which we can now give.
 
 May the blessings of heaven rest upon you, my beloved brethren and sisters. May the Spirit of Elijah touch your hearts and prompt you to do that work for others who cannot move forward unless you do so. May we rejoice in the glorious privilege that is ours, I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,7 +1,10 @@
 # Out of the Darkness
-*By Joseph Fielding Smith - President of the Church*
+
+By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1971 General Conference*
+
+>*Address delivered at general conference Saturday morning, April 3, 1971*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1971/04/out-of-the-darkness?lang=eng)
 
@@ -39,11 +42,11 @@ We know Joseph Smith is a prophet; that the Father and the Son appeared to him i
 
 We announce that The Church of Jesus Christ of Latter-day Saints is the kingdom of God on earth, the only place where men may come to learn the true doctrines of salvation and find the authority of the holy priesthood.
 
-We believe the Holy Ghost is a revelator and that he will bear testimony to honest people everywhere that Jesus Christ is the Son of God, that Joseph Smith is a prophet, and that this church is “the only true and living church upon the face of the whole earth.” (D&C 1:30.)
+We believe the Holy Ghost is a revelator and that he will bear testimony to honest people everywhere that Jesus Christ is the Son of God, that Joseph Smith is a prophet, and that this church is “the only true and living church upon the face of the whole earth.” ([[D&C 1.30|D&C 1:30]].)
 
 There is no need for anyone to remain in darkness; the light of the everlasting gospel is here; and every sincere investigator on earth can gain a personal witness from the Holy Spirit of the truth and divine nature of the Lord’s work.
 
-Peter said: “... God is no respecter of persons: But in every nation he that feareth him, and worketh righteousness, is accepted” by him (Acts 10:34–35), which means that the Lord will pour out his Spirit upon the faithful so they will know of themselves of the truths of this religion.
+Peter said: “… God is no respecter of persons: But in every nation he that feareth him, and worketh righteousness, is accepted” by him ([[Acts 10.34|Acts 10:34–35]][[Acts 10.35|]]), which means that the Lord will pour out his Spirit upon the faithful so they will know of themselves of the truths of this religion.
 
 Now, as one among you who has come to know, by the power of the Holy Ghost, that the Lord has restored his gospel and set up his kingdom again on the earth for the last time, I bear my testimony to the truth of these things.
 
@@ -52,4 +55,7 @@ I know that God lives; I know that Jesus Christ is the Only Begotten of the Fath
 And I pray that the Lord’s purposes on earth, both in and out of the Church, may speedily be brought to pass; that he will bless his faithful Saints; and that the hearts of hosts of men who seek truth and whose hearts are right before the Lord may become inheritors with us of the fullness of the blessings of the restored gospel.
 
 I say this in the name of the Lord Jesus Christ. Amen.
+
+
+
 

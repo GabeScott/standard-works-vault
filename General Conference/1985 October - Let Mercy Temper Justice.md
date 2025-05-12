@@ -1,5 +1,6 @@
 # Let Mercy Temper Justice
-*By Theodore M. Burton - Of the First Quorum of the Seventy*
+
+By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
 
@@ -15,15 +16,15 @@ During the course of my service, I have been given many different assignments. E
 
 I am presently serving on a special committee to assist the First Presidency in bringing back into full Christian fellowship those individuals who have strayed from the fold and who now have reached a point in their lives where they feel a need to regain their full priesthood and temple blessings. Each case requires the personal approval of the First Presidency. Our committee assignment is to organize each of these cases with full information in concise form so that the First Presidency can make a final disposition of each case, based on justice and mercy.
 
-I have been asked the question, “Isn’t it depressing to have to review the sins and transgressions of people involved in such difficulties?” It would be if I were looking for sins and transgressions. But I am working with people who are repenting. These are sons and daughters of God who have made mistakes—some of them very serious. But they are not sinners. They were sinners in the past but have learned through bitter experience the heartbreak that results from disobedience to God’s laws. Now they are no longer sinners. They are God’s repentant children who want to come back to Him and are striving to do so. They have made their mistakes and have paid for them. Now they seek understanding, love, and acceptance.
+I have been asked the question, “Isn’t it depressing to have to review the sins and transgressions of people involved in such difficulties?” It would be if I were looking for sins and transgressions. But I am working with people who are repenting. These are sons and daughters of God who have made mistakes—some of them very serious. But they are *not* sinners. They *were* sinners in the past but have learned through bitter experience the heartbreak that results from disobedience to God’s laws. *Now* they are no longer sinners. They are God’s repentant children who want to come back to Him and are striving to do so. They have made their mistakes and have paid for them. Now they seek understanding, love, and acceptance.
 
 I often wish that in the first place they had believed the words of the prophet Alma which he spoke to his wayward son, Corianton:
 
 “And now behold, my son, do not risk one more offense against your God upon those points of doctrine, which ye have hitherto risked to commit sin.
 
-“Do not suppose, because it has been spoken concerning restoration, that ye shall be restored from sin to happiness. Behold, I say unto you, wickedness never was happiness.” (Alma 41:9–10, italics added.)
+“Do not suppose, because it has been spoken concerning restoration, that ye shall be restored from sin to happiness. Behold, I say unto you, wickedness *never* was happiness.” ([[Alma 41.9|Alma 41:9–10]][[Alma 41.10|]], italics added.)
 
-Just as a sewing pattern determines the dress or clothes we wear, so our present lives determine our future existence. Why do people have to go through the “school of hard knocks” to learn this truth? The scriptures and instructions from our spiritual leaders teach us how to avoid the heartache which always results from sin.
+Just as a sewing pattern determines the dress or clothes we wear, so our present lives determine our future existence. Why do people have to go through the “school of hard knocks” to learn this truth? The scriptures and instructions from our spiritual leaders teach us how to avoid the heartache which *always* results from sin.
 
 I have had people tell or write me how much they have learned as they have overcome their sins and thus have brought new happiness to themselves and their families. But how much better had it been if husbands and wives had learned to be kind and considerate, loving and thoughtful, virtuous and true, and had avoided that heartbreak right from the beginning? Many people have done so and have been happy. Others have had to learn to do the right things the hard way before they found happiness.
 
@@ -31,7 +32,7 @@ But the people I work with are on the road back. So I rejoice as I organize and 
 
 Then I take time to teach that person how to avoid a recurrence of the problem. Once a person has transgressed, Satan tries hard to discourage that individual and take away his (or her) hope of ever being completely freed from that sin. I explain that God truly loves him and that through the love and atonement of Jesus Christ even personal sins can and will be forgiven, and completely wiped away, if he will only forsake sin and never give way to that temptation again. As General Authorities, we are spiritual healers trying to help people put their lives—and where possible their families—back in order again so that the person involved, if he or she will continue to live righteously, can eventually return to the very presence of God, the Eternal Father.
 
-It saddens me when I hear how some of our members and even sometimes our local leaders treat people who have to be disciplined for transgression. I realize there is a tendency to equate the word discipline with the word punish, but there is a difference between these words. In English, at least, the word discipline has the same root as the word disciple. A disciple is a student, to be taught. In dealing with transgressors, we must remember that they desperately need to be taught. Ofttimes the transgressor is so belligerent that it is impossible to teach him at the moment.
+It saddens me when I hear how some of our members and even sometimes our local leaders treat people who have to be disciplined for transgression. I realize there is a tendency to equate the word *discipline* with the word *punish,* but there is a difference between these words. In English, at least, the word *discipline* has the same root as the word *disciple.* A disciple is a student, to be taught. In dealing with transgressors, we must remember that they desperately *need* to be taught. Ofttimes the transgressor is so belligerent that it is impossible to teach him at the moment.
 
 However, if we can remember that he or she is a child of God, we will never abandon him or her. For a branch president or bishop to advise his people to avoid further contact with transgressors is most unwise and unkind. It is at such moments of rebellion or anger when they most need help. We should continue to make friendly overtures to them, not in a spirit of challenge or criticism, but in a spirit of compassion.
 
@@ -39,19 +40,22 @@ The more I study the Book of Mormon, the more I appreciate the spirit of kindnes
 
 “And behold, ye shall meet together oft; and ye shall not forbid any man from coming unto you when ye shall meet together, but suffer them that they may come unto you and forbid them not;
 
-“But ye shall pray for them, and shall not cast them out; and if it so be that they come unto you oft ye shall pray for them unto the Father, in my name.” (3 Ne. 18:22–23.)
+“But ye shall pray for them, and shall not cast them out; and if it so be that they come unto you oft ye shall pray for them unto the Father, in my name.” ([[3 Nephi 18.22|3 Ne. 18:22–23]][[3 Nephi 18.23|]].)
 
-Unworthy persons are not to partake of the sacrament that they may not mock that holy ordinance in which we covenant to obey and keep the laws of God. The Savior then continues: “Nevertheless, ye shall not cast him out from among you, but ye shall minister unto him and shall pray for him unto the Father, in my name.” (3 Ne. 18:30.)
+Unworthy persons are not to partake of the sacrament that they may not mock that holy ordinance in which we covenant to obey and keep the laws of God. The Savior then continues: “Nevertheless, ye shall not cast him out from among you, but ye shall minister unto him and shall pray for him unto the Father, in my name.” ([[3 Nephi 18.30|3 Ne. 18:30]].)
 
 I understand that to “minister” means we should teach, befriend, and help that person to understand, repent, and return to God. If that person then repents and is baptized, that is good. But if that person refuses to repent, he or she is not yet ready to be numbered among the members of the Church of Christ. The Savior then instructs us how to treat those who have not yet repented:
 
-“Nevertheless, ye shall not cast him out of your synagogues, or your places of worship, for unto such shall ye continue to minister; for ye know not but what they will return and repent, and come unto me with full purpose of heart, and I shall heal them; and ye shall be the means of bringing salvation unto them.” (3 Ne. 18:32.)
+“Nevertheless, ye shall not cast him out of your synagogues, or your places of worship, for unto such shall ye continue to minister; for ye know not but what they will return and repent, and come unto me with full purpose of heart, and I shall heal them; and ye shall be the means of bringing salvation unto them.” ([[3 Nephi 18.32|3 Ne. 18:32]].)
 
-I urge you especially to consider the problems which families of transgressors have to face. When a person has to be disciplined, remember the impact this has on his or her family. That family is already crushed by what has occurred. The family has been betrayed and abused, and individual family members often feel the taint of that transgression upon them even though they may be personally innocent. Do not abandon them in their hour of need. Never will they need friends more than at that moment. Never will they need acceptance, kindness, and understanding more than in those first few months after their betrayal. Do not widen the breach. Do not further condemn the offender in the minds of family members. That will only delay the healing process and make forgiveness more difficult. Put yourself in their place. They need strength and encouragement and often financial or physical aid. A spouse left alone finds it difficult to cope with the many changes that have to be made. I ask you just to be there—a pillar of friendship on which they can lean, a comforter and protector of the children within that family.
+I urge you especially to consider the problems which families of transgressors have to face. When a person has to be disciplined, remember the impact this has on his or her family. That family is already crushed by what has occurred. The family has been betrayed and abused, and individual family members often feel the taint of that transgression upon them even though they may be personally innocent. Do not abandon them in their hour of need. Never will they need friends more than at that moment. Never will they need acceptance, kindness, and understanding more than in those first few months after their betrayal. Do not widen the breach. Do not further condemn the offender in the minds of family members. That will only delay the healing process and make forgiveness more difficult. Put yourself in their place. They need strength and encouragement and often financial or physical aid. A spouse left alone finds it difficult to cope with the many changes that have to be made. I ask you just to *be* there—a pillar of friendship on which they can lean, a comforter and protector of the children within that family.
 
 Thus, as one of the General Authorities, and in fulfilling part of my present duty, I plead with you to be kind to these distressed children of God who need you now more than ever. May we heed the advice of our Savior: “A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another.
 
-“By this shall all men know that ye are my disciples, if ye have love one to another.” (John 13:34–35.)
+“By this shall all men know that ye are my disciples, if ye have love one to another.” ([[John 13.34|John 13:34–35]][[John 13.35|]].)
 
 That we may do so I pray in the name of Jesus Christ, amen.
+
+
+
 

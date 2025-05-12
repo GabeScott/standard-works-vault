@@ -1,5 +1,6 @@
 # Everything Dear
-*By Robert L. Backman - Of the First Quorum of the Seventy*
+
+By Elder Robert L. Backman - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -16,4 +17,7 @@ President Benson, in our seminar last Friday, mentioned the fact that the highes
 I want to say to each one of you, my beloved brothers and sisters, that every blessing I have in my life, everything I hold dear and precious in my heart, I can trace to my membership in The Church of Jesus Christ of Latter-day Saints, to my love of the Lord, to the testimony I have of his divine gospel, and to the responses I’ve made to the opportunities of service.
 
 I rejoice now for the opportunity of concentrating my entire life to his service, and without reservation I lay my life and everything I have at his feet. President Kimball and my beloved brethren, my dear wife and I are prepared to go wherever you want to send us and do whatever you ask of us, and pray only that we might be instruments in the hands of the Lord to assist you dear brethren in your awesome assignment to build the kingdom of God; to sanctify his people; and to prepare the way when Christ will come in all of his glory and will take the reins of government, and Satan will be bound, and every knee will bow and every tongue will confess that he is the Savior of the world, and he will reign forever and ever, which I testify in the name of Jesus Christ. Amen.
+
+
+
 

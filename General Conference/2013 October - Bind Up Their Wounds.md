@@ -1,7 +1,10 @@
 # Bind Up Their Wounds
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2013 General Conference*
+
+>*I pray that we may prepare ourselves to give whatever priesthood service the Lord may set before us on our mortal journey.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/10/bind-up-their-wounds?lang=eng)
 
@@ -29,9 +32,9 @@ In the Lord’s words the Samaritan, when he saw the wounded man, stopped becaus
 
 More than only feeling compassion, he acted. Always remember the specifics of the account:
 
-“And [he] went to him, and bound up his wounds, pouring in oil and wine, and set him on his own beast, and brought him to an inn, and took care of him.
+“And \[he\] went to him, and bound up his wounds, pouring in oil and wine, and set him on his own beast, and brought him to an inn, and took care of him.
 
-“And on the morrow when he departed, he took out two pence, and gave them to the host, and said unto him, Take care of him; and whatsoever thou spendest more, when I come again, I will repay thee.”1
+“And on the morrow when he departed, he took out two pence, and gave them to the host, and said unto him, Take care of him; and whatsoever thou spendest more, when I come again, I will repay thee.”[^1]
 
 You and the priesthood bearers you are called to lead can have at least three assurances. First, the Lord will give you, if you ask, the feelings of compassion He feels for those in need. Second, He will provide others, like the innkeeper, to join with you in your service. And third, the Lord, like the good Samaritan, will more than recompense all who join in giving help to those in need.
 
@@ -59,7 +62,7 @@ You young men cannot know what acts of priesthood service the Lord is preparing 
 
 In your service as a full-time missionary, you will go to thousands of people in great spiritual need. Many, until you teach them, will not even know that they have spiritual wounds that, left untreated, will bring endless misery. You will go on the Lord’s errand to rescue them. Only the Lord can bind up their spiritual wounds as they accept the ordinances that lead to eternal life.
 
-As a quorum member, as a home teacher, and as a missionary, you cannot help people repair spiritual damage unless your own faith is vibrant. That means far more than reading the scriptures regularly and praying over them. The prayer in the moment and quick glances in the scriptures are not preparation enough. The reassurance of what you will need comes with this counsel from the 84th section of the Doctrine and Covenants: “Neither take ye thought beforehand what ye shall say; but treasure up in your minds continually the words of life, and it shall be given you in the very hour that portion that shall be meted unto every man.”2
+As a quorum member, as a home teacher, and as a missionary, you cannot help people repair spiritual damage unless your own faith is vibrant. That means far more than reading the scriptures regularly and praying over them. The prayer in the moment and quick glances in the scriptures are not preparation enough. The reassurance of what you will need comes with this counsel from the [[D&C 84.85|84th section of the Doctrine and Covenants]]: “Neither take ye thought beforehand what ye shall say; but treasure up in your minds continually the words of life, and it shall be given you in the very hour that portion that shall be meted unto every man.”[^2]
 
 That promise can be claimed only if we “treasure up” the words of life and do it continually. The treasuring part of that scripture has meant for me a matter of feeling something about the words. For instance, when I have gone to try to help someone wavering in his or her faith about the Prophet Joseph Smith’s divine calling, feelings come back to me.
 
@@ -77,7 +80,16 @@ As we prepare to give succor for the Lord as His priesthood servants, there is a
 
 “But charity is the pure love of Christ, and it endureth forever; and whoso is found possessed of it at the last day, it shall be well with him.
 
-“Wherefore, my beloved brethren, pray unto the Father with all the energy of heart, that ye may be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ; that ye may become the sons of God; that when he shall appear we shall be like him, for we shall see him as he is; that we may have this hope; that we may be purified even as he is pure.”3
+“Wherefore, my beloved brethren, pray unto the Father with all the energy of heart, that ye may be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ; that ye may become the sons of God; that when he shall appear we shall be like him, for we shall see him as he is; that we may have this hope; that we may be purified even as he is pure.”[^3]
 
 I pray that we may prepare ourselves to give whatever priesthood service the Lord may set before us on our mortal journey. In the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Luke 10.33|Luke 10:33–35]][[Luke 10.34|]][[Luke 10.35|]].
+
+[^2]: [[D&C 84.85|Doctrine and Covenants 84:85]].
+
+[^3]: [[Moroni 7.46|Moroni 7:46–48]][[Moroni 7.47|]][[Moroni 7.48|]].
 

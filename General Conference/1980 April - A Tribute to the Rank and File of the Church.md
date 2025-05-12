@@ -1,5 +1,6 @@
 # A Tribute to the Rank and File of the Church
-*By Boyd K. Packer - Of the Quorum of the Twelve Apostles*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -13,7 +14,7 @@ Only a few, and they of most humble prospect, were party to it. It was as Paul h
 
 “Not many wise men after the flesh, not many mighty, not many noble, are called:
 
-“But God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty” (1 Cor. 1:26–27).
+“But God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty” ([[1 Corinthians 1.26|1 Cor. 1:26–27]][[1 Corinthians 1.27|]]).
 
 This sacred event, witnessed by those few, had been preceded by marvelous spiritual manifestations.
 
@@ -23,13 +24,13 @@ Angelic messengers had instructed them.
 
 The principle of revelation, thought by most to have concluded in centuries past, was demonstrated to be ongoing.
 
-The Book of Mormon had been published, and its pages carried a testimony of the prophet Moroni that angels have not “ceased to appear unto the children of men.” Nor will they, “so long as time shall last, or the earth shall stand, or there shall be one man upon the face thereof to be saved” (Moro. 7:36).
+The Book of Mormon had been published, and its pages carried a testimony of the prophet Moroni that angels have not “ceased to appear unto the children of men.” Nor will they, “so long as time shall last, or the earth shall stand, or there shall be one man upon the face thereof to be saved” ([[Moroni 7.36|Moro. 7:36]]).
 
 These humble men from among the common folks of that day were to become Apostles of the Lord Jesus Christ, as surely as Peter, the fisherman, and the other common men had been made Apostles in ancient times.
 
 And so the angels came, a continuation of them, to teach these men, to confer the priesthood upon them, to deliver keys of authority to them; for these were things that men could not assume, nor take to themselves.
 
-Above all, the Lord Himself appeared and reappeared, “That the fulness of my gospel might be proclaimed by the weak and the simple unto the ends of the world” (D&C 1:23).
+Above all, the Lord Himself appeared and reappeared, “That the fulness of my gospel might be proclaimed by the weak and the simple unto the ends of the world” ([[D&C 1.23|D&C 1:23]]).
 
 Those days of beginning were not so far away as we sometimes think. There sits behind me on the stand Elder LeGrand Richards of the Quorum of the Twelve Apostles.
 
@@ -49,19 +50,19 @@ The rank and file of The Church of Jesus Christ of Latter-day Saints, present an
 
 Lives are shaped through the influence of obscure, faithful members who carry the spirit of the gospel.
 
-When once I tried to thank a great teacher and patriarch, William E. Berrett, he quickly passed the credit back to one who had taught him. An old convert from Norway was called to teach a group of mischievous Aaronic Priesthood boys. They were greatly amused by his broken English, but somehow the Spirit polished his words and soon the boys responded.
+When once I tried to thank a great teacher and patriarch, William E. Berrett, he quickly passed the credit back to one who had taught him. An old convert from Norway was called to teach a group of mischievous Aaronic Priesthood boys. They were greatly amused by his broken English, but somehow the Spirit polished his words and soon the boys responded.
 
 I have heard Brother Berrett testify on more than one occasion, “We could warm our hands by the fire of his faith.”
 
-President Heber J. Grant once heard Bishop Millen Atwood preach a sermon in the Thirteenth Ward, “I was studying grammar at the time,” he said, “and he made some grammatical errors in his talk.
+President Heber J. Grant once heard Bishop Millen Atwood preach a sermon in the Thirteenth Ward, “I was studying grammar at the time,” he said, “and he made some grammatical errors in his talk.
 
-“I wrote down his first sentence, smiled to myself, and said: ‘I am going to get ... enough material to last me for the entire winter in my night school grammar class.’ We had to take ... four sentences a week, that were not grammatically correct, together with our corrections.
+“I wrote down his first sentence, smiled to myself, and said: ‘I am going to get … enough material to last me for the entire winter in my night school grammar class.’ We had to take … four sentences a week, that were not grammatically correct, together with our corrections.
 
-“... But I did not write anything more after that first sentence—not a word; and when Millen Atwood stopped preaching, tears were rolling down my cheeks, tears of gratitude and thanksgiving that welled up into my eyes because of the marvelous testimony which that man bore of the divine mission of Joseph Smith, the Prophet of God. ...”
+“… But I did not write anything more after that first sentence—not a word; and when Millen Atwood stopped preaching, tears were rolling down my cheeks, tears of gratitude and thanksgiving that welled up into my eyes because of the marvelous testimony which that man bore of the divine mission of Joseph Smith, the Prophet of God. …”
 
-He continued: “Although it is now more than sixty-five years since I listened to that sermon, it is just as vivid today, and the sensations and feelings that I had are just as fixed with me, as they were the day I heard it. ...
+He continued: “Although it is now more than sixty-five years since I listened to that sermon, it is just as vivid today, and the sensations and feelings that I had are just as fixed with me, as they were the day I heard it. …
 
-“... the one thing above all others that has impressed me has been the spirit, the inspiration of the living God that an individual had, when proclaiming the Gospel, and not the language. ... I have endeavored, from that day to this ... to judge men and women by the spirit they have; for I have learned absolutely, that it is the spirit that giveth life and understanding, and not the letter—the letter killeth” (Improvement Era, Apr. 1939, p. 201).
+“… the one thing above all others that has impressed me has been the spirit, the inspiration of the living God that an individual had, when proclaiming the Gospel, and not the language. … I have endeavored, from that day to this … to judge men and women by the spirit they have; for I have learned absolutely, that it is the spirit that giveth life and understanding, and not the letter—the letter killeth” (*Improvement Era,* Apr. 1939, p. 201).
 
 Whenever we seek for true testimony we come, finally, to ordinary men and women and children.
 
@@ -71,7 +72,7 @@ Let me quote from the diary of Joseph Millett, a little-known missionary of an e
 
 “The promise in my blessing and the encouraging words of President Young to me, with the faith I had in the gospel, kept me up.
 
-“Many times I would turn into the woods ... in some desolate place with a heart full, wet eyes, to call on my master for strength or aid.
+“Many times I would turn into the woods … in some desolate place with a heart full, wet eyes, to call on my master for strength or aid.
 
 “I believed the Gospel of Christ. I had never preached it. I knew not where to find it in the scriptures.”
 
@@ -105,39 +106,39 @@ When President Kimball first came here as a member of the Twelve, he was asked t
 
 “Brother Kimball, have you ever been to heaven?”
 
-His answer seemed to be a shock, as he said without hesitation, “Why, yes ... certainly. I had a glimpse of heaven just before coming to your studio.”
+His answer seemed to be a shock, as he said without hesitation, “Why, yes … certainly. I had a glimpse of heaven just before coming to your studio.”
 
 He then told of an experience in the temple where he had performed a marriage:
 
-“As the subdued congratulations were extended, a happy father ... offered his hand and said, ‘Brother Kimball, my wife and I are common people and have never been successful, but we are immensely proud of our family. ... This is the last of our eight children to come into this holy house for temple marriage. They, with their companions, are here to participate in the marriage of this, the youngest.’ ...
+“As the subdued congratulations were extended, a happy father … offered his hand and said, ‘Brother Kimball, my wife and I are common people and have never been successful, but we *are* immensely proud of our family. … This is the last of our eight children to come into this holy house for temple marriage. They, with their companions, are here to participate in the marriage of this, the youngest.’ …
 
-“I looked at his calloused hands, his rough exterior, and thought to myself, ‘Here is a real son of God fulfilling his destiny’” (Ensign, Dec. 1971, p. 36; also in Conference Report, Oct. 1971, pp. 152–53).
+“I looked at his calloused hands, his rough exterior, and thought to myself, ‘Here is a real son of God fulfilling his destiny’” (*Ensign,* Dec. 1971, p. 36; also in Conference Report, Oct. 1971, pp. 152–53).
 
-President J. Reuben Clark told of pioneer members of the Church in these words:
+President J. Reuben Clark told of pioneer members of the Church in these words:
 
 “Day after day, they of the last wagon pressed forward, worn and tired, footsore, sometimes almost disheartened, borne up by their faith that God loved them, that the restored gospel was true, and that the Lord led and directed the Brethren out in front.
 
 He then told of the morning:
 
-“... when from out that last wagon floated the [cry] of the newborn babe, and mother love made a shrine, and Father bowed in reverence before it. But the train must move on. So out into the dust and dirt the last wagon moved again. ...
+“… when from out that last wagon floated the \[cry\] of the newborn babe, and mother love made a shrine, and Father bowed in reverence before it. But the train must move on. So out into the dust and dirt the last wagon moved again. …
 
-“Who will dare to say that angels did not cluster round and guard her and ease her rude bed, for she had given another choice spirit its mortal body” (Improvement Era, Nov. 1947, p. 705).
+“Who will dare to say that angels did not cluster round and guard her and ease her rude bed, for she had given another choice spirit its mortal body” (*Improvement Era,* Nov. 1947, p. 705).
 
 Who would dare to say that angels do not now attend the rank and file of the Church who—
 
-answer the calls to the mission fields,
+- answer the calls to the mission fields,
 
-teach the classes,
+- teach the classes,
 
-pay their tithes and offerings,
+- pay their tithes and offerings,
 
-seek for the records of their forebears,
+- seek for the records of their forebears,
 
-work in the temples,
+- work in the temples,
 
-raise their children in faith,
+- raise their children in faith,
 
-and have brought this work through 150 years?
+- and have brought this work through 150 years?
 
 There comes a witness, also, from some who have stumbled and fallen but have struggled back and have found the sweet, forgiving, cleansing influence of repentance. They now stand approved of the Lord, clean before Him; His Spirit has returned to them and they are guided by it. Without reviewing the hard lessons of the past they guide others to that Spirit.
 
@@ -145,11 +146,11 @@ Who would dare to say that the day of miracles has ceased? Those things have not
 
 For the power and inspiration of the Almighty rests upon this people today as surely as it did in those days of beginning:
 
-“It is by faith that miracles are wrought; and it is by faith that angels appear and minister unto men; wherefore, if these things have ceased wo be unto the children of men, for it is because of unbelief” (Moro. 7:37).
+“It is by faith that miracles are wrought; and it is by faith that angels appear and minister unto men; wherefore, if these things have ceased wo be unto the children of men, for it is because of unbelief” ([[Moroni 7.37|Moro. 7:37]]).
 
 The prophet Moroni taught that angelic messengers would accomplish their work “by declaring the word of Christ unto the chosen vessels of the Lord, that they may bear testimony of him.
 
-“And by so doing, the Lord God prepareth the way that the residue of men may have faith in Christ, that the Holy Ghost may have place in their hearts” (Moro. 7:31–32).
+“And by so doing, the Lord God prepareth the way that the residue of men may have faith in Christ, that the Holy Ghost may have place in their hearts” ([[Moroni 7.31|Moro. 7:31–32]][[Moroni 7.32|]]).
 
 There has come, these last several years, a succession of announcements that show our day to be a day of intense revelation, equaled, perhaps, only in those days of beginning, 150 years ago.
 
@@ -182,4 +183,7 @@ I know that angels minister unto men.
 I am a witness to the truth that Jesus is the Christ, the Son of God, the Only Begotten of the Father; that He has a body of flesh and bone; that He knows those who are His servants here and that He is known of them.
 
 I know that He directs this Church now, as He established it then, through a prophet of God. In the name of Jesus Christ, amen.
+
+
+
 

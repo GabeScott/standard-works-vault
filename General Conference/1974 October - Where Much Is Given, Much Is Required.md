@@ -1,5 +1,6 @@
 # Where Much Is Given, Much Is Required
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -25,7 +26,7 @@ You should know that of the more than 18,000 missionaries serving fulltime in th
 
 This accounts for both the vigor of the work and the great appeal that it has for young people. It takes a powerful conviction for a young person to give up two years of exciting, youthful activity and pay his own way to preach the gospel.
 
-It should not be surprising that they succeed, for they teach the truth! It is His church. By His own declaration, “The only true and living church upon the face of the whole earth.” (D&C 1:30.)
+It should not be surprising that they succeed, for they teach the truth! It is His church. By His own declaration, “The only true and living church upon the face of the whole earth.” ([[D&C 1.30|D&C 1:30]].)
 
 Notwithstanding our eager proselyting, this is not an easy church to join. For the average person it requires nearly a complete change in his way of life. This becomes a great challenge to some, even though every change would be a sensible improvement in anyone’s life, whether they joined the Church or not.
 
@@ -83,9 +84,9 @@ A few days later the branch president persuaded the elders to join him in anothe
 
 As they departed, almost as an afterthought, he turned and said, “Have you ever wondered why people will do all of these things willingly? I have never received a bill for tithing. No one has ever called to collect it. But we pay it—and all of the rest—and count it a great privilege.
 
-“If you could discover why, you would be within reach of the pearl of great price, which the Lord said the merchant man was willing to sell all that he had that he might obtain it.
+“If you could discover *why,* you would be within reach of the pearl of great price, which the Lord said the merchant man was willing to sell all that he had that he might obtain it.
 
-“But,” said the branch president, “It is your decision. I only hope you will pray about it.”
+“But,” said the branch president, “It is *your* decision. I only hope you will pray about it.”
 
 A few days later the man appeared at the branch president’s home. No, he did not want to reschedule the missionaries. That would not be necessary. He wanted to schedule the baptism of his family. They had been praying, fervently praying.
 
@@ -95,9 +96,9 @@ We have in our custody the greatest thing on this earth. And, should the questio
 
 Even members who have difficulty living the standards (and we have them) will generally defend those standards. Old members, as well as new members, need to be fellowshiped and trained so that when they come into the Church they at once come out of the world.
 
-“The kingdom of heaven is like unto a merchant man, seeking goodly pearls:
+“The kingdom of heaven *is* like unto a merchant man, seeking goodly pearls:
 
-“Who, when he had found one pearl of great price, went and sold all that he had,” that he might obtain it. (Matt. 13:45–46. Italics added.)
+“Who, when he had found one pearl of great price, went and sold all that he had,” that he might obtain it. ([[Matthew 13.45|Matt. 13:45–46]][[Matthew 13.46|]]. Italics added.)
 
 Now, lest some of you think all of this giving up of things and this rearranging of your habits is more painful than it really is, I should repeat a statement by Lady Astor.
 
@@ -111,7 +112,7 @@ In the late 1850s many converts from Europe were struggling to reach the Great S
 
 One such company was commanded by a Brother McArthur. Archer Walters, an English convert who was with the company, recorded in his diary under July 2, 1856, this sentence:
 
-“Brother Parker’s little boy, age six, was lost, and the father went back to hunt him.” (LeRoy R. Hafen and Ann W. Hafen, Handcarts to Zion, Pioneers Ed. Glendale, California, The Arthur H. Clark Co., 1960, p. 61.)
+“Brother Parker’s little boy, age six, was lost, and the father went back to hunt him.” (LeRoy R. Hafen and Ann W. Hafen, *Handcarts to Zion,* Pioneers Ed. Glendale, California, The Arthur H. Clark Co., 1960, p. 61.)
 
 The boy, Arthur, was next youngest of four children of Robert and Ann Parker. Three days earlier the company had hurriedly made camp in the face of a sudden thunderstorm. It was then the boy was missed. The parents had thought him to be playing along the way with the other children.
 
@@ -133,17 +134,17 @@ One of the diaries records: “Ann Parker fell in a pitiful heap upon the sand, 
 
 Under July 5, Brother Walters recorded:
 
-“Brother Parker came into camp with a little boy that had been lost. Great joy through the camp. The mother’s joy I cannot describe.” (Hafen and Hafen, Handcarts to Zion, p. 61.)
+“Brother Parker came into camp with a little boy that had been lost. Great joy through the camp. The mother’s joy I cannot describe.” (Hafen and Hafen, *Handcarts to Zion,* p. 61.)
 
 We do not know all of the details. A nameless woodsman—I’ve often wondered how unlikely it was that a woodsman should be there—found the little boy and described him as being sick with illness and with terror, and he cared for him until his father found him.
 
 So here a story, commonplace in its day, ends—except for a question. How would you, in Ann Parker’s place, feel toward the nameless woodsman had he saved your little son? Would there be any end to your gratitude?
 
-To sense this is to feel something of the gratitude our Father must feel toward any of us who saves one of his children. Such gratitude is a prize dearly to be won, for the Lord has said, “If it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” (D&C 18:15.) Even so, I might add, if that soul should be our own.
+To sense this is to feel something of the gratitude our Father must feel toward any of us who saves one of his children. Such gratitude is a prize dearly to be won, for the Lord has said, “If it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!” ([[D&C 18.15|D&C 18:15]].) Even so, I might add, if that soul should be our own.
 
 And so we appeal to all to come. We call you from the world, more for what you can give than for what you can get. You are needed here. Come by families if you can, or alone if you must.
 
-Here all that the Father hath can be given unto you. But not without cost, “For unto whomsoever much is given,” much shall be required. (Luke 12:48.)
+Here all that the Father hath can be given unto you. But not without cost, “For unto whomsoever much is given,” much shall be required. ([[Luke 12.48|Luke 12:48]].)
 
 This is His church. In it you will not stand approved of all men. Many, perhaps most, will consider you strange. Some of the doctrines are not easy to understand or to accept. The commandments are not easy to live. The standards, I repeat, are high, but you can start where you are.
 
@@ -152,4 +153,7 @@ Many of you are burdened with unhappiness and worry and with guilt. Many of you 
 We are not offended at all of these things. All of these things may be set aside—overcome. Whoever you are and whatever you are, we reach out to extend to you the hand of fellowship so that we can lift one another and lift others.
 
 This is His church. I have that witness. Jesus is the Christ; he lives. It’s commonly taught that he is but an influence in the world. I know him to be Jesus Christ, the Son of God, the Only Begotten of the Father. I testify that he has a body of flesh and bones. This is his church. Of that I bear witness, in the name of Jesus Christ. Amen.
+
+
+
 

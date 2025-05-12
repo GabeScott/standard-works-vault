@@ -1,7 +1,10 @@
 # Even as Christ Forgives You, So Also Do Ye
-*By Larry J. Echo Hawk - Of the Seventy*
+
+By Elder Larry J. Echo Hawk - *Of the Seventy*
 
 *Given in the April session of the 2018 General Conference*
+
+>*We can all receive unspeakable peace and partnering with our Savior as we learn to freely forgive those who have trespassed against us.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/04/even-as-christ-forgives-you-so-also-do-ye?lang=eng)
 
@@ -15,9 +18,9 @@
 
 “And as they were afraid, and bowed down their faces to the earth, they said unto them, Why seek ye the living among the dead?
 
-“He is not here, but is risen.”
+“He is not here, but is risen.”[^1]
 
-Tomorrow, the Easter Sabbath, we will remember in a special way what Jesus Christ has done for us: “For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.” Eventually, we will be resurrected as He was, to live forever.
+Tomorrow, the Easter Sabbath, we will remember in a special way what Jesus Christ has done for us: “For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.”[^2] Eventually, we will be resurrected as He was, to live forever.
 
 Through the miracle of the sacred Atonement of Jesus Christ, we can also receive the gift of forgiveness of our sins and misdeeds, if we accept the opportunity and responsibility of repentance. And by receiving necessary ordinances, keeping covenants, and obeying commandments, we can gain eternal life and exaltation.
 
@@ -41,35 +44,56 @@ The Savior taught:
 
 “For if ye forgive men their trespasses, your heavenly Father will also forgive you:
 
-“But if ye forgive not men their trespasses, neither will your Father forgive your trespasses.”
+“But if ye forgive not men their trespasses, neither will your Father forgive your trespasses.”[^3]
 
 We can all receive unspeakable peace and partnering with our Savior as we learn to freely forgive those who have trespassed against us. This partnering brings the Savior’s power into our lives in an unmistakable and never-to-be-forgotten way.
 
 The Apostle Paul counseled:
 
-“Put on therefore, as the elect of God, ... bowels of mercies, kindness, humbleness of mind, meekness, longsuffering;
+“Put on therefore, as the elect of God, … bowels of mercies, kindness, humbleness of mind, meekness, longsuffering;
 
-“Forbearing one another, and forgiving one another ... : even as Christ forgave you, so also do ye.”
+“Forbearing one another, and forgiving one another … : *even as Christ forgave you, so also do ye.*”[^4]
 
 The Lord Himself declared:
 
 “Wherefore, I say unto you, that ye ought to forgive one another; for he that forgiveth not his brother his trespasses standeth condemned before the Lord; for there remaineth in him the greater sin.
 
-“I, the Lord, will forgive whom I will forgive, but of you it is required to forgive all men.”
+“I, the Lord, will forgive whom I will forgive, but of you it is required to forgive all men.”[^5]
 
-The teachings of our Savior and Redeemer, Jesus Christ, are clear; the sinner must be willing to forgive others if he or she hopes to obtain forgiveness.
+The teachings of our Savior and Redeemer, Jesus Christ, are clear; the sinner must be willing to forgive others if he or she hopes to obtain forgiveness.[^6]
 
 Brothers and sisters, are there people in our lives who have hurt us? Do we harbor what seem like fully justified feelings of resentment and anger? Are we letting pride keep us from forgiving and letting go? I invite all of us to forgive completely and let healing occur from within. And even if forgiveness doesn’t come today, know that as we desire it and work for it, it will come—just as it eventually did for me after my brother’s death.
 
 Please also remember that an essential element of forgiveness includes forgiving ourselves.
 
-“He who has repented of his sins,” the Lord said, “the same is forgiven, and I, the Lord, remember them no more.”
+“He who has repented of his sins,” the Lord said, “the same is forgiven, and I, the Lord, remember them no more.”[^7]
 
-I plead for all of us this day to remember and follow the example of Jesus Christ. On the cross at Golgotha, in His anguish, He uttered these words: “Father, forgive them; for they know not what they do.”
+I plead for all of us this day to remember and follow the example of Jesus Christ. On the cross at Golgotha, in His anguish, He uttered these words: “Father, forgive them; for they know not what they do.”[^8]
 
-By having a forgiving spirit and acting upon it, like my parents and oldest sister, we can realize the promise of the Savior: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.”
+By having a forgiving spirit and acting upon it, like my parents and oldest sister, we can realize the promise of the Savior: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.”[^9]
 
 I witness this peace will come into our lives as we heed the teachings of Jesus Christ and follow His example by forgiving others. As we forgive, I promise the Savior will strengthen us, and His power and joy will flow into our lives.
 
 The tomb is empty. Christ lives. I know Him. I love Him. I am grateful for His grace, which is the strengthening power that is sufficient to heal all things. In the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Luke 24.1|Luke 24:1–6]][[Luke 24.2|]][[Luke 24.3|]][[Luke 24.4|]][[Luke 24.5|]][[Luke 24.6|]].
+
+[^2]: [[John 3.16|John 3:16]].
+
+[^3]: [[Matthew 6.14|Matthew 6:14–15]][[Matthew 6.15|]].
+
+[^4]: [[Colossians 3.12|Colossians 3:12–13]][[Colossians 3.13|]]; emphasis added.
+
+[^5]: [[D&C 64.9|Doctrine and Covenants 64:9–10]][[D&C 64.10|]].
+
+[^6]: See James E. Talmage, *The Articles of Faith,* 12th ed. (1924), 110.
+
+[^7]: [[D&C 58.42|Doctrine and Covenants 58:42]].
+
+[^8]: [[Luke 23.34|Luke 23:34]].
+
+[^9]: [[John 14.27|John 14:27]].
 

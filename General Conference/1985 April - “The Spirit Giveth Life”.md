@@ -1,5 +1,6 @@
 # “The Spirit Giveth Life”
-*By Thomas S. Monson - Of the Quorum of the Twelve Apostles*
+
+By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
 
@@ -13,47 +14,40 @@ I am told that on occasion when a missionary in training feels that the Spanish 
 
 There is one language, however, that is understood by each missionary: the language of the Spirit. It is not learned from textbooks written by men of letters, nor is it acquired through reading and memorization. The language of the Spirit comes to him who seeks with all his heart to know God and to keep His divine commandments. Proficiency in this language permits one to breach barriers, overcome obstacles, and touch the human heart.
 
-The Apostle Paul, in his second epistle to the Corinthians, urges that we turn from the narrow confinement of the letter of the law and seek the open vista of opportunity which the Spirit provides. I love and cherish Paul’s statement: “The letter killeth, but the spirit giveth life.” (2 Cor. 3:6.)
+The Apostle Paul, in his second epistle to the Corinthians, urges that we turn from the narrow confinement of the letter of the law and seek the open vista of opportunity which the Spirit provides. I love and cherish Paul’s statement: “The letter killeth, but the spirit giveth life.” ([[2 Corinthians 3.6|2 Cor. 3:6]].)
 
 In a day of danger or a time of trial, such knowledge, such hope, such understanding bring comfort to the troubled mind and grieving heart. The entire message of the New Testament breathes a spirit of awakening to the human soul. Shadows of despair are dispelled by rays of hope, sorrow yields to joy, and the feeling of being lost in the crowd of life vanishes with the certain knowledge that our Heavenly Father is mindful of each of us.
 
-The Savior provided assurance of this truth when He taught that even a sparrow shall not fall to the ground unnoticed by our Father. He then concluded the beautiful thought by saying, “Fear ye not therefore, ye are of more value than many sparrows.” (Matt. 10:29–31.)
+The Savior provided assurance of this truth when He taught that even a sparrow shall not fall to the ground unnoticed by our Father. He then concluded the beautiful thought by saying, “Fear ye not therefore, ye are of more value than many sparrows.” ([[Matthew 10.29|Matt. 10:29–31]][[Matthew 10.30|]][[Matthew 10.31|]].)
 
 We live in a complex world with daily challenges. There is a tendency to feel detached—even isolated—from the Giver of every good gift. We worry that we walk alone.
 
-From the bed of pain, from the pillow wet with the tears of loneliness, we are lifted heavenward by that divine assurance and precious promise, “I will not fail thee, nor forsake thee.” (Josh. 1:5.)
+From the bed of pain, from the pillow wet with the tears of loneliness, we are lifted heavenward by that divine assurance and precious promise, “I will not fail thee, nor forsake thee.” ([[Joshua 1.5|Josh. 1:5]].)
 
 Such comfort is priceless as we journey along the pathway of mortality, with its many forks and turnings. Rarely is the assurance communicated by a flashing sign or a loud voice. Rather, the language of the Spirit is gentle, quiet, uplifting to the heart and soothing to the soul.
 
 At times, the answers to our questions and the responses to our daily prayers come to us through silent promptings of the Spirit. As William Cowper wrote:
 
-God moves in a mysterious way
-
-His wonders to perform;
-
-He plants his footsteps in the sea
-
-And rides upon the storm. ...
-
-Judge not the Lord by feeble sense,
-
-But trust him for his grace;
-
-Behind a frowning providence
-
-He hides a smiling face.
-
-(Hymns, no. 48.)
+>God moves in a mysterious way
+>His wonders to perform;
+>He plants his footsteps in the sea
+>And rides upon the storm. …
+>
+>Judge not the Lord by feeble sense,
+>But trust him for his grace;
+>Behind a frowning providence
+>He hides a smiling face.
+>
 
 We watch. We wait. We listen for that still, small voice. When it speaks, wise men and women obey. We do not postpone following promptings of the Spirit.
 
 To address such a sacred subject, may I refer not to the writings of others, but to the actual experiences of my life. I testify to their truth, for I lived them. I share with you today three cherished examples of what President David O. McKay identified as “heart petals”—the language of the Spirit, the promptings from a heavenly source.
 
-First, the inspiration which attends a call to serve.
+*First,* the inspiration which attends a call to serve.
 
-Second, the gratitude of God for a life well lived.
+*Second,* the gratitude of God for a life well lived.
 
-Third, the knowledge that we do not walk alone.
+*Third,* the knowledge that we do not walk alone.
 
 Every bishop can testify to the promptings which attend calls to serve in the Church. Frequently the call seems to be not so much for the benefit of those to be taught or led as for the person who is to teach or lead.
 
@@ -81,5 +75,8 @@ Slowly but surely, strength and movement returned to Stan’s legs. First he cou
 
 Frequently Stan speaks in Church meetings and tells of the goodness of the Lord to him. To some he reveals the dark thoughts of depression which engulfed him that afternoon as he sat in his wheelchair at the edge of the pool, sentenced, it seemed, to a life of despair. He tells how he pondered the alternative. It would be so easy to propel the hated wheelchair into the silent water of the deep pool. Life would then be over. But at that precise moment he saw me, his friend. That day Stan learned literally that we do not walk alone. I, too, learned a lesson that day: Never, never, never postpone following a prompting.
 
-As we pursue the journey of life, let us learn the language of the Spirit. May we remember and respond to the Master’s gentle invitation: “Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him.” (Rev. 3:20.) This is the language of the Spirit. He spoke it. He taught it. He lived it. May each of us do likewise, I pray in the name of Jesus Christ, amen.
+As we pursue the journey of life, let us learn the language of the Spirit. May we remember and respond to the Master’s gentle invitation: “Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him.” ([[Revelation 3.20|Rev. 3:20]].) This is the language of the Spirit. He spoke it. He taught it. He lived it. May each of us do likewise, I pray in the name of Jesus Christ, amen.
+
+
+
 

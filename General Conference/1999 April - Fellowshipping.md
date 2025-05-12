@@ -1,7 +1,10 @@
 # Fellowshipping
-*By Ned B. Roueché - Of the Seventy*
+
+By Elder Ned B. Roueché - *Of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
+
+>*I know what it means to have a friend, a responsibility, and to be nurtured by the good word of God.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1999/04/fellowshipping?lang=eng)
 
@@ -13,7 +16,7 @@ A good sister from my ward called to invite me to perform a dance floor show num
 
 My partner and I arrived on the appointed evening and were greeted enthusiastically. I was surprised to find that we were the only ones on the program. It was an exciting experience, and I thoroughly enjoyed the evening.
 
-The following Sunday morning, I decided to go to church in our ward for the first time since I was ordained a deacon. At that time, none of my family was active. I found people who welcomed me warmly, and they demonstrated a genuine friendship and caring. These experiences started me on the road to activity and service in the Church that has been a joy to me throughout the years.
+The following Sunday morning, I decided to go to church in our ward for the first time since I was ordained a deacon. At that time none of my family was active. I found people who welcomed me warmly, and they demonstrated a genuine friendship and caring. These experiences started me on the road to activity and service in the Church that has been a joy to me throughout the years.
 
 The senior Aaronic Priesthood committee, as it was called then, was a group of brethren who worked with men who were older than the normal Aaronic Priesthood age. These were just regular men who were doing what the Lord wanted them to do. They took me under their wing, and we became good friends. A wonderful returned missionary gave our class instruction. He taught the basics of the gospel and helped prepare me to serve a mission. During this same time I was asked to help teach dancing in the ward, which gave me a feeling of being needed, and it also gave me a responsibility.
 
@@ -29,21 +32,32 @@ I invite you brethren of the priesthood, both young and old, to look around you,
 
 “And he hath risen again from the dead, that he might bring all men unto him, on conditions of repentance.
 
-“And how great is his joy in the soul that repenteth!”1
+“And how great is his joy in the soul that repenteth!”[^1]
 
-And may I add this wonderful promise of His: “Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.”2
+And may I add this wonderful promise of His: “Behold, he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.”[^2]
 
 At this Easter season, as we celebrate His Resurrection, let us focus our attention on the price that He paid so willingly for all of those who will follow Him and do His will.
 
 I invite all to come and enjoy these great blessings of the fulness of the gospel of Jesus Christ that has been restored.
 
-Let us cast aside the traditions of men, all the things that clutter our lives and lead us carefully away from what Moroni called “the right way,”3 and lift our hearts to Him who has ransomed us, even Jesus Christ our Savior, and follow Him.
+Let us cast aside the traditions of men, all the things that clutter our lives and lead us carefully away from what Moroni called “the right way,”[^3] and lift our hearts to Him who has ransomed us, even Jesus Christ our Savior, and follow Him.
 
 Listen to the feelings of your heart and follow its prompting as you hear the messages of this conference. You will be taught from on high and receive answers to your prayers.
 
-Let us go forth with greater enthusiasm to succor those in need and bring souls unto Him, that they may be fed, nurtured by His good word, and know His tender love. “You shall be laden with sheaves upon your back, for the laborer is worthy of his hire,”4 and there will be rejoicing in many hearts.
+Let us go forth with greater enthusiasm to succor those in need and bring souls unto Him, that they may be fed, nurtured by His good word, and know His tender love. “You shall be laden with sheaves upon your back, for the laborer is worthy of his hire,”[^4] and there will be rejoicing in many hearts.
 
 That evening so long ago when I was invited to share my talent, the door opened to a wonderful new world of friends and activity in the Church. I am grateful for those who reached out with a warm hand of fellowship, invited me in, nurtured me, and blessed my life.
 
-I leave you with my witness that Jesus is the Christ, our Savior and Redeemer. This is His church, The Church of Jesus Christ of Latter-day Saints. In the name of Jesus Christ, amen.
+I leave you with my witness that Jesus is the Christ, our Savior and Redeemer. This is His Church, The Church of Jesus Christ of Latter-day Saints. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[D&C 18.10|D&C 18:10–13]][[D&C 18.11|]][[D&C 18.12|]][[D&C 18.13|]].
+
+[^2]: [[D&C 58.42|D&C 58:42]].
+
+[^3]: [[Moroni 6.4|Moro. 6:4]].
+
+[^4]: [[D&C 31.5|D&C 31:5]].
 

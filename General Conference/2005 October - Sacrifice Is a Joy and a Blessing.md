@@ -1,13 +1,16 @@
 # Sacrifice Is a Joy and a Blessing
-*By Won Yong Ko - Of the Seventy*
+
+By Elder Won Yong Ko - *Of the Seventy*
 
 *Given in the October session of the 2005 General Conference*
 
+>*I pray that we will all become Saints willing to sacrifice and become eligible for the Lord’s special blessings.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2005/10/sacrifice-is-a-joy-and-a-blessing?lang=eng)
 
-Brothers and sisters, good afternoon. The Prophet Joseph Smith taught that “a religion that does not require the sacrifice of all things never has power sufficient to produce the faith necessary unto life and salvation” (Lectures on Faith [1985], 69). If we summarize the history of the scriptures, we can say that it is the history of sacrifice.
+Brothers and sisters, good afternoon. The Prophet Joseph Smith taught that “a religion that does not require the sacrifice of all things never has power sufficient to produce the faith necessary unto life and salvation” (*Lectures on Faith* \[1985\], 69). If we summarize the history of the scriptures, we can say that it is the history of sacrifice.
 
-We can find wonderful examples in the scriptures of those who sacrificed their lives in order to keep their faith and testimonies. One example is from the story of Alma and Amulek when they had to watch with pain the people of Ammonihah who were thrown into the fire and died but kept their faith (see Alma 14:7–13).
+We can find wonderful examples in the scriptures of those who sacrificed their lives in order to keep their faith and testimonies. One example is from the story of Alma and Amulek when they had to watch with pain the people of Ammonihah who were thrown into the fire and died but kept their faith (see [[Alma 14.7|Alma 14:7–13]][[Alma 14.8|]][[Alma 14.9|]][[Alma 14.10|]][[Alma 14.11|]][[Alma 14.12|]][[Alma 14.13|]]).
 
 Also we think of Jesus Christ, who condescended to come down from His Father’s presence to this earth and made the sacrifice to save the world through more severe pain than anyone else has ever endured.
 
@@ -15,7 +18,7 @@ In this last dispensation of the gospel, many pioneers lost their lives and made
 
 Today we are not likely to be asked to make such a big sacrifice as giving up our lives, but we can see many examples of Saints who make painful sacrifices to keep their faith and testimonies alive. Maybe it is more difficult to make the small sacrifices in our daily lives. For instance, it could be regarded as a small sacrifice to keep the Sabbath day holy, to read the scriptures daily, or to pay our tithing. But these sacrifices cannot be easily made unless we have the mind and the determination to make the sacrifices that are needed to be able to keep those commandments.
 
-As we make these small sacrifices, we are compensated by more blessings from the Lord. King Benjamin said, “And ye are still indebted unto him, and are, and will be, forever and ever” (Mosiah 2:24). And, as he did with his own people, King Benjamin encourages us so that we will receive more blessings as we continue to obey the Lord’s word.
+As we make these small sacrifices, we are compensated by more blessings from the Lord. King Benjamin said, “And ye are still indebted unto him, and are, and will be, forever and ever” ([[Mosiah 2.24|Mosiah 2:24]]). And, as he did with his own people, King Benjamin encourages us so that we will receive more blessings as we continue to obey the Lord’s word.
 
 I think that the very first blessing coming from sacrifice is the joy that we can feel when we pay the price. Perhaps the very thought that the sacrifice itself could be a blessing becomes a blessing. When we have that kind of thought and feel the joy, we might have received a blessing already.
 
@@ -31,7 +34,7 @@ To encourage the Korean Saints and others, the Lord sent His prophet, President 
 
 Brothers and sisters, do not be afraid of sacrifice. Please enjoy the happiness and blessings from the sacrifice itself.
 
-Occasionally there is a time gap between the sacrifice and the blessing. The sacrifice may come according to our time schedule, but the blessing may not come by our, but by the Lord’s, calendar. Because of this, the Lord comforts us by saying, “Wherefore, be not weary in well-doing, for ye are laying the foundation of a great work” (D&C 64:33).
+Occasionally there is a time gap between the sacrifice and the blessing. The sacrifice may come according to our time schedule, but the blessing may not come by our, but by the Lord’s, calendar. Because of this, the Lord comforts us by saying, “Wherefore, be not weary in well-doing, for ye are laying the foundation of a great work” ([[D&C 64.33|D&C 64:33]]).
 
 The blessings surely come to us. Please remember that the sacrifice itself might be a form of blessing. Let us make the sacrifice of small things.
 
@@ -39,5 +42,8 @@ When we read the Book of Mormon while rubbing our sleepy eyes, let us remember t
 
 And then greater blessings will be poured out on us. It will be just like our surprise and joy when we receive an unexpected gift.
 
-As President Spencer W. Kimball said, “As we give, we find that ‘sacrifice brings forth the blessings of heaven!’ [“Praise to the Man,” Hymns, no. 27.] And in the end, we learn it was no sacrifice at all” (“Becoming the Pure in Heart,” Ensign, Mar. 1985, 5). I pray that we will all become Saints willing to sacrifice and become eligible for the Lord’s special blessings. The Lord will watch over us so that it will not be too difficult to endure any sacrifice. In the name of Jesus Christ, amen.
+As President Spencer W. Kimball said, “As we give, we find that ‘sacrifice brings forth the blessings of heaven!’ \[“Praise to the Man,” *Hymns,* no. 27.\] And in the end, we learn it was no sacrifice at all” (“Becoming the Pure in Heart,” *Ensign,* Mar. 1985, 5). I pray that we will all become Saints willing to sacrifice and become eligible for the Lord’s special blessings. The Lord will watch over us so that it will not be too difficult to endure any sacrifice. In the name of Jesus Christ, amen.
+
+
+
 

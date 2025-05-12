@@ -1,15 +1,18 @@
 # Your Light in the Wilderness
-*By By Sharon G. Larsen - Second Counselor in the Young Women General Presidency*
+
+By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1999 General Conference*
+
+>*Keep your eyes riveted on your goal … and walk in the straight and narrow path of the Son—the Son of God.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1999/04/your-light-in-the-wilderness?lang=eng)
 
 Knowing what you may or may not know, what would you think of an eight-year camping trip in the wilderness—no trips to town, no light, not even a fire? This describes the experience Father Lehi and his family had when they were told by the Lord to leave Jerusalem. I’ll bet there was some murmuring in the camp—and not a lot of volunteers! There were undoubtedly young women like you on this marathon trip.
 
-The Lord warned them not to make any fires. Then He taught them, “I will ... be your light in the wilderness; and I will prepare the way before you, if ... ye shall keep my commandments; ... ye shall be led towards the promised land; and ye shall know that it is by me that ye are led” (1 Ne. 17:13).
+The Lord warned them not to make any fires. Then He taught them, “I will … be your light in the wilderness; and I will prepare the way before you, if … ye shall keep my commandments; … ye shall be led towards the promised land; and ye shall know that it is by me that ye are led” ([[1 Nephi 17.13|1 Ne. 17:13]]).
 
-You all must have promised lands that you would like to go to, and you can have your own light in that wilderness that challenges young people today. This light comes all wrapped up in love, the Lord’s love for every one of His children, and especially for young people. The Lord knows that you face challenges and temptations, and He provides the light that brightens your hearts, your minds, and your spirits. He has said that His word is truth and truth is light and light is the Spirit of Jesus Christ (see D&C 84:45).
+You all must have promised lands that you would like to go to, and you can have your own light in that wilderness that challenges young people today. This light comes all wrapped up in love, the Lord’s love for every one of His children, and especially for young people. The Lord knows that you face challenges and temptations, and He provides the light that brightens your hearts, your minds, and your spirits. He has said that His word is truth and truth is light and light is the Spirit of Jesus Christ (see [[D&C 84.45|D&C 84:45]]).
 
 Sunny is an exchange student from Korea. She is living in a strange new land with a new language and a new family. School was hard and she had no friends to eat with or talk with or go to school activities with. She said: “I felt so miserable. Then I started thinking about praying. I had not thought about praying for help to Heavenly Father and for comfort and faith in myself. Then I began to read the Book of Mormon every morning and pray before I went to school. School began to be much easier. I was so surprised that I could understand better! I felt like someone was helping me while I was studying” (letter in possession of Young Women office).
 
@@ -29,7 +32,7 @@ A young friend who did not understand the importance of having the light, having
 
 I asked my young friend, “Would you rather expose yourself to what the world has to offer to be informed and then left on your own to make decisions, or would you choose to be guided by the Lord and live your life to be filled with so much light and truth and goodness that there is no room for darkness?” You can’t be in the light and the dark at the same time.
 
-This light is symbolized in the Young Women torch. That torch you wear with your profile in the flame can fuel your desire to stand for truth and righteousness. It is a reminder that Christ is your light and He will show you the way through the happy times and the mists of darkness. You never need to feel alone or forsaken.
+This light is symbolized in the Young Women torch. That torch you wear with your profile in the flame can fuel your desire to stand for truth and righteousness. It is a reminder that Christ is your light and He will show you the way through the happy times and the mists of darkness. You *never* need to feel alone or forsaken.
 
 Emily, a Laurel class president wanting to know the Lord’s will for one of her counselors, describes how this light feels. She said: “I prayed about a certain girl, and I had such a strong revelation—it’s like when your heart and mind make connection and everything is so clear. So I knew without a doubt that she was to be my counselor” (letter in possession of Young Women office). Prayer is what makes the connection with God’s power, which leads to loving and serving, sacrificing, and enlarging your own capacities.
 
@@ -37,21 +40,21 @@ The brother of Jared in the Book of Mormon knew about this process. He had built
 
 What do you think the brother of Jared was doing from the time he realized the Lord was not going to give him a flashlight to the time he carved out 16 stones and asked the Lord to touch them and give them light? I think he must have done a great deal of what Sunny Kim and Emily did—fasting and praying and pondering and reading his scriptures and serving and loving and forgiving and just trying to be obedient so he would have the Spirit, the light, to direct him.
 
-While the brother of Jared was doing everything he knew to do, was working hard and using every resource available—especially faith in the Lord—he went to the Lord again with his idea, and his efforts were enough. The Lord touched those 16 stones and there was light (see Ether 2:18–25; Ether 3:1–6). There are always answers.
+While the brother of Jared was doing everything he knew to do, was working hard and using every resource available—especially faith in the Lord—he went to the Lord again with his idea, and his efforts were enough. The Lord touched those 16 stones and there was light (see [[Ether 2.18|Ether 2:18–25]][[Ether 2.19|]][[Ether 2.20|]][[Ether 2.21|]][[Ether 2.22|]][[Ether 2.23|]][[Ether 2.24|]][[Ether 2.25|]]; [[Ether 3.1|Ether 3:1–6]][[Ether 3.2|]][[Ether 3.3|]][[Ether 3.4|]][[Ether 3.5|]][[Ether 3.6|]]). There are always answers.
 
 Many young women are following this light, and the Lord is blessing them. Listen to the testimonies of some who let the Lord be their light:
 
-[Note: Several young women bore testimonies via videotape.]
+\[Note: Several young women bore testimonies via videotape.\]
 
-Let the Lord be your light. Let Him prepare the way before you to your promised land. “There [is] ... no life so dark [that] he cannot light” (Sam Cardon and Steven K. Jones, “Come unto Him,” New Era, Apr. 1995, 10). You don’t have to be a prophet like Lehi or the brother of Jared. Just be you—with a hunger and thirst for righteousness. Trust Him. Keep your eyes riveted on your goal across the field and walk in the straight and narrow path of the Son—the Son of God. I testify of the light and the Spirit that comes from Jesus Christ.
+Let the Lord be your light. Let Him prepare the way before you to your promised land. “There \[is\] … no life so dark \[that\] he cannot light” (Sam Cardon and Steven K. Jones, “Come unto Him,” *New Era,* Apr. 1995, 10). You don’t have to be a prophet like Lehi or the brother of Jared. Just be you—with a hunger and thirst for righteousness. Trust Him. Keep your eyes riveted on your goal across the field and walk in the straight and narrow path of the Son—the Son of God. I testify of the light and the Spirit that comes from Jesus Christ.
 
-The Lord is my light, my all and in all.
-
-There is in his sight no darkness at all.
-
-He is my Redeemer, my Savior, and King.
-
-(“The Lord Is My Light,” Hymns, no. 89)
+>The Lord is my light, my all and in all.
+>There is in his sight no darkness at all.
+>He is my Redeemer, my Savior, and King.
+>
 
 In the name of Jesus Christ, amen.
+
+
+
 

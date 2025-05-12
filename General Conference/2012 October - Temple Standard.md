@@ -1,17 +1,20 @@
 # Temple Standard
-*By Scott D. Whiting - Of the Seventy*
+
+By Elder Scott D. Whiting - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
+
+>*The high standards of temple building employed by this Church are a type and even a symbol of how we should be living our own lives.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/10/temple-standard?lang=eng)
 
 While recently touring the beautiful Brigham City Utah Temple, I was reminded of an experience that I had while serving as the coordinator of the open house, rededication, and cultural celebration of the historic Laie Hawaii Temple.
 
-A few months prior to the completion of the extensive renovation work, I was invited to tour the temple with the Executive Director of the Temple Department, Elder William R. Walker, and his Temple Department associates. In addition, various members of the general contracting firm were in attendance. The purpose of the tour, in part, was to review the progress and quality of the work performed. At the time of this tour, the work was about 85 percent completed.
+A few months prior to the completion of the extensive renovation work, I was invited to tour the temple with the Executive Director of the Temple Department, Elder William R. Walker, and his Temple Department associates. In addition, various members of the general contracting firm were in attendance. The purpose of the tour, in part, was to review the progress and quality of the work performed. At the time of this tour, the work was about 85 percent completed.
 
 As we moved through the temple, I watched and listened to Elder Walker and his associates as they inspected the work and conversed with the general contractor. On occasion I observed one man running his hand along the walls as we moved from room to room. A few times after doing this, he would rub his fingers together and then approach the general contractor and say, “I feel grit on this wall. Grit is not temple standard. You will need to re-sand and buff this wall.” The contractor dutifully took notes of each observation.
 
-As we approached an area in the temple that few eyes would ever see, the same man stopped us and directed our attention to a newly installed, beautiful leaded-glass window. This window measured about two feet (0.6 m) wide by six feet (1.8 m) tall and contained an embedded, small stained-glass geometric pattern. He pointed to a small two-inch (5 cm) colored-glass square that was part of the simple pattern and said, “That square is crooked.” I looked at the square, and to my eyes it looked evenly placed. However, upon closer inspection with a measuring device in hand, I could see there was a flaw and that this little square was indeed one-eighth of an inch (3 mm) crooked. Direction was then given to the contractor that this window would need to be replaced because it was not temple standard.
+As we approached an area in the temple that few eyes would ever see, the same man stopped us and directed our attention to a newly installed, beautiful leaded-glass window. This window measured about two feet (0.6 m) wide by six feet (1.8 m) tall and contained an embedded, small stained-glass geometric pattern. He pointed to a small two-inch (5 cm) colored-glass square that was part of the simple pattern and said, “That square is crooked.” I looked at the square, and to my eyes it looked evenly placed. However, upon closer inspection with a measuring device in hand, I could see there was a flaw and that this little square was indeed one-eighth of an inch (3 mm) crooked. Direction was then given to the contractor that this window would need to be replaced because it was not temple standard.
 
 I admit that I was surprised that an entire window would need to be replaced because of such a small, barely noticeable defect. Surely, it was unlikely that anyone would ever know or even notice this window given its remote location in the temple.
 
@@ -27,11 +30,11 @@ The temples of this Church are precisely as proclaimed. These sacred buildings a
 
 In the revelation given to the Prophet Joseph Smith to build a temple in Nauvoo, the Lord instructed:
 
-“Come ye, with all your gold, and your silver, and your precious stones, and with all your antiquities; and with all who have knowledge of antiquities, ... and bring ... the precious trees of the earth;
+“Come ye, with all your gold, and your silver, and your precious stones, and with all your antiquities; and with all who have knowledge of antiquities, … and bring … the precious trees of the earth;
 
-“... And build a house to my name, for the Most High to dwell therein.”1
+“… And build a house to my name, for the Most High to dwell therein.”[^1]
 
-This follows a pattern established by King Solomon in the Old Testament when he built a temple unto the Lord using only the finest materials and workmanship.2 Today we continue to follow this pattern, with appropriate moderation, as we build the temples of the Church.
+This follows a pattern established by King Solomon in the Old Testament when he built a temple unto the Lord using only the finest materials and workmanship.[^2] Today we continue to follow this pattern, with appropriate moderation, as we build the temples of the Church.
 
 I learned that even though mortal eyes and hands may never see or feel a defect, the Lord knows the level of our efforts and whether we have done our very best. The same is true of our own personal efforts to live a life worthy of the blessings of the temple. The Lord has counseled:
 
@@ -39,15 +42,28 @@ I learned that even though mortal eyes and hands may never see or feel a defect,
 
 “Yea, and my presence shall be there, for I will come into it, and all the pure in heart that shall come into it shall see God.
 
-“But if it be defiled I will not come into it, and my glory shall not be there; for I will not come into unholy temples.”3
+“But if it be defiled I will not come into it, and my glory shall not be there; for I will not come into unholy temples.”[^3]
 
-Like the contractor, when we become aware of elements in our own lives that are inconsistent with the teachings of the Lord, when our efforts have been less than our very best, we should move quickly to correct anything that is amiss, recognizing that we cannot hide our sins from the Lord. We need to remember that “when we undertake to cover our sins, ... behold, the heavens withdraw themselves; [and] the Spirit of the Lord is grieved.”4
+Like the contractor, when we become aware of elements in our own lives that are inconsistent with the teachings of the Lord, when our efforts have been less than our very best, we should move quickly to correct anything that is amiss, recognizing that we cannot hide our sins from the Lord. We need to remember that “when we undertake to cover our sins, … behold, the heavens withdraw themselves; \[and\] the Spirit of the Lord is grieved.”[^4]
 
 I also learned that the high standards of temple building employed by this Church are a type and even a symbol of how we should be living our own lives. We can apply, individually, the teachings of the Apostle Paul given to the early Church when he said:
 
 “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?
 
-“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are.”5
+“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are.”[^5]
 
 We are each made of the finest materials, and we are the miraculous result of divine craftsmanship. However, as we move past the age of accountability and step onto the battlefield of sin and temptation, our own temple can become in need of renovation and repair work. Perhaps there are walls within us that are gritty and need buffing or windows of our souls that need replacement in order that we can stand in holy places. Gratefully, the temple standard that we are asked to meet is not that of perfection, although we are striving for it, but rather that we are keeping the commandments and doing our best to live as disciples of Jesus Christ. It is my prayer that we will all endeavor to live a life worthy of the blessings of the temple by doing our best, by making the necessary improvements and eliminating flaws and imperfections so that the Spirit of God may always dwell in us. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[D&C 124.26|Doctrine and Covenants 124:26–27]][[D&C 124.27|]].
+
+[^2]: See [[1 Kings 6.1|1 Kings 6–7]][[1 Kings 6.2|]][[1 Kings 6.3|]][[1 Kings 6.4|]][[1 Kings 6.5|]][[1 Kings 6.6|]][[1 Kings 6.7|]][[1 Kings 6.8|]][[1 Kings 6.9|]][[1 Kings 6.10|]][[1 Kings 6.11|]][[1 Kings 6.12|]][[1 Kings 6.13|]][[1 Kings 6.14|]][[1 Kings 6.15|]][[1 Kings 6.16|]][[1 Kings 6.17|]][[1 Kings 6.18|]][[1 Kings 6.19|]][[1 Kings 6.20|]][[1 Kings 6.21|]][[1 Kings 6.22|]][[1 Kings 6.23|]][[1 Kings 6.24|]][[1 Kings 6.25|]][[1 Kings 6.26|]][[1 Kings 6.27|]][[1 Kings 6.28|]][[1 Kings 6.29|]][[1 Kings 6.30|]][[1 Kings 6.31|]][[1 Kings 6.32|]][[1 Kings 6.33|]][[1 Kings 6.34|]][[1 Kings 6.35|]][[1 Kings 6.36|]][[1 Kings 6.37|]][[1 Kings 6.38|]].
+
+[^3]: [[D&C 97.15|Doctrine and Covenants 97:15–17]][[D&C 97.16|]][[D&C 97.17|]].
+
+[^4]: [[D&C 121.37|Doctrine and Covenants 121:37]].
+
+[^5]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]]; see also [[1 Corinthians 3.19|verse 19]].
 

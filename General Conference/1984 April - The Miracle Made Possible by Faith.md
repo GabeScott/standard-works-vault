@@ -1,5 +1,6 @@
 # The Miracle Made Possible by Faith
-*By Gordon B. Hinckley - Second Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1984 General Conference*
 
@@ -23,7 +24,7 @@ But, as has been said, more are needed, many more, for the field is white and re
 
 Priesthood leaders and fathers and mothers should begin while a boy is very young to point him in the direction of missionary service. Our sacrament meetings should be enriched with the enthusiastic testimonies of those who have returned from the field.
 
-Further, we all need to be reminded to share the gospel with our associates. I emphasize the word share. I like it. I deprecate the use of what might be perceived as force and pressure upon those who live among us. I think it unnecessary. Neighborliness, and exemplary living of the gospel of Jesus Christ, with an awareness of opportunity to quietly and graciously lead them in the direction of the Church, will accomplish much more, and will be resisted less and appreciated more by those we seek to help.
+Further, we all need to be reminded to share the gospel with our associates. I emphasize the word *share.* I like it. I deprecate the use of what might be perceived as force and pressure upon those who live among us. I think it unnecessary. Neighborliness, and exemplary living of the gospel of Jesus Christ, with an awareness of opportunity to quietly and graciously lead them in the direction of the Church, will accomplish much more, and will be resisted less and appreciated more by those we seek to help.
 
 I mention financial matters next in my report to you.
 
@@ -31,7 +32,7 @@ The finances of the Church are in sound condition. Because of the tremendous gro
 
 The Council on the Disposition of the Tithes, established by revelation and consisting of the First Presidency, the Council of the Twelve, and the Presiding Bishopric, has determined that the expenditures of the Church in any given year shall not exceed the income of the Church.
 
-Six new temples were dedicated during 1983. We anticipate the dedication of an additional six in 1984, and yet another six new temples in 1985. This morning we announced the construction of five additional temples to be located in the areas of Bogotá, Colombia; Toronto, Canada; Portland, Oregon; San Diego, California; and Las Vegas, Nevada.
+Six new temples were dedicated during 1983. We anticipate the dedication of an additional six in 1984, and yet another six new temples in 1985. This morning we announced the construction of five additional temples to be located in the areas of Bogotá, Colombia; Toronto, Canada; Portland, Oregon; San Diego, California; and Las Vegas, Nevada.
 
 This is a tremendously significant thing. It has been a remarkable and wonderful experience to meet, along with my Brethren, with worthy and faithful Latter-day Saints in new temples in Atlanta, Georgia; in Tonga, Samoa, and Tahiti; in Santiago, Chile; and in Mexico City. One has to have that experience to fully appreciate it. In each instance people gathered from far and near—well-dressed, clean, radiant men, women, and children, with great faith in their hearts and a living conviction concerning the sacred nature and purposes of these holy houses.
 
@@ -53,7 +54,7 @@ I reflect at times on the faith that went into the translation and first printin
 
 I read these words from that sacred volume:
 
-“O that I were an angel, and could have the wish of mine heart, that I might go forth and speak with the trump of God, with a voice to shake the earth, and cry repentance unto every people!” (Alma 29:1.)
+“O that I were an angel, and could have the wish of mine heart, that I might go forth and speak with the trump of God, with a voice to shake the earth, and cry repentance unto every people!” ([[Alma 29.1|Alma 29:1]].)
 
 We have not reached that state, but we have taken a giant step forward in that direction. Many thousands of you brethren across this land are joined with us this night with both voice and picture through the remarkable satellite network which the Church has established. Through its facilities we can declare the word of the Lord to our people from coast to coast and beyond to Alaska and the islands of Hawaii. We constantly are at work to expand the reach of this remarkable facility.
 
@@ -69,5 +70,8 @@ Brethren, the work of the Lord is advancing as much as at any time in its histor
 
 We are familiar with stories that the work would fail. When the Book of Mormon came from the press, the crude critics said it would soon be forgotten. When troubles grew in Kirtland, the enemies said the work would fail. When the Saints were driven from Missouri, those who drove them said the Church would soon expire. When the Prophet and Hyrum were killed in Carthage, their murderers said it was the end of this thing. When in February of 1846 the wagons crossed the river into the Iowa winter, the enemies of the Church said that it could not survive. When the Saints found themselves in this lonely valley, with crickets devouring their crops, there were even some of them who thought it was all over.
 
-But the work has gone forward. The Church has never taken a backward step since it was organized in 1830—and it never will. It is the cause of the Master. It is the church of God. It is his work established in this latter day. It is the little stone which was cut out of the mountain without hands, which should roll forth to fill the whole earth. (See Dan. 2:44–45.) God bless it as it moves forward on its great advancing course. And may each of us be found faithful and true and doing our part in advancing it, I humbly pray as I leave you my witness and testimony of its truth and divinity in the name of Jesus Christ, amen.
+But the work has gone forward. The Church has never taken a backward step since it was organized in 1830—and it never will. It is the cause of the Master. It is the church of God. It is his work established in this latter day. It is the little stone which was cut out of the mountain without hands, which should roll forth to fill the whole earth. (See [[Daniel 2.44|Dan. 2:44–45]][[Daniel 2.45|]].) God bless it as it moves forward on its great advancing course. And may each of us be found faithful and true and doing our part in advancing it, I humbly pray as I leave you my witness and testimony of its truth and divinity in the name of Jesus Christ, amen.
+
+
+
 

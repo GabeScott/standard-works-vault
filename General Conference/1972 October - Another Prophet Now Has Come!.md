@@ -1,5 +1,6 @@
 # Another Prophet Now Has Come!
-*By Mark E. Petersen - Of the Council of the Twelve*
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -19,7 +20,7 @@ While the people remained faithful anciently, one prophet after another was rais
 
 A similar line of inspired men now has been established in modern times. This was accomplished as a result of the restoration of the gospel of the Lord Jesus Christ through his latter-day seer, Joseph Smith.
 
-When the prophet Amos was on earth he made the significant statement that the Lord will deal with his people only through prophets. Said he: “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” (Amos 3:7.)
+When the prophet Amos was on earth he made the significant statement that the Lord will deal with his people only through prophets. Said he: “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” ([[Amos 3.7|Amos 3:7]].)
 
 This is of particular interest because it presupposes frequent communication between God and man.
 
@@ -39,7 +40,7 @@ The scriptures indicate that over the centuries the Lord has been free and willi
 
 “Behold, the Lord’s hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear:
 
-“But your iniquities have separated between you and your God, and your sins have hid his face from you. ...” (Isa. 59:1–2.)
+“But your iniquities have separated between you and your God, and your sins have hid his face from you. …” ([[Isaiah 59.1|Isa. 59:1–2]][[Isaiah 59.2|]].)
 
 Human beings are slow to learn the ways of the Lord, and particularly are they dilatory in accepting the fact that although he is willing to communicate with them, his method of doing so is through inspired living men whom he designates as prophets.
 
@@ -53,19 +54,19 @@ But what about the New Testament period? Did God follow this same method then? D
 
 This he did!
 
-Paul told the Ephesians that the church of Jesus Christ was built upon a foundation of apostles and prophets, with the Savior himself as the chief cornerstone. (See Eph. 2:20.)
+Paul told the Ephesians that the church of Jesus Christ was built upon a foundation of apostles and prophets, with the Savior himself as the chief cornerstone. (See [[Ephesians 2.20|Eph. 2:20]].)
 
 Who were the prophets of that day?
 
 The Twelve were included, of course. But were there others?
 
-The New Testament tells us that there were. Silas and Barnabas were two of them, and both were great missionaries of that time. Others were Simeon and Lucius; also a man named Judas—he was not Iscariot. Likewise mentioned are Manaen and Agabus, who predicted the arrest of Paul. (See Acts 11; 13; 21.)
+The New Testament tells us that there were. Silas and Barnabas were two of them, and both were great missionaries of that time. Others were Simeon and Lucius; also a man named Judas—he was not Iscariot. Likewise mentioned are Manaen and Agabus, who predicted the arrest of Paul. (See [[Acts 11.1|Acts 11]][[Acts 11.2|]][[Acts 11.3|]][[Acts 11.4|]][[Acts 11.5|]][[Acts 11.6|]][[Acts 11.7|]][[Acts 11.8|]][[Acts 11.9|]][[Acts 11.10|]][[Acts 11.11|]][[Acts 11.12|]][[Acts 11.13|]][[Acts 11.14|]][[Acts 11.15|]][[Acts 11.16|]][[Acts 11.17|]][[Acts 11.18|]][[Acts 11.19|]][[Acts 11.20|]][[Acts 11.21|]][[Acts 11.22|]][[Acts 11.23|]][[Acts 11.24|]][[Acts 11.25|]][[Acts 11.26|]][[Acts 11.27|]][[Acts 11.28|]][[Acts 11.29|]][[Acts 11.30|]]; [[Acts 13.1|13]][[Acts 13.2|]][[Acts 13.3|]][[Acts 13.4|]][[Acts 13.5|]][[Acts 13.6|]][[Acts 13.7|]][[Acts 13.8|]][[Acts 13.9|]][[Acts 13.10|]][[Acts 13.11|]][[Acts 13.12|]][[Acts 13.13|]][[Acts 13.14|]][[Acts 13.15|]][[Acts 13.16|]][[Acts 13.17|]][[Acts 13.18|]][[Acts 13.19|]][[Acts 13.20|]][[Acts 13.21|]][[Acts 13.22|]][[Acts 13.23|]][[Acts 13.24|]][[Acts 13.25|]][[Acts 13.26|]][[Acts 13.27|]][[Acts 13.28|]][[Acts 13.29|]][[Acts 13.30|]][[Acts 13.31|]][[Acts 13.32|]][[Acts 13.33|]][[Acts 13.34|]][[Acts 13.35|]][[Acts 13.36|]][[Acts 13.37|]][[Acts 13.38|]][[Acts 13.39|]][[Acts 13.40|]][[Acts 13.41|]][[Acts 13.42|]][[Acts 13.43|]][[Acts 13.44|]][[Acts 13.45|]][[Acts 13.46|]][[Acts 13.47|]][[Acts 13.48|]][[Acts 13.49|]][[Acts 13.50|]][[Acts 13.51|]][[Acts 13.52|]]; [[Acts 21.1|21]][[Acts 21.2|]][[Acts 21.3|]][[Acts 21.4|]][[Acts 21.5|]][[Acts 21.6|]][[Acts 21.7|]][[Acts 21.8|]][[Acts 21.9|]][[Acts 21.10|]][[Acts 21.11|]][[Acts 21.12|]][[Acts 21.13|]][[Acts 21.14|]][[Acts 21.15|]][[Acts 21.16|]][[Acts 21.17|]][[Acts 21.18|]][[Acts 21.19|]][[Acts 21.20|]][[Acts 21.21|]][[Acts 21.22|]][[Acts 21.23|]][[Acts 21.24|]][[Acts 21.25|]][[Acts 21.26|]][[Acts 21.27|]][[Acts 21.28|]][[Acts 21.29|]][[Acts 21.30|]][[Acts 21.31|]][[Acts 21.32|]][[Acts 21.33|]][[Acts 21.34|]][[Acts 21.35|]][[Acts 21.36|]][[Acts 21.37|]][[Acts 21.38|]][[Acts 21.39|]][[Acts 21.40|]].)
 
-The epistle to the Ephesians explains why there were Christian prophets, saying that they were placed in the Lord’s church for the “perfecting of the saints, for the work of the ministry, and for the edifying of the body of Christ.” (Eph. 4:12.)
+The epistle to the Ephesians explains why there were Christian prophets, saying that they were placed in the Lord’s church for the “perfecting of the saints, for the work of the ministry, and for the edifying of the body of Christ.” ([[Ephesians 4.12|Eph. 4:12]].)
 
-Since the Savior commanded his people to become perfect as their Father in heaven (see Matt. 5:48), he set up his church to provide the means by which this could be accomplished. Hence, he gave them apostles and prophets.
+Since the Savior commanded his people to become perfect as their Father in heaven (see [[Matthew 5.48|Matt. 5:48]]), he set up his church to provide the means by which this could be accomplished. Hence, he gave them apostles and prophets.
 
-These inspired men were in the church also to preserve unity among the saints and to heal divisions in the flock “that we henceforth be no more ... tossed to and fro, and carried about with every wind of doctrine. ...” (Eph. 4:14.)
+These inspired men were in the church also to preserve unity among the saints and to heal divisions in the flock “that we henceforth be no more … tossed to and fro, and carried about with every wind of doctrine. …” ([[Ephesians 4.14|Eph. 4:14]].)
 
 So God followed the same pattern of communicating with his people in New Testament times that had been customary with him down through the ages as recorded in the Old Testament.
 
@@ -83,19 +84,15 @@ Then does this constitute a departure from the age-old pattern of the Lord—tha
 
 In Isaiah’s day it was the people who turned away from God. The Lord did not turn from the people.
 
-It was the same in the Savior’s day. Do you recall that he said to those about him: “... how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not!” (Matt. 23:37.)
+It was the same in the Savior’s day. Do you recall that he said to those about him: “… how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not!” ([[Matthew 23.37|Matt. 23:37]].)
 
 God does not abandon his people. It is the people who abandon God.
 
-“The soul that on Jesus hath leaned for repose,
-
-I will not, I cannot desert to his foes;
-
-That soul, though all hell should endeavor to shake,
-
-I’ll never, no never, no never forsake.”
-
-—Hymns, no. 66
+>“The soul that on Jesus hath leaned for repose,
+>I will not, I cannot desert to his foes;
+>That soul, though all hell should endeavor to shake,
+>I’ll never, no never, no never forsake.”
+>
 
 So we sing in one of our favorite hymns.
 
@@ -103,9 +100,9 @@ The scriptures indicate that in the latter days, shortly before the second comin
 
 Some of them would be devastating, with seas heaving themselves beyond their bounds and with earthquakes, disease, and war taking heavy tolls.
 
-But one of the most significant of all the signs of the times was to be a restoration of the original gospel and church of Jesus Christ, this to be done “in the hour of God’s judgment.” (See Rev. 14:6–7.)
+But one of the most significant of all the signs of the times was to be a restoration of the original gospel and church of Jesus Christ, this to be done “in the hour of God’s judgment.” (See [[Revelation 14.6|Rev. 14:6–7]][[Revelation 14.7|]].)
 
-This restoration was to be so extensive, says the scripture, that it would include all that God had ever spoken through his servants from the beginning of the world. (See Acts 3:21.)
+This restoration was to be so extensive, says the scripture, that it would include all that God had ever spoken through his servants from the beginning of the world. (See [[Acts 3.21|Acts 3:21]].)
 
 Then would that include a restoration of prophecy and revelation?
 
@@ -119,7 +116,7 @@ Joseph Smith was the first of them. Through him the Lord restored the gospel in 
 
 Then came a succession of modern prophets to carry on the work, which will continue to expand until the second coming of the Lord Jesus Christ.
 
-After Joseph Smith, Brigham Young was called; then John Taylor, Wilford Woodruff, Lorenzo Snow, Joseph F. Smith, Heber J. Grant, George Albert Smith, David O. McKay, Joseph Fielding Smith, and now President Harold B. Lee. Each was God’s prophet for his time; each a seer and a revelator.
+After Joseph Smith, Brigham Young was called; then John Taylor, Wilford Woodruff, Lorenzo Snow, Joseph F. Smith, Heber J. Grant, George Albert Smith, David O. McKay, Joseph Fielding Smith, and now President Harold B. Lee. Each was God’s prophet for his time; each a seer and a revelator.
 
 In this conference, with our hearts and our hands, we have formally sustained President Lee as our inspired leader for this day.
 
@@ -139,11 +136,11 @@ And once again, through his modern servants, the Savior says:
 
 “Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls.
 
-“For my yoke is easy, and my burden is light.” (Matt. 11:28–30.)
+“For my yoke is easy, and my burden is light.” ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].)
 
 With this new line of prophets to guide us, we bring salvation again to all mankind. We testify that God indeed has spoken in these last days, and that we are his ministers.
 
-Anciently the scripture said: “How beautiful are the feet of them that preach the gospel of peace, and bring glad tidings of good things!” (Rom. 10:15.)
+Anciently the scripture said: “How beautiful are the feet of them that preach the gospel of peace, and bring glad tidings of good things!” ([[Romans 10.15|Rom. 10:15]].)
 
 Have you ever asked yourselves who these people are, who preach the gospel of peace and whose feet are so beautiful upon the mountains?
 
@@ -153,7 +150,7 @@ These people are the prophets of God—they who preach the gospel of the Prince 
 
 Says Abinadi: “I mean the holy prophets ever since the world began.
 
-“... these are they who have published peace, who have brought good tidings of good, who have published salvation and said unto Zion: Thy God reigneth!
+“… these are they who have published peace, who have brought good tidings of good, who have published salvation and said unto Zion: Thy God reigneth!
 
 “And O how beautiful upon the mountains were their feet!
 
@@ -161,7 +158,7 @@ Says Abinadi: “I mean the holy prophets ever since the world began.
 
 “And again, how beautiful upon the mountains are the feet of those who shall hereafter publish peace, yea, from this time henceforth and forever!
 
-“And behold,” Abinadi continues, “this is not all. For O how beautiful upon the mountains are the feet of him that bringeth good tidings, that is the founder of peace, yea, even the Lord, who has redeemed his people; yea, him who has granted salvation unto his people.” (Mosiah 15:13–18.)
+“And behold,” Abinadi continues, “this is not all. For O how beautiful upon the mountains are the feet of him that bringeth good tidings, that is the founder of peace, yea, even the Lord, who has redeemed his people; yea, him who has granted salvation unto his people.” ([[Mosiah 15.13|Mosiah 15:13–18]][[Mosiah 15.14|]][[Mosiah 15.15|]][[Mosiah 15.16|]][[Mosiah 15.17|]][[Mosiah 15.18|]].)
 
 So spoke Abinadi.
 
@@ -171,37 +168,24 @@ We honor them. We shall follow them, and through them we shall work out our salv
 
 And so we say:
 
-“Come, listen to a prophet’s voice,
-
-And hear the word of God,
-
-And in the way of truth rejoice,
-
-And sing for joy aloud.
-
-We’ve found the way the prophets went
-
-Who lived in days of yore;
-
-Another prophet now is sent
-
-This knowledge to restore.
-
-“Come listen to a prophet’s voice,
-
-He speaks for God on high.
-
-His voice is heard throughout the world.
-
-The Savior’s day is nigh.
-
-We now go forth and preach his word
-
-As heralds to mankind
-
-To warn the nations everywhere,
-
-That they the truth may find.”
+>“Come, listen to a prophet’s voice,
+>And hear the word of God,
+>And in the way of truth rejoice,
+>And sing for joy aloud.
+>We’ve found the way the prophets went
+>Who lived in days of yore;
+>Another prophet now is sent
+>This knowledge to restore.
+>
+>“Come listen to a prophet’s voice,
+>He speaks for God on high.
+>His voice is heard throughout the world.
+>The Savior’s day is nigh.
+>We now go forth and preach his word
+>As heralds to mankind
+>To warn the nations everywhere,
+>That they the truth may find.”
+>
 
 We solemnly testify that communication between heaven and earth has been reestablished in our day. We declare that God is not isolated from the world.
 
@@ -216,4 +200,7 @@ He is not dumb. He speaks, eloquently, to his living prophets and through them t
 In this manner God is speaking to you today. Listen to him. Acknowledge him. Pray to him. Obey him. In the name of the Lord Jesus Christ.
 
 Amen.
+
+
+
 

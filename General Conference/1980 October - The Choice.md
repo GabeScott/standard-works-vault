@@ -1,5 +1,6 @@
 # The Choice
-*By Boyd K. Packer - Of the Quorum of the Twelve Apostles*
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -9,7 +10,7 @@ Following the April general conference a social was held for all of the General 
 
 The box included newspapers, mementos, and a few letters. One of those letters was written by my grandmother, Sarah Adeline Wight Packer. I quote:
 
-“We moved to a farm in Corinne in the year 1902. There being no branch of the Church there at that time ... , myself and Hannah Basley visited all the sisters in Corinne and surrounding territory, to see if there was enough interest among them to organize a Relief Society.
+“We moved to a farm in Corinne in the year 1902. There being no branch of the Church there at that time … , myself and Hannah Basley visited all the sisters in Corinne and surrounding territory, to see if there was enough interest among them to organize a Relief Society.
 
 “Through our visits we learned the sisters were willing to come to meeting, and so we proceeded to get a branch organized.”
 
@@ -43,7 +44,7 @@ The lives of those souls, our forebears, were characterized from beginning to en
 
 Before Eleanor Sayers Harman died, she gave all of her funds to her daughter Edith and counseled her to go to America.
 
-Edith had been cast out by her husband when she joined the Church. She and eight-year-old Nellie left England with the flimsy assurance that a missionary thought his family in Idaho might take them in until they could be located.
+Edith had been cast out by her husband when she joined the Church. She and eight-year-old Nellie left England with the flimsy assurance that a missionary *thought* his family in Idaho *might* take them in until they could be located.
 
 Nellie was my wife’s mother; Edith, her grandmother. I knew them well. They were women of special nobility.
 
@@ -73,7 +74,7 @@ That leaves only one course open to us: trial and error—to learn for oneself, 
 
 We thereafter struggle through life, perhaps missing both fame and fortune, to finally learn one day that one can, indeed, succeed without possessing either. Or we may, one day, have both and learn that neither has made us happy; neither is basic to the recipe for true success and for complete happiness. That is a very slow way to learn.
 
-Was it Poor Richard who said, “Experience keeps a dear school, but fools will learn in no other” (The Autobiography of Benjamin Franklin, Poor Richard’s Almanac, and Other Papers, New York: A. L. Burt Co., ND, p. 230).
+Was it Poor Richard who said, “Experience keeps a dear school, but fools will learn in no other” (*The Autobiography of Benjamin Franklin, Poor Richard’s Almanac, and Other Papers,* New York: A. L. Burt Co., ND, p. 230).
 
 We come into mortal life to receive a body and to be tested, to learn to choose.
 
@@ -97,35 +98,35 @@ Some suffer disappointment in marriage, family problems; others live in poverty 
 
 All are part of the test, and there is more equality in this testing than sometimes we suspect.
 
-It is possible to be both rich and famous and at the same time succeed spiritually. But the Lord warned of the difficulty of it when He talked of camels and needles (see Matt. 19:24).
+It is possible to be both rich and famous and at the same time succeed spiritually. But the Lord warned of the difficulty of it when He talked of camels and needles (see [[Matthew 19.24|Matt. 19:24]]).
 
-This message is central to the scriptures. The Book of Mormon tells us that “men are instructed sufficiently that they know good from evil” (2 Ne. 2:5).
+This message is central to the scriptures. The Book of Mormon tells us that “men are instructed sufficiently that they know good from evil” ([[2 Nephi 2.5|2 Ne. 2:5]]).
 
 We are taught, also, “Men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose”—
 
 One: “liberty and eternal life, through the great mediation of all men.”
 
-Or, two: “to choose captivity and death, according to the captivity and power of the devil.” (2 Ne. 2:27.)
+Or, two: “to choose captivity and death, according to the captivity and power of the devil.” ([[2 Nephi 2.27|2 Ne. 2:27]].)
 
 From the Old Testament:
 
-“A good name is rather to be chosen than great riches” (Prov. 22:1).
+“A good name is rather to be chosen than great riches” ([[Proverbs 22.1|Prov. 22:1]]).
 
 From the New Testament:
 
-“Seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you” (Matt. 6:33).
+“Seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you” ([[Matthew 6.33|Matt. 6:33]]).
 
 Again, from the Book of Mormon:
 
 “Before ye seek for riches, seek ye for the kingdom of God.
 
-“And after ye have obtained a hope in Christ ye shall obtain riches, if ye seek them; and ye will seek them for the intent to do good—to clothe the naked, and to feed the hungry, and to liberate the captive, and administer relief to the sick and the afflicted.” (Jacob 2:18–19.)
+“And after ye have obtained a hope in Christ ye shall obtain riches, if ye seek them; and ye will seek them for the intent to do good—to clothe the naked, and to feed the hungry, and to liberate the captive, and administer relief to the sick and the afflicted.” ([[Jacob 2.18|Jacob 2:18–19]][[Jacob 2.19|]].)
 
 And from the Doctrine and Covenants:
 
-“Seek not for riches but for wisdom, and behold, the mysteries of God shall be unfolded unto you, and then shall you be made rich” (D&C 6:7).
+“Seek not for riches but for wisdom, and behold, the mysteries of God shall be unfolded unto you, and then shall you be made rich” ([[D&C 6.7|D&C 6:7]]).
 
-“Behold, he that hath eternal life is rich” (D&C 11:7).
+“Behold, he that hath eternal life is rich” ([[D&C 11.7|D&C 11:7]]).
 
 What, then, do we want you to do? Simply this:
 
@@ -154,4 +155,7 @@ I may see you go the full distance of mortality without becoming either well-kno
 We now move into an uncertain future. But we are not uncertain. Children, bear testimony, build Zion. Then you will find true success, complete happiness.
 
 I know that God lives, that Jesus is the Christ, and that in the gospel is true success, in the name of Jesus Christ, amen.
+
+
+
 

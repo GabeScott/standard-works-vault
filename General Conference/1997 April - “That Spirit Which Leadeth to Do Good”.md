@@ -1,7 +1,10 @@
 # “That Spirit Which Leadeth to Do Good”
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
+
+>*The Holy Ghost will be our constant companion if we submit ourselves to the will of our Father in Heaven.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1997/04/that-spirit-which-leadeth-to-do-good?lang=eng)
 
@@ -23,7 +26,7 @@ Do you teach your family the gospel of salvation?
 
 Do you pray night and morning with your family?
 
-Do you attend your ward meetings? (Questions adapted from list in Church History in the Fulness of Times [Church Educational System manual, 1993], 366.)
+Do you attend your ward meetings? (Adapted from “Questions to Be Asked the Latter-day Saints,” in *Church History in the Fulness of Times* \[Church Educational System manual, 1993\], 366.)
 
 The Saints were challenged by their leaders to rededicate themselves to serving the Lord and keeping His commandments, and they accepted their leaders’ counsel and repented.
 
@@ -35,13 +38,13 @@ In that special, sacred hour when the Savior realized that His earthly ministry 
 
 “In my Father’s house are many mansions: if it were not so, I would have told you. I go to prepare a place for you.
 
-“And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also” (John 14:1–3).
+“And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also” ([[John 14.1|John 14:1–3]][[John 14.2|]][[John 14.3|]]).
 
-Upon receiving this blessed assurance, the other Judas, not Iscariot, asked, “Lord, how is it that thou wilt manifest thyself unto us, and not unto the world?” (John 14:22).
+Upon receiving this blessed assurance, the other Judas, not Iscariot, asked, “Lord, how is it that thou wilt manifest thyself unto us, and not unto the world?” ([[John 14.22|John 14:22]]).
 
-Jesus answered and said unto him, “If a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him. ...
+Jesus answered and said unto him: “If a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him. …
 
-“But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you” (John 14:22–23, 26).
+“But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you” ([[John 14.23|John 14:23, 26]][[John 14.26|]]).
 
 After the Resurrection of our Lord and Savior, the promised Comforter was given to those who would submit themselves to be baptized by water and be numbered among His Saints. On the day of Pentecost there was a great manifestation that was given to the Twelve, and they were filled with the Holy Ghost. Peter called on those assembled to repent and be baptized and then they would receive the gift of the Holy Ghost.
 
@@ -49,17 +52,17 @@ A similar event occurred when the Savior appeared to the Nephites.
 
 Dark days followed the establishment of the Savior’s Church as apostasy entered in among the membership of the Church. Priesthood authority was removed from the earth because of the unrighteousness of the people.
 
-Light returned to the world through Joseph Smith when he received the First Vision in 1820. For a decade, the Prophet Joseph Smith was carefully prepared to reestablish God’s Church. He received priesthood authority—first the Aaronic Priesthood from John the Baptist, then the Melchizedek Priesthood from Peter, James, and John. Revelations were given to Joseph, as God’s voice was heard from the heavens. A communication link between God and His prophet was restored.
+Light returned to the world through Joseph Smith when he received the First Vision in 1820. For a decade, the Prophet Joseph Smith was carefully prepared to reestablish God’s Church. He received priesthood authority—first the Aaronic Priesthood from John the Baptist, then the Melchizedek Priesthood from Peter, James, and John. Revelations were given to Joseph as God’s voice was heard from the heavens. A communication link between God and His prophet was restored.
 
 As a small congregation gathered on April 6 of 1830 to organize the Church, the Prophet Joseph Smith asked those present if they were willing to accept him and Oliver Cowdery as their teachers and special advisers. Those present raised their hands in support.
 
-Although they had previously received the Melchizedek Priesthood, [Joseph and Oliver] then ordained each other to the office of elder. They did this so to signify that they were elders in the newly organized church. The sacrament of the Lord’s supper was administered next. Joseph and Oliver then confirmed those who had previously been baptized as members of the Church of Jesus Christ and bestowed upon them the gift of the Holy Ghost. (See Church History in the Fulness of Times, 67–68.)
+“Although they had previously received the Melchizedek Priesthood, \[Joseph and Oliver\] then ordained each other to the office of elder. They did this to signify that they were elders in the newly organized church. The sacrament of the Lord’s supper was administered next. … Joseph and Oliver then confirmed those who had previously been baptized as members of the Church of Jesus Christ and bestowed upon them the gift of the Holy Ghost” (*Church History in the Fulness of Times,* 67–68).
 
 What a tremendous privilege it is to be numbered among those who, by the power of the priesthood, have been baptized by water and then have had hands laid upon their heads and received the Holy Ghost.
 
 Elder LeGrand Richards, describing the gift of the Holy Ghost, said:
 
-“To me, the gift of the Holy Ghost is as important to man as sunshine and water are to the plants. You take them away, and the plants would die. You take the Holy Ghost out of this Church, and this Church would not be any different than any other church. And it is manifest in so many ways in the lives and the devotion of the members of the Church” (“The Gift of the Holy Ghost,” Ensign, Nov. 1979, 76).
+“To me, the gift of the Holy Ghost is as important to man as sunshine and water are to the plants. You take them away, and the plants would die. You take the Holy Ghost out of this Church, and this Church would not be any different than any other church. And it is manifest in so many ways in the lives and the devotion of the members of the Church” (in Conference Report, Oct. 1979, 109; or *Ensign,* Nov. 1979, 76).
 
 Gifts have only limited value unless they are used. The Holy Ghost will be our constant companion if we submit ourselves to the will of our Father in Heaven, always remembering Him and keeping His commandments.
 
@@ -67,9 +70,9 @@ I remember a critical time in my life and how grateful I was when a still, small
 
 After struggling for about one year, a company called me from California and invited me to come out and talk to them about working for them. I went out and negotiated a very good contract; I was delighted with the opportunity. I told them that I had to return home and discuss it with my family before I could give an answer. I returned home and after a careful discussion, I convinced my family that it was the right thing to do. In the process of calling the firm to accept the offer, a voice just as strong and powerful as I have ever heard came to me and said, “Say no to the offer.” I could not ignore the voice, so I turned the offer down, but I was distressed. I could not comprehend why I had been told to do such a thing. I went upstairs to my bedroom, sat on the bed, opened the scriptures, and they fell open to the Doctrine and Covenants, section 111. This was the only section given in the state of Massachusetts, where my home was at that particular time. These words literally jumped out of the page and met my eye:
 
-“Concern not yourselves about your debts, ... I will give you power to pay them. ...
+“Concern not yourselves about your debts, … I will give you power to pay them. …
 
-“Tarry in this place, and in the regions round about” (D&C 111:5, 7).
+“Tarry in this place, and in the regions round about” ([[D&C 111.5|D&C 111:5, 7]][[D&C 111.7|]]).
 
 A great peace came to my soul. Within just a few days I was offered a fine position in Boston. A few months later I had the great privilege of hosting a conference in which President Harold B. Lee, then First Counselor in the First Presidency, was the featured speaker. The conference was a glorious success as we feasted on the words of President Lee. The following July, President Joseph Fielding Smith passed away and President Lee became the prophet. Three months later I was asked to come to Salt Lake, where I received a call to leave my profession and join the General Authorities.
 
@@ -77,7 +80,10 @@ I have often wondered what would have happened if I had not heeded the Holy Spir
 
 Parley P. Pratt gave us a vision of what the gift of the Holy Ghost could mean to us when he said:
 
-“The gift of the Holy Ghost ... quickens all the intellectual faculties, increases, enlarges, expands and purifies all the natural passions and affections; and adapts them, by the gift of wisdom, to their lawful use. It inspires, develops, cultivates and matures all the fine-toned sympathies, joys, tastes, kindred feelings, and affections of our nature. It inspires virtue, kindness, goodness, tenderness, gentleness, and charity. It develops beauty of person, form and features. It tends to health, vigor, animation, and social feeling. It invigorates all the faculties of the physical and intellectual man. It strengthens, and gives tone to the nerves. In short, it is, as it were, marrow to the bone, joy to the heart, light to the eyes, music to the ears, and life to the whole being” (Key to the Science of Theology, 9th ed. [1965], 101).
+“The gift of the Holy Ghost … quickens all the intellectual faculties, increases, enlarges, expands and purifies all the natural passions and affections; and adapts them, by the gift of wisdom, to their lawful use. It inspires, develops, cultivates and matures all the fine-toned sympathies, joys, tastes, kindred feelings and affections of our nature. It inspires virtue, kindness, goodness, tenderness, gentleness and charity. It develops beauty of person, form and features. It tends to health, vigor, animation and social feeling. It invigorates all the faculties of the physical and intellectual man. It strengthens, and gives tone to the nerves. In short, it is, as it were, marrow to the bone, joy to the heart, light to the eyes, music to the ears, and life to the whole being” (*Key to the Science of Theology,* 9th ed. \[1965\], 101).
 
 I bear witness of the power and comfort the gift of the Holy Ghost is to those who live worthy of it. What a reassurance it is for us to know that we are not left alone to find the course that we must follow to merit the eternal blessings of our Father in Heaven. We do not need man-made rating systems to determine what we should read, what we should watch, what we should listen to, or how we should conduct our lives. What we do need to do is live worthy of the continued companionship of the Holy Ghost and have the courage to follow the promptings that come into our lives. May the Lord bless us that we may ever be mindful of this great and precious gift, even the gift of the Holy Ghost, I humbly pray in the name of our Lord and Savior, Jesus Christ, amen.
+
+
+
 

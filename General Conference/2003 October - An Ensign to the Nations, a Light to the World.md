@@ -1,7 +1,10 @@
 # An Ensign to the Nations, a Light to the World
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2003 General Conference*
+
+>*If we are to \[be\] an ensign to the nations and a light to the world, we must take on more of the luster of the life of Christ.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2003/10/an-ensign-to-the-nations-a-light-to-the-world?lang=eng)
 
@@ -21,17 +24,17 @@ At the close of one particularly difficult day, I looked up at a portrait of Bri
 
 As I reflected on these matters that recent difficult day, I opened my Bible to the first chapter of Joshua and read these words:
 
-“Have not I commanded thee? Be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee” (Josh. 1:9).
+“Have not I commanded thee? Be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee” ([[Joshua 1.9|Joshua 1:9]]).
 
-I said to myself: “There is never reason to despair. This is the work of God. Notwithstanding the efforts of all who oppose it, it will go forward as the God of heaven has designed it should do.”
+I said to myself, “There is never reason to despair. This is the work of God. Notwithstanding the efforts of all who oppose it, it will go forward as the God of heaven has designed it should do.”
 
 I turned the pages of the Old Testament to the second chapter of Isaiah and read these words:
 
 “And it shall come to pass in the last days, that the mountain of the Lord’s house shall be established in the top of the mountains, and shall be exalted above the hills; and all nations shall flow unto it.
 
-“And many people shall go and say, Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for out of Zion shall go forth the law, and the word of the Lord from Jerusalem” (Isa. 2:2–3).
+“And many people shall go and say, Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for out of Zion shall go forth the law, and the word of the Lord from Jerusalem” ([[Isaiah 2.2|Isaiah 2:2–3]][[Isaiah 2.3|]]).
 
-Ever since the Salt Lake Temple was dedicated, we have interpreted that scripture from Isaiah, repeated again in Micah (see Micah 4:1–2), as applying to this sacred house of the Lord. And of this place, since the day of its dedication, an ever-increasing number from across the world have said in effect, “Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob, that He might teach us of His ways, that we might walk in His paths.”
+Ever since the Salt Lake Temple was dedicated, we have interpreted that scripture from Isaiah, repeated again in Micah (see [[Micah 4.1|Micah 4:1–2]][[Micah 4.2|]]), as applying to this sacred house of the Lord. And of this place, since the day of its dedication, an ever-increasing number from across the world have said in effect, “Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob, that He might teach us of His ways, that we might walk in His paths.”
 
 I believe and testify that it is the mission of this Church to stand as an ensign to the nations and a light to the world. We have had placed upon us a great, all-encompassing mandate from which we cannot shrink nor turn aside. We accept that mandate and are determined to fulfill it, and with the help of God we shall do it.
 
@@ -45,7 +48,7 @@ To quote Paul:
 
 “Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
 
-“For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places” (Eph. 6:10–12).
+“For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places” ([[Ephesians 6.10|Ephesians 6:10–12]][[Ephesians 6.11|]][[Ephesians 6.12|]]).
 
 We must stand firm. We must hold back the world. If we do so, the Almighty will be our strength and our protector, our guide and our revelator. We shall have the comfort of knowing that we are doing what He would have us do. Others may not agree with us, but I am confident that they will respect us. We will not be left alone. There are many not of our faith but who feel as we do. They will support us. They will sustain us in our efforts.
 
@@ -67,11 +70,11 @@ Life is better than that which is so frequently portrayed. Nature is better than
 
 You young men and women who are hearing me today, you university students on many campuses realize that one of the great problems on these campuses is binge drinking. It diminishes abilities. It destroys lives. It wastes money and time and constructive effort. What a sorry sight it is to see bright young people damage themselves and ruin their opportunities with excessive drinking.
 
-It was a great tribute to the students of Brigham Young University when the Princeton Review found them to be the most “stone-cold sober” student body in America. Most of you, of course, cannot attend BYU, but wherever you are you can live by the same standards required on the BYU campus.
+It was a great tribute to the students of Brigham Young University when the *Princeton Review* found them to be the most “stone-cold sober” student body in America. Most of you, of course, cannot attend BYU, but wherever you are you can live by the same standards required on the BYU campus.
 
-I recently read in our New Era magazine an article on young Latter-day Saints in Memphis, Tennessee. In some instances, they are the only Latter-day Saints on campus. One of them is quoted as saying, “I may be the only member in my school, but ... even when I’m physically alone, I’m never spiritually alone” (in Arianne B. Cope, “Smiling in Memphis,” New Era, Oct. 2003, 23–24).
+I recently read in our *New Era* magazine an article on young Latter-day Saints in Memphis, Tennessee. In some instances they are the only Latter-day Saints on campus. One of them is quoted as saying, “I may be the only member in my school, but … even when I’m physically alone, I’m never spiritually alone” (in Arianne B. Cope, “Smiling in Memphis,” *New Era,* Oct. 2003, 23–24).
 
-Another is quoted: “I know a lot of teens wonder if they really know if the gospel is true. But ... here you have to know one way or the other because people are asking you about it every day. Every time you answer a question, you share your testimony” (New Era, Oct. 2003, 25).
+Another is quoted: “I know a lot of teens wonder if they really know if the gospel is true. But … here you have to know one way or the other because people are asking you about it every day. Every time you answer a question, you share your testimony” (*New Era,* Oct. 2003, 25).
 
 These young people, scattered through that big city, have learned to stand together, to bolster one another.
 
@@ -81,7 +84,7 @@ As it is with the youth, so it is with you adults. If we are to hold up this Chu
 
 “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.
 
-“Be not thou therefore ashamed of the testimony of our Lord” (2 Tim. 1:7–8).
+“Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.7|2 Timothy 1:7–8]][[2 Timothy 1.8|]]).
 
 This Church, I submit, is far more than a social organization where we gather together to enjoy one another’s company. It is more than Sunday School and Relief Society and priesthood meeting. It is more than sacrament meeting, more even than temple service. It is the kingdom of God in the earth. It behooves us to act in a manner befitting membership in that kingdom.
 
@@ -103,11 +106,14 @@ I take you back to the Old Testament:
 
 “And he answered, Fear not: for they that be with us are more than they that be with them.
 
-“And Elisha prayed, and said, Lord, I pray thee, open his eyes, that he may see. And the Lord opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha” (2 Kgs. 6:15–17).
+“And Elisha prayed, and said, Lord, I pray thee, open his eyes, that he may see. And the Lord opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha” ([[2 Kings 6.15|2 Kings 6:15–17]][[2 Kings 6.16|]][[2 Kings 6.17|]]).
 
 The Lord has said to us:
 
-“Therefore, fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail. ...
+“Therefore, fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail. …
 
-“Look unto me in every thought; doubt not, fear not” (D&C 6:34, 36). In the name of Jesus Christ, amen.
+“Look unto me in every thought; doubt not, fear not” ([[D&C 6.34|D&C 6:34, 36]][[D&C 6.36|]]). In the name of Jesus Christ, amen.
+
+
+
 

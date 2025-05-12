@@ -1,5 +1,6 @@
 # Overpowering the Goliaths in Our Lives
-*By Gordon B. Hinckley - Second Counselor in the First Presidency*
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -13,21 +14,21 @@ Clad in his armor, he came down to the valley and called out to the army of Isra
 
 “Choose you a man for you, and let him come down to me.
 
-“If he be able to fight with me, and to kill me, then will we be your servants: but if I prevail against him, and kill him, then shall ye be our servants, and serve us. ...
+“If he be able to fight with me, and to kill me, then will we be your servants: but if I prevail against him, and kill him, then shall ye be our servants, and serve us. …
 
-“I defy the armies of Israel this day; give me a man, that we may fight together.” (1 Sam. 17:8–10.)
+“I defy the armies of Israel this day; give me a man, that we may fight together.” ([[1 Samuel 17.8|1 Sam. 17:8–10]][[1 Samuel 17.9|]][[1 Samuel 17.10|]].)
 
 When Saul and the army of Israel looked at this giant and heard his chilling challenge, they were frightened because they had no one of their own of such stature.
 
 Now, while all of this was going on, Jesse, David’s father, asked his young son to take some food to his three brothers in the army. When he arrived at the battleground, Goliath came out again, issuing the same challenge, which David heard. There was fear throughout the army of Israel. David, who was no more than a boy, said to the king, (and I paraphrase his language): “King, why are you so afraid of this giant? I will go and fight him.”
 
-Saul replied, “Thou art not able to go against this Philistine to fight with him: for thou art but a youth, and he [is] a man of war [trained] from his youth.” (1 Sam. 17:33.)
+Saul replied, “Thou art not able to go against this Philistine to fight with him: for thou art but a youth, and he \[is\] a man of war \[trained\] from his youth.” ([[1 Samuel 17.33|1 Sam. 17:33]].)
 
-David then persuaded Saul to let him try. He told the king of how he had fought with a lion and a bear to save his father’s sheep and concluded by saying that the Lord would deliver him out of the hand of the Philistine. Saul, possibly thinking that one more life lost would not be serious among the great losses they had already sustained, said to David, “Go, and the Lord be with thee.” (1 Sam. 17:37.)
+David then persuaded Saul to let him try. He told the king of how he had fought with a lion and a bear to save his father’s sheep and concluded by saying that the Lord would deliver him out of the hand of the Philistine. Saul, possibly thinking that one more life lost would not be serious among the great losses they had already sustained, said to David, “Go, and the Lord be with thee.” ([[1 Samuel 17.37|1 Sam. 17:37]].)
 
 Saul then placed armor on David until the boy could scarcely walk. David said unto the king, “I cannot wear this,” and he took the armor off.
 
-He then “took his staff in his hand, and chose him five smooth stones out of the brook, and put them in a shepherd’s bag which he had ... and his sling was in his hand.” (1 Sam. 17:40.)
+He then “took his staff in his hand, and chose him five smooth stones out of the brook, and put them in a shepherd’s bag which he had … and his sling was in his hand.” ([[1 Samuel 17.40|1 Sam. 17:40]].)
 
 This stripling of a boy, with only a slingshot and five stones and without any armor other than the armor of faith, went down into the valley to face Goliath.
 
@@ -41,11 +42,11 @@ Then David spoke these great words:
 
 “Thou comest to me with a sword, and with a spear, and with a shield: but I come to thee in the name of the Lord of hosts, the God of the armies of Israel, whom thou hast defied.
 
-“This day will the Lord deliver thee into mine hand; and I will smite thee, and take thine head from thee; and I will give the carcases of the host of the Philistines this day unto the fowls of the air, and to the wild beasts of the earth; that all the earth may know that there is a God in Israel.” (adapted from 1 Sam. 17:42–46.)
+“This day will the Lord deliver thee into mine hand; and I will smite thee, and take thine head from thee; and I will give the carcases of the host of the Philistines this day unto the fowls of the air, and to the wild beasts of the earth; that all the earth may know that there is a God in Israel” (adapted from [[1 Samuel 17.42|1 Sam. 17:42–46]][[1 Samuel 17.43|]][[1 Samuel 17.44|]][[1 Samuel 17.45|]][[1 Samuel 17.46|]]).
 
 That was brave talk for a boy who stood against a nine-foot giant.
 
-In anger Goliath came at him. Then David, running toward the giant, “put his hand in his bag, and took thence a stone, and slang it, and smote the Philistine in his forehead, that the stone sunk into his forehead; and he fell upon his face to the earth.” (1 Sam. 17:49.)
+In anger Goliath came at him. Then David, running toward the giant, “put his hand in his bag, and took thence a stone, and slang it, and smote the Philistine in his forehead, that the stone sunk into his forehead; and he fell upon his face to the earth.” ([[1 Samuel 17.49|1 Sam. 17:49]].)
 
 You know the rest of that story. I would like to bring it down into your own lives. There are Goliaths all around you, hulking giants with evil intent to destroy you. These are not nine-foot-tall men, but they are men and institutions that control attractive but evil things that may challenge and weaken and destroy you. Included in these are beer and other liquors and tobacco. Those who market these products would like to enslave you into their use. There are drugs of various kinds which, I am told, are relatively easy to obtain in many high schools. For those who peddle them, this is a multimillion-dollar industry, a giant web of evil. There is pornography, seductive and interesting and inviting. It has become a giant industry, producing magazines, films, and other materials designed to take your money and lead you toward activities that would destroy you.
 
@@ -65,7 +66,7 @@ But what he did not realize is that neither bars nor dead-bolts, neither lights 
 
 Brethren, I spend much time listening to the tales of unhappy people. As a percentage of the entire membership of the Church, they constitute a relatively small number. But there are too many, and every case is a tragedy. With few exceptions, it would appear that the husband and the father is the chief offender, on whom the intruders of sin and selfishness take their greatest toll.
 
-Brethren, I know it is an old subject, and one that has been dealt with much. But I repeat it again: Guard your homes. How foolish it seems to install bars and bolts and electronic devices against thieves and molesters while more insidious intruders come in as invited guests.
+Brethren, I know it is an old subject, and one that has been dealt with much. But I repeat it again: *Guard your homes.* How foolish it seems to install bars and bolts and electronic devices against thieves and molesters while more insidious intruders come in as invited guests.
 
 I say to you what I said to the boys—avoid pornography as you would a plague. I recall an assignment some years back to restore the blessings of a man who had been excommunicated from the Church because of his sin. He came to my office with his wife. I spoke with them individually. I asked him how it all began. He held a responsible position in the Church. He was likewise a professional man with high responsibility in the community.
 
@@ -84,4 +85,7 @@ Unfortunately, there is not always that kind of happy ending. In many cases ther
 Brethren, keep your affections within your homes. Regard as your most precious possession in time or eternity she with whom you joined hands over the altar in the House of the Lord and to whom you pledged your love and loyalty and affection for time and all eternity. Your companion, your children, and you yourself will then know and feel a security far greater than any that can be bought with hardware and gadgetry.
 
 God bless you, my brethren, young and old, that the watch-care of the Lord may be over you, that you may stay close to Him and be deserving of His preserving hand, I humbly ask, in the name of Jesus Christ, amen.
+
+
+
 

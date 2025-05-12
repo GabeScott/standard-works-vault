@@ -1,5 +1,6 @@
 # Good Memories Are Real Blessings
-*By Joe J. Christensen - Of the First Quorum of the Seventy*
+
+By Elder Joe J. Christensen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
 
@@ -15,7 +16,7 @@ I remember we sat in the balcony there on the north side. Before the meeting sta
 
 That night, I decided I wanted to do everything I could to support my dad as bishop. I didn’t want to do anything that would embarrass or disappoint him. To this day, I am grateful for those feelings that came to me that night.
 
-None of us knows how long we are going to live. In the Book of Mormon, Alma asked the question, “Can ye look up to God at that day with a pure heart and clean hands?” (Alma 5:19.) I remember when the need to have “clean hands and a pure heart” (Ps. 24:4) became very meaningful to me.
+None of us knows how long we are going to live. In the Book of Mormon, Alma asked the question, “Can ye look up to God at that day with a pure heart and clean hands?” ([[Alma 5.19|Alma 5:19]].) I remember when the need to have “clean hands and a pure heart” ([[Psalms 24.4|Ps. 24:4]]) became very meaningful to me.
 
 It was just after my friend David Carlson and I had graduated from Preston High School. We were happy with the fact that it was the same school that Presidents Ezra Taft Benson and Harold B. Lee had attended when they were growing up. Even though they had changed the name from the Oneida Stake Academy to Preston High School, we still had some of our classes in the same building.
 
@@ -51,7 +52,7 @@ The elder said that he did that, and he had determined that the mission would co
 
 That elder was one of the few I remember who left the Missionary Training Center speaking what Japanese he had learned with a German accent. He was called to Japan. He served a successful mission, and I am confident that when he finished he found many international businesses that would like to hire a junior executive who can speak English, German, and Japanese—the major languages of the economic free world. Even if he didn’t earn an extra cent, he still knew that he had done what the Lord wanted him to do.
 
-Through the Prophet Joseph Smith, the Lord revealed the scripture which we have already heard from Elder Banks this evening—“that the thing which will be of the most worth unto you will be to declare repentance unto this people, that you may bring souls unto me.” (D&C 15:6; D&C 16:6.)
+Through the Prophet Joseph Smith, the Lord revealed the scripture which we have already heard from Elder Banks this evening—“that the thing which will be of the most worth unto you will be to declare repentance unto this people, that you may bring souls unto me.” ([[D&C 15.6|D&C 15:6]]; [[D&C 16.6|16:6]].)
 
 Over the years we have been so impressed by the thousands of missionaries we have seen at the Missionary Training Center, at Ricks College, and elsewhere, who have demonstrated their willingness to serve their missions—and some of them, at great personal sacrifice.
 
@@ -64,4 +65,7 @@ As I look up into the balcony tonight, I see some of you young men who are seate
 Young brethren, we respect you. We have confidence that you will rise to the best that is in you, and we love you.
 
 Our Heavenly Father lives. He also loves you and even knows you by name. Jesus is the Christ, and this is His church, led by the living prophets who are presiding at this general priesthood session. I share this testimony in the holy name of Jesus Christ, amen.
+
+
+
 

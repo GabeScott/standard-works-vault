@@ -1,5 +1,6 @@
 # Seeking Eternal Riches
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -7,11 +8,11 @@
 
 Beloved brothers and sisters, after four days of conference meetings, we now approach the close of this general conference. It has been a time of rejoicing, for we have seen numerous of our beloved brothers and sisters from many countries all over the globe. It is a great joy to see them again and to realize the growth and development that have come to their people.
 
-We hope that the conference has brought to the people generally a stirring toward spirituality, and we recall that the Lord said, “For what is a man profited, if he shall gain the whole world, and lose his own soul? or what shall a man give in exchange for his soul?” (Matt. 16:26.)
+We hope that the conference has brought to the people generally a stirring toward spirituality, and we recall that the Lord said, “For what is a man profited, if he shall gain the whole world, and lose his own soul? or what shall a man give in exchange for his soul?” ([[Matthew 16.26|Matt. 16:26]].)
 
 Very early in his ministry the Lord said, “What seekest thou?” He was referring to the incentive prompting the seeking of wealth, worldly honors, praises, riches, and honor, or the eternal riches of the soul. What is he profited? Thus the Lord has made a vibrant contrast between the honors of the world and the honors which can come to the soul. He names vividly the contrast between the things of the world and the things that are related to heavenly desires and accomplishments.
 
-We reiterate over and over the exhortation of the Christ when he admonished his hearers to “seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.” (Matt. 6:33.)
+We reiterate over and over the exhortation of the Christ when he admonished his hearers to “seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.” ([[Matthew 6.33|Matt. 6:33]].)
 
 This, then, is the paramount issue which brings large numbers of people from all over the world to prepare for this choice—the material or the spiritual possessions.
 
@@ -19,7 +20,7 @@ The sermons of this conference have emphasized the fact which leading statesmen 
 
 We hope this is not true, but we stand four-square against any increase in the breakdown of our high standards and family life and community life.
 
-Some years ago a British jet plane crossed and recrossed the Atlantic Ocean in a short few hours. Shortly thereafter a cartoon appeared in the New York Times which pictured the jet plane traveling at a fantastic speed. The plane was labeled “Man’s Scientific Progress.” On the ground was a huge turtle, moving slowly and ponderously. It was labeled “Man’s Moral Progress.”
+Some years ago a British jet plane crossed and recrossed the Atlantic Ocean in a short few hours. Shortly thereafter a cartoon appeared in the *New York Times* which pictured the jet plane traveling at a fantastic speed. The plane was labeled “Man’s Scientific Progress.” On the ground was a huge turtle, moving slowly and ponderously. It was labeled “Man’s Moral Progress.”
 
 One writer added this:
 
@@ -73,7 +74,7 @@ As we speak of the family, which is so basic to our joy and happiness, we read f
 
 We continue:
 
-“When a young man and woman of the right biological type marry in the early twenties and are prepared to earn a living and support and rear a family, they have started in the normal cycle of life. They are likely to give society far fewer problems of crime, immorality, divorce or poverty than are their unmarried companions. They will have children and rear them while they are strong, enjoy them when they are grown-up and successful, depend upon them in weakness and profit by the finest type of old age insurance ever invented by man or God, an insurance which pays its annuities in material goods when necessary, but which mainly pays in the rich joys of love and fellowship. ... The crowning joys of human experience will come in middle age and onward through the companionship, love and honor of children and grandchildren.”
+“When a young man and woman of the right biological type marry in the early twenties and are prepared to earn a living and support and rear a family, they have started in the normal cycle of life. They are likely to give society far fewer problems of crime, immorality, divorce or poverty than are their unmarried companions. They will have children and rear them while they are strong, enjoy them when they are grown-up and successful, depend upon them in weakness and profit by the finest type of old age insurance ever invented by man or God, an insurance which pays its annuities in material goods when necessary, but which mainly pays in the rich joys of love and fellowship. … The crowning joys of human experience will come in middle age and onward through the companionship, love and honor of children and grandchildren.”
 
 It is our hope, then, that all the members of the Church will see to it that their own lives are put in order, that they may enjoy these cycles of life.
 
@@ -87,25 +88,25 @@ The Lord gave to us in the beginning of this dispensation:
 
 “And the rebellious shall be pierced with much sorrow; for their iniquities shall be spoken upon the housetops, and their secret acts shall be revealed.
 
-“And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days. ...
+“And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days. …
 
 “Prepare ye, prepare ye for that which is to come, for the Lord is nigh;
 
 “And the anger of the Lord is kindled, and his sword is bathed in heaven, and it shall fall upon the inhabitants of the earth.
 
-“And the arm of the Lord shall be revealed; and the day cometh that they who will not hear the voice of the Lord, neither the voice of his servants, neither give heed to the words of the prophets and apostles, shall be cut off from among the people [And I would like to say here that through the days of this conference we have heard many, many testimonies by the prophets and the apostles and the servants of the Lord.]; ...
+“And the arm of the Lord shall be revealed; and the day cometh that they who will not hear the voice of the Lord, neither the voice of his servants, neither give heed to the words of the prophets and apostles, shall be cut off from among the people \[And I would like to say here that through the days of this conference we have heard many, many testimonies by the prophets and the apostles and the servants of the Lord.\]; …
 
-“They seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God, whose image is in the likeness of the world, and whose substance is that of an idol, which waxeth old and shall perish in Babylon, even Babylon the great, which shall fall. ...
+“They seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God, whose image is in the likeness of the world, and whose substance is that of an idol, which waxeth old and shall perish in Babylon, even Babylon the great, which shall fall. …
 
 “The weak things of the world shall come forth and break down the mighty and strong ones, that man should not counsel his fellow man, neither trust in the arm of flesh—
 
-“But every man might speak in the name of God the Lord.” (D&C 1:1–4, 12–14, 16, 19–20.)
+“But every man might speak in the name of God the Lord.” ([[D&C 1.1|D&C 1:1–4, 12–14, 16, 19–20]][[D&C 1.2|]][[D&C 1.3|]][[D&C 1.4|]][[D&C 1.12|]][[D&C 1.13|]][[D&C 1.14|]][[D&C 1.16|]][[D&C 1.19|]][[D&C 1.20|]].)
 
 I would like to conclude with the thought about Job, whose wife came to him with a tempting suggestion:
 
 “Then said his wife unto him, Dost thou still retain thine integrity? curse God, and die.
 
-“But he said unto her, Thou speakest as one of the foolish women speaketh. What? shall we receive good at the hand of God, and shall we not receive evil? ...
+“But he said unto her, Thou speakest as one of the foolish women speaketh. What? shall we receive good at the hand of God, and shall we not receive evil? …
 
 “All the while my breath is in me, and the spirit of God is in my nostrils,
 
@@ -113,9 +114,9 @@ I would like to conclude with the thought about Job, whose wife came to him with
 
 “God forbid that I should justify you: till I die I will not remove mine integrity from me.
 
-“My righteousness I hold fast, and will not let it go: my heart shall not reproach me so long as I live. ...
+“My righteousness I hold fast, and will not let it go: my heart shall not reproach me so long as I live. …
 
-“For what is the hope of the hypocrite, though he hath gained, when God taketh away his soul?” (Job 2:9–10; 27:3–6, 8.)
+“For what is the hope of the hypocrite, though he hath gained, when God taketh away his soul?” ([[Job 2.9|Job 2:9–10]][[Job 2.10|]]; [[Job 27.3|27:3–6, 8]][[Job 27.4|]][[Job 27.5|]][[Job 27.6|]][[Job 27.8|]].)
 
 And then as I have heard the many sermons throughout this conference, a number of times Matthew 16 has been quoted. I would like to quote it once more, for the repetition will strengthen us.
 
@@ -125,7 +126,7 @@ And then as I have heard the many sermons throughout this conference, a number o
 
 “He saith unto them, But whom say ye that I am?”
 
-And Simon Peter was the spokesman. He answered and said, “Thou art the Christ, the Son of the living God.” (Matt. 16:13–16.)
+And Simon Peter was the spokesman. He answered and said, “Thou art the Christ, the Son of the living God.” ([[Matthew 16.13|Matt. 16:13–16]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]].)
 
 There are a half a hundred special witnesses in this room this day. There are tens of thousands of men under the sound of my voice, all of whom would, in one great chorus, answer that question—“Thou art the Christ, the Son of the living God.”
 
@@ -133,7 +134,10 @@ And then the Lord could say to every one of the thousands of us, “Blessed art 
 
 And I say unto thee, That thou art Peter, James, or John, or Bill, or Sam, and upon this rock of revelation—not the rock of Peter, because the Church could not be established on the life of any man, but on the rock of revelation—have I revealed this unto thee that Jesus is the Christ.
 
-“And I will give unto thee the keys of the kingdom of heaven: and whatsoever thou shalt bind on earth shall be bound in heaven: and whatsoever thou shalt loose on earth shall be loosed in heaven.” (See Matt. 16:17–19.)
+“And I will give unto thee the keys of the kingdom of heaven: and whatsoever thou shalt bind on earth shall be bound in heaven: and whatsoever thou shalt loose on earth shall be loosed in heaven.” (See [[Matthew 16.17|Matt. 16:17–19]][[Matthew 16.18|]][[Matthew 16.19|]].)
 
 And that is my testimony to you, my brothers and sisters, as we conclude this marvelous conference when we have all rejoiced so much together. My testimony is that whatsoever can be bound on earth can be bound in heaven by the authority and the power that has been given to the servants of the Lord. The Twelve Apostles were given it in those early days. It is given to them again today. Whatsoever ye shall bind on earth shall be bound in heaven. The keys of the kingdom are upon the earth. We know that the Lord wishes us to use them to open the doors to move forward and to carry forward the work of our Savior as we make our special efforts. And I bear this testimony to you and ask the blessings of the Lord to be upon you in your home going, that you may be protected and safe, and that the message of this conference may sink deep into your hearts and last forever, in the name of Jesus Christ. Amen.
+
+
+
 

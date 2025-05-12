@@ -1,13 +1,16 @@
 # To My Grandchildren
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2013 General Conference*
+
+>*There is one overarching commandment that will help us to meet the challenges and lead to the heart of a happy family life.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/10/to-my-grandchildren?lang=eng)
 
 This year our first two grandchildren will be married. Within a few years as many as 10 of their cousins are likely to reach a point in their lives where they will follow into the wonderful world of family creation.
 
-That happy prospect has caused me deep contemplation as they have asked me for advice. Essentially they have asked, “What choices could I make that will lead me to happiness?” And on the other hand, “What choices are likely to lead me to unhappiness?”
+That happy prospect has caused me deep contemplation as they have asked me for advice. Essentially they have asked, “What choices could I make that will lead me to happiness?” And on the other hand, “What choices are likely to lead me to *un*happiness?”
 
 Heavenly Father has made each of us unique. No two of us have exactly the same experiences. No two families are alike. So it is not surprising that advice about how to choose happiness in family life is hard to give. Yet a loving Heavenly Father has set the same path to happiness for all of His children. Whatever our personal characteristics or whatever will be our experiences, there is but one plan of happiness. That plan is to follow all the commandments of God.
 
@@ -23,7 +26,7 @@ For all of us, including my grandchildren contemplating marriage, there is one o
 
 “And the second is like unto it, Thou shalt love thy neighbour as thyself.
 
-“On these two commandments hang all the law and the prophets.”1
+“On these two commandments hang all the law and the prophets.”[^1]
 
 From that simple statement it is not hard to summarize all I have learned about what choices lead to happiness in families. I start with the question, “What choices have led me toward loving the Lord with all my heart and soul and with all my mind?” For me it has been to choose to put myself where I felt the joy of forgiveness through the Lord’s Atonement.
 
@@ -35,7 +38,7 @@ I have seen why the Lord can say that when sins are forgiven, He can remember th
 
 That great blessing has come by encouraging people I care for to go to the Savior for relief from pain, a relief only He can give. That is why I urge those I love to accept and to magnify every calling offered them in the Church. That choice is one of the great keys to family happiness.
 
-The pressures at every stage of life can tempt us to reject or neglect calls to serve the Savior. That can put us in spiritual peril for ourselves, our spouse, and our families. Some of those calls may seem unimportant, but my life, and my family, was changed for the better by my accepting a call to teach a deacons quorum. I felt the love of those deacons for the Savior and His love for them.
+The pressures at every stage of life can tempt us to reject or neglect calls to serve the Savior. That can put us in spiritual peril for ourselves, our spouse, and our families. Some of those calls may seem unimportant, but *my* life, and my family, was changed for the better by my accepting a call to teach a deacons quorum. I felt the love of those deacons for the Savior and His love for them.
 
 I have seen that happen in the life of a former stake and mission president in his call to him to advise a teachers quorum. I know of another who has been a bishop and then an Area Seventy who was used by the Lord to succor a boy in a teachers quorum who was hurt in an accident. The miracles from that service touched many lives, including mine, and increased their love for the Savior.
 
@@ -65,7 +68,7 @@ We know that Heavenly Father has spirit children in this world who sometimes cho
 
 Life in families will test us. That is one of God’s purposes in giving us the gift of mortality—to strengthen us by passing through tests. That will be especially true in family life, where we will find great joy and great sorrow and challenges which may at times seem beyond our power to endure them.
 
-President George Q. Cannon said this about how God has prepared you and me and our children for the tests we will face: “There is not one of us but what God’s love has been expended upon. There is not one of us that He has not cared for and caressed. There is not one of us that He has not desired to save, and that He has not devised means to save. There is not one of us that He has not given His angels charge concerning. We may be insignificant and contemptible in our own eyes, and in the eyes of others, but the truth remains that we are the children of God, and that He has actually given His angels—invisible beings of power and might—charge concerning us, and they watch over us and have us in their keeping.”2
+President George Q. Cannon said this about how God has prepared you and me and our children for the tests we will face: “There is not one of us but what God’s love has been expended upon. There is not one of us that He has not cared for and caressed. There is not one of us that He has not desired to save, and that He has not devised means to save. There is not one of us that He has not given His angels charge concerning. We may be insignificant and contemptible in our own eyes, and in the eyes of others, but the truth remains that we are the children of God, and that He has actually given His angels—invisible beings of power and might—charge concerning us, and they watch over us and have us in their keeping.”[^2]
 
 What President Cannon taught is true. You will need that assurance, as I have needed it and depended on it.
 
@@ -79,13 +82,22 @@ The answer came to her mind in these words: “I gave him to you because I knew 
 
 There is a wonderful lesson for us all. The way for loving parents and grandparents and all of God’s servants will not be easy in a decaying world. We cannot force God’s children to choose the way to happiness. God cannot do that because of the agency He has given us.
 
-Heavenly Father and His Beloved Son love all of God’s children no matter what they choose to do or what they become. The Savior paid the price of all sins, no matter how heinous. Even though there must be justice, the opportunity for mercy is extended which will not rob justice.
+Heavenly Father and His Beloved Son love all of God’s children no matter what they choose to do or what they become. The Savior paid the price of all sins, no matter how heinous. Even though there must be justice, the opportunity for mercy is extended, which will not rob justice.
 
-Alma expressed that hope to his son Corianton in these words: “Therefore, according to justice, the plan of redemption could not be brought about, only on conditions of repentance of men in this probationary state, yea, this preparatory state; for except it were for these conditions, mercy could not take effect except it should destroy the work of justice. Now the work of justice could not be destroyed; if so, God would cease to be God.”3
+Alma expressed that hope to his son Corianton in these words: “Therefore, according to justice, the plan of redemption could not be brought about, only on conditions of repentance of men in this probationary state, yea, this preparatory state; for except it were for these conditions, mercy could not take effect except it should destroy the work of justice. Now the work of justice could not be destroyed; if so, God would cease to be God.”[^3]
 
 My message then to my grandchildren, and to all of us trying to forge eternal families, is that there is joy guaranteed for the faithful. From before the world was, a loving Father in Heaven and His Beloved Son loved and worked with those who They knew would wander. God will love them forever.
 
 You have the advantage of knowing that they learned the plan of salvation from the teachings they received in the spirit world. They and you were faithful enough to be allowed to come into the world when many others were not.
 
 With the help of the Holy Ghost, all truths will be brought to our remembrance. We cannot force that on others, but we can let them see it in our lives. We can always take courage from the assurance that we all once felt the joy of being together as a member of the beloved family of our Heavenly Father. With God’s help we can all feel that hope and that joy again. I pray that may be so for all of us in the name of the Lord Jesus Christ, amen.
+
+
+
+
+[^1]: [[Matthew 22.35|Matthew 22:35–40]][[Matthew 22.36|]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
+
+[^2]: George Q. Cannon, “Our Pre-existence and Present Probation,” *Contributor,* Oct. 1890, 476.
+
+[^3]: [[Alma 42.13|Alma 42:13]].
 

@@ -1,7 +1,10 @@
 # God Helps the Faithful Priesthood Holder
-*By Henry B. Eyring - Second Counselor in the First Presidency*
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2007 General Conference*
+
+>*The message may come in words to your mind or in a feeling or both. But it will … give you assurance and guidance in what you must do.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2007/10/god-helps-the-faithful-priesthood-holder?lang=eng)
 
@@ -11,7 +14,7 @@ I had grown up in the mission field where there was only a tiny branch, which me
 
 In my fear and desperation, I remember going outside the chapel to be alone. I was worried. I prayed for help and for some assurance that I would not fail in serving God in His priesthood.
 
-It is now many years later. I have held the Melchizedek Priesthood for more than 50 years. But in the last few days I have prayed with that same pleading for help and assurance that I will not fail in the call which has come to me to serve in the First Presidency. Others seem so much more able to serve and so much better prepared. But as I prayed this time I think I could feel an answer that was probably sent to me outside the Yalecrest Ward chapel long ago. It is the same answer you can expect to get when you face a call to serve in the priesthood which seems beyond you.
+It is now many years later. I have held the Melchizedek Priesthood for more than 50 years. But in the last few days I have prayed with that same pleading for help and assurance that I will not fail in the call which has come to me to serve in the First Presidency. Others seem so much more able to serve and so much better prepared. But as I prayed this time, I think I could feel an answer that was probably sent to me outside the Yalecrest Ward chapel long ago. It is the same answer you can expect to get when you face a call to serve in the priesthood which seems beyond you.
 
 The message may come in words to your mind or in a feeling or both. But it will include at least three things to give you assurance and guidance in what you must do in this seemingly overwhelming calling.
 
@@ -21,7 +24,7 @@ When I was young and still living in New Jersey, a large crowd of angry people g
 
 From when I was older, I have a more recent memory of a crowd of angry people I was called by the First Presidency to face who suddenly and inexplicably were touched by a spirit of calm and reconciliation.
 
-Another time, I was sent to speak to leaders of churches in the United States and ministers of those churches who had met in Minneapolis to deal with the problem of competition among churches.
+Another time I was sent to speak to leaders of churches in the United States and ministers of those churches who had met in Minneapolis to deal with the problem of competition among churches.
 
 When I arrived, I found that I was assigned to be a speaker. My subject was to be: Why there was a need for a restoration of the true Church through Joseph Smith. I was a last-minute substitute for Elder Neal A. Maxwell.
 
@@ -33,19 +36,19 @@ To my amazement, after my talk the ministers lined up to speak to me. Every one 
 
 By the end of the three days of meetings, larger and larger crowds were coming to hear the message of the Restoration of the gospel and the true Church of Jesus Christ not because they believed the message but because they had seen goodness in people’s lives—the fruits of that restoration.
 
-As I prayed in these last few nights, those and other memories flooded back with an assurance something like this: “Haven’t I always looked after you? Think of the times I have led you beside the still waters. Remember the times I have set a table before you in the presence of your enemies. Remember, and fear no evil.” (See Psalm 23.)
+As I prayed in these last few nights, those and other memories flooded back with an assurance something like this: “Haven’t I always looked after you? Think of the times I have led you beside the still waters. Remember the times I have set a table before you in the presence of your enemies. Remember, and fear no evil.” (See [[Psalms 23.1|Psalm 23]][[Psalms 23.2|]][[Psalms 23.3|]][[Psalms 23.4|]][[Psalms 23.5|]][[Psalms 23.6|]].)
 
-So to the new deacons: remember. He has always taken care of you from your childhood. To the new quorum presidents: remember. To you fathers with children who are a challenge to you: remember, and have no fear. What is impossible for you is possible with God’s help in His service. And even when you were very small and in the years since, He has with His power and His Spirit gone before your face and been on your left hand and on your right hand when you went in His service (see D&C 84:88). You can receive assurance that God will watch over you if you pray for it in faith. I know that.
+So to the new deacons: remember. He has always taken care of you from your childhood. To the new quorum presidents: remember. To you fathers with children who are a challenge to you: remember, and have no fear. What is impossible for you is possible with God’s help in His service. And even when you were very small and in the years since, He has with His power and His Spirit gone before your face and been on your left hand and on your right hand when you went in His service (see [[D&C 84.88|D&C 84:88]]). You can receive assurance that God will watch over you if you pray for it in faith. I know that.
 
-The second part of the message you will receive as you pray for help in facing a hard assignment came to me very early Friday morning. I had prayed, as you will, about overwhelming inadequacies. The answer was very clear and very direct and really a rebuke as I prayed. “Forget yourself—start praying about the people you are to serve.” That does wonders, I can testify, to bring the Holy Ghost.
+The second part of the message you will receive as you pray for help in facing a hard assignment came to me very early Friday morning. I had prayed, as you will, about overwhelming inadequacies. The answer was very clear and very direct and really a rebuke as I prayed. “Forget yourself; start praying about the people you are to serve.” That does wonders, I can testify, to bring the Holy Ghost.
 
 But be prepared to lose track of time as you pray. You will feel love for the people you are to serve. You will feel their needs, their hopes, their hurts, and those of their families. And as you pray, the circle will grow wider than you would imagine, to perhaps people not in your quorum or your family but to those they love across the world. When you forget yourself to pray for the circle of others, your service will be extended in your heart. It will change not only your service but your heart. That is because the Father and His Beloved Son, whom you are called to serve, know and love so many people your service will touch, however limited to a few it may seem to be to you.
 
-The third and final message you can watch for when you pray for help in a hard priesthood assignment is this one—I got this one as well—go to work. Priesthood power is given you to bless others. And that always takes moving out and doing something, usually something hard to do. So you can expect, in addition to assurance of God’s help and the command to forget yourself, the clear prompting by the Holy Ghost to go and do something which will bless someone’s life. That may be as obvious as going prayerfully to visit a person or a family or a quorum member to whom you are assigned to serve. For a father it may be to correct one of his children.
+The third and final message you can watch for when you pray for help in a hard priesthood assignment is this one—I got this one as well—go to work. Priesthood power is given you to bless others. And that always takes moving out and doing something, usually something hard to do. So you can expect, in addition to assurance of God’s help and the command to forget yourself, the clear prompting by the Holy Ghost to go and do something which will bless someone’s life. That may be as obvious as going prayerfully to visit a person or a family or a quorum member whom you are assigned to serve. For a father it may be to correct one of his children.
 
 Whether what you do is to correct or to teach the gospel of Jesus Christ, you will do it better if you remember what success will be. You are to help Heavenly Father and His Son, Jesus Christ, make eternal life possible for those you serve. To do that, the Spirit must take a testimony down into their hearts. And that testimony has to lead them to choose to keep the commandments of God, whatever storms and temptations may come.
 
-With that in mind, the Spirit will guide you in teaching and correcting with priesthood power. You will keep yourself clean so that you will teach with the Spirit. You will pray for the Spirit to tell you when to correct and how to correct and how to show an increase of love (see D&C 121:43–44). Whatever you do in your priesthood service can be guided and measured by how well it could or did help the person take a testimony of the truth down into his or her life and heart, enough for the Atonement to work and keep working.
+As you keep that in mind, the Spirit will guide you in teaching and correcting with priesthood power. You will keep yourself clean so that you will teach with the Spirit. You will pray for the Spirit to tell you when to correct and how to correct and how to show an increase of love (see [[D&C 121.43|D&C 121:43–44]][[D&C 121.44|]]). Whatever you do in your priesthood service can be guided and measured by how well it could or did help the person take a testimony of the truth down into his or her life and heart enough for the Atonement to work and keep working.
 
 You can get assurance in your service. You can forget yourself and begin to pray for and love those you are to serve. And you can choose what to do and measure success by the degree to which it changes the hearts of the people you serve.
 
@@ -55,7 +58,7 @@ The reason for that is suggested by the phrase “a broken heart,” about which
 
 Now, tonight let us decide together what we are going to do. All of us, whatever our callings may be, face tasks that are beyond our own powers. I do and you do. That’s true from the simple fact that success is to get testimony down into the hearts of people. We can’t make that happen. Even God won’t force that on anyone.
 
-So success requires people we serve to choose to accept the testimony of the Spirit into their hearts. The Spirit is ready. But many people aren’t ready to invite the Spirit. Our task, which is in our power, is to invite the Spirit into our lives so that people we serve will want to have the fruits of the Spirit in their lives—the fruits that they can see in ours.
+So success requires people we serve to choose to accept the testimony of the Spirit into their hearts. The Spirit is ready. But many people aren’t ready to invite the Spirit. Our task, which *is* in our power, is to invite the Spirit into our lives so that people we serve will want to have the fruits of the Spirit in their lives—the fruits that they can see in ours.
 
 This leads me to some suggestions of what we can choose to do or not to do. Some things we can do invite the Spirit. Some force the Spirit to withdraw. You know that from your own experience.
 
@@ -65,7 +68,10 @@ The same care is required in what we say. We cannot hope to speak for the Lord u
 
 You can decide—and you must—to change what you say even when you can’t control what others say. But I know from my own experience that even in such a terrible situation you can count on God’s help. Years ago I was an air force officer serving for two years in an office with a marine colonel, an army colonel, and a grizzled navy commander. They had learned to speak in war and in peace in a way which offended me, and I know it repelled the Holy Ghost. I was at the time serving as a district missionary, trying in the evenings to go out to find people and teach them under the influence of the Holy Ghost. It was very hard. I was only a lieutenant. They were very senior to me. I had no way of changing their language. But I prayed for help. I don’t know how God did it, but in time their language changed. Slowly the profanity disappeared and then the vulgarity. Only when they drank liquor did it come back, but that was in the evenings, so I could excuse myself for missionary work.
 
-You can have memories like that to sustain your faith when life puts you in difficult places. God helps the faithful priesthood holder who decides to see and say no evil, even in a wicked world. It will not be easy. It never is. But you can have the promise fulfilled for you as I know that it can be for me: “Let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven” (D&C 121:45).
+You can have memories like that to sustain your faith when life puts you in difficult places. God helps the faithful priesthood holder who decides to see and say no evil, even in a wicked world. It will not be easy. It never is. But you can have the promise fulfilled for you as I know that it can be for me: “Let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven” ([[D&C 121.45|D&C 121:45]]).
 
 I testify that I know that you and I hold the priesthood of God and that He will answer our prayers with sweet assurance and with the help to serve Him better. I so promise you and testify in the name of Jesus Christ, amen.
+
+
+
 

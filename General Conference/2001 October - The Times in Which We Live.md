@@ -1,7 +1,10 @@
 # The Times in Which We Live
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2001 General Conference*
+
+>*Our safety lies in repentance. Our strength comes of obedience to the commandments of God.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2001/10/the-times-in-which-we-live?lang=eng)
 
@@ -25,9 +28,9 @@ Those of us who are American citizens stand solidly with the president of our na
 
 We of this Church know something of such groups. The Book of Mormon speaks of the Gadianton robbers, a vicious, oath-bound, and secret organization bent on evil and destruction. In their day they did all in their power, by whatever means available, to bring down the Church, to woo the people with sophistry, and to take control of the society. We see the same thing in the present situation.
 
-We are people of peace. We are followers of the Christ who was and is the Prince of Peace. But there are times when we must stand up for right and decency, for freedom and civilization, just as Moroni rallied his people in his day to the defense of their wives, their children, and the cause of liberty (see Alma 48:10).
+We are people of peace. We are followers of the Christ, who was and is the Prince of Peace. But there are times when we must stand up for right and decency, for freedom and civilization, just as Moroni rallied his people in his day to the defense of their wives, their children, and the cause of liberty (see [[Alma 48.10|Alma 48:10]]).
 
-On the Larry King television broadcast the other night, I was asked what I think of those who, in the name of their religion, carry out such infamous activities. I replied, “Religion offers no shield for wickedness, for evil, for those kinds of things. The God in whom I believe does not foster this kind of action. He is a God of mercy. He is a God of love. He is a God of peace and reassurance, and I look to Him in times such as this as a comfort and a source of strength.”
+On the Larry King television broadcast the other night, I was asked what I think of those who, in the name of their religion, carry out such infamous activities. I replied: “Religion offers no shield for wickedness, for evil, for those kinds of things. The God in whom I believe does not foster this kind of action. He is a God of mercy. He is a God of love. He is a God of peace and reassurance, and I look to Him in times such as this as a comfort and a source of strength.”
 
 Members of the Church in this and other nations are now involved with many others in a great international undertaking. On television we see those of the military leaving their loved ones, knowing not whether they will return. It is affecting the homes of our people. Unitedly, as a Church, we must get on our knees and invoke the powers of the Almighty in behalf of those who will carry the burdens of this campaign.
 
@@ -39,7 +42,7 @@ We cannot provide against every contingency. But we can provide against many con
 
 As we have been continuously counseled for more than 60 years, let us have some food set aside that would sustain us for a time in case of need. But let us not panic nor go to extremes. Let us be prudent in every respect. And, above all, my brothers and sisters, let us move forward with faith in the Living God and His Beloved Son.
 
-Great are the promises concerning this land of America. We are told unequivocally that it “is a choice land, and whatsoever nation shall possess it shall be free from bondage, and from captivity, and from all other nations under heaven, if they will but serve the God of the land, who is Jesus Christ” (Ether 2:12). This is the crux of the entire matter—obedience to the commandments of God.
+Great are the promises concerning this land of America. We are told unequivocally that it “is a choice land, and whatsoever nation shall possess it shall be free from bondage, and from captivity, and from all other nations under heaven, if they will but serve the God of the land, who is Jesus Christ” ([[Ether 2.12|Ether 2:12]]). This is the crux of the entire matter—obedience to the commandments of God.
 
 The Constitution under which we live, and which has not only blessed us but has become a model for other constitutions, is our God-inspired national safeguard ensuring freedom and liberty, justice and equality before the law.
 
@@ -49,13 +52,13 @@ I cannot forget the great lesson of Pharaoh’s dream of the fat and lean kine a
 
 I cannot dismiss from my mind the grim warnings of the Lord as set forth in the 24th chapter of Matthew.
 
-I am familiar, as are you, with the declarations of modern revelation that the time will come when the earth will be cleansed and there will be indescribable distress, with weeping and mourning and lamentation (see D&C 112:24).
+I am familiar, as are you, with the declarations of modern revelation that the time will come when the earth will be cleansed and there will be indescribable distress, with weeping and mourning and lamentation (see [[D&C 112.24|D&C 112:24]]).
 
 Now, I do not wish to be an alarmist. I do not wish to be a prophet of doom. I am optimistic. I do not believe the time is here when an all-consuming calamity will overtake us. I earnestly pray that it may not. There is so much of the Lord’s work yet to be done. We, and our children after us, must do it.
 
 I can assure you that we who are responsible for the management of the affairs of the Church will be prudent and careful as we have tried to be in the past. The tithes of the Church are sacred. They are appropriated in the manner set forth by the Lord Himself. We have become a very large and complex organization. We carry on many extensive and costly programs. But I can assure you that we will not exceed our income. We will not place the Church in debt. We will tailor what we do to the resources that are available.
 
-How grateful I am for the law of tithing. It is the Lord’s law of finance. It is set forth in a few words in the 119th section of the Doctrine and Covenants. It comes of His wisdom. To every man and woman, to every boy and girl, to every child in this Church who pays an honest tithing, be it large or small, I express gratitude for the faith that is in your hearts. I remind you, and those who do not pay tithing but who should, that the Lord has promised marvelous blessings (see Mal. 3:10–12). He has also promised that “he that is tithed shall not be burned at his coming” (D&C 64:23).
+How grateful I am for the law of tithing. It is the Lord’s law of finance. It is set forth in a few words in the 119th section of the Doctrine and Covenants. It comes of His wisdom. To every man and woman, to every boy and girl, to every child in this Church who pays an honest tithing, be it large or small, I express gratitude for the faith that is in your hearts. I remind you, and those who do not pay tithing but who should, that the Lord has promised marvelous blessings (see [[Malachi 3.10|Mal. 3:10–12]][[Malachi 3.11|]][[Malachi 3.12|]]). He has also promised that “he that is tithed shall not be burned at his coming” ([[D&C 64.23|D&C 64:23]]).
 
 I express appreciation to those who pay a fast offering. This costs the giver nothing other than going without two meals a month. It becomes the backbone of our welfare program, designed to assist those in distress.
 
@@ -67,11 +70,11 @@ Now, all of us know that war, contention, hatred, suffering of the worst kind ar
 
 “And the great dragon was cast out, that old serpent, called the Devil, and Satan, which deceiveth the whole world: he was cast out into the earth, and his angels were cast out with him.
 
-“And I heard a loud voice saying in heaven, Now is come salvation, and strength, and the kingdom of our God, and the power of his Christ” (Rev. 12:7–10).
+“And I heard a loud voice saying in heaven, Now is come salvation, and strength, and the kingdom of our God, and the power of his Christ” ([[Revelation 12.7|Rev. 12:7–10]][[Revelation 12.8|]][[Revelation 12.9|]][[Revelation 12.10|]]).
 
 That must have been a terrible conflict. The forces of evil were pitted against the forces of good. The great deceiver, the son of the morning, was defeated and banished, and took with him a third of the hosts of heaven.
 
-The book of Moses and the book of Abraham shed further light concerning this great contest. Satan would have taken from man his agency and taken unto himself all credit and honor and glory. Opposed to this was the plan of the Father which the Son said He would fulfill, under which He came to earth and gave His life to atone for the sins of mankind.
+The book of Moses and the book of Abraham shed further light concerning this great contest. Satan would have taken from man his agency and taken unto himself all credit and honor and glory. Opposed to this was the plan of the Father, which the Son said He would fulfill, under which He came to earth and gave His life to atone for the sins of mankind.
 
 From the day of Cain to the present, the adversary has been the great mastermind of the terrible conflicts that have brought so much suffering.
 
@@ -79,17 +82,20 @@ Treachery and terrorism began with him. And they will continue until the Son of 
 
 Through centuries of time, men and women, so very, very many, have lived and died. Some may die in the conflict that lies ahead. To us, and we bear solemn testimony of this, death will not be the end. There is life beyond this as surely as there is life here. Through the great plan which became the very essence of the War in Heaven, men shall go on living.
 
-Job asked, “If a man die, shall he live again?” (Job 14:14). He replied: “For I know that my redeemer liveth, and that he shall stand at the latter day upon the earth:
+Job asked, “If a man die, shall he live again?” ([[Job 14.14|Job 14:14]]). He replied: “For I know that my redeemer liveth, and that he shall stand at the latter day upon the earth:
 
 “And though after my skin worms destroy this body, yet in my flesh shall I see God:
 
-“Whom I shall see for myself, and mine eyes shall behold, and not another” (Job 19:25–27).
+“Whom I shall see for myself, and mine eyes shall behold, and not another” ([[Job 19.25|Job 19:25–27]][[Job 19.26|]][[Job 19.27|]]).
 
-Now, brothers and sisters, we must do our duty, whatever that duty might be. Peace may be denied for a season. Some of our liberties may be curtailed. We may be inconvenienced. We may even be called on to suffer in one way or another. But God our Eternal Father will watch over this nation and all of the civilized world who look to Him. He has declared, “Blessed is the nation whose God is the Lord” (Ps. 33:12). Our safety lies in repentance. Our strength comes of obedience to the commandments of God.
+Now, brothers and sisters, we must do our duty, whatever that duty might be. Peace may be denied for a season. Some of our liberties may be curtailed. We may be inconvenienced. We may even be called on to suffer in one way or another. But God our Eternal Father will watch over this nation and all of the civilized world who look to Him. He has declared, “Blessed is the nation whose God is the Lord” ([[Psalms 33.12|Ps. 33:12]]). Our safety lies in repentance. Our strength comes of obedience to the commandments of God.
 
-Let us be prayerful. Let us pray for righteousness. Let us pray for the forces of good. Let us reach out to help men and women of goodwill, whatever their religious persuasion and wherever they live. Let us stand firm against evil, both at home and abroad. Let us live worthy of the blessings of heaven, reforming our lives where necessary and looking to Him, the Father of us all. He has said, “Be still, and know that I am God” (Ps. 46:10).
+Let us be prayerful. Let us pray for righteousness. Let us pray for the forces of good. Let us reach out to help men and women of goodwill, whatever their religious persuasion and wherever they live. Let us stand firm against evil, both at home and abroad. Let us live worthy of the blessings of heaven, reforming our lives where necessary and looking to Him, the Father of us all. He has said, “Be still, and know that I am God” ([[Psalms 46.10|Ps. 46:10]]).
 
 Are these perilous times? They are. But there is no need to fear. We can have peace in our hearts and peace in our homes. We can be an influence for good in this world, every one of us.
 
-May the God of heaven, the Almighty, bless us, help us, as we walk our various ways in the uncertain days that lie ahead. May we look to Him with unfailing faith. May we worthily place our reliance on His Beloved Son who is our great Redeemer, whether it be in life or in death, is my prayer in His holy name, even the name of Jesus Christ, amen.
+May the God of heaven, the Almighty, bless us, help us, as we walk our various ways in the uncertain days that lie ahead. May we look to Him with unfailing faith. May we worthily place our reliance on His Beloved Son, who is our great Redeemer, whether it be in life or in death, is my prayer in His holy name, even the name of Jesus Christ, amen.
+
+
+
 

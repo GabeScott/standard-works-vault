@@ -1,5 +1,6 @@
 # The Summer of the Lambs
-*By By Jayne B. Malan - First Counselor in the Young Women General Presidency*
+
+By Jayne B. Malan - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 1989 General Conference*
 
@@ -11,7 +12,7 @@ One year my father was waiting for us as we arrived. He said he had a big job fo
 
 However, there was one thing that my father hadn’t mentioned. None of the lambs had mothers. Just after shearing, there was a violent storm that chilled the newly shorn sheep. Dad lost a thousand ewes that year. The mothers of our lambs were among them.
 
-To feed one or two baby animals is one thing, but to feed 350 is something else! It was hard. There was plenty of grass, but the lambs couldn’t eat the grass. They didn’t have teeth. They needed milk. So we made some long, V-shaped feeding troughs out of some boards. Then we got a great big tin washtub, ground up some grain, and added milk to make a thin mash. While my brother poured the mash into the troughs, I rounded up the lambs, herded them to the troughs, and said, “Eat!” Well, they just stood there looking at me. Although they were hungry and there was food in front of them, they still wouldn’t eat. No one had taught them to drink milk out of a trough. So I tried pushing them toward the troughs. Do you know what happens when you try to push sheep? They run the other way. And when you lose one, you could lose them all because others will follow. That’s the way with sheep.
+To feed one or two baby animals is one thing, but to feed 350 is something else! It was hard. There was plenty of grass, but the lambs couldn’t eat the grass. They didn’t have teeth. They needed milk. So we made some long, V-shaped feeding troughs out of some boards. Then we got a great big tin washtub, ground up some grain, and added milk to make a thin mash. While my brother poured the mash into the troughs, I rounded up the lambs, herded them to the troughs, and said, “Eat!” Well, they just stood there looking at me. Although they were hungry and there was food in front of them, they still wouldn’t eat. No one had taught them to drink milk out of a trough. So I tried *pushing* them toward the troughs. Do you know what happens when you try to push sheep? They run the other way. And when you lose one, you *could* lose them all because others will follow. That’s the way with sheep.
 
 We tried lining up the lambs along the troughs and pushing their noses down in the milk, hoping they’d get a taste and want some more. We tried wiggling our fingers in the milk to get them to suck on our fingers. Some of them would drink, but most of them ran away.
 
@@ -25,9 +26,9 @@ Part of our job was to gather up the dead lambs and help dispose of them. I got 
 
 One morning my lamb didn’t come when I called. I found it later that day under the willows by the creek. It was dead. With tears streaming down my face, I picked up my lamb and went to find my father. Looking up at him, I said, “Dad, isn’t there someone who can help us feed our lambs?”
 
-After a long moment he said, “Jayne, once a long, long time ago, someone else said almost those same words. He said, ‘Feed my lambs. ... Feed my sheep. ... Feed my sheep.’” (John 21:15–17.) Dad put his arms around me and let me cry for a time, then went with me to bury my lamb.
+After a long moment he said, “Jayne, once a long, long time ago, someone else said almost those same words. He said, ‘Feed my lambs. … Feed my sheep. … Feed my sheep.’” ([[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].) Dad put his arms around me and let me cry for a time, then went with me to bury my lamb.
 
-It wasn’t until many years later that I fully realized the meaning of my father’s words. I was pondering the scripture in Moses that says, “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of [all mankind].” (Moses 1:39.) As I thought about the mission of the Savior, I remembered the summer of the lambs, and, for a few brief moments, I thought I could sense how the Savior must feel with so many lambs to feed, so many souls to save. And I knew in my heart that he needed my help.
+It wasn’t until many years later that I fully realized the meaning of my father’s words. I was pondering the scripture in Moses that says, “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of \[all mankind\].” ([[Moses 1.39|Moses 1:39]].) As I thought about the mission of the Savior, I remembered the summer of the lambs, and, for a few brief moments, I thought I could sense how the Savior must feel with so many lambs to feed, so many souls to save. And I knew in my heart that he needed my help.
 
 You wonderful young people, from what we’ve observed, you’re not unlike our lambs. You, too, are hungry—hungry for things of the Spirit that will make you grow strong and keep you safe from the coyotes that are out to destroy you. You are capable and willing to do your part in building the kingdom when you are taught how. And we want to help you.
 
@@ -35,13 +36,16 @@ We know that you need someone to love you, someone to listen and understand. You
 
 It would have been far easier to save our lambs if the mothers had been there to feed them. Young women, you are the mothers of tomorrow. Young men, you are the fathers. Together, you are the parents, the teachers, and the advisers who will help nurture and feed young lambs and lead them home. Prepare yourselves now for that sacred responsibility. Study the scriptures. Develop your God-given talents. Learn all you can about the world around you that is clean and good. Prepare yourselves to enter the temple of the Lord and be worthy to receive the ordinances and blessings by living, teaching, and sharing the gospel.
 
-Your Heavenly Father knows you and cares about what you are doing. He wants you to fulfill your divine mission, then come home and bring your family and friends with you. He wants you to be happy. Be on your knees daily and talk to your Heavenly Father. Share the happy times. Talk about what’s hard for you. Like my father, your Heavenly Father will understand. He’ll be there to walk with you, and to comfort and protect you, for he has promised to those who seek him, “I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.” (D&C 84:88.)
+Your Heavenly Father knows you and cares about what you are doing. He wants you to fulfill your divine mission, then come home and bring your family and friends with you. He wants you to be happy. Be on your knees daily and talk to your Heavenly Father. Share the happy times. Talk about what’s hard for you. Like my father, your Heavenly Father will understand. He’ll be there to walk with you and to comfort and protect you, for he has promised to those who seek him, “I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.” ([[D&C 84.88|D&C 84:88]].)
 
-Our prophet, President Benson, has said, “The symbolism of the Good Shepherd is not without significant parallel in the Church today.” The sheep need to be led by watchful shepherds. “With a shepherd’s loving care, our young people, our young lambs, will not be as inclined to wander. And if they do, the crook of the shepherd’s staff, a loving arm, and an understanding heart will help to retrieve them.” (Regional Representatives’ Seminar, 3 Apr. 1987.)
+Our prophet, President Benson, has said, “The symbolism of the Good Shepherd is not without significant parallel in the Church today.” The sheep need to be led by watchful shepherds. “With a shepherd’s loving care, our young people, our young lambs, will not be as inclined to wander. And if they do, the crook of the shepherd’s staff, a loving arm, and an understanding heart will help to retrieve them.” (Regional Representatives’ seminar, 3 Apr. 1987.)
 
 Parents, priesthood leaders, teachers, advisers, be “watchful shepherds”; and you, our noble youth, band together in the strength of the Lord and lead out in righteousness. Reach out with loving arms and understanding hearts to those who are weak or wandering. Help bring them back to the fold, where they can learn of the Good Shepherd and grow close to him. And please choose carefully the paths you walk, for others will follow. That’s the way with sheep.
 
-Of our little flock, we saved only one-third. And what of the Savior’s flock? He has said, “Feed my lambs. ... Feed my sheep.”
+Of our little flock, we saved only one-third. And what of the Savior’s flock? He has said, “Feed my lambs. … Feed my sheep.”
 
 This I know: He needs our help. With more people to help, more lambs will be saved. A simple fact, but true. Of this I can bear testimony in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # “Do Not Weary by the Way”
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -7,15 +8,15 @@
 
 What a joy it is to be in this conference and to hear the word of the Lord as it has been given by so many of the Brethren. As always, my brothers and sisters, I am thankful, personally, as well as in behalf of the Church members, for the counsel and encouragement we have received in this general conference. Those who have provided the music have added so much to these sessions. Those of you who are in attendance have listened thoughtfully, and you have been fed the bread of life. Most of all, the Lord has blessed us with his Spirit, for which we are deeply grateful.
 
-What has been received, however, must not be put out of our thoughts with the singing of the closing hymn. As we have listened to each sermon, we have added our own emphatic amens. With the final amen this afternoon still ringing in our ears, let us go back to our homes with a determination to do better and to put into practice those principles we have learned about in the last two days.
+What has been received, however, must not be put out of our thoughts with the singing of the closing hymn. As we have listened to each sermon, we have added our own emphatic *amens.* With the final *amen* this afternoon still ringing in our ears, let us go back to our homes with a determination to do better and to put into practice those principles we have learned about in the last two days.
 
-Brothers and sisters, our challenge is the same as it always is when we have been taught correct principles. The challenge has been put well by an ancient prophet who said, “Now, if you believe all these things see that ye do them” (Mosiah 4:10). We must not let the inner resolves we have made during this conference be forgotten as we return to the trials and tribulations and responsibilities of a workaday world, a world of turmoil and strife.
+Brothers and sisters, our challenge is the same as it always is when we have been taught correct principles. The challenge has been put well by an ancient prophet who said, “Now, if you believe all these things see that ye do them” ([[Mosiah 4.10|Mosiah 4:10]]). We must not let the inner resolves we have made during this conference be forgotten as we return to the trials and tribulations and responsibilities of a workaday world, a world of turmoil and strife.
 
 For a few hours we have been apart from the world in general conference, and the Spirit has whispered peace to our souls. Now we must return to our places again in the world, but we are better prepared to improve the world. Let us more fully and confidently go ahead and meet the problems that beset us. Let us move forward confidently, not with halting steps, but steadily, and with persistent dedication borne of the Spirit.
 
 It has been a great time of rejoicing during these days of conference, when friends have met friends and where the Saints have received much counsel. If all who have been to this conference will return to their homes and make up their minds that they are going to fulfill the obligations they have agreed to—that will be splendid!
 
-We are bound to note events and trends in the world which will constitute special challenges. We cannot expect to live in times of turbulence without experiencing some of that turbulence ourselves. But we do not need to be “tossed to and fro, and carried about [by] every wind of doctrine” without anchor (see Eph. 4:14). We have fellowship in a divine church. We have present-day prophets to guide us. We have Christ as our shepherd to lead us.
+We are bound to note events and trends in the world which will constitute special challenges. We cannot expect to live in times of turbulence without experiencing some of that turbulence ourselves. But we do not need to be “tossed to and fro, and carried about \[by\] every wind of doctrine” without anchor (see [[Ephesians 4.14|Eph. 4:14]]). We have fellowship in a divine church. We have present-day prophets to guide us. We have Christ as our shepherd to lead us.
 
 Even so, brethren and sisters, modern communications have a way of bringing the world into our homes, and we must not lose our perspective, even if others are confused. If we hear discouraging reports and are sobered by events in the world, let us not become fainthearted—“Do not weary by the way.” The Lord’s program will succeed even if some individuals in the Church fail. We will see the constant progress of the Lord’s work, even in the midst of problems in the world. It will roll forth until it fills the whole earth. He has given us his assurances so many, many times. He has told us that if we will keep his commandments he is bound to keep his promises to us. He does! He will!
 
@@ -34,4 +35,7 @@ The Lord lives, God lives, and Jesus is the Christ. He is the Only Begotten Son,
 The Lord bless you, my dear brethren and sisters. I hope that you will go forward now with a new spring in your walk and that you may be able to carry forward the things that you have planned all your life to do. I hope that you will do them well and do them better than they have ever been done before. And I hope that you will give to the numerous people who need the Lord’s blessings that which they need so much: the assurance that the Gospel is here, that the Lord is God, that Jesus Christ is the Redeemer, and that we can depend on him totally in our work.
 
 We pray that the Lord may continue to bless you, and we would be glad if you take back to your homes and to your people our sincere and deep love. God bless you, in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,17 +1,20 @@
 # Consider the Blessings
-*By Thomas S. Monson - President of the Church*
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2012 General Conference*
 
+>*Our Heavenly Father is aware of our needs and will help us as we call upon Him for assistance.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/10/consider-the-blessings?lang=eng)
 
-My beloved brothers and sisters, this conference marks 49 years since I was sustained, on October 4, 1963, as a member of the Quorum of the Twelve Apostles. Forty-nine years is a long time. In many ways, however, the time seems very short since I stood at the pulpit in the Tabernacle and gave my very first general conference address.
+My beloved brothers and sisters, this conference marks 49 years since I was sustained, on October 4, 1963, as a member of the Quorum of the Twelve Apostles. Forty-nine years is a long time. In many ways, however, the time seems very short since I stood at the pulpit in the Tabernacle and gave my very first general conference address.
 
-Much has changed since October 4, 1963. We live in a unique time in the world’s history. We are blessed with so very much. And yet it is sometimes difficult to view the problems and permissiveness around us and not become discouraged. I have found that, rather than dwelling on the negative, if we will take a step back and consider the blessings in our lives, including seemingly small, sometimes overlooked blessings, we can find greater happiness.
+Much has changed since October 4, 1963. We live in a unique time in the world’s history. We are blessed with so very much. And yet it is sometimes difficult to view the problems and permissiveness around us and not become discouraged. I have found that, rather than dwelling on the negative, if we will take a step back and consider the blessings in our lives, including seemingly small, sometimes overlooked blessings, we can find greater happiness.
 
 As I have reviewed the past 49 years, I have made some discoveries. One is that countless experiences I have had were not necessarily those one would consider extraordinary. In fact, at the time they transpired, they often seemed unremarkable and even ordinary. And yet, in retrospect, they enriched and blessed lives—not the least of which was my own. I would recommend this same exercise to you—namely, that you take an inventory of your life and look specifically for the blessings, large and small, you have received.
 
-Reinforced constantly during my own review of the years has been my knowledge that our prayers are heard and answered. We are familiar with the truth found in 2 Nephi in the Book of Mormon: “Men are, that they might have joy.”1 I testify that much of that joy comes as we recognize that we can communicate with our Heavenly Father through prayer and that those prayers will be heard and answered—perhaps not how and when we expected they would be answered, but they will be answered and by a Heavenly Father who knows and loves us perfectly and who desires our happiness. Hasn’t He promised us, “Be thou humble; and the Lord thy God shall lead thee by the hand, and give thee answer to thy prayers”?2
+Reinforced constantly during my own review of the years has been my knowledge that our prayers are heard and answered. We are familiar with the truth found in 2 Nephi in the Book of Mormon: “Men are, that they might have joy.”[^1] I testify that much of that joy comes as we recognize that we can communicate with our Heavenly Father through prayer and that those prayers will be heard and answered—perhaps not how and when we expected they would be answered, but they *will* be answered and by a Heavenly Father who knows and loves us perfectly and who desires our happiness. Hasn’t He promised us, “Be thou humble; and the Lord thy God shall lead thee by the hand, and give thee answer to thy prayers”?[^2]
 
 For the next few minutes allotted to me, I would like to share with you just a tiny sampling of the experiences I have had wherein prayers were heard and answered and which, in retrospect, brought blessings into my life as well as the lives of others. My daily journal, kept over all these years, has helped provide some specifics which I most likely would not otherwise be able to recount.
 
@@ -57,11 +60,11 @@ There was just one major problem that day. The entire production was dependent o
 
 Technicians worked frantically to solve the problem while the youth waited, hundreds of them, losing precious rehearsal time. The situation began to look impossible.
 
-The writer and director of the celebration, Susan Cooper, later explained: “As we moved from plan A to B to Z, we knew that it wasn’t working. ... As we were looking at the schedule, we knew that it was going to be beyond us, but we knew that we had one of the greatest strengths on the floor below—3,000 youth. We needed to go down and tell [them] what was happening and draw upon their faith.”3
+The writer and director of the celebration, Susan Cooper, later explained: “As we moved from plan A to B to Z, we knew that it wasn’t working. … As we were looking at the schedule, we knew that it was going to be beyond us, but we knew that we had one of the greatest strengths on the floor below—3,000 youth. We needed to go down and tell \[them\] what was happening and draw upon their faith.”[^3]
 
 Just an hour before the audience would begin to enter the center, 3,000 youth knelt on the floor and prayed together. They prayed that those working on the Jumbotron would be inspired to know what to do to repair it; they asked their Heavenly Father to make up for what they themselves could not do because of the shortage of time.
 
-Said one who wrote about it afterward, “It was a prayer the youth will never forget, not because the floor was hard, but because the Spirit melted their bones.”4
+Said one who wrote about it afterward, “It was a prayer the youth will never forget, not because the floor was hard, but because the Spirit melted their bones.”[^4]
 
 It was not long before one of the technicians came to tell them that the problem had been discovered and corrected. He attributed the solution to luck, but all those youth knew better.
 
@@ -70,4 +73,15 @@ When we entered the municipal center that evening, we had no idea of the difficu
 I never cease to be amazed by how the Lord can motivate and direct the length and breadth of His kingdom and yet have time to provide inspiration concerning one individual—or one cultural celebration or one Jumbotron. The fact that He can, that He does, is a testimony to me.
 
 My brothers and sisters, the Lord is in all of our lives. He loves us. He wants to bless us. He wants us to seek His help. As He guides us and directs us and as He hears and answers our prayers, we will find the happiness here and now that He desires for us. May we be aware of His blessings in our lives, I pray in the name of Jesus Christ, our Savior, amen.
+
+
+
+
+[^1]: [[2 Nephi 2.25|2 Nephi 2:25]].
+
+[^2]: [[D&C 112.10|Doctrine and Covenants 112:10]].
+
+[^3]: Susan Cooper, in Maurine Proctor, “Nothing’s Too Hard for the Lord: The Kansas City Cultural Celebration,” *Meridian Magazine,* May 9, 2012, ldsmag.com.
+
+[^4]: Proctor, *Meridian Magazine,* May 9, 2012.
 

@@ -1,5 +1,6 @@
 # Teach “the Why”
-*By Paul H. Dunn - Of the First Quorum of the Seventy*
+
+By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -23,7 +24,7 @@ To his amazement, at about that time he met in the air, coming up from the groun
 
 I suppose it seems all of us are in need of good counsel. Quite often parents and many young people ask the question, “How do you teach the gospel so that it’s meaningful and applicable?” Do you know, my brothers and sisters, that learning any concept or principle or changing any behavior pattern requires five important steps?
 
-First, you have to expose a person. Second is the law of repetition. Third is to give understanding, the why. People of all ages want to know the whys of the gospel, not just the rules. This is the most important aspect of teaching because the fourth step, that of conviction, and the fifth, application, cannot occur until we understand.
+*First,* you have to expose a person. *Second* is the law of repetition. *Third* is to give understanding, the why. People of all ages want to know the whys of the gospel, not just the rules. This is the most important aspect of teaching because the *fourth* step, that of conviction, and the *fifth,* application, cannot occur until we understand.
 
 Too often our answers to young people’s inquiries are “Well, because the scriptures say so” or “That is what the leaders tell us.” Young people want to know why the scriptures say so and why the leaders are so concerned.
 
@@ -77,21 +78,24 @@ Most wrong choices before and after marriage are not made out of rebellion or in
 
 Let me ask you young people a question: have you ever wondered why God would restrict us from some things, advise us strongly against them, warn us, even command us? Do you think his commandments are just arbitrary whims, artificial tests of some kind, generalities that are important for some people but not for others?
 
-I don’t think so! His commandments are loving counsel from a wise Father. Our understanding and concept of God as a loving and personal Heavenly Father allows us no other definition. He gives us commandments for one reason only—because he loves us and wants us to be happy. Chastity is a perfect example. God simply knows that virtue is its own reward, that the saving of oneself for one eternal partner makes that commitment more beautiful, more joyful. It is the simple question of whether you want a penny now or a diamond later. Any momentary pleasure that might result from a premarital relationship cannot be compared with the vastly greater joy of oneness in marriage. And the indulgence in the former can destroy the potential for the latter.
+I don’t think so! His commandments are *loving counsel from a wise Father.* Our understanding and concept of God as a loving and personal Heavenly Father allows us no other definition. He gives us commandments for one reason only—because he loves us and wants us to be happy. Chastity is a perfect example. God simply knows that virtue is its own reward, that the saving of oneself for one eternal partner makes that commitment more beautiful, more joyful. It is the simple question of whether you want a penny now or a diamond later. Any momentary pleasure that might result from a premarital relationship cannot be compared with the vastly greater joy of oneness in marriage. And the indulgence in the former can destroy the potential for the latter.
 
-Chastity is like money in the bank. As you save yourself you are saving the joy of belonging to one and only one. You are saving the joy of being able to say, “I am all yours, and I have never been anyone else’s.”
+Chastity is like money in the bank. As you save yourself you are *saving* the joy of belonging to one and only one. You are saving the joy of being able to say, “I am all yours, and I have never been anyone else’s.”
 
-Some will ask, “What if we already know who ‘the one’ is? What if the commitment is already there and we’re just waiting for the ceremony?” The answer is, it’s not just a ceremony, it’s a covenant, both with God and with your partner, and waiting shows the deepest love and respect for both.
+Some will ask, “What if we already know who ‘the one’ is? What if the commitment is already there and we’re just waiting for the ceremony?” The answer is, *it’s not just a ceremony,* it’s a covenant, both with God and with your partner, and *waiting* shows the deepest love and respect for both.
 
 Some will say, “But we love each other too much to wait.” The answer is that there is no such thing as too much love and that it is too much selfishness, not love, that debates divine counsel and violates virtue.
 
 Any love that is to become eternal must include respect, faith, trust, admiration, honor, and have spiritual and mental aspects as well as physical and emotional. No relationship, either temporal or eternal, can exist without these attributes. Every soap opera is filled with accurate illustrations of misery because these qualities are absent.
 
-If, in your case, the physical tends to dominate, all the more reason to bridle it and find the other dimensions. Bridle is the word that wise father Alma used in counseling his son Shiblon, and the promise he attached is the key to understanding: “Bridle ... your passions, that ye may be filled with love.” (Alma 38:12.) Bridling increases strength, increases power, increases love. There are absolutely two ways you can control a horse. (We learned a little bit about horses last night.) One is to kill it; one is to bridle it. Alma never said kill your passions. The implication is not that passions are evil, that we shouldn’t have them. On the contrary, we bridle something we love, something whose power we respect.
+If, in your case, the physical tends to dominate, all the more reason to bridle it and find the other dimensions. *Bridle* is the word that wise father Alma used in counseling his son Shiblon, and the promise he attached is the key to understanding: “Bridle … your passions, that ye may be filled with love.” ([[Alma 38.12|Alma 38:12]].) Bridling increases strength, increases power, increases love. There are absolutely two ways you can control a horse. (We learned a little bit about horses last night.) One is to kill it; one is to bridle it. Alma never said kill your passions. The implication is *not* that passions are evil, that we shouldn’t have them. On the contrary, we bridle something we love, something whose power we respect.
 
-A horse is stronger than a man, so the man bridles it, thus controlling its power and using that power for good. Passions are stronger than we are, so we bridle them, thus controlling their power and using that power to strengthen a marriage and forge it into eternity. One has to know how to bridle a horse or a passion.
+A horse is stronger than a man, so the man bridles it, thus *controlling* its power and using that power for good. Passions are stronger than we are, so we bridle them, thus controlling their power and using that power to strengthen a marriage and forge it into eternity. One has to know *how* to bridle a horse or a passion.
 
 Remember, a physical relationship is simply too beautiful to squander, too wonderful to waste. It is the sterling silver too precious to tarnish before the beauty of the banquet.
 
 Let us remember that understanding “the why” in learning is what develops proper attitudes or changes behavior. God grant us the wisdom to teach wisely and with understanding, I pray in the name of Jesus Christ, amen.
+
+
+
 

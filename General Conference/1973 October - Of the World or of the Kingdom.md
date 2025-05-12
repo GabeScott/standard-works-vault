@@ -1,5 +1,6 @@
 # Of the World or of the Kingdom?
-*By Howard W. Hunter - Of the Council of the Twelve*
+
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -33,7 +34,7 @@ The Bible has been the subject of attack by modernists. It is said by some that 
 
 In this day of increased knowledge, higher thought, and a modernization of the old, the simple has been overlooked and the profound sought after. The basic, simple, fundamental truths of the gospel are being ignored. Paul taught the true gospel of Jesus Christ to the people of Galatia and, after he left them, spurious teachers came and turned them from his teachings. This gave rise to the letter written by Paul in strong language of criticism, denouncing those who would pervert his teachings. He said to them:
 
-“I marvel that ye are so soon removed from him that called you into the grace of Christ unto another gospel: Which is not another; but there be some that trouble you, and would pervert the gospel of Christ. But though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.” (Gal. 1:6–8.)
+“I marvel that ye are so soon removed from him that called you into the grace of Christ unto another gospel: Which is not another; but there be some that trouble you, and would pervert the gospel of Christ. But though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.” ([[Galatians 1.6|Gal. 1:6–8]][[Galatians 1.7|]][[Galatians 1.8|]].)
 
 From the earliest days of the Christian church, spurious gospels have been taught—not really gospels, as Paul pointed out, for there is only one gospel of Christ. Today is not different. We are surrounded by frustrations and advances in thought and learning which raise questions and doubts. These seem to drag men down and destroy faith and morality. Where, then, is hope in this world of frustration and moral decay? It lies in the knowledge and understanding of the truths taught by the Master, which must be taught by the Church of Christ without deviation and believed in and lived by its membership. These are eternal truths and will be so in perpetuity regardless of changing circumstances in society, development of new scientific achievements, or increase of man’s knowledge.
 
@@ -46,4 +47,7 @@ How grateful I am for my membership and association in The Church of Jesus Chris
 Contrary to the views of many modernists, I know that God our Eternal Father lives; that the Bible is inspired and the Book of Mormon is also an inspired writing; that Jesus Christ, the Son of God, is real and also lives, having shed his blood for us, and is truly and literally resurrected. I also bear witness that there is a prophet of God on the earth today.
 
 May the Lord bless us in our righteous endeavors to shun the influences that lead into the ways of the world, that we may take our place, in faith and believing, in the kingdom of God, I humbly pray in the name of Jesus Christ. Amen.
+
+
+
 

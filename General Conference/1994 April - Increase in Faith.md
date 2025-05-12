@@ -1,5 +1,6 @@
 # Increase in Faith
-*By By Patricia P. Pinegar - Second Counselor in the Young Women General Presidency*
+
+By Patricia P. Pinegar - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1994 General Conference*
 
@@ -23,7 +24,7 @@ Choosing to increase our faith in the Savior isn’t easy. It takes work, but th
 
 Sometimes when we try hard to make changes—good changes—we have a lot of distractions and obstacles. One of my favorite scripture stories is about Peter. As I read this story to you, think about Peter and what happened when he was distracted.
 
-Jesus and His disciples had just finished feeding five thousand people with five loaves of bread and two fishes. Jesus asked “his disciples to get into a ship, and to go before him. ...
+Jesus and His disciples had just finished feeding five thousand people with five loaves of bread and two fishes. Jesus asked “his disciples to get into a ship, and to go before him. …
 
 “And when he had sent the multitudes away, he went up into a mountain apart to pray: and when the evening was come, he was there alone.
 
@@ -41,37 +42,40 @@ Jesus and His disciples had just finished feeding five thousand people with five
 
 “But when he saw the wind boisterous, he was afraid; and beginning to sink, he cried, saying, Lord, save me.
 
-“And immediately Jesus stretched forth his hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt?” (Matt. 14:22–31.)
+“And immediately Jesus stretched forth his hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt?” ([[Matthew 14.22|Matt. 14:22–31]][[Matthew 14.23|]][[Matthew 14.24|]][[Matthew 14.25|]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]].)
 
 I think that’s a wonderful story.
 
 Peter chose to believe in Jesus. He asked Jesus if he could come to Him, and he really did walk on the water. But when he began to pay more attention to what was happening around him, “the wind boisterous,” he began to sink.
 
-What are the winds boisterous in our lives? What are the things that distract us from the Savior, that turn our hearts and our minds away from Him? It may be thinking more about pleasing our friends or other people than we do about pleasing God (see John 5:44). It may be the loud and confusing voices we hear on TV, in videos, in music. Sometimes we just don’t care. Our hearts are hard (see John 12:37). There will always be distractions, winds boisterous, but if we choose to turn to the Lord, to believe in Him, to follow Him, we can increase our faith.
+What are the winds boisterous in our lives? What are the things that distract us from the Savior, that turn our hearts and our minds away from Him? It may be thinking more about pleasing our friends or other people than we do about pleasing God (see [[John 5.44|John 5:44]]). It may be the loud and confusing voices we hear on TV, in videos, in music. Sometimes we just don’t care. Our hearts are hard (see [[John 12.37|John 12:37]]). There will always be distractions, winds boisterous, but if we choose to turn to the Lord, to believe in Him, to follow Him, we can increase our faith.
 
 When Peter began to sink, he turned to the Lord and cried out, “Lord, save me,” and Jesus immediately “stretched forth his hand, and caught him.” He will do that for you. He will do that for each one of us.
 
 What can we do to turn to the Savior? What can we do to increase our faith in Him? There are many things we can do. I have chosen just three:
 
-We can choose to believe.
+- We can choose to believe.
 
-We can ask for help, then listen.
+- We can ask for help, then listen.
 
-We can practice turning to Him.
+- We can practice turning to Him.
 
-In the scriptures it says, “But without faith it is impossible to please him”; and to please him we must “believe that he is” (Heb. 11:6).
+In the scriptures it says, “But without faith it is impossible to please him”; and to please him we must “believe that he is” ([[Hebrews 11.6|Heb. 11:6]]).
 
 Choosing to believe is an important step in increasing our faith in the Savior. It has to be our choice. No one can make that choice for you. If I stand in front of a mirror and look myself in the eye and say, “I choose to believe in the Savior,” that helps me; then whenever I look in a mirror it reminds me of my choice.
 
 Another thing we can do is to ask for help, then listen. Our Father and Savior want us to have more faith. Faith is a gift, but it must be sought after. We can seek after faith by asking for more faith in our prayers. Could we say, “Heavenly Father, please help me have more faith”?
 
-Harder than asking is listening. We can listen in our hearts and hear Their voice. We can listen in the scriptures and hear Their word. We can listen to our prophet and leaders and hear their testimonies of faith. We can increase our faith by “hearing ... the word of God” (Rom. 10:17).
+Harder than asking is listening. We can listen in our hearts and hear Their voice. We can listen in the scriptures and hear Their word. We can listen to our prophet and leaders and hear their testimonies of faith. We can increase our faith by “hearing … the word of God” ([[Romans 10.17|Rom. 10:17]]).
 
-And third, we can remember to practice—practice turning to Him, practice thinking about Him. Increasing our faith does take more than choosing to believe and asking. It takes some kind of physical and mental action. It takes practice, diligence, and patience, and it takes obedience. We must be “doers of the word, ... not hearers only” (James 1:22). We can practice living righteously by turning to Him, by thinking about Him, by following Him. And then we must help Him with His work by helping others.
+And third, we can remember to practice—practice turning to Him, practice thinking about Him. Increasing our faith does take more than choosing to believe and asking. It takes some kind of physical and mental action. It takes practice, diligence, and patience, and it takes obedience. We must be “doers of the word, … not hearers only” ([[James 1.22|James 1:22]]). We can practice living righteously by turning to Him, by thinking about Him, by following Him. And then we must help Him with His work by helping others.
 
 A bell helped me think about the Savior. Do you have bells in your life?
 
 A penny in my husband’s shoe reminded him that he truly was Heavenly Father’s little boy. A penny in your shoe could remind you—ouch—“Thank you, Heavenly Father. I do remember. I do love you and my Savior. I will think about you and follow you.” It really makes no difference what we use to help us remember to think about our Savior. What is important is that we try.
 
 I sense the tender feelings in your hearts. I feel that too. I believe we want to follow Him, to trust Him, to please Him, to live righteously, to increase our faith in Him. I believe we can do that as we choose to believe, ask and listen, and practice, and practice, and practice. My testimony is that He loves us so much, that He understands, and that His light will comfort us and guide us as we come unto Him. I love you, in the name of Jesus Christ, amen.
+
+
+
 

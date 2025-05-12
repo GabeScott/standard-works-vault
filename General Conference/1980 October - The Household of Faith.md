@@ -1,5 +1,6 @@
 # The Household of Faith
-*By By Bishop J. Richard Clarke - Second Counselor in the Presiding Bishopric*
+
+By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -7,11 +8,11 @@
 
 My dear brothers and sisters, the greatest test for any generation is how it responds to the voice of the prophets. Our prophets have admonished us to—
 
-Increase our personal righteousness.
+1. Increase our personal righteousness.
 
-Live within our means and get out of debt.
+2. Live within our means and get out of debt.
 
-Produce, can, and store enough food, clothing, and, where possible, fuel for one year.
+3. Produce, can, and store enough food, clothing, and, where possible, fuel for one year.
 
 This straightforward counsel has not been followed by all of you. Some have believed and complied; others have waited until they could be sure the storm clouds were really gathering; and still others have rejected the counsel.
 
@@ -23,7 +24,7 @@ The next day the boy was tending his sheep when he saw a mountain lion in the di
 
 The young shepherd learned a very valuable lesson:
 
-People respond only to what they are prepared to believe. The Brethren hesitate sometimes to talk in bold terms regarding the realities of the economy and the need for individual and family preparedness. Such talk is interpreted by the black-cloud watchers as a time of general calamity, and many stampede to the grocery stores to get ahead of the hoarders.
+*People respond only to what they are prepared to believe.* The Brethren hesitate sometimes to talk in bold terms regarding the realities of the economy and the need for individual and family preparedness. Such talk is interpreted by the black-cloud watchers as a time of general calamity, and many stampede to the grocery stores to get ahead of the hoarders.
 
 In April 1976 Bishop Featherstone suggested a one-year goal for members to store a year’s supply of food. Some of those who had not yet begun a home storage program rushed out and plunged deeply into debt to buy hundreds of dollars of groceries. They then sat back, as did the Prophet Jonah, to see what was going to happen to Nineveh: It was as if Brother Featherstone had officially set doomsday as April 1, 1977. This was not his intention. The Lord’s way has always been an orderly preparation, not one of second-guessing, confusion, and panic.
 
@@ -45,27 +46,27 @@ Brothers and sisters, will our modern nations be wise enough to escape similar d
 
 In section 101 of the Doctrine and Covenants, the Lord reminds us that when the Saints are slow to hearken to his words, he is “slow to hearken unto their prayers, to answer them in the day of their trouble.
 
-“In the day of their peace,” he explains, “they esteemed lightly my counsel; but, in the day of their trouble, of necessity they feel after me.” (D&C 101:7–8.)
+“In the day of their peace,” he explains, “they esteemed lightly my counsel; but, in the day of their trouble, of necessity they feel after me.” ([[D&C 101.7|D&C 101:7–8]][[D&C 101.8|]].)
 
-Later in this same revelation a very powerful lesson is taught in the parable of the husbandmen. You will recall that husbandmen were hired to plant twelve olive trees in the vineyard, to build a hedge around it, to build a tower, and to set a watchman thereon. As they counseled together, however, they couldn’t understand why the Lord would have need for a tower, “seeing this is a time of peace” (D&C 101:48). While they held a committee meeting, contending, “at variance one with another they became very slothful. ...
+Later in this same revelation a very powerful lesson is taught in the parable of the husbandmen. You will recall that husbandmen were hired to plant twelve olive trees in the vineyard, to build a hedge around it, to build a tower, and to set a watchman thereon. As they counseled together, however, they couldn’t understand why the Lord would have need for a tower, “seeing this is a time of peace” ([[D&C 101.48|D&C 101:48]]). While they held a committee meeting, contending, “at variance one with another they became very slothful. …
 
-“And the enemy came by night, and broke down the hedge,” scattered the frightened servants, and “destroyed their works, and broke down the olive trees.” (D&C 101:50–51.) It was a terrible way to learn the consequences of disobedience. How much better just to follow the simple instruction of the Master.
+“And the enemy came by night, and broke down the hedge,” scattered the frightened servants, and “destroyed their works, and broke down the olive trees.” ([[D&C 101.50|D&C 101:50–51]][[D&C 101.51|]].) It was a terrible way to learn the consequences of disobedience. How much better just to follow the simple instruction of the Master.
 
 Each gospel dispensation produces a number of valiant, faithful Saints—the truly elect and noble of God. They may be one individual or an entire family. They are honored and remembered not by worldly standards but for their simple majestic faith. They have placed obedience to God as their sacred obligation. They love him. They trust him. They are committed to serve him. They are the bone, muscle, and sinew of the church of God in every age. They form the household of faith. Here are some classic statements from their ranks:
 
-“I know not, save the Lord commanded me” (Moses 5:6).
+“I know not, save the Lord commanded me” ([[Moses 5.6|Moses 5:6]]).
 
-“As for me and my house, we will serve the Lord” (Josh. 24:15).
+“As for me and my house, we will serve the Lord” ([[Joshua 24.15|Josh. 24:15]]).
 
-“I will go and do the things which the Lord hath commanded” (1 Ne. 3:7).
+“I will go and do the things which the Lord hath commanded” ([[1 Nephi 3.7|1 Ne. 3:7]]).
 
-“Behold the handmaid of the Lord; be it unto me according to thy word” (Luke 1:38).
+“Behold the handmaid of the Lord; be it unto me according to thy word” ([[Luke 1.38|Luke 1:38]]).
 
-“I ... feel to say to the Lord, humbly, ‘Give me this mountain’ (Josh. 14:12), give me these challenges. ...
+“I … feel to say to the Lord, humbly, ‘Give me this mountain’ ([[Joshua 14.12|Josh. 14:12]]), give me these challenges. …
 
-“I will ‘wholly follow the Lord my God’ (see Josh. 14:8) to the fullest extent of my energy and ability.” (Spencer W. Kimball, in Conference Report, Oct. 1979, p. 115.)
+“I will ‘wholly follow the Lord my God’ (see [[Joshua 14.8|Josh. 14:8]]) to the fullest extent of my energy and ability.” (Spencer W. Kimball, in Conference Report, Oct. 1979, p. 115.)
 
-Brothers and sisters, we do not always know why the Lord commands us to do certain things. His ways are not man’s ways. But this much we do know—his paths are straight. They are not the crooked paths of men. We accept faith as the first principle of the gospel; but do we trust the Lord enough to act first and receive confirmation later? Some may call this blind obedience. An Idaho bishop used to say, “Any kind of obedience is better than any kind of disobedience.” Faith is not blind. However, we will often receive no witness until after a trial of our faith. If we have been disobedient in the past, let us commit today to repent and to put our house in order.
+Brothers and sisters, we do not always know why the Lord commands us to do certain things. His ways are not man’s ways. But this much we do know—his paths are straight. They are not the crooked paths of men. We accept faith as the first principle of the gospel; but do we trust the Lord enough to act first and receive confirmation later? Some may call this blind obedience. An Idaho bishop used to say, “Any kind of obedience is better than any kind of disobedience.” Faith is not blind. However, we will often receive no witness until *after* a trial of our faith. If we have been disobedient in the past, let us commit today to repent and to put our house in order.
 
 I believe we can best accomplish this by applying the counsel of the prophets in three critical temporal problems confronting the Saints: (1) the management of personal income and expenditures; (2) the dwindling of work quality and productivity; and (3) the insufficiency of reserves, in the form of both cash and commodities.
 
@@ -99,7 +100,7 @@ Brothers and sisters, we do not know by what means or when a crisis will occur i
 
 There are some who feel that they are secure as long as they have funds to purchase food. Money is not food. If there is no food in the stores or in the warehouses, you cannot sustain life with money. Both President Romney and President Clark have warned us that we will yet live on what we produce.
 
-I would like to make one point very clear. The welfare services program of the Church is essentially you and I being self-sufficient within our own families. The Church storehouse system is a backup system for the small number of members who are poor or physically handicapped, or for emergencies or disasters. There is no way the Church, as an institution, intends to assume the responsibility that rightfully belongs to the individual. The welfare program was never designed to do so. Personal and family preparedness is the Lord’s way. Then, by uniting together to pay generous fast offerings and by providing commodities from our projects and canneries, we can help our neighbor who cannot help himself.
+I would like to make one point very clear. The welfare services program of the Church is essentially you and I being self-sufficient within our own families. The Church storehouse system is a backup system for the small number of members who are poor or physically handicapped, or for emergencies or disasters. There is *no way* the Church, as an institution, intends to assume the responsibility that rightfully belongs to the individual. The welfare program was never designed to do so. Personal and family preparedness is the Lord’s way. Then, by uniting together to pay generous fast offerings and by providing commodities from our projects and canneries, we can help our neighbor who cannot help himself.
 
 Most important of all, brothers and sisters, with all our storing, let us store righteousness that we may stand approved of the Lord. In 1833 the Lord said,
 
@@ -107,7 +108,10 @@ Most important of all, brothers and sisters, with all our storing, let us store 
 
 “For I will raise up unto myself a pure people, that will serve me in righteousness;
 
-“And all that call upon the name of the Lord, and keep his commandments, shall be saved.” (D&C 100:15–17.)
+“And all that call upon the name of the Lord, and keep his commandments, shall be saved.” ([[D&C 100.15|D&C 100:15–17]][[D&C 100.16|]][[D&C 100.17|]].)
 
-Such a people will be known as the “household of faith” (D&C 121:45). That we may be found in their midst is my prayer, in the name of Jesus Christ, amen.
+Such a people will be known as the “household of faith” ([[D&C 121.45|D&C 121:45]]). That we may be found in their midst is my prayer, in the name of Jesus Christ, amen.
+
+
+
 

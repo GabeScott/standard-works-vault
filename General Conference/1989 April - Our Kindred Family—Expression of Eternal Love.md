@@ -1,5 +1,6 @@
 # Our Kindred Family—Expression of Eternal Love
-*By J. Richard Clarke - Of the Presidency of the Seventy*
+
+By Elder J. Richard Clarke - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1989 General Conference*
 
@@ -7,7 +8,7 @@
 
 My brothers and sisters, since last October it has been my blessing to be associated with the Family History Department of the Church. It enables each of us to experience the joy of the covenants and the ordinances of the temple as we make them available to our loved ones.
 
-Famous Roots author, Alex Haley, once said: “In all of us there is a hunger, marrow-deep, to know our heritage—to know who we are and where we have come from. Without this enriching knowledge, there is a hollow yearning. No matter what our attainments in life, there is still ... an emptiness, and the most disquieting loneliness.”
+Famous *Roots* author, Alex Haley, once said: “In all of us there is a hunger, marrow-deep, to know our heritage—to know who we are and where we have come from. Without this enriching knowledge, there is a hollow yearning. No matter what our attainments in life, there is still … an emptiness, and the most disquieting loneliness.”
 
 Through family history we discover the most beautiful tree in the forest of creation—our family tree. Its numerous roots reach back through history, and its branches extend throughout eternity. Family history is the expansive expression of eternal love. It is born of selflessness. It provides opportunity to secure the family unit forever.
 
@@ -29,7 +30,7 @@ I know of a widowed father who was reluctant to live with his daughter who resid
 
 The priesthood is the vital power which solidifies the kindred family. One of the most sacred privileges of fatherhood is the blessing of one’s children.
 
-Many years ago, in this Tabernacle, I heard Elder Sterling Sill recognize the men who had performed the essential priesthood ordinances listed on his membership record. I suddenly realized that my father’s name did not appear on my record. He had not been active in the Church while I was growing up but had since become a faithful high priest.
+Many years ago in this Tabernacle, I heard Elder Sterling Sill recognize the men who had performed the essential priesthood ordinances listed on his membership record. I suddenly realized that my father’s name did not appear on my record. He had not been active in the Church while I was growing up but had since become a faithful high priest.
 
 Returning home from conference, I brooded about this, feeling deprived. I telephoned my father and said, “Dad, I’d like to ask you a favor. You can do something for me that no other living person can do. I would like a father’s blessing.” He hesitated and said, “Well, we’ll see, the next time you come to Rexburg.”
 
@@ -47,7 +48,7 @@ With her permission, I would like to share part of a sweet letter I received fro
 
 “We are a young family. My husband and I are 33. We have three small children. This is a busy ‘family time’ for us in our lives. For months, Diana, our ward genealogy person, would call us on a regular basis to ask if there was anything she could do to help us get started on our family history.
 
-“We of course thanked her for the call, but firmly replied that ‘Aunt Leona, Cousin Nellie, and Aunt Bertha have done all there is to do on our families.’ Then, intrigued by an article in the Ensign about the new 8.5 x 11 forms for family history, I mentioned this to Diana and a week later she was at my door with the forms! I took a look and thought how neat it would be to fill in the forms with our own names in the blanks. This simple experience of a loving, persistent family history representative was what got us started.
+“We of course thanked her for the call, but firmly replied that ‘Aunt Leona, Cousin Nellie, and Aunt Bertha have done all there is to do on our families.’ Then, intrigued by an article in the *Ensign* about the new 8½-by-11 forms for family history, I mentioned this to Diana and a week later she was at my door with the forms! I took a look and thought how neat it would be to fill in the forms with our own names in the blanks. This simple experience of a loving, persistent family history representative was what got us started.
 
 “We both come from Mormon families several generations back. We thought the ordinance work for our ancestors had been completed. We were wrong! In the short months we have been collecting copies of family group records, we have had so many experiences that confirmed to us the Lord’s hand in this work: 44 baptisms, 45 endowments, 29 children sealed to parents, 16 marriage sealings. All of these from records that were supposedly ‘all done.’
 
@@ -55,9 +56,12 @@ With her permission, I would like to share part of a sweet letter I received fro
 
 “We believe that it takes just one temple experience for one’s ancestors to convince a person of the importance of this work. It is possible to become involved in this exciting work at any age. We’re committed to it!”
 
-The Prophet Joseph Smith gave us this sober warning: “The earth will be smitten with a curse unless there is a welding link ... between the fathers and the children. ... For we without them cannot be made perfect; neither can they without us be made perfect.” (D&C 128:18.)
+The Prophet Joseph Smith gave us this sober warning: “The earth will be smitten with a curse unless there is a welding link … between the fathers and the children. … For we without them cannot be made perfect; neither can they without us be made perfect.” ([[D&C 128.18|D&C 128:18]].)
 
 In the councils of heaven before the world began, we made a solemn agreement with the Lord to assist in bringing to pass the eternal life of man. Elder John A. Widtsoe reminds us that the least of us, the humblest, is in partnership with the Almighty in achieving the purpose of the eternal plan of salvation. It is man’s duty, his pleasure and joy, his labor and ultimately his glory. By that doctrine, with the Lord at the head, we become saviors on Mount Zion.
 
 I bear witness that this work is true. I testify that we may anticipate a glorious reunion with our kindred family through the covenant blessings of the priesthood. I pray that we will heed the prophets and inherit the supreme joy which comes from performing this marvelous work of salvation, in the name of Jesus Christ, amen.
+
+
+
 

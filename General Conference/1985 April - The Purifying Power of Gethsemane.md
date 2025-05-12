@@ -1,5 +1,6 @@
 # The Purifying Power of Gethsemane
-*By Bruce R. McConkie - Of the Quorum of the Twelve Apostles*
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
 
@@ -61,7 +62,7 @@ Then the heavens grew black. Darkness covered the land for the space of three ho
 
 And truly he was, for while he was hanging on the cross for another three hours, from noon to 3:00 p.m., all the infinite agonies and merciless pains of Gethsemane recurred.
 
-And, finally, when the atoning agonies had taken their toll—when the victory had been won, when the Son of God had fulfilled the will of his Father in all things—then he said, “It is finished” (John 19:30), and he voluntarily gave up the ghost.
+And, finally, when the atoning agonies had taken their toll—when the victory had been won, when the Son of God had fulfilled the will of his Father in all things—then he said, “It is finished” ([[John 19.30|John 19:30]]), and he voluntarily gave up the ghost.
 
 As the peace and comfort of a merciful death freed him from the pains and sorrows of mortality, he entered the paradise of God.
 
@@ -120,4 +121,7 @@ But I shall not know any better then than I know now that he is God’s Almighty
 God grant that all of us may walk in the light as God our Father is in the light so that, according to the promises, the blood of Jesus Christ his Son will cleanse us from all sin.
 
 In the name of the Lord Jesus Christ, amen.
+
+
+
 

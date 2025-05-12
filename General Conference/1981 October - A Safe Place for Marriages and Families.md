@@ -1,5 +1,6 @@
 # A Safe Place for Marriages and Families
-*By By Barbara B. Smith - Relief Society General President*
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -7,47 +8,33 @@
 
 My dear brothers and sisters: The basic principles of welfare—love, consecration, work, service, stewardship or accountability, and self-reliance—are not only important to us as individuals working out our own salvation, but if applied in our homes, can strengthen our marriages and our families. May I tell you how?
 
-The scriptural passages in Proverbs 31 are well known for their listing of the admirable qualities of the virtuous woman, whose “price is far above rubies” (verse 10), but in verse 11 we discover a remarkable description of marriage. It reads: “The heart of her husband doth safely trust in her.” This memorable line discloses, first, that the husband has entrusted his heart to his wife, and second, that she safeguards it. They seem to understand an important truth, that every man and woman who covenant to establish a family must create a safe place for their love.
+The scriptural passages in Proverbs 31 are well known for their listing of the admirable qualities of the virtuous woman, whose “price is far above rubies” ([[Proverbs 31.10|verse 10]]), but in [[Proverbs 31.11|verse 11]] we discover a remarkable description of marriage. It reads: *“The heart of her husband doth safely trust in her.”* This memorable line discloses, first, that the husband has entrusted his heart to his wife, and second, that she safeguards it. They seem to understand an important truth, that every man and woman who covenant to establish a family must create a safe place for their love.
 
-The longing of the human heart is often for someone who will treat tenderly the devotion one has to give. We hear it in the words of a poem by William Butler Yeats: the man has just laid the wishes of his heart at the feet of his beloved, and then he pleads, “Tread softly, because you tread on my dreams.” (“He Wishes for the Cloths of Heaven,” The Oxford Dictionary of Quotations, 3d ed., New York: Oxford University Press, p. 585.)
+The longing of the human heart is often for someone who will treat tenderly the devotion one has to give. We hear it in the words of a poem by William Butler Yeats: the man has just laid the wishes of his heart at the feet of his beloved, and then he pleads, “Tread softly, because you tread on my dreams.” (“He Wishes for the Cloths of Heaven,” *The Oxford Dictionary of Quotations,* 3d ed., New York: Oxford University Press, p. 585.)
 
 Equally trusting are the lines of Anne Bradstreet, the Puritan poetess, who in a piece entitled “To My Dear and Loving Husband” confides:
 
-If ever two were one, then surely we.
-
-If ever man were lov’d by wife, then thee.
-
-(The New Oxford Book of American Verse, ed. Richard Ellmann, New York: Oxford University Press, 1976, p. 6.)
+>If ever two were one, then surely we.
+>If ever man were lov’d by wife, then thee.
+>
 
 Trust is to human relationships what faith is to gospel living. It is the beginning place, the foundation upon which more can be built. Where trust is, love can flourish.
 
 Then add to love consecration, the dedication of two lives to a holy purpose. To provide a safe place for love, there must be this kind of commitment. Notice in the line from Proverbs the man has given his heart—not conditionally, not a half of it or any part—but all.
 
-To consecrate is to give all one has. When a man and woman make marriage covenants in the holy temple, they begin a new, eternal family unit with all of the blessings promised to Abraham, Isaac, and Jacob. Such a union is dedicated to the sacred purposes of the Lord—“to bring to pass the immortality and eternal life of man.” (Moses 1:39.)
+To consecrate is to give all one has. When a man and woman make marriage covenants in the holy temple, they begin a new, eternal family unit with all of the blessings promised to Abraham, Isaac, and Jacob. Such a union is dedicated to the sacred purposes of the Lord—“to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
 The young bride-to-be who is anxious for marriage so she can have a “home of her own” may not realize the selflessness required in a good marriage—the “seeketh-not-her-own” kind of love. The husband whose future plans are centered in his own success has a flawed vision of the responsibilities he must assume in a celestial family.
 
 Let us look for a moment at some of the benefits of a marriage based upon love and consecration.
 
-Both husband and wife are committed to helping the other achieve the fullest possible development. How inspiring it is, for example, to hear Elder David B. Haight tell of times he has cooked the dinner so that his wife could attend her Spanish class. Growth can come for both partners when husband and wife develop the kind of love that allows the other to turn potential into perfection and talent into testimony. A strong marriage takes strong individuals equally committed to calling forth the best in themselves as well as in their eternal partner. A husband must give his support if a wife is to adequately use the gifts God has given her. A wife must give her support if her husband is to lead the family.
+1. Both husband and wife are committed to helping the other achieve the fullest possible development. How inspiring it is, for example, to hear Elder David B. Haight tell of times he has cooked the dinner so that his wife could attend her Spanish class. Growth can come for both partners when husband and wife develop the kind of love that allows the other to turn potential into perfection and talent into testimony. A strong marriage takes strong individuals equally committed to calling forth the best in themselves as well as in their eternal partner. A husband must give his support if a wife is to adequately use the gifts God has given her. A wife must give her support if her husband is to lead the family.
 
-A marriage made safe by both love and consecration can allow for a variety of opinions.
+2. A marriage made safe by both love and consecration can allow for a variety of opinions.For a man and wife to become one there are many differences, large and small, that must be accommodated or resolved. In a marriage relationship that is secure, differences need not lead to discord. They can be openly considered until a satisfactory solution is reached because the premises are agreed upon: both the husband and wife are committed to love one another, to build the kingdom of God, and to establish an eternal family unit. All considerations are made in light of these three basic commitments—these are the “givens.” When they are held inviolate, the marriage remains intact, even though the process of resolution may involve considerable discussion.While visiting in the home of her younger sister, a woman observed one such discussion. A difference of opinion was resolved in a kindly, open exchange between the husband and wife. The woman later confided that such a discussion could not have occurred in her home “because,” she said, “we cannot afford to have differences aired, for even a small problem challenges our relationship.”Some marriage relationships are little more than an amicable truce; but if such couples were to lay the foundation stones of commitment and trust, of consecration and love, they could build a safe place where individuals can be heard, and where love can grow and can encompass and integrate differing points of view.
 
-For a man and wife to become one there are many differences, large and small, that must be accommodated or resolved. In a marriage relationship that is secure, differences need not lead to discord. They can be openly considered until a satisfactory solution is reached because the premises are agreed upon: both the husband and wife are committed to love one another, to build the kingdom of God, and to establish an eternal family unit. All considerations are made in light of these three basic commitments—these are the “givens.” When they are held inviolate, the marriage remains intact, even though the process of resolution may involve considerable discussion.
+3. Each child has the love and interest of both mother and father.When children are treated fairly, there is no cause for jealousy because there is no partiality. Reading the Book of Mormon, we find that whenever the people were truly committed to the Lord and had the Holy Ghost in their midst, the conditions described were similar. We read of such an example in 4 Nephi when “every man did deal justly one with another.“And they had all things common among them; therefore there were not rich and poor, … but they were all … partakers of the heavenly gift” of love. ([[4 Nephi 1.2|4 Ne. 1:2–3]][[4 Nephi 1.3|]].)
 
-While visiting in the home of her younger sister, a woman observed one such discussion. A difference of opinion was resolved in a kindly, open exchange between the husband and wife. The woman later confided that such a discussion could not have occurred in her home “because,” she said, “we cannot afford to have differences aired, for even a small problem challenges our relationship.”
-
-Some marriage relationships are little more than an amicable truce; but if such couples were to lay the foundation stones of commitment and trust, of consecration and love, they could build a safe place where individuals can be heard, and where love can grow and can encompass and integrate differing points of view.
-
-Each child has the love and interest of both mother and father.
-
-When children are treated fairly, there is no cause for jealousy because there is no partiality. Reading the Book of Mormon, we find that whenever the people were truly committed to the Lord and had the Holy Ghost in their midst, the conditions described were similar. We read of such an example in 4 Nephi when “every man did deal justly one with another.
-
-“And they had all things common among them; therefore there were not rich and poor, ... but they were all ... partakers of the heavenly gift” of love. (4 Ne. 1:2–3.)
-
-Finally, love and consecration establish the basis for happiness. This, too, is described in 4 Nephi: “And it came to pass that there was no contention, ... because of the love of God which did dwell in the hearts of the people.
-
-“And there were no envyings, nor strifes, nor tumults; ... and surely there could not be a happier people.” (4 Ne. 1:15–16.)
+4. Finally, love and consecration establish the basis for happiness. This, too, is described in 4 Nephi: “And it came to pass that there was no contention, … because of the love of God which did dwell in the hearts of the people.“And there were no envyings, nor strifes, nor tumults; … and surely there could not be a happier people.” ([[4 Nephi 1.15|4 Ne. 1:15–16]][[4 Nephi 1.16|]].)
 
 Remember that a family established in love and secured by consecration is maintained through work and service. A home is strengthened by work when workers receive respect.
 
@@ -88,4 +75,7 @@ Self-reliance comes by complying so completely with the principles of the gospel
 One husband and father, who had been a dean of a college in his professional career, was then called to be a temple president and then a mission president. Upon release from his mission assignment, he suffered a severe and disabling stroke. Rather than turning to thoughts of complaint, self-pity, or rejection, his wife rose to the trial of this newest experience by drawing upon the strength of the gospel that had always been a part of their lives, as she lovingly reassured: “This is the time for which we have been preparing. We have the foundation of the gospel principles, and I am going to do all I can to make this the happiest time of our lives together.”
 
 Relief is only temporary, but welfare is eternal. Mortal life may be limited in both duration and scope, but principles are everlasting. May we fully employ the basic welfare principles of love, work, consecration, service, stewardship or accountability, and self-reliance, to strengthen our marriages and our families in the safe and holy places of heart, temple, and home, I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

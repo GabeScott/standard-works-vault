@@ -1,19 +1,22 @@
 # Holiness and the Plan of Happiness
-*By Henry B. Eyring - Second Counselor in the First Presidency*
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2019 General Conference*
+
+>*Greater happiness comes from greater personal holiness.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/10/51eyring?lang=eng)
 
 My dear brothers and sisters, I have prayed for the power to help you in your personal search for happiness. Some might feel happy enough already, yet surely no one would reject the offer of more happiness. Anyone would be eager to accept a guaranteed offer of lasting happiness.
 
-That is what Heavenly Father; His Beloved Son, Jesus Christ; and the Holy Ghost have offered every spirit child of Heavenly Father who now lives, will live, or ever has lived in this world. That offer is sometimes called the plan of happiness. It was so called by the prophet Alma as he taught his son, who was mired in the misery of sin. Alma knew that wickedness could never be happiness for his son—or for any child of Heavenly Father.
+That is what Heavenly Father; His Beloved Son, Jesus Christ; and the Holy Ghost have offered every spirit child of Heavenly Father who now lives, will live, or ever has lived in this world. That offer is sometimes called the plan of happiness. It was so called by the prophet Alma as he taught his son, who was mired in the misery of sin. Alma knew that wickedness could never be happiness for his son—or for any child of Heavenly Father.[^1]
 
-He taught his son that increasing in holiness was the only path to happiness. He made it plain that greater holiness is made possible through the Atonement of Jesus Christ cleansing and perfecting us. Only by faith in Jesus Christ, continuing repentance, and keeping covenants are we able to claim the lasting happiness we all yearn to experience and retain.
+He taught his son that increasing in holiness was the only path to happiness. He made it plain that greater holiness is made possible through the Atonement of Jesus Christ cleansing and perfecting us.[^2] Only by faith in Jesus Christ, continuing repentance, and keeping covenants are we able to claim the lasting happiness we all yearn to experience and retain.
 
 My prayer for today is that I may help you understand that greater happiness comes from greater personal holiness so that you will act upon that belief. I will then share what I know for myself about what we can do to qualify for that gift of becoming ever more holy.
 
-The scriptures teach us that among other things, we can be sanctified or become more holy when we exercise faith in Christ, demonstrate our obedience, repent, sacrifice for Him, receive sacred ordinances, and keep our covenants with Him. Qualifying for the gift of holiness requires humility, meekness, and patience.
+The scriptures teach us that among other things, we can be sanctified or become more holy when we exercise faith in Christ,[^3] demonstrate our obedience,[^4] repent,[^5] sacrifice for Him,[^6] receive sacred ordinances, and keep our covenants with Him.[^7] Qualifying for the gift of holiness requires humility,[^8] meekness,[^9] and patience.[^10]
 
 One experience of wanting more holiness came for me in the Salt Lake Temple. I entered the temple for the first time having been told little of what to expect. I had seen the words on the building: “Holiness to the Lord” and “The House of the Lord.” I felt a great sense of anticipation. Yet I wondered if I was prepared to enter.
 
@@ -49,9 +52,9 @@ The Lord taught him the lesson of patience we all will need at some time, and pe
 
 “The Son of Man hath descended below them all. Art thou greater than he?
 
-“Therefore, hold on thy way, and the priesthood shall remain with thee; for their bounds are set, they cannot pass. Thy days are known, and thy years shall not be numbered less; therefore, fear not what man can do, for God shall be with you forever and ever.”
+“Therefore, hold on thy way, and the priesthood shall remain with thee; for their bounds are set, they cannot pass. Thy days are known, and thy years shall not be numbered less; therefore, fear not what man can do, for God shall be with you forever and ever.”[^11]
 
-That was the same instructive lesson the Lord gave Job, who paid a heavy price to allow the Atonement to make him more holy. We know that Job was holy, from the introduction we have of him: “There was a man in the land of Uz, whose name was Job; and that man was perfect and upright, and one that feared God, and eschewed evil.”
+That was the same instructive lesson the Lord gave Job, who paid a heavy price to allow the Atonement to make him more holy. We know that Job was holy, from the introduction we have of him: “There was a man in the land of Uz, whose name was Job; and that man was perfect and upright, and one that feared God, and eschewed evil.”[^12]
 
 Then Job lost his wealth, his family, and even his health. You might remember that Job doubted that his greater holiness, gained through greater adversity, had qualified him for greater happiness. It seemed to Job that holiness had brought misery.
 
@@ -65,7 +68,7 @@ Yet the Lord gave Job the same correcting lesson He gave Joseph Smith. He let Jo
 
 “Whereupon are the foundations thereof fastened? or who laid the corner stone thereof;
 
-“When the morning stars sang together, and all the sons of God shouted for joy?”
+“When the morning stars sang together, and all the sons of God shouted for joy?”[^13]
 
 Then, after Job repented of calling God unfair, Job was permitted to see his trials in a higher and holier way. He had repented.
 
@@ -79,43 +82,74 @@ Then, after Job repented of calling God unfair, Job was permitted to see his tri
 
 “I have heard of thee by the hearing of the ear: but now mine eye seeth thee.
 
-“Wherefore I abhor myself, and repent in dust and ashes.”
+“Wherefore I abhor myself, and repent in dust and ashes.”[^14]
 
 After Job repented and so became more holy, the Lord blessed him beyond all he had lost. But perhaps the greatest blessing for Job was to have increased in holiness through adversity and repentance. He was qualified to have greater happiness in the days he had yet to live.
 
 Greater holiness will not come simply by asking for it. It will come by doing what is needed for God to change us.
 
-President Russell M. Nelson has given what seems to me the best counsel of how to move along the covenant path to greater holiness. He pointed the way when he urged:
+President Russell M. Nelson has given what seems to me the best counsel of how to move along the covenant path to greater holiness. He pointed the way when he urged:
 
 “Experience the strengthening power of daily repentance—of doing and being a little better each day.
 
 “When we choose to repent, we choose to change! We allow the Savior to transform us into the best version of ourselves. We choose to grow spiritually and receive joy—the joy of redemption in Him. When we choose to repent, we choose to become more like Jesus Christ!”
 
-President Nelson went on to give us this encouragement in our efforts to become holier: “The Lord does not expect perfection from us at this point. ... But He does expect us to become increasingly pure. Daily repentance is the pathway to purity.”
+President Nelson went on to give us this encouragement in our efforts to become holier: “The Lord does not expect perfection from us at this point. … But He does expect us to become increasingly pure. Daily repentance is the pathway to purity.”[^15]
 
-President Dallin H. Oaks, in an earlier conference address, also helped me see more clearly how we grow in holiness and how we can know we are moving toward it. He said: “How do we achieve spirituality? How do we attain that degree of holiness where we can have the constant companionship of the Holy Ghost? How do we come to view and evaluate things of this world with the perspective of eternity?”
+President Dallin H. Oaks, in an earlier conference address, also helped me see more clearly how we grow in holiness and how we can know we are moving toward it. He said: “How do we achieve spirituality? How do we attain that degree of holiness where we can have the constant companionship of the Holy Ghost? How do we come to view and evaluate things of this world with the perspective of eternity?”[^16]
 
 President Oaks’s answer begins with greater faith in Jesus Christ as our loving Savior. That leads us to seek forgiveness every day and to remember Him every day by keeping His commandments. That greater faith in Jesus Christ comes as we feast daily on His word.
 
 The hymn “More Holiness Give Me” suggests a way to pray for help in becoming more holy. The author wisely suggests that the holiness we seek is a gift from a loving God, granted over time, after all we can do. You remember the last verse:
 
-More purity give me,
-
-More strength to o’ercome,
-
-More freedom from earth-stains,
-
-More longing for home.
-
-More fit for the kingdom,
-
-More used would I be,
-
-More blessed and holy—
-
-More, Savior, like thee.
+>More purity give me,
+>More strength to o’ercome,
+>More freedom from earth-stains,
+>More longing for home.
+>More fit for the kingdom,
+>More used would I be,
+>More blessed and holy—
+>More, Savior, like thee.[^17]
+>
 
 Whatever our personal circumstance, wherever we may be on the covenant path home, may our prayers for greater holiness be answered. I know that as our petition is granted, our happiness will increase. It may come slowly, but it will come. I have that assurance from a loving Heavenly Father and His Beloved Son, Jesus Christ.
 
-I testify that Joseph Smith was a prophet of God, that President Russell M. Nelson is our living prophet today. God the Father lives and loves us. He wants us to come home to Him in families. Our loving Savior invites us to follow Him on our journey there. They have prepared the way. In the sacred name of Jesus Christ, amen.
+I testify that Joseph Smith was a prophet of God, that President Russell M. Nelson is our living prophet today. God the Father lives and loves us. He wants us to come home to Him in families. Our loving Savior invites us to follow Him on our journey there. They have prepared the way. In the sacred name of Jesus Christ, amen.
+
+
+
+
+[^1]: See [[Alma 41.10|Alma 41:10]].
+
+[^2]: See [[Alma 42.4|Alma 42:4–16]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]].
+
+[^3]: See [[Acts 26.18|Acts 26:18]]; [[Ether 4.7|Ether 4:7]].
+
+[^4]: See [[D&C 88.34|Doctrine and Covenants 88:34]].
+
+[^5]: See [[3 Nephi 27.19|3 Nephi 27:19–20]][[3 Nephi 27.20|]].
+
+[^6]: See [[D&C 132.50|Doctrine and Covenants 132:50]].
+
+[^7]: See [[D&C 97.8|Doctrine and Covenants 97:8]].
+
+[^8]: See [[Helaman 3.35|Helaman 3:35]].
+
+[^9]: See [[D&C 101.1|Doctrine and Covenants 101:1–5]][[D&C 101.2|]][[D&C 101.3|]][[D&C 101.4|]][[D&C 101.5|]].
+
+[^10]: See [[1 John 3.2|1 John 3:2–3]][[1 John 3.3|]]; [[D&C 112.13|Doctrine and Covenants 112:13]].
+
+[^11]: [[D&C 122.7|Doctrine and Covenants 122:7–9]][[D&C 122.8|]][[D&C 122.9|]].
+
+[^12]: [[Job 1.1|Job 1:1]].
+
+[^13]: [[Job 38.3|Job 38:3–7]][[Job 38.4|]][[Job 38.5|]][[Job 38.6|]][[Job 38.7|]].
+
+[^14]: [[Job 42.1|Job 42:1–6]][[Job 42.2|]][[Job 42.3|]][[Job 42.4|]][[Job 42.5|]][[Job 42.6|]].
+
+[^15]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 67, 68.
+
+[^16]: Dallin H. Oaks, “[[1985 October - Spirituality.md|Spirituality]],” *Ensign,* Nov. 1985, 63.
+
+[^17]: “More Holiness Give Me,” *Hymns,* no. 131.
 

@@ -1,33 +1,61 @@
 # All Things Work Together for Good
-*By James B. Martino - Of the Seventy*
+
+By Elder James B. Martino - *Of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
+
+>*We may never know in this life why we face what we do, but we can feel confident that we can grow from the experience.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/04/all-things-work-together-for-good?lang=eng)
 
 When I was young I looked forward to the spring of the year. As the weather warmed, I was ready for baseball to begin. Like most young boys, I would wish that I could become a great baseball player. I am reminded of a story about a very young boy with similar dreams. With the desire to become the next mighty ballplayer, he decided to go outside and practice. He held the baseball in one hand and the bat in the other, and he threw the ball into the air. With a wish to hit the ball as far as he could, he took a great swing, but the ball fell to the ground without even touching the wood of the bat. Not to be denied, he went at it again. As he was about to throw the ball in the air, his determination grew as the thought of a powerful hit came into his mind. But alas, the results were the same. The ball lay on the ground. But as any good ballplayer knows, you have three strikes before you are out. He concentrated even more, threw the ball in the air, and gave the mightiest swing he had ever attempted. As the ball again fell to the ground, the tears began to swell in his eyes. Then all of a sudden a great smile appeared, and he said, “What a pitcher!”
 
-Each of us will face trials and tests, and as in this simplistic example, it is how we react to those difficulties that will determine our success and happiness. Each of us will face adversity no matter where we are. We are taught in the scriptures that there “must needs be ... an opposition in all things.” We will each face times of difficulty, and the question is not when we will face them but how we face them.
+Each of us will face trials and tests, and as in this simplistic example, it is how we react to those difficulties that will determine our success and happiness. Each of us will face adversity no matter where we are. We are taught in the scriptures that there “must needs be … an opposition in all things.”[^1] We will each face times of difficulty, and the question is not when we will face them but how we face them.
 
-The Apostle Paul taught an interesting lesson only a few years before the Saints in Rome were to face some of the most violent persecution of any Christian era. Paul reminded the Saints that “all things work together for good to them that love God.” Our Heavenly Father, who loves us completely and perfectly, permits us to have experiences that will allow us to develop the traits and attributes we need to become more and more Christlike. Our trials come in many forms, but each will allow us to become more like the Savior as we learn to recognize the good that comes from each experience. As we understand this doctrine, we gain greater assurance of our Father’s love. We may never know in this life why we face what we do, but we can feel confident that we can grow from the experience.
+The Apostle Paul taught an interesting lesson only a few years before the Saints in Rome were to face some of the most violent persecution of any Christian era. Paul reminded the Saints that “all things work together for good to them that love God.”[^2] Our Heavenly Father, who loves us completely and perfectly, permits us to have experiences that will allow us to develop the traits and attributes we need to become more and more Christlike. Our trials come in many forms, but each will allow us to become more like the Savior as we learn to recognize the good that comes from each experience. As we understand this doctrine, we gain greater assurance of our Father’s love. We may never know in this life why we face what we do, but we can feel confident that we can grow from the experience.
 
 Now, I realize that it is much easier to look back when a trial is over and see what we have learned from our experience, but the challenge is to gain that eternal perspective while we are going through our tests. To some, our trials may not seem great, but to each of us who are passing through these experiences, the trials are real and require us to humble ourselves before God and learn from Him.
 
 On this Easter Sunday, we remember the life of our Savior. It is He whom we desire to emulate in all of our actions. May I mention five things that we can learn from those last hours of the Savior’s life on earth that can help us to face our own trials.
 
-First, He sought not to do His will but only the will of His Father. He remained committed to His sacred mission even through the trial. As He fell to His face in the Garden of Gethsemane, He asked, “Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done.” Sometimes we pass through pain and sorrow that we might grow and be prepared for potential trials in the future. I ask a question to you mothers: “Would you ever do something that would cause pain and bring tears to your children when they have done nothing wrong?” Of course you would! When mothers take young children to the doctor to receive immunizations, almost every child leaves the doctor’s office in tears. Why do you do that? Because you know that a small amount of pain now will protect them from possible pain and suffering in the future. Our Father in Heaven knows the end from the beginning. We need to follow the example of the Savior and trust in Him.
+First, He sought not to do His will but only the will of His Father. He remained committed to His sacred mission even through the trial. As He fell to His face in the Garden of Gethsemane, He asked, “Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done.”[^3] Sometimes we pass through pain and sorrow that we might grow and be prepared for potential trials in the future. I ask a question to you mothers: “Would you ever do something that would cause pain and bring tears to your children when they have done nothing wrong?” Of course you would! When mothers take young children to the doctor to receive immunizations, almost every child leaves the doctor’s office in tears. Why do you do that? Because you know that a small amount of pain now will protect them from possible pain and suffering in the future. Our Father in Heaven knows the end from the beginning. We need to follow the example of the Savior and trust in Him.
 
-Second, when we are faced with trials, we must learn to not complain or murmur. Nephi, after a great vision of the Savior’s atoning sacrifice, told us: “Wherefore they scourge him, and he suffereth it; and they smite him, and he suffereth it. Yea, they spit upon him, and he suffereth it, because of his loving kindness and his long-suffering towards the children of men.” We must always attempt to correct the problem and overcome the trial, but instead of asking “Why me?” or “What did I do to deserve this?” maybe the question should be “What am I to do? What can I learn from this experience? What am I to change?”
+Second, when we are faced with trials, we must learn to not complain or murmur. Nephi, after a great vision of the Savior’s atoning sacrifice, told us: “Wherefore they scourge him, and he suffereth it; and they smite him, and he suffereth it. Yea, they spit upon him, and he suffereth it, because of his loving kindness and his long-suffering towards the children of men.”[^4] We must always attempt to correct the problem and overcome the trial, but instead of asking “Why me?” or “What did I do to deserve this?” maybe the question should be “What am I to do? What can I learn from this experience? What am I to change?”
 
 Several years ago while my wife and I were serving in Venezuela, our youngest son left the comfort of his high school to join with us. He did not complain, but it was obvious that he struggled as he went to this country where everything was new to him; but in an amazing turn of events, the experience went from one of trial to a huge blessing in his life. He accomplished this by changing his own attitude and developing a determination to succeed.
 
-Third, when we face our challenges, we must seek greater help from God. Even the Savior of us all found a need to pray “more earnestly” as He was in the Garden of Gethsemane. We can learn to gain great faith if we do this. We must remember that often the answers from our Heavenly Father do not remove the trial from us, but instead He helps strengthen us as we pass through the experience. As He did for the followers of Alma, the Lord can “ease the burdens which are put upon your shoulders, that even you cannot feel them upon your backs.” In our trials, let us not become bitter or uncommitted, but let us follow the Savior’s example of becoming more earnest, more sincere, and more faithful.
+Third, when we face our challenges, we must seek greater help from God. Even the Savior of us all found a need to pray “more earnestly” as He was in the Garden of Gethsemane.[^5] We can learn to gain great faith if we do this. We must remember that often the answers from our Heavenly Father do not remove the trial from us, but instead He helps strengthen us as we pass through the experience. As He did for the followers of Alma, the Lord can “ease the burdens which are put upon your shoulders, that even you cannot feel them upon your backs.”[^6] In our trials, let us not become bitter or uncommitted, but let us follow the Savior’s example of becoming more earnest, more sincere, and more faithful.
 
-Fourth, learn to serve and think of others even in our times of trial. Christ was the epitome of service. His life was filled with examples of helping and serving others, and His greatest gift of all was what He did for us. As He said, “For behold, I, God, have suffered these things for all, that they might not suffer if they would repent.” We must repent and then follow His example of service. When we serve others, we forget our own problems, and by working to relieve the pain or discomfort of others, we strengthen ourselves.
+Fourth, learn to serve and think of others even in our times of trial. Christ was the epitome of service. His life was filled with examples of helping and serving others, and His greatest gift of all was what He did for us. As He said, “For behold, I, God, have suffered these things for all, that they might not suffer if they would repent.”[^7] We must repent and then follow His example of service. When we serve others, we forget our own problems, and by working to relieve the pain or discomfort of others, we strengthen ourselves.
 
-In our last general conference, our beloved prophet, President Thomas S. Monson, stated: “I believe the Savior is telling us that unless we lose ourselves in service to others, there is little purpose to our own lives. Those who live only for themselves eventually shrivel up and figuratively lose their lives, while those who lose themselves in service to others grow and flourish—and in effect save their lives.”
+In our last general conference, our beloved prophet, President Thomas S. Monson, stated: “I believe the Savior is telling us that unless we lose ourselves in service to others, there is little purpose to our own lives. Those who live only for themselves eventually shrivel up and figuratively lose their lives, while those who lose themselves in service to others grow and flourish—and in effect save their lives.”[^8]
 
-Fifth, forgive others and do not seek to pass the blame of our situation to them. Sometimes we like to say, “If they had not done this, then I would not have reacted the way I did.” There is a tendency for the natural man to pass blame to someone else so as not to be accountable for his or her own actions. The Savior looked at those who had nailed Him to the cross and pled with His Father in Heaven to “forgive them; for they know not what they do.” Can we not be more forgiving?
+Fifth, forgive others and do not seek to pass the blame of our situation to them. Sometimes we like to say, “If they had not done this, then I would not have reacted the way I did.” There is a tendency for the natural man to pass blame to someone else so as not to be accountable for his or her own actions. The Savior looked at those who had nailed Him to the cross and pled with His Father in Heaven to “forgive them; for they know not what they do.”[^9] Can we not be more forgiving?
 
-As we pass through the trials of life, let us keep an eternal perspective, let us not complain, let us become even more prayerful, let us serve others, and let us forgive one another. As we do this, “all things [will] work together for good to [us] that love God.” I bear a solemn and certain witness that our Father loves us and He sent His Son to show and pave the way for us. He suffered, He died, and He was resurrected that we might live, and He desires that we “might have joy,” even in our trials of life. I say this in the name of Jesus Christ, amen.
+As we pass through the trials of life, let us keep an eternal perspective, let us not complain, let us become even more prayerful, let us serve others, and let us forgive one another. As we do this, “all things \[will\] work together for good to \[us\] that love God.”[^10] I bear a solemn and certain witness that our Father loves us and He sent His Son to show and pave the way for us. He suffered, He died, and He was resurrected that we might live, and He desires that we “might have joy,”[^11] even in our trials of life. I say this in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[2 Nephi 2.11|2 Nephi 2:11]].
+
+[^2]: [[Romans 8.28|Romans 8:28]].
+
+[^3]: [[Luke 22.42|Luke 22:42]].
+
+[^4]: [[1 Nephi 19.9|1 Nephi 19:9]].
+
+[^5]: [[Luke 22.44|Luke 22:44]].
+
+[^6]: [[Mosiah 24.14|Mosiah 24:14]].
+
+[^7]: [[D&C 19.16|Doctrine and Covenants 19:16]].
+
+[^8]: Thomas S. Monson, in Conference Report, Oct. 2009, 83; or *Ensign,* Nov. 2009, 85.
+
+[^9]: [[Luke 23.34|Luke 23:34]].
+
+[^10]: [[Romans 8.28|Romans 8:28]].
+
+[^11]: [[2 Nephi 2.25|2 Nephi 2:25]].
 

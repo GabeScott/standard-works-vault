@@ -1,5 +1,6 @@
 # The Gospel of Love
-*By Loren C. Dunn - Of the First Quorum of the Seventy*
+
+By Elder Loren C. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
 
@@ -9,31 +10,24 @@ There is a hymn, which is a favorite hymn among Latter-day Saints, and comes to 
 
 The words of the first verse go this way:
 
-A poor wayfaring Man of grief
-
-Hath often crossed me on my way,
-
-Who sued so humbly for relief
-
-That I could never answer nay.
-
-I had not pow’r to ask his name,
-
-Where-to he went, or whence he came;
-
-Yet there was something in his eye
-
-That won my love; I knew not why.
-
-(Hymns, 1985, no. 29.)
+>A poor wayfaring Man of grief
+>Hath often crossed me on my way,
+>Who sued so humbly for relief
+>That I could never answer nay.
+>
+>I had not pow’r to ask his name,
+>Whereto he went, or whence he came;
+>Yet there was something in his eye
+>That won my love; I knew not why.
+>
 
 The other verses of this hymn show that our love toward our fellow men is indeed an expression of our love toward our God.
 
-The greatest expression of love from our Father in Heaven to the human family is probably the infinite atonement of the Savior. “For God so loved the world,” said John, “that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.” (John 3:16.)
+The greatest expression of love from our Father in Heaven to the human family is probably the infinite atonement of the Savior. “For God so loved the world,” said John, “that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.” ([[John 3.16|John 3:16]].)
 
-The most noble expression of love by man is to “love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. ...
+The most noble expression of love by man is to “love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. …
 
-“And the second is like unto it, Thou shalt love thy neighbour as thyself.” (Matt. 22:37, 39.)
+“And the second is like unto it, Thou shalt love thy neighbour as thyself.” ([[Matthew 22.37|Matt. 22:37, 39]][[Matthew 22.39|]].)
 
 To love our neighbor is a godlike trait and can take many forms.
 
@@ -49,7 +43,7 @@ Behind her was a neighborhood of friends, both young and old. She knew them all.
 
 The words she taught her pet bird were the words she lived by. Even in death they echoed in the ears of those she left behind. Ahead of Marie was a husband who had gone first, too many years ago. She had lived a full life and left one final message of good-bye in the words she knew best: “I love you.”
 
-Marie Hansen left a great legacy, probably greater than she realized. For did not the Savior say, “A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another”? (John 13:34.)
+Marie Hansen left a great legacy, probably greater than she realized. For did not the Savior say, “A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another”? ([[John 13.34|John 13:34]].)
 
 There are those who wish to know us better, to understand us better as a religion, as a church. There are those who write about us and study us. But may I suggest that until they take into account this spirit of love, they will never really understand. At the heart of it all is a genuine love of God and of fellowman.
 
@@ -61,7 +55,7 @@ When he finished, he went back and sat next to the president. The two exchanged 
 
 Later it was learned the boy had spent his earlier life as an orphan. A couple in the ward had taken him in and were raising him as their own. The whole ward was his home, and he was blossoming in this atmosphere of acceptance.
 
-“Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” (Matt. 25:40.)
+“Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.40|Matt. 25:40]].)
 
 A few years ago, when President Kimball was a member of the Quorum of the Twelve, he and Sister Kimball were touring missions overseas.
 
@@ -71,9 +65,9 @@ Sister Kimball had her coat, but the mission president’s wife did not. Preside
 
 He has literally spent his life in taking off his coat, so to speak, and putting it around the shoulders of those he judged to be in greater need: people of all colors and creeds; men, women, and children. It has never made any difference to him. All are his brothers. All are his sisters.
 
-“And charity suffereth long, and is kind, and envieth not, and is not puffed up, seeketh not her own, is not easily provoked, thinketh no evil, and rejoiceth not in iniquity but rejoiceth in the truth, beareth all things, believeth all things, hopeth all things, endureth all things. ...
+“And charity suffereth long, and is kind, and envieth not, and is not puffed up, seeketh not her own, is not easily provoked, thinketh no evil, and rejoiceth not in iniquity but rejoiceth in the truth, beareth all things, believeth all things, hopeth all things, endureth all things. …
 
-“[For] charity is the pure love of Christ, and it endureth forever.” (Moro. 7:45, 47; see also 1 Cor. 13.)
+“\[For\] charity is the pure love of Christ, and it endureth forever.” ([[Moroni 7.45|Moro. 7:45, 47]][[Moroni 7.47|]]; see also [[1 Corinthians 13.1|1 Cor. 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]].)
 
 Not long ago Sister Dunn and I attended a stake conference in Marilia, Brazil. Marilia is a beautiful city of 100,000 in the southeast interior of the country. The Sunday session had just concluded. The theme was the atonement of Christ and how he is the Savior of the whole world.
 
@@ -89,21 +83,19 @@ We claim no corner on love of others. We know the world is filled with many good
 
 The final verse of the hymn that we mentioned in the beginning goes like this:
 
-Then in a moment to my view
-
-The stranger started from disguise;
-
-The tokens in his hands I knew;
-
-The Savior stood before my eyes.
-
-He spake, and my poor name he named,
-
-“Of me thou hast not been ashamed;
-
-These deeds shall thy memorial be,
-
-Fear not, thou didst them unto me.”
+>Then in a moment to my view
+>The stranger started from disguise;
+>The tokens in his hands I knew;
+>The Savior stood before my eyes.
+>
+>He spake, and my poor name he named,
+>“Of me thou hast not been ashamed.
+>These deeds shall thy memorial be;
+>Fear not, thou didst them unto me.”
+>
 
 By way of testimony, I wish to express my love for my Father in Heaven, for his son Jesus Christ, for each one of you wherever you are, and for these my brethren and associates of the General Authorities. In the name of Jesus Christ, amen.
+
+
+
 

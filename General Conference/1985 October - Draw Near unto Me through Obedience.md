@@ -1,5 +1,6 @@
 # Draw Near unto Me through Obedience
-*By By Barbara W. Winder - Relief Society General President*
+
+By Barbara W. Winder - *Relief Society General President*
 
 *Given in the October session of the 1985 General Conference*
 
@@ -7,11 +8,11 @@
 
 My dear sisters here and around the world, what a joy it is to meet with you united in spirit to learn how we draw nearer to our Heavenly Father and His Son Jesus Christ.
 
-We have heard tonight how we may do this through prayer and the use of the scriptures. We have also been reminded that as we partake of the sacrament each Sunday our minds and our hearts should be filled with our commitment to “remember him and keep his commandments.” (D&C 20:77.) As we further listen to that prayer, we hear the promise “that they may always have his Spirit to be with them.” (D&C 20:77.)
+We have heard tonight how we may do this through prayer and the use of the scriptures. We have also been reminded that as we partake of the sacrament each Sunday our minds and our hearts should be filled with our commitment to “remember him and keep his commandments.” ([[D&C 20.77|D&C 20:77]].) As we further listen to that prayer, we hear the promise “that they may always have his Spirit to be with them.” ([[D&C 20.77|D&C 20:77]].)
 
-From the very beginning, God has taught his children that blessings come to those who are obedient. As He gave those special rules on Mount Sinai for the guidance of Israel, the Lord stated that He would show mercy to them that kept His commandments. (See Ex. 20:6.) In Deuteronomy we are told that “the Lord commanded us ... for our good always.” (Deut. 6:24; italics added.)
+From the very beginning, God has taught his children that blessings come to those who are obedient. As He gave those special rules on Mount Sinai for the guidance of Israel, the Lord stated that He would *show mercy* to them that kept His commandments. (See [[Exodus 20.6|Ex. 20:6]].) In Deuteronomy we are told that “the Lord commanded us … *for our good always.*” ([[Deuteronomy 6.24|Deut. 6:24]]; italics added.)
 
-King Benjamin, giving his farewell address after a long life of service and experience, said, “If ye do keep his commandments he doth bless you.” (Mosiah 2:22.)
+King Benjamin, giving his farewell address after a long life of service and experience, said, “If ye do keep his commandments he doth bless you.” ([[Mosiah 2.22|Mosiah 2:22]].)
 
 Each of us can gain a sense of inner confidence and peace when we obey gospel principles.
 
@@ -23,15 +24,15 @@ One dear sister and her husband who recently joined the Church had a home that w
 
 After being a member of the Church for five months, the young mother decided that she was going to keep the commandment of tithing. In order to do so, she gave all the money she had in her home to the bishop in the middle of the month, then wondered what would become of her, her husband, and their three-year-old daughter during the remaining fifteen days. They had no money saved, and very little food.
 
-“The windows of heaven” as described in Malachi 3:10 [Mal. 3:10] did open. That week a kind Relief Society sister brought fresh bread, their country’s staple food. In addition, an overdue debt was paid to the husband, and just three months later he received a substantial pay promotion in his work.
+“The windows of heaven” as described in Malachi 3:10 \[[[Malachi 3.10|Mal. 3:10]]\] did open. That week a kind Relief Society sister brought fresh bread, their country’s staple food. In addition, an overdue debt was paid to the husband, and just three months later he received a substantial pay promotion in his work.
 
 Heavenly Father truly looked after their needs as they exercised great faith to be obedient.
 
-In 1 Nephi we read, “If it so be that the children of men keep the commandments of God he doth nourish them, and strengthen them, and provide means whereby they can accomplish the thing which he has commanded them.” (1 Ne. 17:3.)
+In 1 Nephi we read, “If it so be that the children of men keep the commandments of God he doth nourish them, and strengthen them, and provide means whereby they can accomplish the thing which he has commanded them.” ([[1 Nephi 17.3|1 Ne. 17:3]].)
 
-Again, listen to the words of King Benjamin: “I would desire that ye should consider on the blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, both temporal and spiritual; and if they hold out faithful to the end they are received into heaven, that thereby they may dwell with God in a state of never-ending happiness. O remember, remember that these things are true.” (Mosiah 2:41.)
+Again, listen to the words of King Benjamin: “I would desire that ye should consider on the blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, both temporal and spiritual; and if they hold out faithful to the end they are received into heaven, that thereby they may dwell with God in a state of never-ending happiness. O remember, remember that these things are true.” ([[Mosiah 2.41|Mosiah 2:41]].)
 
-Obedience brings blessings here and now. Jesus said, “If ye know these things, happy are ye if ye do them.” (John 13:17; italics added.) Happiness and peace are found when we are in harmony with ourselves, with God, and with our fellowmen.
+Obedience brings blessings here and now. Jesus said, “If ye know these things, happy are ye if ye *do* them.” ([[John 13.17|John 13:17]]; italics added.) Happiness and peace are found when we are in harmony with ourselves, with God, and with our fellowmen.
 
 Through obedience we build spiritual strength that sustains us during times of adversity. My friend and counselor Joy F. Evans tells of such a time in her life. She had four young children and was expecting her fifth child. The much-anticipated day of birth arrived—about six weeks early. They had expected to have “a” baby, but they had twins instead—Michael and Amy, premature and very small.
 
@@ -45,15 +46,18 @@ Having the babies dressed appropriately for burial was very important to their m
 
 Peace can come to both the giver and the receiver as we follow the promptings of the Spirit to serve one another.
 
-The Lord said, “Keep my commandments, and assist to bring forth my work.” (D&C 11:9; italics added.)
+The Lord said, “Keep my commandments, and *assist* to bring forth my work.” ([[D&C 11.9|D&C 11:9]]; italics added.)
 
 Sisters, as women in the Church, each of us has an important role to fill in building His kingdom on earth. The way to do this is clear. We have been commanded to sanctify ourselves that our minds may become single to God so that we can stand firm in the faith, without wavering, until our work is completed. As we keep a time for regular scripture study and quiet time for prayers, we receive knowledge and inspiration. Then, through obedience, we put that information into action. We are sanctifying ourselves one step at a time as we accept personal responsibility for our actions and honor the covenants we make at baptism, in the temple, and as we take the sacrament each Sunday. We progress by living worthy to receive the blessings available to us, responding to those promptings to serve others, by loving one another, and by trying to obey the prophet’s voice in all things.
 
-Elder Heber J. Grant said, “If we are striving, if we are working, if we are trying, to the best of our ability, to improve day by day, then we are in the line of our duty.” (In Conference Report, Apr. 1909, p. 111.)
+Elder Heber J. Grant said, “If we are striving, if we are working, if we are trying, to the best of our ability, to improve day by day, *then we are in the line of our duty.”* (In Conference Report, Apr. 1909, p. 111.)
 
-From a Thai refugee camp, Mary Ellen Edmunds expressed it well for all of us when she said, “For me I feel close to the Savior when I can do in a small way for someone else, what He would do if He were there. In a way, that’s what being an instrument is all about ... to make it possible for His love to reach more of His children.”
+From a Thai refugee camp, Mary Ellen Edmunds expressed it well for all of us when she said, “For me I feel close to the Savior when I can do in a small way for someone else, what He would do if He were there. In a way, that’s what being an instrument is all about … to make it possible for His love to reach more of His children.”
 
-Sisters, we are those instruments. He needs us, and we need Him. Instruments that are in tune play beautiful melodies. Be obedient. Be prayerful. Remember Him. Keep His commandments. Draw near to Him and feel the joy and peace that will come as He draws near unto you. (See D&C 88:63.)
+Sisters, we are those instruments. He needs us, and we need Him. Instruments that are in tune play beautiful melodies. Be obedient. Be prayerful. Remember Him. Keep His commandments. Draw near to Him and feel the joy and peace that will come as He draws near unto you. (See [[D&C 88.63|D&C 88:63]].)
 
 I know these things to be true and say them in the name of Jesus Christ, amen.
+
+
+
 

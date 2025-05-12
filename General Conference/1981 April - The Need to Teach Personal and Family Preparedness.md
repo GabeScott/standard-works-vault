@@ -1,5 +1,6 @@
 # The Need to Teach Personal and Family Preparedness
-*By L. Tom Perry - Of the Quorum of the Twelve Apostles*
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -19,11 +20,11 @@ The results indicate that training of families in basic principles of self-relia
 
 With such alarming results we must remind ourselves that the Church welfare system was never designed or intended to care for the healthy member who, as a result of his poor management or lack of preparation, has found himself in difficulty. It was designed to assist the membership in case of a large, physical disaster, such as an earthquake or a flood. It was designed to assist the ill, the injured, the incapacitated, and to rehabilitate them to a productive life. In far too many cases, members who should be making use of their own preparedness provisions are finding that there is nothing there and that they have to turn to the Church.
 
-It is time to ask ourselves, What has created the problem of placing such a heavy burden on the Church to supply our welfare needs? My analysis of this problem would lead me to believe that, as leaders, we have spent far too much time in administering relief and far too little in prevention by having our families prepared to administer to their own needs. It is time to teach the basics—again. It is time to make the number one priority of our welfare efforts personal and family preparedness. We must prepare now so that in time of need more of our members will be able to draw upon their own preparedness and not have to seek assistance from the Church.
+It is time to ask ourselves, What has created the problem of placing such a heavy burden on the Church to supply our welfare needs? My analysis of this problem would lead me to believe that, as leaders, we have spent far too much time in *administering* relief and far too little in *prevention* by having our families prepared to administer to their own needs. It is time to teach the basics—again. It is time to make the number one priority of our welfare efforts personal and family preparedness. We must prepare now so that in time of need more of our members will be able to draw upon their own preparedness and not have to seek assistance from the Church.
 
 I like the story of the old man in nineteenth-century New Hampshire who treasured his independence and self-reliance above all else in his life. He accounted it true Christianity that he cared for his own and helped others, and fiercely resisted the notion that he ought to accept help from any other mortal. When his aged wife died, he buried her himself, then dug his own grave and laid in it his open, homemade coffin. “When my time is coming,” he said, “I’ll climb in the box and fold my arms over my chest. Won’t be no bother to no one. They can just nail down the lid and push in the dirt.”
 
-President Marion G. Romney has said so often: “No self-respecting Church member will voluntarily shift the responsibility for his own maintenance to another. Furthermore, a man not only has the responsibility to care for himself; he also has the responsibility to care for his family.” (The Basics of Church Welfare, address to the Priesthood Board, 6 Mar. 1974, p. 2.)
+President Marion G. Romney has said so often: “No self-respecting Church member will voluntarily shift the responsibility for his own maintenance to another. Furthermore, a man not only has the responsibility to care for himself; he also has the responsibility to care for his family.” (*The Basics of Church Welfare,* address to the Priesthood Board, 6 Mar. 1974, p. 2.)
 
 The home must be the heart of the welfare program. We must focus our training of personal and family preparedness to reach the family organization. We must teach that every family should be headed by an executive committee comprised of a husband and wife who will set aside sufficient time to plan for their family needs. If it is a single-parent family or an individual living alone, there is still need to organize time and thought to establish goals for meeting needs.
 
@@ -31,7 +32,7 @@ It must start here. Every family has different needs. I notice the difference in
 
 Personal and family preparedness planning must begin with the family executive committee. Planning must be tailored to fit the circumstances of each family. Consideration must be given to their unique requirements in career development, financial and resource management, education, physical health, home production and storage, and social, emotional, and spiritual strength.
 
-Each family organization should include a family council comprised of all members of the family unit. Here the basic responsibilities of the family organization can be taught to the children. They can learn how to make decisions and act upon those decisions. Too many are growing to marriageable age unprepared for this responsibility. Work ethics and self-preparedness can be taught in a most effective way in a family council. President J. Reuben Clark, Jr., has paraphrased an old statement. “‘All work and no play makes Jack a dull boy,’” he would say. “But all play and no work makes Jack a useless boy.” (As quoted by Harold B. Lee, “Administering True Charity,” address delivered at the welfare agricultural meeting, 5 Oct. 1968.)
+Each family organization should include a family council comprised of all members of the family unit. Here the basic responsibilities of the family organization can be taught to the children. They can learn how to make decisions and act upon those decisions. Too many are growing to marriageable age unprepared for this responsibility. Work ethics and self-preparedness can be taught in a most effective way in a family council. President J. Reuben Clark, Jr., has paraphrased an old statement. “‘All work and no play makes Jack a dull boy,’” he would say. “But all play and no work makes Jack a useless boy.” (As quoted by Harold B. Lee, “Administering True Charity,” address delivered at the welfare agricultural meeting, 5 Oct. 1968.)
 
 How grateful I am for a father who had the patience to teach me the art of gardening. How frustrating it must have been in this teaching process to find a neat row of weeds still in the ground and a pile of dead carrots on the ground after I’d completed one of my assignments. Our family was taught not only the art of stacking and rotating cans and bottles on shelves, but also how to grow and replace the fruits and vegetables necessary to fill the empty cans and bottles again.
 
@@ -47,7 +48,7 @@ The sisters are usually more effective in teaching gospel principles. They teach
 
 So, priesthood and Relief Society, working together, bring the family to a realization that personal and family preparedness is living the gospel.
 
-You may have read the story in the Ensign about the Hibbert family. (See Ensign, June 1980, pp. 41–42.) The husband and father of a large family was diagnosed as having terminal cancer. After the shock and fear were faced, the husband and wife counseled together and decided that the best thing they could do for their joy and peace of mind was to prepare themselves and their family for what was to come.
+You may have read the story in the *Ensign* about the Hibbert family. (See *Ensign,* June 1980, pp. 41–42.) The husband and father of a large family was diagnosed as having terminal cancer. After the shock and fear were faced, the husband and wife counseled together and decided that the best thing they could do for their joy and peace of mind was to prepare themselves and their family for what was to come.
 
 They chose to create family memories through shared experiences, to complete family histories, to have a year’s supply of food and other necessities to meet the financial emergencies that would come. A will was prepared and all insurance and legal papers were put in order. The children were taught to care for one another and to take responsibility in the home.
 
@@ -55,7 +56,7 @@ Just weeks before the death of Brother Hibbert, their home was destroyed in a fi
 
 As you can see from the heavy responsibilities given to the quorums and the Relief Society, careful practical training must be given to those officers. This must be supplied by the ward organization, presided over by a bishop.
 
-As chairman of the ward welfare services committee, the bishop directs all welfare services in the ward. He seeks out the needy and distressed. He coordinates the teaching of gospel principles and programs fundamental to welfare services, coordinates efforts to teach the law of the fast. He sees that members with special needs are assisted with the dignity and love so important to them. He coordinates confidential assistance to those in need. When necessary, he calls qualified resource specialists. (See Welfare Services Resource Handbook, 1980, p. 9.)
+As chairman of the ward welfare services committee, the bishop directs all welfare services in the ward. He seeks out the needy and distressed. He coordinates the teaching of gospel principles and programs fundamental to welfare services, coordinates efforts to teach the law of the fast. He sees that members with special needs are assisted with the dignity and love so important to them. He coordinates confidential assistance to those in need. When necessary, he calls qualified resource specialists. (See *Welfare Services Resource Handbook,* 1980, p. 9.)
 
 Supporting the bishop is a stake organization. The bishop can request assistance from the stake president in the training and qualifying of his leadership. The stake president has a high council and a stake Relief Society organization to furnish the training support required.
 
@@ -66,4 +67,7 @@ The foundation of the Church welfare program is personal and family preparedness
 Now, it may be that the old man in New Hampshire carried personal and family preparedness too far, with digging his own grave and all. But I would love to see all of our people moved by that same spirit of self-reliance and preparedness.
 
 God grant us to see what must be done in our own wards and stakes, I humbly pray in the name of Jesus Christ, amen.
+
+
+
 

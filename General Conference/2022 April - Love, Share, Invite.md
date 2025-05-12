@@ -1,35 +1,40 @@
 # Love, Share, Invite
-*By Gary E. Stevenson - Of the Quorum of the Twelve Apostles*
+
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
 
+>*As we love, share, and invite, we take part in that great and glorious work that prepares the earth for the return of its Messiah.*
+
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/04/43stevenson?lang=eng)
 
-Imagine with me, for a moment, standing on a mountain in Galilee, witnessing the wonder and glory of the resurrected Savior visiting His disciples. How awe-inspiring to consider personally hearing these words, which He shared with them, His solemn charge to “go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost.”1 Surely these words would empower, inspire, and move each of us, as they did His Apostles. Indeed, they devoted the rest of their lives to doing just that.
+Imagine with me, for a moment, standing on a mountain in Galilee, witnessing the wonder and glory of the resurrected Savior visiting His disciples. How awe-inspiring to consider personally hearing these words, which He shared with them, His solemn charge to “go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost.”[^1] Surely these words would empower, inspire, and move each of us, as they did His Apostles. Indeed, they devoted the rest of their lives to doing just that.
 
-Interestingly, it wasn’t only the Apostles who took Jesus’s words to heart. Members of the early Church, from the newest to the most seasoned, took part in the Savior’s great commission, sharing the good news of the gospel with those they met and knew. The determination to share their testimony of Jesus Christ helped His newly established Church grow expansively.2
+Interestingly, it wasn’t only the Apostles who took Jesus’s words to heart. Members of the early Church, from the newest to the most seasoned, took part in the Savior’s great commission, sharing the good news of the gospel with those they met and knew. The determination to share their testimony of Jesus Christ helped His newly established Church grow expansively.[^2]
 
-We too, as Christ’s disciples, are invited to heed His commission today, as if we were there on that mountain in Galilee when He first proclaimed it. This commission began again in 1830, when Joseph Smith set apart his brother Samuel as an early missionary of the Church of Jesus Christ.3 Since that time, more than 1.5 million missionaries have traveled throughout the world teaching all nations and baptizing those who embrace the glad tidings of the restored gospel.
+We too, as Christ’s disciples, are invited to heed His commission today, as if we were there on that mountain in Galilee when He first proclaimed it. This commission began again in 1830, when Joseph Smith set apart his brother Samuel as an early missionary of the Church of Jesus Christ.[^3] Since that time, more than 1.5 million missionaries have traveled throughout the world teaching all nations and baptizing those who embrace the glad tidings of the restored gospel.
 
 This is our doctrine. Our fond desire.
 
 From our young children to the eldest among us, we yearn for the time when we can heed the Savior’s call and share the gospel with the nations of the world. I am sure you young men and young women felt a similar empowering challenge from our prophet yesterday as he invited you to prepare for full-time missionary service just as the Savior did with His Apostles.
 
-Like sprinters at the starting blocks, we wait with anticipation for the official invitation, complete with the prophet’s signature, signaling the start of the race! This desire is noble and inspirational; however, let’s consider this question: why don’t we all begin now?
+Like sprinters at the starting blocks, we wait with anticipation for the official invitation, complete with the prophet’s signature, signaling the start of the race! This desire is noble and inspirational; however, let’s consider this question: why don’t we *all* begin now?
 
 You might ask, “How can I be a missionary without a name badge?” Or we tell ourselves, “The full-time missionaries are set apart to do this work. I would like to help but perhaps later when life has calmed down a bit.”
 
 Brothers and sisters, it is much simpler than that! Gratefully, the Savior’s great commission can be accomplished through simple, easily understandable principles taught to each of us from childhood: love, share, and invite.
 
+## Love
+
 The first thing we can do is love as Christ loved.
 
 Our hearts are heavy with the human suffering and tensions that we see throughout the world during these tumultuous times. However, we can be also inspired by the outpouring of compassion and humanitarianism that has been demonstrated by people everywhere through their efforts to reach out to the marginalized—those displaced from their homes, separated from their families, or experiencing other forms of sorrow and despair.
 
-Recently, news sources reported how a group of mothers in Poland, out of concern for desperate, fleeing families, left fully equipped strollers on a train station platform in a neat line, ready and waiting for refugee mothers and children who would need them at that border crossing as they deboarded a train. Surely, our Heavenly Father smiles upon acts of selfless charity such as these, for as we bear one another’s burdens, we “fulfil the law of Christ.”4
+Recently, news sources reported how a group of mothers in Poland, out of concern for desperate, fleeing families, left fully equipped strollers on a train station platform in a neat line, ready and waiting for refugee mothers and children who would need them at that border crossing as they deboarded a train. Surely, our Heavenly Father smiles upon acts of selfless charity such as these, for as we bear one another’s burdens, we “fulfil the law of Christ.”[^4]
 
 Whenever we show Christlike love toward our neighbor, we preach the gospel—even if we do not voice a single word.
 
-Love for others is the eloquent expression of the second great commandment to love our neighbor;5 it shows the refining process of the Holy Spirit working within our own souls. By demonstrating Christ’s love to others, we may cause those who see our good works to “glorify [our] Father which is in heaven.”6
+Love for others is the eloquent expression of the second great commandment to love our neighbor;[^5] it shows the refining process of the Holy Spirit working within our own souls. By demonstrating Christ’s love to others, we may cause those who see our good works to “glorify \[our\] Father which is in heaven.”[^6]
 
 We do this expecting nothing in return.
 
@@ -38,6 +43,8 @@ Our hope, of course, is they will accept our love and our message, though how th
 What we do and who we are certainly are.
 
 Through Christlike love for others, we preach the glorious, life-transforming properties of Christ’s gospel, and we participate significantly in the fulfilling of His great commission.
+
+## Share
 
 The second thing we can do is share.
 
@@ -55,13 +62,15 @@ We all share things with others. We do it often. We share what movies and food w
 
 How might we simply add to the list of things we already share what we love about the gospel of Jesus Christ?
 
-Elder Dieter F. Uchtdorf explained: “If someone asks about your weekend, don’t hesitate to talk about what you experienced at church. Tell about the little children who stood in front of a congregation and sang with eagerness how they are trying to be like Jesus. Talk about the group of youth who spent time helping the elderly in rest homes to compile personal histories.”7
+Elder Dieter F. Uchtdorf explained: “If someone asks about your weekend, don’t hesitate to talk about what you experienced at church. Tell about the little children who stood in front of a congregation and sang with eagerness how they are trying to be like Jesus. Talk about the group of youth who spent time helping the elderly in rest homes to compile personal histories.”[^7]
 
 Sharing isn’t about “selling” the gospel. You don’t have to write a sermon or correct someone’s incorrect perceptions.
 
 When it comes to missionary work, God doesn’t need you to be His sheriff; He does, however, ask that you be His sharer.
 
 By sharing our positive experiences in the gospel with others, we take part in fulfilling the Savior’s great commission.
+
+## Invite
 
 The third thing you can do is invite.
 
@@ -75,7 +84,9 @@ In our digital age, members often share messages through social media. There are
 
 As we invite others to learn more about the gospel of Jesus Christ, we take part in the Savior’s call to engage in the work of His commission.
 
-My beloved brothers and sisters, we have spoken today of three simple things—easy things—that anyone can do. Things you can do! Perhaps you are already doing them—even without fully realizing that you are!
+## Conclusion
+
+My beloved brothers and sisters, we have spoken today of three simple things—easy things—that anyone can do. Things *you* can do! Perhaps you are already doing them—even without fully realizing that you are!
 
 I invite you to consider ways you can love, share, and invite. As you do so, you will feel a measure of joy knowing that you are heeding the words of our beloved Savior.
 
@@ -92,4 +103,21 @@ Like those disciples of Christ who gathered together to learn from Him in Galile
 As we love, share, and invite, we take part in that great and glorious work that prepares the earth for the return of its Messiah.
 
 That we may heed the Savior’s call and strive to engage in His great commission is my prayer in the name of Jesus the Christ, amen.
+
+
+
+
+[^1]: [[Matthew 28.19|Matthew 28:19]].
+
+[^2]: What was the cause of the growth of the early Church? One historian suggests: “The first thing that would have elicited serious inquiry concerning the nature of the faith was personal contact with other believers. … To live and work alongside those who followed Jesus, to witness their behavior at close quarters, and to listen as they talked about the gospel amid their ordinary daily activities was to be confronted by the evidence of changed lives. In this sense, the drawing power of the Christian faith must often have consisted not so much in the public declarations of its most prominent representatives as in the quiet testimony of ordinary worshipers of Jesus witnessing to the credibility of their commitment by their integrity, constancy, and openness to others” (Ivor J. Davidson, *The Birth of the Church: From Jesus to Constantine, AD 30–312* \[2005\], 108–9).
+
+[^3]: See [Lucy Mack Smith, History, 1845, page 169](https://www.josephsmithpapers.org/paper-summary/lucy-mack-smith-history-1845/177), josephsmithpapers.org.
+
+[^4]: [[Galatians 6.2|Galatians 6:2]].
+
+[^5]: See [[Matthew 22.39|Matthew 22:39]].
+
+[^6]: [[Matthew 5.16|Matthew 5:16]].
+
+[^7]: Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona*, May 2019, 17.
 

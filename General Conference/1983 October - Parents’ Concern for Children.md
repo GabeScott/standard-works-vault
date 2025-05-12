@@ -1,5 +1,6 @@
 # Parents’ Concern for Children
-*By Howard W. Hunter - Of the Quorum of the Twelve Apostles*
+
+By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -23,7 +24,7 @@ One must conclude that—with the multitude of influences and the innumerable de
 
 If a parent has made what could be considered an error—or, on the other hand, has never made a mistake, but still the lamb has wandered from the fold—in either case there are several thoughts I would like to share with you.
 
-First, such a father or mother is not alone. Our first parents knew the pain and suffering of seeing some of their children reject the teachings of eternal life. (See Moses 5:27.) Centuries later Jacob came to know of the jealousy and ill feelings of his older sons toward his beloved Joseph. (See Gen. 37:1–8.) The great prophet Alma, who had a son named Alma, prayed at length to the Lord regarding the rebellious attitude of his son and no doubt was overwhelmed with concern and worry about the dissension and the wickedness his son was causing among those who were within the Church. (See Mosiah 27:14.) Our Father in Heaven has also lost many of his spirit children to the world; he knows the feelings of your heart.
+First, such a father or mother is not alone. Our first parents knew the pain and suffering of seeing some of their children reject the teachings of eternal life. (See [[Moses 5.27|Moses 5:27]].) Centuries later Jacob came to know of the jealousy and ill feelings of his older sons toward his beloved Joseph. (See [[Genesis 37.1|Gen. 37:1–8]][[Genesis 37.2|]][[Genesis 37.3|]][[Genesis 37.4|]][[Genesis 37.5|]][[Genesis 37.6|]][[Genesis 37.7|]][[Genesis 37.8|]].) The great prophet Alma, who had a son named Alma, prayed at length to the Lord regarding the rebellious attitude of his son and no doubt was overwhelmed with concern and worry about the dissension and the wickedness his son was causing among those who were within the Church. (See [[Mosiah 27.14|Mosiah 27:14]].) Our Father in Heaven has also lost many of his spirit children to the world; he knows the feelings of your heart.
 
 Second, we should remember that errors of judgment are generally less serious than errors of intent.
 
@@ -45,11 +46,14 @@ After the Exodus and while Israel was in the wilderness, Moses, in teaching his 
 
 “And these words, which I command thee this day, shall be in thine heart:
 
-“And thou shalt teach them diligently unto thy children, and shalt talk of them when thou sittest in thine house, and when thou walkest by the way, and when thou liest down, and when thou risest up.” (Deut. 6:6–7.)
+“And thou shalt teach them diligently unto thy children, and shalt talk of them when thou sittest in thine house, and when thou walkest by the way, and when thou liest down, and when thou risest up.” ([[Deuteronomy 6.6|Deut. 6:6–7]][[Deuteronomy 6.7|]].)
 
 We should never let Satan fool us into thinking that all is lost. Let us take pride in the good and right things we have done; reject and cast out of our lives those things that are wrong; look to the Lord for forgiveness, strength, and comfort; and then move onward.
 
 A successful parent is one who has loved, one who has sacrificed, and one who has cared for, taught, and ministered to the needs of a child. If you have done all of these and your child is still wayward or troublesome or worldly, it could well be that you are, nevertheless, a successful parent. Perhaps there are children who have come into the world that would challenge any set of parents under any set of circumstances. Likewise, perhaps there are others who would bless the lives of, and be a joy to, almost any father or mother.
 
 My concern today is that there are parents who may be pronouncing harsh judgments upon themselves and may be allowing these feelings to destroy their lives, when in fact they have done their best and should continue in faith. That all who are parents might find joy in their efforts with their children is my prayer, in the name of Jesus Christ, amen.
+
+
+
 

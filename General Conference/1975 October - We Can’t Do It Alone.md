@@ -1,29 +1,27 @@
 # We Can’t Do It Alone
-*By Robert D. Hales - Assistant to the Council of the Twelve*
+
+By Elder Robert D. Hales - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/10/we-can-t-do-it-alone?lang=eng)
 
-My brothers and sisters, I am blessed to stand at this pulpit and feel the radiating spirit of those who have gone before over the past 108 years since the first conference was held in this building, and to feel the testimonies which have been borne this day. There is no better man to follow and be next to than Adney Y. Komatsu. He is a man of God, simple and humble, with whom I hope to be able to spend the rest of my life in the service of the Lord. There is a great spirit that comes from the choir. These things make it possible for me to discuss a subject which is close to my heart.
+My brothers and sisters, I am blessed to stand at this pulpit and feel the radiating spirit of those who have gone before over the past 108 years since the first conference was held in this building, and to feel the testimonies which have been borne this day. There is no better man to follow and be next to than Adney Y. Komatsu. He is a man of God, simple and humble, with whom I hope to be able to spend the rest of my life in the service of the Lord. There is a great spirit that comes from the choir. These things make it possible for me to discuss a subject which is close to my heart.
 
-Spend a few thoughtful moments with me, if you would, discussing the phrase “We can’t do it alone.” Many of us have varying degrees of testimonies. We have all been given the Spirit of Christ at birth. It was a gift. We all have a testimony which we have developed ourselves throughout our lives which the Holy Ghost has helped us to obtain. We may know that God lives. We may know that Jesus is the Christ. We may know that he gave his life for our redemption, that he is resurrected that we might live, and that he is alive today. We may know that Joseph Smith has restored The Church of Jesus Christ of Latter-day Saints in the last dispensation of the fulness of times. Yes, we live in that choice period of time which is the “last dispensation” before the second coming of Jesus Christ. We live in the “fulness of times”—a time when the scriptures that have been revealed to us are virtually all the scriptures available to mankind. We may know that President Spencer W. Kimball is a prophet of God who has all the keys of the priesthood vested in him to lead this church by revelation in these latter days. Yet, my brothers and sisters, with all of this knowledge, why is it that some of us fail to learn the very critical point that we did not come to this life to live it alone?
+Spend a few thoughtful moments with me, if you would, discussing the phrase “We can’t do it alone.” Many of us have varying degrees of testimonies. We have all been given the Spirit of Christ at birth. It was a gift. We all have a testimony which we have developed ourselves throughout our lives which the Holy Ghost has helped us to obtain. We may know that God lives. We may know that Jesus is the Christ. We may know that he gave his life for our redemption, that he is resurrected that we might live, and that he is alive today. We may know that Joseph Smith has restored The Church of Jesus Christ of Latter-day Saints in the last dispensation of the fulness of times. Yes, we live in that choice period of time which is the “last dispensation” before the second coming of Jesus Christ. We live in the “fulness of times”—a time when the scriptures that have been revealed to us are virtually all the scriptures available to mankind. We may know that President Spencer W. Kimball is a prophet of God who has all the keys of the priesthood vested in him to lead this church by revelation in these latter days. Yet, my brothers and sisters, with all of this knowledge, why is it that some of us fail to learn the very critical point that we did not come to this life to live it alone?
 
 You can’t hide your actions from self and others. Polonius’ advice to his son, Laertes:
 
-This above all: to thine own self be true,
-
-And it must follow, as the night the day,
-
-Thou canst not then be false to any man.
-
-Hamlet, 1, iii, 78–80
+>This above all: to thine own self be true,
+>And it must follow, as the night the day,
+>Thou canst not then be false to any man.
+>
 
 is valid, but must be qualified and expanded to include the concern for how to be true to yourself and your fellowman. The “isolated self” shut off from the Light of Christ makes us become fallible—open to delusion. The balance and perspective which come from caring about others and allowing others to care for us form the essence of life itself. We need the inspired help of others to avoid deceiving ourselves. It has always been a mystery to me why the intellectual elite sometimes shut themselves off from the Spirit of God.
 
 I am here to bear my testimony that we were with our Heavenly Father before we came to this life. The scriptures tell us so. We also know that we chose to take a physical body, to come to live in this estate, to live His commandments, and to have opposition in all things. The opposition which we must have is to make us strong; the fire which we withstand is to harden our spiritual steel.
 
-It is also God’s plan that we cannot return to his presence alone, without the help of someone else. James put it best: “Faith without works is dead, being alone.” (James 2:17.) The gospel plan requires giving and receiving. Faith alone is not enough. We need “works” to serve and to be served. We can’t do it alone.
+It is also God’s plan that we cannot return to his presence alone, without the help of someone else. James put it best: “Faith without works is dead, being alone.” ([[James 2.17|James 2:17]].) The gospel plan requires giving and receiving. Faith alone is not enough. We need “works” to serve and to be served. We can’t do it alone.
 
 The many missions which we have in life cannot be embarked upon successfully without the help of others. Birth requires earthly parents. Our blessing as a child, our baptism, our receiving the laying on of hands for the gift of the Holy Ghost, our receiving membership in his church, ordination to the priesthood, going on a mission, being married, having children of our own, blessings during illness and times of need—all require the help of others. And all these are acts of love and service which require the help of others and the giving of help to others.
 
@@ -43,25 +41,19 @@ Moore did go. He went downstairs and spent the rest of the night in prayerful wr
 
 “I’ll sing to you then,” he said. Thomas Moore sang to his wife the song that still lives today.
 
-Believe me, if all those endearing young charms
-
-Which I gaze on so fondly today,
-
-Were to change by tomorrow and fleet in my arms,
-
-Like fairy gifts fading away,
-
-Thou wouldst still be adored as this moment thou art
+>Believe me, if all those endearing young charms
+>Which I gaze on so fondly today,
+>Were to change by tomorrow and fleet in my arms,
+>Like fairy gifts fading away,
+>Thou wouldst still be adored as this moment thou art
+>
 
 Moore heard a movement in the corner of the darkened room where his wife lay in loneliness. He continued:
 
-Let thy loveliness fade as it will,
-
-And around the dear ruin each wish of my heart
-
-Would entwine itself verdantly still.
-
-Irish Melodies, “Believe Me, If All Those Endearing Young Charms,” st. 1; cited in Bartlett’s Familiar Quotations, p. 542.
+>Let thy loveliness fade as it will,
+>And around the dear ruin each wish of my heart
+>Would entwine itself verdantly still.
+>
 
 The song ended. As his voice faded, Moore heard his bride arise. She crossed the room to the window, reached up and slowly withdrew the shutters, opened the curtain, and let in the morning light.
 
@@ -71,7 +63,7 @@ When we are marred spiritually or physically, our first reaction is to withdraw 
 
 Those who are alone and lonely should not retreat to the sanctuary of their private thoughts and chambers. Such retreat will ultimately lead them into the darkening influence of the adversary, which leads to despondency, loneliness, frustration, and to thinking of themselves as worthless. After one thinks of himself as worthless, he then ofttimes turns to associates who corrode those delicate spiritual contacts, rendering their spiritual receiving antennas and transmitters useless. What good is it to associate with and ask advice of someone who is disoriented himself and only tells us what we want to hear? Isn’t it better to turn to loving parents and friends who can help us reach for and attain celestial goals?
 
-Alma summarized the essence of a loving father talking to his sons and “telling it like it is” when he said to Helaman and Shiblon: “Inasmuch as ye shall keep the commandments of God ye shall prosper in the land; and inasmuch as ye will not keep the commandments of God ye shall be cast off from his presence.” (Alma 38:1; see also Alma 36:30.) That is difficult for a father to say to his son, but it is the truth.
+Alma summarized the essence of a loving father talking to his sons and “telling it like it is” when he said to Helaman and Shiblon: “Inasmuch as ye shall keep the commandments of God ye shall prosper in the land; and inasmuch as ye will not keep the commandments of God ye shall be cast off from his presence.” ([[Alma 38.1|Alma 38:1]]; see also [[Alma 36.30|Alma 36:30]].) That is difficult for a father to say to his son, but it is the truth.
 
 When you attempt to live life’s experiences alone, you are not being true to yourself, nor to your basic mission in life. Individuals in difficulty often say: “I’ll do it alone,” “Leave me alone,” “I don’t need you,” “I can take care of myself.” It has been said that no one is so rich that he does not need another’s help, no one so poor as not to be useful in some way to his fellowman. The disposition to ask assistance from others with confidence, and to grant it with kindness, should be part of our very nature.
 
@@ -83,13 +75,16 @@ A hermit is one who suffers from the extreme of selfishness; he neutralizes all 
 
 Whittier best described life and our dependence on each other when he wrote:
 
-Thee lift me, and I’ll lift thee
-
-And we’ll both ascend together.
+>Thee lift me, and I’ll lift thee
+>And we’ll both ascend together.
+>
 
 Yes, we started with our Heavenly Father. We came to this life. We take whatever the adversary gives us, and then ideally we return to our Heavenly Father “with honor.”
 
 I have a very simple testimony. I know that God lives. I know that Jesus is the Christ. I know that we came to this life with a purpose and that the greatest joy we will receive will be those acts of love and service that we do for others. Through this love and service we ourselves grow in strength and testimony and have the blessings of our Heavenly Father poured out upon ourselves and our families. I have also found in life that there is none too great to need the help of others. There is none so great that he can “do it alone.”
 
-If only we could live our lives as our prophet, Spencer W. Kimball, does—in the guileless, loving way in which he shows concern for, gives to, and serves all those around him—we would truly understand that we need the help of others and that they need our help. That we might understand this basic principle of the gospel, having love for and allowing ourselves to be loved by our fellowmen, is my prayer in the name of Jesus Christ. Amen.
+If only we could live our lives as our prophet, Spencer W. Kimball, does—in the guileless, loving way in which he shows concern for, gives to, and serves all those around him—we would truly understand that we need the help of others and that they need our help. That we might understand this basic principle of the gospel, having love for and allowing ourselves to be loved by our fellowmen, is my prayer in the name of Jesus Christ. Amen.
+
+
+
 

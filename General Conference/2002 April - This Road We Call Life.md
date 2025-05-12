@@ -1,13 +1,16 @@
 # This Road We Call Life
-*By Ben B. Banks - Of the Presidency of the Seventy*
+
+By Elder Ben B. Banks - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
+
+>*As you stay on the right path, the reward at the end of life’s journey is well worth the moments of adversity you experience along the way.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2002/04/this-road-we-call-life?lang=eng)
 
 Brethren, I am delighted to be with you this evening. I too want to speak specifically with the young men of the Aaronic Priesthood. I love you and care very much about you.
 
-In the new For the Strength of Youth booklet, the First Presidency says to you: “Our beloved young men ... we have great confidence in you. You are choice spirits who have come forth in this day when the responsibilities and opportunities, as well as the temptations, are the greatest. You are at the beginning of your journey through this mortal life. Your Heavenly Father wants your life to be joyful and to lead you back into His presence. The decisions you make now will determine much of what will follow during your life and throughout eternity” ([pamphlet, 2001], 2).
+In the new *For the Strength of Youth* booklet, the First Presidency says to you: “Our beloved young men … , we have great confidence in you. You are choice spirits who have come forth in this day when the responsibilities and opportunities, as well as the temptations, are the greatest. You are at the beginning of your journey through this mortal life. Your Heavenly Father wants your life to be joyful and to lead you back into His presence. The decisions you make now will determine much of what will follow during your life and throughout eternity” (page 2).
 
 I hope in some small way this evening that you can learn from my nearly 70 years of traveling this road we call life. Your parents or grandparents may have already told you this: “The older you get, the quicker time seems to pass.” It is as though one minute you are 12 with your whole life in front of you, and the next minute you are nearly 70 with an expanding waistline in front of you!
 
@@ -23,9 +26,9 @@ The patterns you establish in your youth may accompany you throughout the rest o
 
 For example, if you are in the habit of using foul language, the longer you use it, the harder it is to change and stop using it. Better now to choose a different road, one that leads to cleanliness in thought and word and action so that you can enjoy the companionship of the Holy Ghost. Imagine the difficulty of serving a mission and having bad language pop into your mind when you need to have the Spirit with you as your constant companion. If using bad language is a problem for you, now is the time to change.
 
-On day two of our trip, we headed to West Yellowstone. Everything was as it should be—the bicycles were running smoothly, our legs rested, as we progressed toward our second destination. It was then that I realized if we are not careful when everything is going just right in life, there can be a temptation to forget our Heavenly Father and give credit to ourselves for our happy state. Don’t make that mistake.
+On day two of our trip, we headed to West Yellowstone. Everything was as it should be—the bicycles were running smoothly and our legs were rested as we progressed toward our second destination. It was then that I realized if we are not careful when everything is going just right in life, there can be a temptation to forget our Heavenly Father and give credit to ourselves for our happy state. Don’t make that mistake.
 
-The Prophet Joseph Smith taught, “Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God” (Teachings of the Prophet Joseph Smith, sel. Joseph Fielding Smith [1976], 255–56).
+The Prophet Joseph Smith taught, “Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[1976\], 255–56).
 
 The Book of Mormon is replete with accounts of those who were blessed by the Lord and then became boastful of their accomplishments. Eventually in their pride they left the correct path and lost all they had as they fell away from the truth. Make sure you don’t become like the Nephites of old; always remember the true source of your blessings.
 
@@ -39,15 +42,18 @@ We had a decision to make. Do we try to reach our planned destination, or do we 
 
 Here in mortality we are called upon to make serious decisions, the outcome of which can have a lasting effect upon our spiritual future. I encourage you to always be worthy to seek for the Spirit to help you always choose the right.
 
-In the Book of Mormon, Nephi tells us: “Then are ye in this strait and narrow path which leads to eternal life; yea, ye have entered in by the gate; ye have done according to the commandments of the Father and the Son; and ye have received the Holy Ghost” (2 Ne. 31:18).
+In the Book of Mormon, Nephi tells us: “Then are ye in this strait and narrow path which leads to eternal life; yea, ye have entered in by the gate; ye have done according to the commandments of the Father and the Son; and ye have received the Holy Ghost” ([[2 Nephi 31.18|2 Ne. 31:18]]).
 
 As our family concluded the 225-mile bicycle journey, we learned that no matter how difficult things can become on this road we call life, great happiness is waiting for those who keep the commandments and endure to the end.
 
 Young men of the Aaronic Priesthood, you have a responsibility to remain firmly focused on your eternal destination. Yes, life’s journeys can have many ups and downs. Yes, there will be days when you will feel the going is tough. But as you stay on the right path, the reward at the end of life’s journey is well worth the moments of adversity you experience along the way.
 
-Again, from the For the Strength of Youth booklet, the First Presidency writes: “May you keep your minds and bodies clean from the sins of the world so you can do the great work that lies before you. We pray that you will be worthy to carry on the responsibilities of building the kingdom of God and preparing the world for the Second Coming of the Savior” (page 3).
+Again, from the *For the Strength of Youth* booklet, the First Presidency writes: “May you keep your minds and bodies clean from the sins of the world so you can do the great work that lies before you. We pray that you will be worthy to carry on the responsibilities of building the kingdom of God and preparing the world for the Second Coming of the Savior” (page 3).
 
 My young friends, please know the importance of being wise by following the counsel of our prophets, and happiness will be yours throughout life’s journey.
 
 Of this I so testify in the name of Jesus Christ, amen.
+
+
+
 

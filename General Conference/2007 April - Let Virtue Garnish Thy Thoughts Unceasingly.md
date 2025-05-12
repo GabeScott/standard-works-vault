@@ -1,7 +1,10 @@
 # Let Virtue Garnish Thy Thoughts Unceasingly
-*By Gordon B. Hinckley - President of the Church*
+
+By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2007 General Conference*
+
+>*There is no limit to your potential. If you will take control of your lives, the future is filled with opportunity and gladness.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2007/04/let-virtue-garnish-thy-thoughts-unceasingly?lang=eng)
 
@@ -11,7 +14,7 @@ Others have eloquently addressed the theme of this meeting. I only mention it. I
 
 “Let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven.
 
-“The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth; and thy dominion shall be an everlasting dominion, and without compulsory means it shall flow unto thee forever and ever” (vv. 45–46).
+“The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth; and thy dominion shall be an everlasting dominion, and without compulsory means it shall flow unto thee forever and ever” ([[D&C 121.45|vv. 45–46]][[D&C 121.46|]]).
 
 Could there be a greater promise to anyone than these remarkable words of revelation from the Lord? These are the words of God, given in revelation to the Prophet Joseph. They carry with them a magnificent promise to all who will let virtue garnish their thoughts unceasingly.
 
@@ -19,7 +22,7 @@ Now you young women are on the threshold of life. You are old enough to have bee
 
 Now I offer you a very simple recipe which, if observed, will assure your happiness. It is a simple four-point program. It is as follows: (1) pray, (2) study, (3) pay your tithing, and (4) attend your meetings.
 
-With reference to the first item—personal prayer—you are a daughter of our Heavenly Father. He is your heavenly parent. Speak with Him. Each night and morning get on your knees and express unto Him the gratitude of your heart. Speak of the blessings which you desire and need. Never forget that this Church began with the humble prayer of the boy Joseph Smith in the grove of his father’s farm. From that remarkable experience, which we call the First Vision, has grown this work until today it is established in 160 nations, with a membership of over 12 million. It is the very personification of Daniel’s vision of a stone cut out of the mountain without hands rolling forth to fill the whole earth (see Daniel 2:44–45).
+With reference to the first item—personal prayer—you are a daughter of our Heavenly Father. He is your heavenly parent. Speak with Him. Each night and morning get on your knees and express unto Him the gratitude of your heart. Speak of the blessings which you desire and need. Never forget that this Church began with the humble prayer of the boy Joseph Smith in the grove of his father’s farm. From that remarkable experience, which we call the First Vision, has grown this work until today it is established in 160 nations, with a membership of over 12 million. It is the very personification of Daniel’s vision of a stone cut out of the mountain without hands rolling forth to fill the whole earth (see [[Daniel 2.44|Daniel 2:44–45]][[Daniel 2.45|]]).
 
 Not only can you offer your individual prayers, but you can encourage your parents to have family prayer, if they are not already doing so. Prayer is the bridge over which we approach our Father in Heaven. It costs nothing. It requires only faith and effort. There is nothing more rewarding than kneeling in humble prayer. It speaks of love for Deity, as the giver of all that is good. It speaks of respect for self. There is no substitute for it. It is personal communication with God.
 
@@ -31,17 +34,17 @@ Beyond ecclesiastical study there is the challenge of education. Resolve now, wh
 
 You may plan on marriage, and hope for it, but you are not certain that it will come. And even though you marry, education will be of great benefit to you. Don’t just drift along, letting the days come and go without improvement in your lives. The Lord will bless you as you make the effort. Your lives will be enriched and your outlook broadened as your minds are opened to new vistas and knowledge.
 
-The next item is the payment of tithing. Glorious is the promise of the Lord concerning those who pay their tithes. He says in modern revelation that they “shall not be burned” (see D&C 64:23).
+The next item is the payment of tithing. Glorious is the promise of the Lord concerning those who pay their tithes. He says in modern revelation that they “shall not be burned” (see [[D&C 64.23|D&C 64:23]]).
 
-His great promise is found in the words of Malachi. Said He: “Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. ...
+His great promise is found in the words of Malachi. Said He: “Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
 
-“Bring ye all the tithes into the storehouse, that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it” (Malachi 3:8, 10).
+“Bring ye all the tithes into the storehouse, that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it” ([[Malachi 3.8|Malachi 3:8, 10]][[Malachi 3.10|]]).
 
 And then He goes on to say something very interesting. Listen to this:
 
 “And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the field, saith the Lord of hosts.
 
-“And all nations shall call you blessed: for ye shall be a delightsome land” (Malachi 3:11–12).
+“And all nations shall call you blessed: for ye shall be a delightsome land” ([[Malachi 3.11|Malachi 3:11–12]][[Malachi 3.12|]]).
 
 While tithing is paid with money, more importantly it is paid with faith. I have never met an individual who paid an honest tithe who complained about it. Rather, he put his trust in the Lord, and the Lord never failed him.
 
@@ -60,4 +63,7 @@ All of this is symbolized in the partaking of the sacrament. All other items in 
 If you will do these four things, I promise you that your lives will be fruitful, that your happiness will be great, and that your accomplishments will be tremendous and satisfying in every respect.
 
 May the Lord bless you, my dear young sisters; may His blessings attend you at all times and in all conditions. We love you. We pray for you. May heaven smile upon you, I humbly ask in the sacred name of Jesus Christ, amen.
+
+
+
 

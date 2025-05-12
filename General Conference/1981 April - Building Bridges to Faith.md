@@ -1,5 +1,6 @@
 # Building Bridges to Faith
-*By Loren C. Dunn - Of the First Quorum of the Seventy*
+
+By Elder Loren C. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -9,17 +10,17 @@ I have been inspired, as I know you have, with the singing of this lovely choir,
 
 We have been referred to as a believing people. Certainly individual faith is the foundation stone of the gospel and the quality which is most important to us as individuals.
 
-Joseph Smith said, “Faith is the assurance which men have of the existence of things which they have not seen, and the principle of action in all intelligent beings. ... [It] is the first great governing principle.” (Lectures on Faith, comp. N. B. Lundwall, Salt Lake City: N. B. Lundwall, n.d., pp. 7, 10.)
+Joseph Smith said, “Faith is the assurance which men have of the existence of things which they have not seen, and the principle of action in all intelligent beings. … \[It\] is the first great governing principle.” (*Lectures on Faith,* comp. N. B. Lundwall, Salt Lake City: N. B. Lundwall, n.d., pp. 7, 10.)
 
-And Jacob teaches that the Lord commands all men that they must have “perfect faith in the Holy One of Israel, or they cannot be saved in the Kingdom of God.” (2 Ne. 9:23.)
+And Jacob teaches that the Lord commands all men that they must have “perfect faith in the Holy One of Israel, or they cannot be saved in the Kingdom of God.” ([[2 Nephi 9.23|2 Ne. 9:23]].)
 
 As a principle of power and of action, and as the key to our salvation, our individual faith, then, becomes of absolute importance to us.
 
-Paul admonished us to “be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.” (1 Tim. 4:12.)
+Paul admonished us to “be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.” ([[1 Timothy 4.12|1 Tim. 4:12]].)
 
-“If ye can no more than desire to believe,” said Alma, “let this desire work in you, even until ye believe in a manner that ye can give place for a portion of my words.” (Alma 32:27.)
+“If ye can no more than desire to believe,” said Alma, “let this desire work in you, even until ye believe in a manner that ye can give place for a portion of my words.” ([[Alma 32.27|Alma 32:27]].)
 
-Moroni says, “Dispute not because ye see not, for ye receive no witness until after the trial of your faith.” (Ether 12:6.)
+Moroni says, “Dispute not because ye see not, for ye receive no witness until after the trial of your faith.” ([[Ether 12.6|Ether 12:6]].)
 
 There are many steps a person can take to develop the gift and power of faith. In the next few minutes I would like to suggest six of these steps.
 
@@ -27,13 +28,13 @@ Number one: Faith is the ability to recognize the Lord as all-powerful and the g
 
 As King Benjamin put it:
 
-“Believe in God; believe that he is, and that he created all things, both in heaven and in earth; believe that he has all wisdom, and all power, both in heaven and in earth; believe that man doth not comprehend all things which the Lord can comprehend.” (Mosiah 4:9.)
+“Believe in God; believe that he is, and that he created all things, both in heaven and in earth; believe that he has all wisdom, and all power, both in heaven and in earth; believe that man doth not comprehend all things which the Lord can comprehend.” ([[Mosiah 4.9|Mosiah 4:9]].)
 
 Sometimes we compartmentalize. We pray about one thing and worry about something else. We seem to limit the ability of the Lord to help us in every aspect of our lives.
 
-John A. Widtsoe tells us the following:
+John A. Widtsoe tells us the following:
 
-“For several years, under a Federal grant with my staff of workers we had gathered thousands of data in the field of soil moisture; but I could not extract any general law running through them. I gave up at last. My wife and I went to the temple that day to forget the failure. In the third endowment room, out of the unseen, came the solution, which has long since gone into print.” (In A Sunlit Land: The Autobiography of John A. Widtsoe, Salt Lake City: Deseret News Press, 1952, p. 177.)
+“For several years, under a Federal grant with my staff of workers we had gathered thousands of data in the field of soil moisture; but I could not extract any general law running through them. I gave up at last. My wife and I went to the temple that day to forget the failure. In the third endowment room, out of the unseen, came the solution, which has long since gone into print.” (*In A Sunlit Land: The Autobiography of John A. Widtsoe,* Salt Lake City: Deseret News Press, 1952, p. 177.)
 
 Faith, then, is the realization that the Lord can help us with all things.
 
@@ -57,7 +58,7 @@ Yet this would have been lost had I stopped to question why the Lord was turning
 
 Number three: Faith is the ability to live the laws of God that control the blessings we are in need of. While we should not keep the commandments just to receive blessings, nevertheless, the blessings are there.
 
-Harold B. Lee tells the experience of praying very hard for a material blessing he needed badly. He states that one day while he was praying for this blessing, he remembered that he had recently received some income that he had not yet tithed. It was as if, he said, the accusing voice of the Lord was saying: You want a blessing from me but you have not been obedient to the laws upon which such blessings are based. (“Faith,” address delivered at Brigham Young University, 28 Jun 1955, tape in Historical Department Archives.)
+Harold B. Lee tells the experience of praying very hard for a material blessing he needed badly. He states that one day while he was praying for this blessing, he remembered that he had recently received some income that he had not yet tithed. It was as if, he said, the accusing voice of the Lord was saying: You want a blessing from me but you have not been obedient to the laws upon which such blessings are based. (“Faith,” address delivered at Brigham Young University, 28 Jun 1955, tape in Historical Department Archives.)
 
 He said that he went and paid the tithing on that income, and then he again sought that particular blessing of the Lord.
 
@@ -65,13 +66,13 @@ Number four: Faith is the ability to act “as if.”
 
 In his teachings, Paul said:
 
-“By faith Noah, being warned of God of things not seen ... prepared an ark to the saving of his house.” (Heb. 11:7.)
+“By faith Noah, being warned of God of things not seen … prepared an ark to the saving of his house.” ([[Hebrews 11.7|Heb. 11:7]].)
 
 President Kimball gives us this insight to Noah and the ark:
 
-“As yet there was no evidence of rain and flood. ... His warnings were considered irrational. ... How foolish to build an ark on dry ground with the sun shining and life moving forward as usual! But time ran out. ... The floods came. The disobedient ... were drowned. The miracle of the ark followed the faith manifested in its building.” (Faith Precedes the Miracle, Salt Lake City: Deseret Book, 1972, pp. 5–6.)
+“As yet there was no evidence of rain and flood. … His warnings were considered irrational. … How foolish to build an ark on dry ground with the sun shining and life moving forward as usual! But time ran out. … The floods came. The disobedient … were drowned. The miracle of the ark followed the faith manifested in its building.” (*Faith Precedes the Miracle,* Salt Lake City: Deseret Book, 1972, pp. 5–6.)
 
-Many years ago during the dark days of World War II, Elvon W. Orme, the president of the Australia Mission was invited to a faithful widow’s house for Sunday dinner. Rationing had taken its toll, and many of the good foods had long since disappeared from the shelves of the local stores.
+Many years ago during the dark days of World War II, Elvon W. Orme, the president of the Australia Mission was invited to a faithful widow’s house for Sunday dinner. Rationing had taken its toll, and many of the good foods had long since disappeared from the shelves of the local stores.
 
 When the president arrived, he was shocked to find a table filled with foods that were in short supply and had not been seen for months.
 
@@ -85,11 +86,11 @@ I wonder how many Saints will be able to withstand the disaster of their own per
 
 Number five: Faith is the ability to be charitable and to believe in people.
 
-The Savior of the world is the foremost example of this love. After having been rejected and despised, he asked his Father to forgive those who crucified him because “they know not what they do.” (Luke 23:34.)
+The Savior of the world is the foremost example of this love. After having been rejected and despised, he asked his Father to forgive those who crucified him because “they know not what they do.” ([[Luke 23.34|Luke 23:34]].)
 
 Joseph Smith is another example. After living a life filled with trials and betrayals, he said as he was going to Carthage:
 
-“I am going like a lamb to the slaughter, but ... I have a conscience void of offense toward ... all men.” (History of the Church, 6:555; italics omitted.)
+“I am going like a lamb to the slaughter, but … I have a conscience void of offense toward … all men.” (*History of the Church,* 6:555; italics omitted.)
 
 I knew a man once whom I respected very much and who had this quality. On one occasion, a beggar came from out of town and appeared at his door and asked for money. My friend said, “I have an old barn that needs painting. If you want to paint it, I’ll pay you for it.” They went out to look at the barn, and then the man was sent to England’s paint store and arrangements were made for him to pick up the paint he needed.
 
@@ -107,9 +108,9 @@ Number six: Faith is the ability to allow ourselves to be guided by the priestho
 
 Paul teaches us this important truth:
 
-“And he [the Lord] gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers.” And here he tells us why these priesthood leaders have been given to the Saints: “till we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ.” (Eph. 4:11, 13.)
+“And he \[the Lord\] gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers.” And here he tells us why these priesthood leaders have been given to the Saints: “till we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ.” ([[Ephesians 4.11|Eph. 4:11, 13]][[Ephesians 4.13|]].)
 
-Priesthood leaders, all leaders who have been called by revelation under the hands of the priesthood, have been given to us so we can come to a unity of the faith, to the end that we might know the Savior and have his image in our countenance and become like him, “that every man might speak in the name of God the Lord, even the Savior of the world.” (D&C 1:20.)
+Priesthood leaders, all leaders who have been called by revelation under the hands of the priesthood, have been given to us so we can come to a unity of the faith, to the end that we might know the Savior and have his image in our countenance and become like him, “that every man might speak in the name of God the Lord, even the Savior of the world.” ([[D&C 1.20|D&C 1:20]].)
 
 Years ago, President Joseph Fielding Smith, then a member of the Quorum of the Twelve, attended a stake conference where a relatively new stake president had been called. A man repeatedly came up to President Smith and asked him for counsel concerning a personal matter. Finally, President Smith said he would see the man, provided the new stake president could be there. As the man unfolded his situation, the stake president was prompted with what the person needed to do. Yet President Smith listened to the brother and surprised everyone by saying, “I have no counsel for you.” The man was surprised, and he left. After he had gone, President Smith turned to the stake president and said, “I knew how to counsel that man, but I was also prompted to know that he would go against the counsel. So rather than condemn him for going against the counsel of the priesthood, I told him nothing.”
 
@@ -122,4 +123,7 @@ Faith is a part of our heritage. Those who embrace the gospel of Jesus Christ ar
 My faith is both a beacon and a foundation stone. It is born of the Spirit and enriched by a multitude of prayers and promptings. It lifts my soul upwards. It opens my heart to peace and joy. It nourishes and reaffirms those things that I fully know. My faith is such that I know God lives. I know he lives and Jesus is the Christ and Joseph Smith was a true prophet and we sit in the midst of apostles and prophets today.
 
 May the Lord bless us with faith as we go forward in our lives, in the name of Jesus Christ, amen.
+
+
+
 

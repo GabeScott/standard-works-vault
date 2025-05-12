@@ -1,7 +1,10 @@
 # Focus on Jesus Christ and His Gospel
-*By I. Raymond Egbo - Of the Seventy*
+
+By Elder I. Raymond Egbo - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
+
+>*When we ignore the distractions of the world and focus on Christ and His gospel, we are guaranteed success.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2024/10/56egbo?lang=eng)
 
@@ -9,51 +12,86 @@ In 1996 the Nigerian men’s football team won gold at the Olympic Games held in
 
 Before the Olympics, this team faced numerous challenges. As the tournament began, their financial support ended. The team competed without proper kits, training venues, food, or laundry services.
 
-Jerome Prevost/Getty Images
-
 At one point, they were minutes away from being eliminated from competition, but the Nigerian team triumphed against all odds. This pivotal moment changed how they saw themselves. With newfound confidence, and with individual and team hard work and dogged determination, they unitedly ignored distractions and focused on winning. This focus earned them gold medals, and Nigerians christened them the “Dream Team.” The Dream Team at the 1996 Olympics continues to be referenced in Nigerian sports.
-
-David Cannon/Allsport/Getty Images
 
 Once the football team learned to ignore the many distractions facing them and focused on their goal, they succeeded beyond what they thought possible and experienced great joy. (As did the rest of us in Nigeria!)
 
-In a similar way, when we ignore the distractions of the world and focus on Christ and His gospel, we are guaranteed success beyond what we can fully imagine and can feel great joy. President Russell M. Nelson taught: “When the focus of our lives is on ... Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives.”
+In a similar way, when we ignore the distractions of the world and focus on Christ and His gospel, we are guaranteed success beyond what we can fully imagine and can feel great joy. President Russell M. Nelson taught: “When the focus of our lives is on … Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives.”[^1]
 
-I pray that the Holy Ghost will help each of us to heed President Nelson’s invitation to focus our lives on “Jesus Christ and His gospel” so we can experience joy in Christ “regardless of what is happening—or not happening—in our lives.”
+I pray that the Holy Ghost will help each of us to heed President Nelson’s invitation to focus our lives on “Jesus Christ and His gospel” so we can experience joy in Christ “regardless of what is happening—or not happening—in our lives.”[^2]
 
 Several accounts in the Book of Mormon describe individuals who turned their lives around by focusing on Jesus Christ and His gospel.
 
-Consider Alma the Younger. He rebelled and fought against the Church. His father, Alma, prayed and fasted. An angel appeared and called Alma the Younger to repentance. In that moment, Alma began to suffer “the pains of a damned soul.” In his darkest hours, he remembered his father teaching that Christ would come to atone for the sins of the world. As his mind caught hold on this thought, he pled with God for mercy. Joy was the result, a joy he described as exquisite! Mercy and joy came to Alma because he and his father focused on the Savior.
+Consider Alma the Younger. He rebelled and fought against the Church. His father, Alma, prayed and fasted. An angel appeared and called Alma the Younger to repentance. In that moment, Alma began to suffer “the pains of a damned soul.”[^3] In his darkest hours, he remembered his father teaching that Christ would come to atone for the sins of the world. As his mind caught hold on this thought, he pled with God for mercy. Joy was the result, a joy he described as exquisite![^4] Mercy and joy came to Alma because he and his father focused on the Savior.
 
-For parents with children who have strayed, take heart! Instead of wondering why an angel does not come to help your child repent, know that the Lord has placed a mortal angel in his or her path: the bishop, another Church leader, or a ministering brother or sister. If you keep fasting and praying, if you do not set a timetable or a deadline for God, and if you trust that He is stretching forth His hand to help, then—sooner or later—you find God touching the heart of your child when your child chooses to listen. This is so because Christ is joy—Christ is hope; He is the promise “of good things to come.” So trust Jesus Christ with your child, for He is the strength of every parent and every child.
+For parents with children who have strayed, take heart! Instead of wondering why an angel does not come to help your child repent, know that the Lord has placed a mortal angel in his or her path: the bishop, another Church leader, or a ministering brother or sister. If you keep fasting and praying, if you do not set a timetable or a deadline for God, and if you trust that He is stretching forth His hand to help, then—sooner or later—you find God touching the heart of your child when your child chooses to listen. This is so because Christ is joy—Christ is hope;[^5] He is the promise “of good things to come.”[^6] So trust Jesus Christ with your child, for He is the strength of every parent[^7] and every child.
 
 Once he experienced joy in Christ, Alma the Younger lived with that joy. But how did he maintain such joy even through difficulty and trial? He states:
 
-“From that time even until now, I have labored without ceasing, [to] bring souls unto repentance; that I might bring them to taste of the exceeding joy of which I did taste. ...
+“From that time even until now, I have labored without ceasing, \[to\] bring souls unto repentance; that I might bring them to taste of the exceeding joy of which I did taste. …
 
-“... And ... the Lord doth give me exceedingly great joy in the fruit of my labors. ...
+“… And … the Lord doth give me exceedingly great joy in the fruit of my labors. …
 
-“And I have been supported under trials and troubles of every kind.”
+“And I have been supported under trials and troubles of every kind.”[^8]
 
-Joy in Christ began for Alma when he exercised faith in Him and cried for mercy. Then Alma exercised his faith in Christ by laboring to help others taste of the same joy. These continuous labors produced great joy in Alma even in trials and troubles of every kind. You see, “the Lord loves effort,” and effort focused on Him brings blessings. Even severe trials can be “swallowed up in the joy of Christ.”
+Joy in Christ began for Alma when he exercised faith in Him and cried for mercy. Then Alma exercised his faith in Christ by laboring to help others taste of the same joy. These continuous labors produced great joy in Alma even in trials and troubles of every kind. You see, “the Lord loves effort,” and effort focused on Him brings blessings.[^9] Even severe trials can be “swallowed up in the joy of Christ.”[^10]
 
 Another group in the Book of Mormon who made Jesus Christ and His gospel the focus of their lives and found joy are those who founded the city Helam—a place where they could raise their children and enjoy the free exercise of their religion. This righteous people living good lives were enslaved by a marauding group and stripped of the fundamental human right to exercise religion. Sometimes bad things happen to good people:
 
 “The Lord seeth fit to chasten his people; yea, he trieth their patience and their faith.
 
-“Nevertheless—whosoever putteth his trust in him the same shall be lifted up at the last day. Yea, and thus it was with this people.”
+“Nevertheless—whosoever putteth his trust in him the same shall be lifted up at the last day. Yea, and thus it was with this people.”[^11]
 
-How did this people endure through their trials and suffering? By focusing on Christ and His gospel. Their troubles did not define them; rather, each of them turned to God, likely defining themselves as a child of God, a child of the covenant, and a disciple of Jesus Christ. As they remembered who they were and called upon God, they received peace, strength, and ultimately joy in Christ:
+How did this people endure through their trials and suffering? By focusing on Christ and His gospel. Their troubles did not define them; rather, each of them turned to God, likely defining themselves as a child of God, a child of the covenant, and a disciple of Jesus Christ.[^12] As they remembered who they were and called upon God, they received peace, strength, and ultimately joy in Christ:
 
-“Alma and his people did ... pour out their hearts to [God]; and he did know the thoughts of their hearts.
+“Alma and his people did … pour out their hearts to \[God\]; and he did know the thoughts of their hearts.
 
-“And it came to pass that the voice of the Lord came to them in their afflictions, saying: Lift up your heads and be of good comfort, for I know of the covenant which ye have made unto me; and I will covenant with my people and deliver them out of bondage.”
+“And it came to pass that the voice of the Lord came to them in their afflictions, saying: Lift up your heads and be of good comfort, for I know of the covenant which ye have made unto me; and I will covenant with my people and deliver them out of bondage.”[^13]
 
-In response, the Lord did “ease the burdens ... upon [their] shoulders. ... Yea, the Lord did strengthen them that they could bear up their burdens with ease, and they did submit cheerfully and with patience to all the will of the Lord.” Note that these Saints let their troubles, suffering, and trials be swallowed up in the joy of Christ! Then in due time, He showed Alma the way for escape, and Alma—a prophet of God—led them to safety.
+In response, the Lord did “ease the burdens … upon \[their\] shoulders. … Yea, the Lord did strengthen them that they could bear up their burdens with ease, and they did submit cheerfully and with *patience to all the will of the Lord*.”[^14] Note that these Saints let their troubles, suffering, and trials be swallowed up in the joy of Christ! Then in due time, He showed Alma the way for escape, and Alma—a prophet of God—led them to safety.
 
-As we focus on Christ and follow His prophet, we too will be led to Christ and the joy of His gospel. President Nelson has taught: “Joy is powerful, and focusing on joy brings God’s power into our lives. As in all things, Jesus Christ is our ultimate exemplar, ‘who for the joy that was set before him endured the cross’ [Hebrews 12:2].”
+As we focus on Christ and follow His prophet, we too will be led to Christ and the joy of His gospel. President Nelson has taught: “Joy is powerful, and focusing on joy brings God’s power into our lives. As in all things, Jesus Christ is our ultimate exemplar, ‘who for the joy that was set before him endured the cross’ \[[[Hebrews 12.2|Hebrews 12:2]]\].”[^15]
 
-My mother recently passed away; it was a shock. I love my mother and did not plan on losing her so young. But through her passing, my family and I have experienced both sorrow and joy. I know because of Him, she is not dead—she lives! And I know because of Christ and the priesthood keys restored through the Prophet Joseph Smith, I will be with her again. The sorrow of losing my mom has been swallowed up in the joy of Christ! I am learning that to “think celestial” and “let God prevail” includes focusing on the joy available in Christ.
+My mother recently passed away; it was a shock. I love my mother and did not plan on losing her so young. But through her passing, my family and I have experienced both sorrow and joy. I know because of Him, she is not dead—she lives! And I know because of Christ and the priesthood keys restored through the Prophet Joseph Smith, I will be with her again. The sorrow of losing my mom has been swallowed up in the joy of Christ! I am learning that to “think celestial”[^16] and “let God prevail”[^17] includes focusing on the joy available in Christ.
 
-He lovingly invites, “Come unto me, all ye that labour and are heavy laden, and I will give you rest.” In the name of Jesus Christ, amen.
+He lovingly invites, “Come unto me, all ye that labour and are heavy laden, and I will give you rest.”[^18] In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+
+[^2]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82; see also Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95; “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 97–100.
+
+[^3]: [[Alma 36.16|Alma 36:16]].
+
+[^4]: See [[Alma 36.17|Alma 36:17–21]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]].
+
+[^5]: See [[1 Timothy 1.1|1 Timothy 1:1]].
+
+[^6]: [[Hebrews 9.11|Hebrews 9:11]].
+
+[^7]: See Dieter F. Uchtdorf, “[[2023 April - Jesus Christ Is the Strength of Parents.md|Jesus Christ Is the Strength of Parents]],” *Liahona*, May 2023, 55–59.
+
+[^8]: [[Alma 36.24|Alma 36:24–27]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]].
+
+[^9]: Russell M. Nelson, in Joy D. Jones, “[[2020 April - An Especially Noble Calling.md|An Especially Noble Calling]],” *Ensign* or *Liahona*, May 2020, 16.
+
+[^10]: [[Alma 31.38|Alma 31:38]].
+
+[^11]: [[Mosiah 23.21|Mosiah 23:21–22]][[Mosiah 23.22|]].
+
+[^12]: See Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
+
+[^13]: [[Mosiah 24.12|Mosiah 24:12–13]][[Mosiah 24.13|]].
+
+[^14]: [[Mosiah 24.14|Mosiah 24:14–15]][[Mosiah 24.15|]]; emphasis added.
+
+[^15]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82–83.
+
+[^16]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–20.
+
+[^17]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 92–95.
+
+[^18]: [[Matthew 11.28|Matthew 11:28]]; see also [[Matthew 11.29|verses 29–30]][[Matthew 11.30|]].
 

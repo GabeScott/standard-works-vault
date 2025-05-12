@@ -1,5 +1,6 @@
 # The Honored Place of Woman
-*By Ezra Taft Benson - President of the Quorum of the Twelve Apostles*
+
+By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -13,13 +14,13 @@ Last April I was privileged to speak to the priesthood brethren on a father’s 
 
 Sound principles and eternal truths need to be frequently repeated so that we do not forget their application nor become dissuaded by other arguments.
 
-The world is increasing in wickedness. Temptations are greater than they have ever been in the memory of any of us. In the face of these conditions—and they will get worse—President Spencer W. Kimball said in an address to Regional Representatives:
+The world is increasing in wickedness. Temptations are greater than they have ever been in the memory of any of us. In the face of these conditions—and they will get worse—President Spencer W. Kimball said in an address to Regional Representatives:
 
-“Relief Society leaders and teachers should ask, how can we help the wife and mother understand the dignity and worth of her role in the divine process of motherhood? How can we help her make her home a place of love and learning, a place of refuge and refinement?” (Ensign, May 1978, p. 101.)
+“Relief Society leaders and teachers should ask, how can we help the wife and mother understand the dignity and worth of her role in the divine process of motherhood? How can we help her make her home a place of love and learning, a place of refuge and refinement?” (*Ensign,* May 1978, p. 101.)
 
-We must ever keep in mind that it is the design of Satan to thwart the plan of our Eternal Father. The plan of the adversary is to destroy the youth of the Church—the “rising generation,” as the Book of Mormon calls them (see Alma 5:49)—and to destroy the family unit.
+We must ever keep in mind that it is the design of Satan to thwart the plan of our Eternal Father. The plan of the adversary is to destroy the youth of the Church—the “rising generation,” as the Book of Mormon calls them (see [[Alma 5.49|Alma 5:49]])—and to destroy the family unit.
 
-In the beginning, God placed a woman in a companion role with the priesthood. God said, “It was not good that the man should be alone; wherefore, I will make an help meet for him.” (Moses 3:18.)
+In the beginning, God placed a woman in a companion role with the priesthood. God said, “It was not good that the man should be alone; wherefore, I will make an help meet for him.” ([[Moses 3.18|Moses 3:18]].)
 
 Woman was given to man as an helpmeet. That complementary association is ideally portrayed in the eternal marriage of our first parents—Adam and Eve. They labored together; they had children together; they prayed together; and they taught their children the gospel together. This is the pattern God would have all righteous men and women imitate.
 
@@ -41,7 +42,7 @@ I am aware that many of you often find yourselves in circumstances that are not 
 
 I recognize that some sisters are widowed or divorced. My heart is drawn to you who are in these circumstances. The Brethren pray for you, and we feel a great obligation to see that your needs are met. Trust in the Lord. Be assured He loves you and we love you. Resist bitterness and cynicism.
 
-I also recognize that not all women in the Church will have an opportunity for marriage and motherhood in mortality. But if you in this situation are worthy and endure faithfully, you can be assured of all blessings from a kind and loving Heavenly Father—and I emphasize all blessings.
+I also recognize that not all women in the Church will have an opportunity for marriage and motherhood in mortality. But if you in this situation are worthy and endure faithfully, you can be assured of all blessings from a kind and loving Heavenly Father—and I emphasize *all* blessings.
 
 Solutions for you who are in a minority are not the same as for the majority of women in the Church who can and should be fulfilling their roles as wives and mothers.
 
@@ -49,7 +50,7 @@ It is a misguided idea that a woman should leave the home, where there is a husb
 
 President Kimball once said that Latter-day Saints need “a style of our own” pertaining to clothing. We must also have “a style of our own” pertaining to success and self-image.
 
-Some Saints are deluded into believing that more and better circumstances will improve their self-image. A positive self-image has little relationship to our material circumstances. Mary, the mother of our Savior, was of most modest circumstances, yet she knew well her responsibility and took joy in it. Remember her humble exclamation to her cousin Elisabeth: “He hath regarded the low estate of his handmaiden: for, behold, from henceforth all generations shall call me blessed.” (Luke 1:48; italics added.) Her strength was inward, not from outward material things.
+Some Saints are deluded into believing that more and better circumstances will improve their self-image. A positive self-image has little relationship to our material circumstances. Mary, the mother of our Savior, was of most modest circumstances, yet she knew well her responsibility and took joy in it. Remember her humble exclamation to her cousin Elisabeth: “He hath regarded *the low estate* of his handmaiden: for, behold, from henceforth all generations shall call me blessed.” ([[Luke 1.48|Luke 1:48]]; italics added.) Her strength was inward, not from outward material things.
 
 It is a fundamental truth that the responsibilities of motherhood cannot be successfully delegated. No, not to day-care centers, not to schools, not to nurseries, not to babysitters.
 
@@ -65,25 +66,25 @@ How vital are mother’s influence and teaching in the home—and how apparent w
 
 I do not wish to wound any feelings, but all of us are aware of instances of active Latter-day Saint families who are experiencing difficulties with their children because mother is not where she ought to be—in the home.
 
-A recent national magazine gave these alarming figures: “More than 14 million children ages 6 to 13 now have working mothers, and it is estimated that a third of them are unsupervised for lengthy periods each day.” (U.S. News and World Report, 14 Sept. 1981, p. 42.)
+A recent national magazine gave these alarming figures: “More than 14 million children ages 6 to 13 now have working mothers, and it is estimated that a third of them are unsupervised for lengthy periods each day.” (*U.S. News and World Report,* 14 Sept. 1981, p. 42.)
 
 The seeds of divorce are often sown and the problems of children begin when mother works outside the home. You mothers should carefully count the cost before you decide to share breadwinning responsibilities with your husbands. It is a truism that children need more of mother than of money.
 
-President Joseph F. Smith said that “parents in Zion will be held responsible for the acts of their children, not only until they become eight years old but, perhaps, throughout all the lives of their children, provided they have neglected their duty to their children while they were under their care and guidance, and the parents were responsible for them.” (In Conference Report, Apr. 1910, p. 6.)
+President Joseph F. Smith said that “parents in Zion will be held responsible for the acts of their children, not only until they become eight years old but, perhaps, throughout all the lives of their children, provided they have neglected their duty to their children while they were under their care and guidance, and the parents were responsible for them.” (In Conference Report, Apr. 1910, p. 6.)
 
 One of the most stirring success stories in scripture is told in the Book of Mormon of Lamanite women who taught their sons the gospel in the home. These two thousand young men were taught faith in God at their mothers’ knees. Later, they exhibited great faith and courage when they went to war.
 
-Their leader, Helaman, said of them, “Yea, they had been taught by their mothers, that if they did not doubt, God would deliver them.” (Alma 56:47.)
+Their leader, Helaman, said of them, “Yea, they had been taught by their mothers, that if they did not doubt, God would deliver them.” ([[Alma 56.47|Alma 56:47]].)
 
 There is the key—“they had been taught by their mothers”!
 
 Years ago, a son wrote to his mother and asked her what she did to successfully rear her children—all nineteen of them! She wrote him this reply:
 
-“The writing anything about my way of education I am much adverse to. It cannot, I think, be of service to anyone to know how I, who have lived such a retired life for so many years, used to employ my time and care in bringing up my own children. No one can, without renouncing the world, in the most literal sense, observe my methods; and there are few, if any, that would entirely devote above twenty years of the prime of life in hopes to save souls of their children, which they think may be saved without so much ado; for that was my principal intention, however unskillfully and unsuccessfully managed.” (Franklin Wilder, Immortal Mother, New York: Vantage Press, 1966, p. 43; italics added.)
+“The writing anything about my way of education I am much adverse to. It cannot, I think, be of service to anyone to know how I, who have lived such a retired life for so many years, used to employ my time and care in bringing up my own children. No one can, without renouncing the world, in the most literal sense, observe my methods; and there are few, if any, that would entirely *devote above twenty years of the prime of life in hopes to save souls of their children,* which they think may be saved without so much ado; for that was my principal intention, however unskillfully and unsuccessfully managed.” (Franklin Wilder, *Immortal Mother,* New York: Vantage Press, 1966, p. 43; italics added.)
 
 That mother was Susannah Wesley, and the son who wrote was John Wesley, one of the great reformers. Twenty years of the prime of life in the hopes of saving the souls of her children! Such a task required skill, competence, courage, intelligence, and ingenuity far above any career.
 
-Do you want a principle for successful motherhood? Make time to teach your children the gospel and principles of gospel living when they are young. It may be that you too will need to “renounce the world” and “devote above twenty years of the prime of life in hopes to save the souls of [your] children.”
+Do you want a principle for successful motherhood? *Make time* to teach your children the gospel and principles of gospel living when they are young. It may be that you too will need to “renounce the world” and “devote above twenty years of the prime of life in hopes to save the souls of \[your\] children.”
 
 No accomplishment transcends the building of the character of a son or a daughter of God.
 
@@ -131,7 +132,7 @@ Support, encourage, and strengthen your husband in his responsibility as patriar
 
 Home is love, understanding, trust, welcome, and a sense of belonging. If you, as wives, mothers, daughters, take proper care of yourselves, your families, and your homes, and keep close to each other as sisters in the Relief Society, many of the problems of the day troubling youth and parents will pass you by.
 
-President McKay said: “The home is the first and most effective place for children to learn the lessons of life: truth, honor, virtue, self-control; the value of education, honest work, and the purpose and privilege of life. Nothing can take the place of home in rearing and teaching children, and no other success can compensate for failure in the home.” (Family Home Evening Manual, 1968, p. iii.)
+President McKay said: “The home is the first and most effective place for children to learn the lessons of life: truth, honor, virtue, self-control; the value of education, honest work, and the purpose and privilege of life. Nothing can take the place of home in rearing and teaching children, and no other success can compensate for failure in the home.” (*Family Home Evening Manual,* 1968, p. iii.)
 
 Now can you see why Satan wants to destroy the home through having the mother leave the care of her children to others? And he is succeeding in too many homes.
 
@@ -139,19 +140,13 @@ Protect your family from this danger just as you would instinctively protect the
 
 With your companion, make it a family objective to all be together in the celestial kingdom. Strive to make your home a little bit of heaven on earth so that after this life is over, you may be able to say:
 
-We are all here!
-
-Father, mother, sister, brother,
-
-All who hold each other dear.
-
-Each chair is filled—
-
-We’re all at home. ...
-
-We’re all—all here.
-
-(Charles Sprague, The Writings of Charles Sprague, New York: Charles S. Francis, 1841, p. 73.)
+>We are all here!
+>Father, mother, sister, brother,
+>All who hold each other dear.
+>Each chair is filled—
+>We’re all at home. …
+>We’re all—all here.
+>
 
 I gratefully acknowledge the devotion, optimism, faith, and loyalty of my own eternal companion, Flora. She has been a constant source of insight and inspiration to the family. Her congeniality, fine sense of humor, and interest in my work have made her a pleasing companion, and her unbounded patience and intelligent insight made her a most devoted mother. Gladly losing herself in service to her husband and children, she has shown a courageous determination to magnify what she knows is the divine and glorious calling of being a worthy wife and mother.
 
@@ -160,4 +155,7 @@ As I look at you tonight, I feel to say, “What choice spirits you are to be re
 I testify to you, dear sisters, the truthfulness and eternal nature of your honored place as women.
 
 May God bless and crown each of you with joy and happiness in this life and throughout eternity. In the name of Jesus Christ, amen.
+
+
+
 

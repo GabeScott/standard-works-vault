@@ -1,5 +1,6 @@
 # Personal and Family Financial Preparedness
-*By Franklin D. Richards - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -7,13 +8,13 @@
 
 My dear brethren, I rejoice with you in the wonderful spirit of this priesthood meeting.
 
-I am grateful that my spirit was reserved to come to earth in the dispensation of the fulness of times, when the gospel of Jesus Christ has been restored, and when we have a prophet of God, our beloved President Spencer W. Kimball, to counsel us.
+I am grateful that my spirit was reserved to come to earth in the dispensation of the fulness of times, when the gospel of Jesus Christ has been restored, and when we have a prophet of God, our beloved President Spencer W. Kimball, to counsel us.
 
 Each of us is entitled to immortality through the atoning sacrifice of our Lord and Savior, Jesus Christ, but in order to enjoy eternal life, we must work out our own salvation day by day.
 
 What a marvelous philosophy—the gospel of work—eternal progression!
 
-President David O. McKay said, “Let us ... realize that the privilege to work is a gift, that [the] power to work is a blessing, that love [of] work is success” (True to the Faith, comp. Llewelyn R. McKay, Salt Lake City: Bookcraft, 1966, p. 287).
+President David O. McKay said, “Let us … realize that the *privilege* to work is a gift, that \[the\] *power* to work is a blessing, that *love* \[of\] work is success” (*True to the Faith,* comp. Llewelyn R. McKay, Salt Lake City: Bookcraft, 1966, p. 287).
 
 For the next few minutes I would like to direct my remarks particularly to my young friends of the Aaronic Priesthood. You may not realize it, but when you are young you set the patterns that follow you throughout your entire life. It is so important that you set good patterns when you are young.
 
@@ -37,61 +38,61 @@ In view of today’s moral and social conditions, as well as unstable economic c
 
 We must recognize that financial problems are the reason for much unhappiness and are certainly a major factor in family difficulties and divorce.
 
-The Lord has told us that if we are prepared, we shall not fear (see D&C 38:30). What a blessing it is to be free from financial fear.
+The Lord has told us that if we are prepared, we shall not fear (see [[D&C 38.30|D&C 38:30]]). What a blessing it is to be free from financial fear.
 
 I would like to suggest a three-point formula to attain and maintain financial preparedness:
 
-Pay your tithes and offerings.
+1. Pay your tithes and offerings.
 
-Get out of debt and stay out of debt.
+2. Get out of debt and stay out of debt.
 
-Use your surplus funds wisely.
+3. Use your surplus funds wisely.
 
 This formula is equally applicable to young and old. Let me discuss each of these three points briefly.
 
-First, pay your tithes and offerings. The Lord has said:
+*First, pay your tithes and offerings.* The Lord has said:
 
-“Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. ...
+“Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
 
-“Bring ye all the tithes into the storehouse, ... and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.” (Mal. 3:8–10.)
+“Bring ye all the tithes into the storehouse, … and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.” ([[Malachi 3.8|Mal. 3:8–10]][[Malachi 3.9|]][[Malachi 3.10|]].)
 
-In this dispensation, the Lord has revealed to us that this is “a day of sacrifice, and a day for the tithing of my people” (D&C 64:23).
+In this dispensation, the Lord has revealed to us that this is “a day of sacrifice, and a day for the tithing of my people” ([[D&C 64.23|D&C 64:23]]).
 
 Brethren, compliance with the law of tithing opens the windows of heaven, bringing material and spiritual blessings through sacrifice and obedience. It is truly the first step towards personal and family financial preparedness.
 
 As long as one is honest with the Lord, the amount of tithing paid is not material. The widow’s or child’s mite is as important and acceptable as the rich man’s offerings.
 
-When men, women, and children are honest with the Lord and pay their tithes and offerings, the Lord gives them wisdom whereby they can do as much or more with the remainder than they could if they had not been honest with the Lord. They are blessed and prospered in various ways—spiritually, physically, and mentally, as well as materially. I know this to be true, and I am sure that many of you can bear such a testimony. And always remember the words of the Lord Jesus: “It is more blessed to give than to receive” (Acts 20:35).
+When men, women, and children are honest with the Lord and pay their tithes and offerings, the Lord gives them wisdom whereby they can do as much or more with the remainder than they could if they had not been honest with the Lord. They are blessed and prospered in various ways—spiritually, physically, and mentally, as well as materially. I know this to be true, and I am sure that many of you can bear such a testimony. And always remember the words of the Lord Jesus: “It is more blessed to give than to receive” ([[Acts 20.35|Acts 20:35]]).
 
-Now, the second point of the formula—get out of debt and stay out of debt. In modern revelation, the Lord has given us these commandments: “Verily I say unto you, concerning your debts—behold it is my will that you shall pay all your debts” (D&C 104:78). And again: “Pay the debt thou hast contracted. ... Release thyself from bondage” (D&C 19:35).
+Now, the *second* point of the formula—*get out of debt and stay out of debt.* In modern revelation, the Lord has given us these commandments: “Verily I say unto you, concerning your debts—behold it is my will that you shall pay all your debts” ([[D&C 104.78|D&C 104:78]]). And again: “Pay the debt thou hast contracted. … Release thyself from bondage” ([[D&C 19.35|D&C 19:35]]).
 
-President Joseph F. Smith advised the Saints to “get out of debt and keep out of debt, and then you will be financially as well as spiritually free” (In Conference Report, Oct. 1903, p. 5).
+President Joseph F. Smith advised the Saints to “get out of debt and keep out of debt, and then you will be financially as well as spiritually free” (In Conference Report, Oct. 1903, p. 5).
 
 In getting out of debt and staying out of debt, there are certain basic principles that we, as individuals and families, can apply, such as:
 
-Live within your income.
+1. Live within your income.
 
-Prepare and use short- and long-term budgets.
+2. Prepare and use short- and long-term budgets.
 
-Regularly save a part of your income.
+3. Regularly save a part of your income.
 
-Use your credit wisely, if it is necessary to use it at all. For example, a reasonable debt may be justified for the acquisition of a home or education.
+4. Use your credit wisely, if it is necessary to use it at all. For example, a reasonable debt may be justified for the acquisition of a home or education.
 
-Preserve and utilize your assets through appropriate tax and estate planning.
+5. Preserve and utilize your assets through appropriate tax and estate planning.
 
 I know that by following these simple, basic principles it is possible to get out of debt and stay out of debt.
 
 What will this mean to us as individuals and families?
 
-President Heber J. Grant said, “If there is any one thing that will bring peace and contentment into the human heart, and into the family, it is to live within our means, and if there is any one thing that is grinding, and discouraging and disheartening it is to have debts and obligations that one cannot meet” (Relief Society Magazine, May 1932, p. 302). Brethren, I can personally bear witness that this is true.
+President Heber J. Grant said, “If there is any one thing that will bring peace and contentment into the human heart, and into the family, it is to live within our means, and if there is any one thing that is grinding, and discouraging and disheartening it is to have debts and obligations that one cannot meet” (*Relief Society Magazine,* May 1932, p. 302). Brethren, I can personally bear witness that this is true.
 
-The third point of the formula is to use your surplus funds wisely. In many respects, the real test of a man is his attitude towards his earthly possessions. A person who places earthly possessions in the scales against the things of God evidences little understanding of eternal values.
+The *third* point of the formula is to *use your surplus funds wisely.* In many respects, the real test of a man is his attitude towards his earthly possessions. A person who places earthly possessions in the scales against the things of God evidences little understanding of eternal values.
 
 President Brigham Young had this to say about this matter:
 
-“When this people are prepared to properly use the riches of this world for the building up of the kingdom of God, He is ready and willing to bestow them upon us. ...
+“When this people are prepared to properly use the riches of this world for the building up of the kingdom of God, He is ready and willing to bestow them upon us. …
 
-“I like to see men get rich by their industry, prudence, management and economy, and then devote it to the building up of the kingdom of God upon the earth” (Journal of Discourses, 11:114–15).
+“I like to see men get rich by their industry, prudence, management and economy, and then devote it to the building up of the kingdom of God upon the earth” (*Journal of Discourses,* 11:114–15).
 
 I personally feel very strongly that in furtherance of these teachings every man who has property and means should so live as to obtain wisdom to know how to use them in the best possible way to promote the welfare of his family and his fellowmen and in building the kingdom of God.
 
@@ -101,5 +102,8 @@ Yes, financial strength is realized by keeping God’s commandments, by the paym
 
 May each of us this night commit ourselves to incorporate these great principles into our lives.
 
-Brethren, how glorious it is to know that God lives and that Jesus is the Christ, our Savior and Redeemer, and also to know that the gospel in its fulness has been restored, together with the power to act in the name of God, through the instrumentality of the Prophet Joseph Smith, and that there is a living prophet at the head of the Church today, our beloved President Spencer W. Kimball. I pray that we may have the good judgment to follow his counsel. In the name of Jesus Christ, amen.
+Brethren, how glorious it is to know that God lives and that Jesus is the Christ, our Savior and Redeemer, and also to know that the gospel in its fulness has been restored, together with the power to act in the name of God, through the instrumentality of the Prophet Joseph Smith, and that there is a living prophet at the head of the Church today, our beloved President Spencer W. Kimball. I pray that we may have the good judgment to follow his counsel. In the name of Jesus Christ, amen.
+
+
+
 

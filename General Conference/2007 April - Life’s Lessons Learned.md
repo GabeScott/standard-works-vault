@@ -1,7 +1,10 @@
 # Life’s Lessons Learned
-*By Joseph B. Wirthlin - Of the Quorum of the Twelve Apostles*
+
+By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
+
+>*I urge you to examine your life. Determine where you are and what you need to do to be the kind of person you want to be.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2007/04/lifes-lessons-learned?lang=eng)
 
@@ -19,7 +22,7 @@ Lucky for me, I was fast. And for the better part of the first half, I managed t
 
 Except for one play.
 
-Our quarterback dropped back to pass. I was open. He threw the ball, and it sailed towards me.
+Our quarterback dropped back to pass. I was open. He threw the ball, and it sailed toward me.
 
 The only problem was that I could hear a lumbering gallop behind me. In a moment of clarity, I thought that if I caught the ball there was a distinct possibility I could be eating my meals through a tube. But the ball was heading for me, and my team was depending on me. So I reached out, and—at the last instant—I looked up.
 
@@ -29,7 +32,7 @@ I remember the ball hitting my hands. I remember struggling to hang on to it. I 
 
 William McKinley Oswald was my high school football coach. He was a great coach and had a profound influence on my life. But I think he could have learned his method of motivating players from an army drill sergeant.
 
-That day, during his half-time speech, Coach Oswald reminded the whole team about the pass I had dropped. Then he pointed right at me and said, “How could you do that?”
+That day, during his halftime speech, Coach Oswald reminded the whole team about the pass I had dropped. Then he pointed right at me and said, “How could you do that?”
 
 He wasn’t speaking with his inside voice.
 
@@ -43,9 +46,9 @@ I respected Coach Oswald, and in spite of how terrible I felt, I made up my mind
 
 We headed back onto the field and started the second half. It was a close game, and even though my team had played well, we were behind by four points late in the fourth quarter.
 
-The quarterback called my number on the next play. I went out again, and again I was open. The ball headed towards me. But this time, the giant was in front of me and in perfect position to intercept the pass.
+The quarterback called my number on the next play. I went out again, and again I was open. The ball headed toward me. But this time, the giant was in front of me and in perfect position to intercept the pass.
 
-He reached up, but the ball sailed through his hands. I jumped high, never taking my eye off the ball; stabbed at it; and pulled it down for the game-winning touchdown.
+He reached up, but the ball sailed through his hands. I jumped high, never taking my eye off the ball, stabbed at it, and pulled it down for the game-winning touchdown.
 
 I don’t remember much about the celebration after, but I do remember the look on Coach Oswald’s face.
 
@@ -53,11 +56,11 @@ I don’t remember much about the celebration after, but I do remember the look 
 
 I think I smiled for a week.
 
-I have known many great men and women. Although they have different backgrounds, talents, and perspectives, they all have this in common: they work diligently and persistently towards achieving their goals. It’s easy to get distracted and lose focus on the things that are most important in life. I’ve tried to remember the lessons I learned from Coach Oswald and prioritize values that are important to me so that I can keep my eye focused on things that really matter.
+I have known many great men and women. Although they have different backgrounds, talents, and perspectives, they all have this in common: they work diligently and persistently toward achieving their goals. It’s easy to get distracted and lose focus on the things that are most important in life. I’ve tried to remember the lessons I learned from Coach Oswald and prioritize values that are important to me so that I can keep my eye focused on things that really matter.
 
-I urge you to examine your life. Determine where you are and what you need to do to be the kind of person you want to be. Create inspiring, noble, and righteous goals that fire your imagination and create excitement in your heart. And then keep your eye on them. Work consistently towards achieving them.
+I urge you to examine your life. Determine where you are and what you need to do to be the kind of person you want to be. Create inspiring, noble, and righteous goals that fire your imagination and create excitement in your heart. And then keep your eye on them. Work consistently toward achieving them.
 
-“If one advances confidently in the direction of his dreams,” wrote Henry David Thoreau, “and endeavors to live the life which he has imagined, he will meet with a success unexpected in common hours.”1
+“If one advances confidently in the direction of his dreams,” wrote Henry David Thoreau, “and endeavors to live the life which he has imagined, he will meet with a success unexpected in common hours.”[^1]
 
 In other words, never take your eye off the ball.
 
@@ -85,7 +88,7 @@ It wasn’t merely a slogan. When widows needed assistance, Bishop Perschon and 
 
 Later, William Perschon served in the stake presidency, where he influenced a young bishop by the name of Thomas S. Monson. In the 1950s, Bishop Perschon was called to preside over the Swiss-Austrian Mission and played an instrumental role in building the first “overseas” temple, located in Bern, Switzerland.
 
-You could scarcely think of Bishop Perschon without thinking of his concern and compassion for others and his untiring commitment to teach that same quality to others. Of the young men in the Aaronic Priesthood over whom he presided as bishop, 29 went on to become bishops themselves. Ten served in stake presidencies. Five became mission presidents, three accepted calls as temple presidents, and two served as General Authorities.2
+You could scarcely think of Bishop Perschon without thinking of his concern and compassion for others and his untiring commitment to teach that same quality to others. Of the young men in the Aaronic Priesthood over whom he presided as bishop, 29 went on to become bishops themselves. Ten served in stake presidencies. Five became mission presidents, three accepted calls as temple presidents, and two served as General Authorities.[^2]
 
 That is the power of a great leader, brethren. That is the power of service.
 
@@ -93,13 +96,13 @@ Although I didn’t fully understand it at the time, it is clear to me now that 
 
 We all possess spiritual gifts. Some are blessed with the gift of faith, others the gift of healing. In the body of the Church, all of the spiritual gifts are present. In my case, perhaps one of the spiritual gifts for which I am most grateful is that I have been blessed with an obedient spirit. When I heard wise counsel from my parents or Church leaders, I listened and tried to make it part of my thoughts and actions.
 
-Brethren of the priesthood, I urge you to cultivate the gift of an obedient spirit. The Savior taught that “whosoever heareth these sayings of mine, and doeth them, I will liken him unto a wise man. ... And every one that heareth these sayings of mine, and doeth them not, shall be likened unto a foolish man.”3
+Brethren of the priesthood, I urge you to cultivate the gift of an obedient spirit. The Savior taught that “whosoever heareth these sayings of mine, and doeth them, I will liken him unto a wise man. … And every one that heareth these sayings of mine, and doeth them not, shall be likened unto a foolish man.”[^3]
 
 How do we know if we are wise or foolish? When we hear inspired counsel, we obey. That is the test of wise or foolish.
 
 What does it profit us if we listen to wise counsel and do not heed the words? Of what use is experience if we do not learn from it? What good are the scriptures if we do not cherish the words and incorporate them into our lives?
 
-President Gordon B. Hinckley has promised that “[Heavenly Father] will shower down blessings upon those who walk in obedience to His commandments.”4
+President Gordon B. Hinckley has promised that “\[Heavenly Father\] will shower down blessings upon those who walk in obedience to His commandments.”[^4]
 
 I add my voice to his.
 
@@ -108,4 +111,15 @@ I testify that Jesus is the Christ, the Savior of all mankind. I testify that Go
 I give thanks to my Creator for this wonderful life where each of us has the opportunity to learn lessons we could not fully comprehend by any other means.
 
 My dear brethren, may we set righteous goals and work to achieve them, do what is right, and reach out in love to those around us. This is my prayer and testimony, in the name of Jesus Christ, amen.
+
+
+
+
+[^1]: *Walden* (1965), 240.
+
+[^2]: Letter from Elder Glen L. Rudd to President Thomas S. Monson, Feb. 5, 1987.
+
+[^3]: [[Matthew 7.24|Matthew 7:24, 26]][[Matthew 7.26|]].
+
+[^4]: In Conference Report, Apr. 1995, 95; or *Ensign,* May 1995, 71.
 

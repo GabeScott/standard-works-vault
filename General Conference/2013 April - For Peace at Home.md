@@ -1,7 +1,10 @@
 # For Peace at Home
-*By Richard G. Scott - Of the Quorum of the Twelve Apostles*
+
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
+
+>*One of the greatest blessings we can offer to the world is the power of a Christ-centered home where the gospel is taught, covenants are kept, and love abounds.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/04/for-peace-at-home?lang=eng)
 
@@ -56,4 +59,7 @@ When you feel that there is only a thin thread of hope, it is really not a threa
 We need not worry if we can’t simultaneously do all of the things that the Lord has counseled us to do. He has spoken of a time and a season for all things. In response to our sincere prayers for guidance, He will direct us in what should be emphasized at each phase of our life. We can learn, grow, and become like Him one consistent step at a time.
 
 I bear testimony that living an obedient life, firmly rooted in the gospel of Jesus Christ, provides the greatest assurance for peace and refuge in our homes. There will still be plenty of challenges or heartaches, but even in the midst of turmoil, we can enjoy inner peace and profound happiness. I testify that the Atonement of Jesus Christ is the source of that abundant peace, in the name of Jesus Christ, amen.
+
+
+
 

@@ -1,5 +1,6 @@
 # The Women of God
-*By Neal A. Maxwell - Of the Presidency of the First Quorum of the Seventy*
+
+By Elder Neal A. Maxwell - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -15,9 +16,9 @@ When we would measure loving loyalty in a human relationship, do we not speak of
 
 A widow with her mite taught us how to tithe. An impoverished and starving widow with her hungry son taught us how to share, as she gave her meal and oil to Elijah. The divine maternal instincts of an Egyptian woman retrieved Moses from the bullrushes, thereby shaping history and demonstrating how a baby is a blessing—not a burden.
 
-What greater conversation of anticipation has there been than that of Elisabeth and Mary when also the babe in Elisabeth leaped in recognition of Mary? (Luke 1:41).
+What greater conversation of anticipation has there been than that of Elisabeth and Mary when also the babe in Elisabeth leaped in recognition of Mary? ([[Luke 1.41|Luke 1:41]]).
 
-Does it not tell us much about the intrinsic intelligence of women to read of the crucifixion scene at Calvary, “And many women were there beholding afar off.” (Matt. 27:55.) Their presence was a prayer; their lingering was like a litany.
+Does it not tell us much about the intrinsic intelligence of women to read of the crucifixion scene at Calvary, “And many women were there beholding afar off.” ([[Matthew 27.55|Matt. 27:55]].) Their presence was a prayer; their lingering was like a litany.
 
 And who came first to the empty tomb of the risen Christ? Two women.
 
@@ -27,7 +28,7 @@ The charity of good women is such that their “love makes no parade”; they ar
 
 In our modern kingdom, it is no accident that women were, through the Relief Society, assigned compassionate service. So often the service of women seems instinctive, while that of some men seems more labored. It is precisely because the daughters of Zion are so uncommon that the adversary will not leave them alone.
 
-We salute you, sisters, for the joy that is yours as you rejoice in a baby’s first smile and as you listen with eager ear to a child’s first day at school which bespeaks a special selflessness. Women, more quickly than others, will understand the possible dangers when the word self is militantly placed before other words like fulfillment. You rock a sobbing child without wondering if today’s world is passing you by, because you know you hold tomorrow tightly in your arms.
+We salute you, sisters, for the joy that is yours as you rejoice in a baby’s first smile and as you listen with eager ear to a child’s first day at school which bespeaks a special selflessness. Women, more quickly than others, will understand the possible dangers when the word *self* is militantly placed before other words like *fulfillment.* You rock a sobbing child without wondering if today’s world is passing you by, because you know you hold tomorrow tightly in your arms.
 
 So often our sisters comfort others when their own needs are greater than those being comforted. That quality is like the generosity of Jesus on the cross. Empathy during agony is a portion of divinity!
 
@@ -50,4 +51,7 @@ Notice, brethren, how all the prophets treat their wives and honor women, and le
 Finally, remember: When we return to our real home, it will be with the “mutual approbation” of those who reign in the “royal courts on high.” There we will find beauty such as mortal “eye hath not seen”; we will hear sounds of surpassing music which mortal “ear hath not heard.” Could such a regal homecoming be possible without the anticipatory arrangements of a Heavenly Mother?
 
 Meanwhile, there are no separate paths back to that heavenly home. Just one straight and narrow way, at the end of which, though we arrive trailing tears, we shall at once be “drenched in joy.” I so testify in the name of Jesus Christ. Amen.
+
+
+
 

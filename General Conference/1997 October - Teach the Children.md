@@ -1,7 +1,10 @@
 # Teach the Children
-*By Thomas S. Monson - First Counselor in the First Presidency*
+
+By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1997 General Conference*
+
+>*Children learn through gentle direction and persuasive teaching. They search for models to imitate, knowledge to acquire, things to do, and teachers to please.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1997/10/teach-the-children?lang=eng)
 
@@ -9,45 +12,45 @@ In Salt Lake City, a touch of autumn is in the air. Daylight hours grow fewer an
 
 Inevitably, the spirit of Christmas inspires kind deeds, touches human hearts, and prompts one’s mind to reach back to that humble stable in faraway Bethlehem, to a time when the prophecies of the prophets, both in that area and here on the American continent, became a living reality. Christ the Lord was born.
 
-Precious little is written concerning the childhood of Jesus. One might suppose that His birth was so revolutionary in its magnitude as to dominate accounts of His boyhood. We marvel at the mature wisdom of the boy who, leaving Joseph and Mary, was found in the temple, “sitting in the midst of the doctors,”1 teaching them the gospel. When Mary and Joseph expressed their concern about His absence, He asked of them the penetrating question: “Wist ye not that I must be about my Father’s business?”2
+Precious little is written concerning the childhood of Jesus. One might suppose that His birth was so revolutionary in its magnitude as to dominate accounts of His boyhood. We marvel at the mature wisdom of the boy who, leaving Joseph and Mary, was found in the temple, “sitting in the midst of the doctors,”[^1] teaching them the gospel. When Mary and Joseph expressed their concern about His absence, He asked of them the penetrating question: “Wist ye not that I must be about my Father’s business?”[^2]
 
-The sacred record declares of Him: “Jesus increased in wisdom and stature, and in favour with God and man.”3 An obscure passage describes the transition from child to man: He “went about doing good.”4
+The sacred record declares of Him: “Jesus increased in wisdom and stature, and in favour with God and man.”[^3] An obscure passage describes the transition from child to man: He “went about doing good.”[^4]
 
 Because of Jesus Christ the world has changed—the divine Atonement has been made, the price of sin has been paid, and the fearful spectacle of death yields to the light of truth and the assurance of resurrection. Though the years roll by, His birth, His ministry, His legacy continue to guide the destiny of all who follow Him as He so invitingly urged.
 
 Children are born each day—even each hour—to mothers who have, with their hand in God’s hand, entered the valley of the shadow of death, that they might bring forth a son, a daughter, to grace a family, a home, and in a way a portion of the earth.
 
-Those precious days of infancy bond mother and father to son or daughter. Every smile is noted, every fear comforted, every hunger abated. Step by step the child grows. The poet wrote that each child is “a sweet new blossom of Humanity, / Fresh fallen from God’s own home to flower on earth.”5
+Those precious days of infancy bond mother and father to son or daughter. Every smile is noted, every fear comforted, every hunger abated. Step by step the child grows. The poet wrote that each child is “a sweet new blossom of Humanity, / Fresh fallen from God’s own home to flower on earth.”[^5]
 
 The child grows in wisdom and also in stature. Learning and doing become priorities to be addressed.
 
-There are those who dismiss these responsibilities, feeling they can be deferred until the child grows up. Not so, the evidence reveals. Prime time for teaching is fleeting. Opportunities are perishable. The parent who procrastinates the pursuit of his responsibility as a teacher may, in years to come, gain bitter insight into Whittier’s expression: “Of all sad words of tongue or pen, / The saddest are these: ‘It might have been!’ ”6
+There are those who dismiss these responsibilities, feeling they can be deferred until the child grows up. Not so, the evidence reveals. Prime time for teaching is fleeting. Opportunities are perishable. The parent who procrastinates the pursuit of his responsibility as a teacher may, in years to come, gain bitter insight into Whittier’s expression: “Of all sad words of tongue or pen, / The saddest are these: *‘It might have been!’* ”[^6]
 
-Dr. Glenn Doman, a prominent author and renowned scientist, reported a lifetime of research in the statement: “The newborn child is almost an exact duplicate of an empty computer, although superior to such a computer in almost every way. ... What is placed in the child’s brain during the first eight years of his life is probably there to stay. If you put misinformation into his brain during this period, it is extremely difficult to erase it.”7
+Dr. Glenn Doman, a prominent author and renowned scientist, reported a lifetime of research in the statement: “The newborn child is almost an exact duplicate of an empty … computer, although superior to such a computer in almost every way. … What is placed in the child’s brain during the first eight years of his life is probably there to stay."[^7] “If you put misinformation into his brain during \[this period\], it is extremely difficult to erase it.”[^8]
 
 This evidence should provoke a renewal of commitment in every parent: “I must be about my Father’s business.” Children learn through gentle direction and persuasive teaching. They search for models to imitate, knowledge to acquire, things to do, and teachers to please.
 
 Parents and grandparents fill the role of teacher. So do siblings of the growing child. In this regard, I offer four simple suggestions for your consideration:
 
-Teach prayer,
+1. Teach prayer,
 
-Inspire faith,
+2. Inspire faith,
 
-Live truth, and
+3. Live truth, and
 
-Honor God.
+4. Honor God.
 
-First, teach prayer. “Prayer is the simplest form of speech / That infant lips can try; / Prayer, the sublimest strains that reach / The Majesty on high.”8
+First, *teach prayer.* “Prayer is the simplest form of speech / That infant lips can try; / Prayer, the sublimest strains that reach / The Majesty on high.”[^9]
 
 We learn to pray by praying. One can devote countless hours to examining the experiences of others, but nothing penetrates the human heart as does a personal, fervent prayer and its heaven-sent response.
 
 Such was the example of the boy Samuel. Such was the experience of young Nephi. Such was the far-reaching prayer of the youth Joseph Smith. Such can be the blessing of one who prays. Teach prayer.
 
-Next, inspire faith. This sesquicentennial year of the epic pioneer trek to the valley of the Great Salt Lake has inspired more music, more drama, more involvement by youth and adults than perhaps any other occasion in our history. We as families have learned more of Church history, the glory and the suffering, the hardship and sorrow—then victory upon arrival in the valley—than can be estimated. Some years ago, Bryant S. Hinckley, the father of our President, prepared a book entitled The Faith of Our Pioneer Fathers. Accounts which the volume contains are so well written and set forth. This past year they were retold by the score. Countless members looked back on their own pioneer heritage. Hundreds of youth—even thousands throughout the world—pulled and pushed handcarts and walked their own pioneer trail.
+Next, *inspire faith.* This sesquicentennial year of the epic pioneer trek to the valley of the Great Salt Lake has inspired more music, more drama, more involvement by youth and adults than perhaps any other occasion in our history. We as families have learned more of Church history—the glory and the suffering, the hardship and sorrow, then victory upon arrival in the valley—than can be estimated. Some years ago, Bryant S. Hinckley, the father of our President, prepared a book entitled *The Faith of Our Pioneer Fathers.* Accounts which the volume contains are so well written and set forth. This past year they were retold by the score. Countless members looked back on their own pioneer heritage. Hundreds of youth—even thousands throughout the world—pulled and pushed handcarts and walked their own pioneer trail.
 
 I think that there isn’t a member of this Church today who has not been touched by the year now drawing to its close. Those who did so much for the good of all surely had as their objective to inspire faith. They met the goal in a magnificent manner.
 
-Third, live truth. At times the most effective lesson in living truth is found close to the home and dear to the heart.
+Third, *live truth.* At times the most effective lesson in living truth is found close to the home and dear to the heart.
 
 At the funeral service of a noble General Authority, H. Verlan Andersen, a tribute was expressed by a son. It has application wherever we are and whatever we are doing. It is the example of personal experience.
 
@@ -61,7 +64,7 @@ As the funeral message continued, Elder Andersen’s son declared, “I saw my f
 
 In concluding his funeral message, Elder Andersen’s son said, “No son ever was taught more effectively by his father than I was on that occasion. My father not only knew the truth, but he also lived it.” Live truth.
 
-Finally, honor God. No one can surpass the Lord Jesus Christ in setting an example of living this goal. The fervency of His prayer at Gethsemane says it all: “Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done.”9 His example on the cruel cross of Golgotha speaks volumes: “Father, forgive them; for they know not what they do.”10
+Finally, *honor God.* No one can surpass the Lord Jesus Christ in setting an example of living this goal. The fervency of His prayer at Gethsemane says it all: “Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done.”[^10] His example on the cruel cross of Golgotha speaks volumes: “Father, forgive them; for they know not what they do.”[^11]
 
 The Master taught so everlastingly to all who would listen a simple yet profound truth as recorded in Matthew. We learn that after Jesus and His disciples descended from the Mount of Transfiguration, they paused at Galilee and then went to Capernaum. The disciples said unto Jesus, “Who is the greatest in the kingdom of heaven?
 
@@ -71,13 +74,13 @@ The Master taught so everlastingly to all who would listen a simple yet profound
 
 “Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven.
 
-“And whoso shall receive one such little child in my name receiveth me.”11
+“And whoso shall receive one such little child in my name receiveth me.”[^12]
 
 I think it significant that Jesus so loved these little ones who recently had left the preexistence to come to earth. Children then and children now bless our lives, kindle our love, and prompt good deeds.
 
-Is it any wonder that the poet Wordsworth speaks thus of our birth: “trailing clouds of glory do we come / From God, who is our home: / Heaven lies about us in our infancy!”12
+Is it any wonder that the poet Wordsworth speaks thus of our birth: “Trailing clouds of glory do we come / From God, who is our home: / Heaven lies about us in our infancy!”[^13]
 
-It is in the home that we form our attitudes, our deeply held beliefs. It is in the home that hope is fostered or destroyed. Wrote Dr. Stuart E. Rosenberg in his book The Road to Confidence: “Despite all new inventions and modern designs, fads and fetishes, no one has yet invented, or will ever invent, a satisfying substitute for one’s own family.”13
+It is in the home that we form our attitudes, our deeply held beliefs. It is in the home that hope is fostered or destroyed. Wrote Dr. Stuart E. Rosenberg in his book *The Road to Confidence:* “Despite all new inventions and modern designs, fads and fetishes, no one has yet invented, or will ever invent, a satisfying substitute for one’s own family.”[^14]
 
 We ourselves can learn from our children and grandchildren. They have no fear. They have no doubt concerning our Heavenly Father’s love for them. They love Jesus and want to be like Him.
 
@@ -91,11 +94,11 @@ This same namesake of Elder Holland’s, along with his girlfriend, went for a w
 
 “We will,” came the reply.
 
-The parents of the two youngsters heard of the incident. I am certain they were restrained in counseling the little ones. Perhaps they remembered the words from the scriptures: “And a little child shall lead them.”14
+The parents of the two youngsters heard of the incident. I am certain they were restrained in counseling the little ones. Perhaps they remembered the words from the scriptures: “And a little child shall lead them.”[^15]
 
-The sound of laughing children, joyfully playing together, can give the impression that childhood is free from trouble and sorrow. Not so. Children’s hearts are tender. They long for the companionship of other children. In the famous Victoria and Albert Museum in London hangs a masterpiece on canvas. Its title is simply Sickness and Health. Depicted is a small girl in a wheelchair. Her face is pale; her countenance reflects sadness. She watches an organ-grinder perform while two little girls, carefree and happy, frolic and dance.
+The sound of laughing children, joyfully playing together, can give the impression that childhood is free from trouble and sorrow. Not so. Children’s hearts are tender. They long for the companionship of other children. In the famous Victoria and Albert Museum in London hangs a masterpiece on canvas. Its title is simply *Sickness and Health.* Depicted is a small girl in a wheelchair. Her face is pale; her countenance reflects sadness. She watches an organ-grinder perform while two little girls, carefree and happy, frolic and dance.
 
-Sadness and sorrow at times come to all, including children. But children are resilient. They bear up beautifully to shoulder the burden they may be called upon to endure. Perhaps the lovely psalm describes this virtue: “Weeping may endure for a night, but joy cometh in the morning.”15
+Sadness and sorrow at times come to all, including children. But children are resilient. They bear up beautifully to shoulder the burden they may be called upon to endure. Perhaps the lovely psalm describes this virtue: “Weeping may endure for a night, but joy cometh in the morning.”[^16]
 
 May I now paint a picture of such a situation. In faraway Bucharest, Romania, Dr. Lynn Oborn, volunteering at an orphanage, was attempting to teach little Raymond, who had never walked, how to use his legs. Raymond had been born with severe clubfeet and was completely blind. Recent orthopedic surgery performed by Dr. Oborn had corrected the clubfeet, but Raymond was still unable to use his legs. Dr. Oborn knew that a child-size walker would enable Raymond to get on his feet, but such a walker was not available anywhere in Romania. I’m sure fervent prayers were offered by this doctor who had done all he could without a walking aid for the boy. Blindness can hamper a child, but inability to walk, to run, to play can injure his precious spirit.
 
@@ -117,9 +120,46 @@ I spoke to Kristin as she sat in her wheelchair. “Thank you for listening to t
 
 Later, as I walked out of that celebration held for the benefit of children, I looked upward toward the heavens and offered my own “Thank you” to God for children, for families, for miracles in our time.
 
-Let us earnestly follow His direction: “Suffer the little children to come unto me, and forbid them not: for of such is the kingdom of God.”16
+Let us earnestly follow His direction: “Suffer the little children to come unto me, and forbid them not: for of such is the kingdom of God.”[^17]
 
-A popular song includes the words, “There are angels among us.” These angels are quite frequently the precious little ones God, our Father, has entrusted to our earthly care. To them may we teach prayer, inspire faith, live truth, and honor God. Then we shall have heavenly homes and forever families. For what higher gift could we wish? For what greater blessing could we pray? None!
+A popular song includes the words, “There are angels among us.” These angels are quite frequently the precious little ones God, our Father, has entrusted to our earthly care. To them may we *teach prayer, inspire faith, live truth,* and *honor God.* Then we shall have heavenly homes and forever families. For what higher gift could we wish? For what greater blessing could we pray? None!
 
 In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: [[Luke 2.46|Luke 2:46]].
+
+[^2]: [[Luke 2.49|Luke 2:49]]; see also [[Luke 2.46|2:46–49]][[Luke 2.47|]][[Luke 2.48|]][[Luke 2.49|]].
+
+[^3]: [[Luke 2.52|Luke 2:52]].
+
+[^4]: [[Acts 10.38|Acts 10:38]].
+
+[^5]: Gerald Massey, “Wooed and Won,” in Burton Stevenson, sel., *The Home Book of Quotations* (1934), 121.
+
+[^6]: John Greenleaf Whittier, “Maud Muller,” *The Complete Poetical Works of Whittier* (1892), 48; emphasis added.
+
+[^7]: Glenn Doman, *How to Teach Your Baby to Read* (1979), 43, 45.
+
+[^8]: Doman, *How to Teach Your Baby,* 44.
+
+[^9]: “Prayer Is the Soul’s Sincere Desire,” *Hymns,* no. 145.
+
+[^10]: [[Luke 22.42|Luke 22:42]].
+
+[^11]: [[Luke 23.34|Luke 23:34]].
+
+[^12]: [[Matthew 18.1|Matt. 18:1–5]][[Matthew 18.2|]][[Matthew 18.3|]][[Matthew 18.4|]][[Matthew 18.5|]].
+
+[^13]: William Wordsworth, “Ode: Intimations of Immortality from Recollections of Early Childhood,” stanza 5, lines 1–9.
+
+[^14]: *The Road to Confidence* (1959), 121.
+
+[^15]: [[Isaiah 11.6|Isa. 11:6]].
+
+[^16]: [[Psalms 30.5|Ps. 30:5]].
+
+[^17]: [[Mark 10.14|Mark 10:14]].
 

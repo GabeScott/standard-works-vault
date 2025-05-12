@@ -1,7 +1,10 @@
 # A Pattern for Peace
-*By By Bishop W. Christopher Waddell - Second Counselor in the Presiding Bishopric*
+
+By Bishop W. Christopher Waddell - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2016 General Conference*
+
+>*The peace we all seek requires us to act—by learning of Jesus Christ, by listening to His words, and by walking with Him.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/04/a-pattern-for-peace?lang=eng)
 
@@ -9,21 +12,23 @@ A few years ago, our daughter and son-in-law were asked to team teach a Primary 
 
 During one especially rough class, after a number of warnings to an energetic little boy, our son-in-law escorted the four-year-old out of the classroom. Once outside the room, and about to talk to the little boy about his behavior and the need to find his parents, the little boy stopped our son-in-law before he could say a word and, with his hand up in the air, and with great emotion, blurted out, “Sometimes—sometimes—it’s just hard for me to think about Jesus!”
 
-In our journey through mortality, as glorious as our intended destination may be and as exhilarating as the journey may prove, we will all be subject to trials and sorrow along the way. Elder Joseph B. Wirthlin taught: “The dial on the wheel of sorrow eventually points to each of us. At one time or another, everyone must experience sorrow. No one is exempt.” “The Lord in His wisdom does not shield anyone from grief or sadness.” However, our ability to travel this road in peace is, in large part, dependent on whether or not we too have a hard time thinking about Jesus.
+In our journey through mortality, as glorious as our intended destination may be and as exhilarating as the journey may prove, we will all be subject to trials and sorrow along the way. Elder Joseph B. Wirthlin taught: “The dial on the wheel of sorrow eventually points to each of us. At one time or another, everyone must experience sorrow. No one is exempt.”[^1] “The Lord in His wisdom does not shield anyone from grief or sadness.”[^2] However, our ability to travel this road in peace is, in large part, dependent on whether or not we too have a hard time thinking about Jesus.
 
 Peace of mind, peace of conscience, and peace of heart are not determined by our ability to avoid trials, sorrow, or heartache. Despite our sincere pleas, not every storm will change course, not every infirmity will be healed, and we may not fully understand every doctrine, principle, or practice taught by prophets, seers, and revelators. Nevertheless, we have been promised peace—with a condition attached.
 
-In the Gospel of John, the Savior taught that despite the tribulations of life, we can be of good cheer, we can be of good hope, and we need not fear, because He declared, “In me ye might have peace.” Faith in Jesus Christ and His atoning sacrifice is, and forever will be, the first principle of the gospel and the foundation upon which our hope for “peace in this world, and eternal life in the world to come” is built.
+In the Gospel of John, the Savior taught that despite the tribulations of life, we can be of good cheer, we can be of good hope, and we need not fear, because He declared, “*In me* ye might have peace.”[^3] Faith in Jesus Christ and His atoning sacrifice is, and forever will be, the first principle of the gospel and the foundation upon which our hope for “peace in this world, and eternal life in the world to come” is built.[^4]
 
-In our search for peace amidst the daily challenges of life, we’ve been given a simple pattern to keep our thoughts focused on the Savior, who said: “Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me. I am Jesus Christ.”
+In our search for peace amidst the daily challenges of life, we’ve been given a simple pattern to keep our thoughts focused on the Savior, who said: “Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me. I am Jesus Christ.”[^5]
 
 Learn, listen, and walk—three steps with a promise.
 
-In Isaiah we read, “And many people shall go and say, Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob; and he will teach us of his ways.”
+## First Step: “Learn of Me”
+
+In Isaiah we read, “And many people shall go and say, Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob; and he will teach us of his ways.”[^6]
 
 In the ever-increasing number of temples dotting the earth, we learn of Jesus Christ and His role in the Father’s plan as the Creator of this world, as our Savior and Redeemer, and as the source of our peace.
 
-President Thomas S. Monson has taught: “The world can be a challenging and difficult place in which to live. ... As you and I go to the holy houses of God, as we remember the covenants we make within, we will be more able to bear every trial and to overcome each temptation. In this sacred sanctuary we will find peace.”
+President Thomas S. Monson has taught: “The world can be a challenging and difficult place in which to live. … As you and I go to the holy houses of God, as we remember the covenants we make within, we will be more able to bear every trial and to overcome each temptation. In this sacred sanctuary we will find peace.”[^7]
 
 During a stake conference assignment a few years ago while serving in South America, I met a couple that was grieving the recent death of their infant son.
 
@@ -37,53 +42,96 @@ Sunday afternoon, following the conference, I met with Sister Tumiri and explain
 
 Sister Tumiri, though heartbroken by the death of her son, left our meeting with tears of gratitude and filled with peace because of the sacred ordinances of the temple, made possible by our Savior and Redeemer.
 
-Each time we attend the temple—in all that we hear, do, and say; in every ordinance in which we participate; and in every covenant that we make—we are pointed to Jesus Christ. We feel peace as we hear His words and learn from His example. President Gordon B. Hinckley taught, “Go to the house of the Lord and there feel of His Spirit and commune with Him and you will know a peace that you will find nowhere else.”
+Each time we attend the temple—in all that we hear, do, and say; in every ordinance in which we participate; and in every covenant that we make—we are pointed to Jesus Christ. We feel peace as we hear His words and learn from His example. President Gordon B. Hinckley taught, “Go to the house of the Lord and there feel of His Spirit and commune with Him and you will know a peace that you will find nowhere else.”[^8]
 
-In the Doctrine and Covenants we read, “Whether by mine own voice or by the voice of my servants, it is the same.” From the days of Adam and down through the ages to our current prophet, Thomas Spencer Monson, the Lord has spoken through His authorized representatives. Those who choose to listen and give heed to the words of the Lord, as delivered through His prophets, will find safety and peace.
+## Second Step: “Listen to My Words”
 
-In the Book of Mormon we find many examples of the importance of following prophetic counsel and standing with the prophet, including a lesson learned from Lehi’s vision of the tree of life, found in 1 Nephi chapter 8. Never has the great and spacious building been more crowded or the noise coming from its open windows more misguided, mocking, and confusing than in our day. In this passage we read of two groups of people and their responses to the shouts from the building.
+In the Doctrine and Covenants we read, “Whether by mine own voice or by the voice of my servants, it is the same.”[^9] From the days of Adam and down through the ages to our current prophet, Thomas Spencer Monson, the Lord has spoken through His authorized representatives. Those who choose to listen and give heed to the words of the Lord, as delivered through His prophets, will find safety and peace.
 
-Beginning in verse 26, we read:
+In the Book of Mormon we find many examples of the importance of following prophetic counsel and standing with the prophet, including a lesson learned from Lehi’s vision of the tree of life, found in [[1 Nephi 8.1|1 Nephi chapter 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]]. Never has the great and spacious building been more crowded or the noise coming from its open windows more misguided, mocking, and confusing than in our day. In this passage we read of two groups of people and their responses to the shouts from the building.
 
-“And I also cast my eyes round about, and beheld, on the other side of the river of water, a great and spacious building. ...
+Beginning in [[1 Nephi 8.26|verse 26]], we read:
 
-“And it was filled with people, ... and they were in the attitude of mocking and pointing their fingers towards those who had come ... and were partaking of the fruit.
+“And I also cast my eyes round about, and beheld, on the other side of the river of water, a great and spacious building. …
 
-“And after they had tasted of the fruit they were ashamed, because of those that were scoffing at them; and they fell away into forbidden paths and were lost.”
+“And it was filled with people, … and they were in the attitude of mocking and pointing their fingers towards those who had come … and were partaking of the fruit.
 
-In verse 33 we read of others who had a different response to the scoffing and mocking coming from the building. The prophet Lehi explains that those in the building “did point the finger of scorn at me and those that were partaking of the fruit also; but we heeded them not.”
+“And after they had *tasted* of the fruit they were ashamed, because of those that were scoffing at them; and they fell away into forbidden paths and were lost.”[^10]
 
-A key difference between those who were ashamed, fell away, and were lost and those who did not heed the mocking from the building and stood with the prophet is found in two phrases: first, “after they had tasted,” and second, “those that were partaking.”
+In [[1 Nephi 8.33|verse 33]] we read of others who had a different response to the scoffing and mocking coming from the building. The prophet Lehi explains that those in the building “did point the finger of scorn at me and those that were *partaking* of the fruit also; but we heeded them not.”[^11]
 
-The first group had arrived at the tree, stood for a time with the prophet, but only tasted the fruit. By not continuing to eat, they allowed the taunting from the building to affect them, drawing them away from the prophet and into forbidden paths, where they were lost.
+A key difference between those who were ashamed, fell away, and were lost and those who did not heed the mocking from the building and stood with the prophet is found in two phrases: first, “after they had *tasted,*” and second, “those that were *partaking.*”
 
-In contrast to those who tasted and wandered off were those who were found continuously partaking of the fruit. These individuals ignored the commotion from the building, stood by the prophet, and enjoyed the accompanying safety and peace. Our commitment to the Lord and His servants cannot be a part-time commitment. If so, we leave ourselves vulnerable to those who seek to destroy our peace. As we listen to the Lord through His authorized servants, we stand in holy places and cannot be moved.
+The first group had arrived at the tree, stood for a time with the prophet, but only *tasted* the fruit. By not continuing to eat, they allowed the taunting from the building to affect them, drawing them away from the prophet and into forbidden paths, where they were lost.
+
+In contrast to those who tasted and wandered off were those who were found continuously *partaking* of the fruit. These individuals ignored the commotion from the building, stood by the prophet, and enjoyed the accompanying safety and peace. Our commitment to the Lord and His servants cannot be a part-time commitment. If so, we leave ourselves vulnerable to those who seek to destroy our peace. As we listen to the Lord through His authorized servants, we stand in holy places and cannot be moved.
 
 The adversary offers counterfeit solutions that may appear to provide answers but take us even further from the peace we seek. He offers a mirage that has the appearance of legitimacy and safety but ultimately, like the great and spacious building, will collapse, destroying all who seek peace within its walls.
 
-Truth is found in the simplicity of a Primary song: “Words of a prophet: Keep the commandments. In this there is safety and peace.”
+Truth is found in the simplicity of a Primary song: “Words of a prophet: Keep the commandments. In this there is *safety* and *peace.*”[^12]
+
+## Third Step: “Walk in the Meekness of My Spirit”
 
 However far we may wander from the path, the Savior invites us to return and walk with Him. This invitation to walk with Jesus Christ is an invitation to accompany Him to Gethsemane and from Gethsemane to Calvary and from Calvary to the Garden Tomb. It is an invitation to observe and apply His great atoning sacrifice, whose reach is as individual as it is infinite. It is an invitation to repent, to draw upon His cleansing power, and to grasp His loving, outstretched arms. It is an invitation to be at peace.
 
-We have all felt, at some time in our lives, the pain and heartache associated with sin and transgression, for “if we say that we have no sin, we deceive ourselves, and the truth is not in us.” However, “though [our] sins be as scarlet,” as we apply the Atonement of Jesus Christ and walk with Him through sincere repentance, “they shall be as white as snow.” Though we have been weighed down with guilt, we shall obtain peace.
+We have all felt, at some time in our lives, the pain and heartache associated with sin and transgression, for “if we say that we have no sin, we deceive ourselves, and the truth is not in us.”[^13] However, “though \[our\] sins be as scarlet,” as we apply the Atonement of Jesus Christ and walk with Him through sincere repentance, “they shall be as white as snow.”[^14] Though we have been weighed down with guilt, we shall obtain peace.
 
 Alma the Younger was compelled to confront his sins when visited by an angel of the Lord. He described his experience in these words:
 
 “My soul was harrowed up to the greatest degree and racked with all my sins.
 
-“... Yea, I saw that I had rebelled against my God, and that I had not kept his holy commandments.”
+“… Yea, I saw that I had rebelled against my God, and that I had not kept his holy commandments.”[^15]
 
 As serious as his sins were, and in the midst of this ordeal, he continues:
 
 “I remembered also to have heard my father prophesy unto the people concerning the coming of one Jesus Christ, a Son of God, to atone for the sins of the world.
 
-“... I cried within my heart: O Jesus, thou Son of God, have mercy on me.”
+“… I cried within my heart: O Jesus, thou Son of God, have mercy on me.”[^16]
 
-“And never, until I did cry out unto the Lord Jesus Christ for mercy, did I receive a remission of my sins. But behold, I did cry unto him and I did find peace to my soul.”
+“And never, until I did cry out unto the Lord Jesus Christ for mercy, did I receive a remission of my sins. But behold, I did cry unto him and *I did find peace to my soul.*”[^17]
 
 Like Alma, we too will find peace to our souls as we walk with Jesus Christ, repent of our sins, and apply His healing power in our lives.
 
 The peace we all seek requires more than a desire. It requires us to act—by learning of Him, by listening to His words, and by walking with Him. We may not have the ability to control all that happens around us, but we can control how we apply the pattern for peace that the Lord has provided—a pattern that makes it easy to think often about Jesus.
 
-I testify that Jesus Christ is “the way, the truth, and the life” and that only through Him can we obtain true peace in this life and eternal life in the world to come. In the name of Jesus Christ, amen.
+I testify that Jesus Christ is “the way, the truth, and the life”[^18] and that only through Him can we obtain true peace in this life and eternal life in the world to come. In the name of Jesus Christ, amen.
+
+
+
+
+[^1]: Joseph B. Wirthlin, “[[2008 October - Come What May, and Love It.md|Come What May, and Love It]],” *Ensign* or *Liahona,* Nov. 2008, 27.
+
+[^2]: Joseph B. Wirthlin, “[[2008 October - Come What May, and Love It.md|Come What May, and Love It]],” 26.
+
+[^3]: [[John 16.33|John 16:33]]; emphasis added.
+
+[^4]: [[D&C 59.23|Doctrine and Covenants 59:23]].
+
+[^5]: [[D&C 19.23|Doctrine and Covenants 19:23–24]][[D&C 19.24|]].
+
+[^6]: [[Isaiah 2.3|Isaiah 2:3]].
+
+[^7]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 93.
+
+[^8]: Gordon B. Hinckley, in “[Rejoice in the Blessings of the Temple](https://churchofjesuschrist.org/study/liahona/2002/12/rejoice-in-the-blessings-of-the-temple?lang=eng),” *Ensign,* Dec. 2002, 63; *Liahona,* Dec. 2002, 33.
+
+[^9]: [[D&C 1.38|Doctrine and Covenants 1:38]].
+
+[^10]: [[1 Nephi 8.26|1 Nephi 8:26–28]][[1 Nephi 8.27|]][[1 Nephi 8.28|]]; emphasis added.
+
+[^11]: [[1 Nephi 8.33|1 Nephi 8:33]]; emphasis added.
+
+[^12]: “Keep the Commandments,” *Children’s Songbook,* 147; emphasis added.
+
+[^13]: [[1 John 1.8|1 John 1:8]].
+
+[^14]: [[Isaiah 1.18|Isaiah 1:18]].
+
+[^15]: [[Alma 36.12|Alma 36:12–13]][[Alma 36.13|]].
+
+[^16]: [[Alma 36.17|Alma 36:17–18]][[Alma 36.18|]].
+
+[^17]: [[Alma 38.8|Alma 38:8]]; emphasis added.
+
+[^18]: [[John 14.6|John 14:6]].
 

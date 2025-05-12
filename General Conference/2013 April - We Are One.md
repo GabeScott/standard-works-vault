@@ -1,7 +1,10 @@
 # We Are One
-*By Henry B. Eyring - First Counselor in the First Presidency*
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2013 General Conference*
+
+>*I pray that wherever we are and whatever duties we have in the priesthood of God, we will be united in the cause to bring the gospel to all the world.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/04/we-are-one?lang=eng)
 
@@ -11,7 +14,7 @@ The Lord made it clear at the very start of this last dispensation that we were 
 
 “And let your preaching be the warning voice, every man to his neighbor, in mildness and in meekness.
 
-“And go ye out from among the wicked. Save yourselves. Be ye clean that bear the vessels of the Lord.”1
+“And go ye out from among the wicked. Save yourselves. Be ye clean that bear the vessels of the Lord.”[^1]
 
 Now, you members of the Aaronic Priesthood can see that the Lord’s command includes you. Since you know that the Lord always prepares a way to keep His commandments, you can expect that He will do that for each of you.
 
@@ -25,7 +28,7 @@ He was walking on the street in March just a year ago when he felt that he shoul
 
 The first two elders arrived in September of 2012. The orphan boy was their first baptism into The Church of Jesus Christ of Latter-day Saints. By March of this year he had been a member for four months. He had been ordained a priest in the Aaronic Priesthood and so could baptize the second convert to the Church. He was the first priesthood pioneer to gather other children of Heavenly Father with him to establish the Church in a city of approximately 130,000 people.
 
-On Easter Sunday, March 31, 2013, the Church membership there had grown to the huge number of six members in that city. He was the only local member who attended the meeting that Sunday. His knee had been injured the day before, but he was determined to be there. He had prayed that he would be able to walk to church. And so he was there. He shared the sacrament with four young elders and a missionary couple—the total congregation.
+On Easter Sunday, March 31, 2013, the Church membership there had grown to the huge number of six members in that city. He was the only local member who attended the meeting that Sunday. His knee had been injured the day before, but he was determined to be there. He had prayed that he would be able to walk to church. And so he was there. He shared the sacrament with four young elders and a missionary couple—the total congregation.
 
 That story does not seem remarkable unless you recognize in it the pattern of God’s hand in building His kingdom. I have seen it many times.
 
@@ -49,7 +52,7 @@ In the years I served with that great leader, we watched people draw friends to 
 
 Years later I returned to conduct a stake conference there. The stake president took me to see a rocky hill in Belmont. He told me it would be a perfect place for a temple of God. One stands there now. When I gaze on it, I remember the humble members I sat with in tiny branches, the neighbors they invited, and the missionaries who were teaching them.
 
-There is a new deacon in this meeting here tonight. I was with him on the same Easter Sunday that the priest whom I spoke of previously walked to his one-member meeting. The deacon beamed as his father said that he would be in this priesthood meeting with him tonight. This father was a great missionary in the same mission where his father had been the president. I have seen the 1937 Missionary Handbook of his great-grandfather. His heritage in bringing people to the Church runs deep.
+There is a new deacon in this meeting here tonight. I was with him on the same Easter Sunday that the priest whom I spoke of previously walked to his one-member meeting. The deacon beamed as his father said that he would be in this priesthood meeting with him tonight. This father was a great missionary in the same mission where his father had been the president. I have seen the 1937 *Missionary Handbook* of his great-grandfather. His heritage in bringing people to the Church runs deep.
 
 So I spoke with that deacon’s bishop to learn what experiences the boy might expect in meeting the charge of the priesthood to work in the gathering of souls for the Lord. The bishop was enthusiastic as he described how the ward mission leader tracked the progress of investigators. He gets that information from regular contact with the missionaries.
 
@@ -63,9 +66,9 @@ But there is one way in which we are one in our charge in the priesthood. We san
 
 We share experiences in the way in which the Lord builds His kingdom on earth. In His Church, with all the wonderful tools and organization we have been given, there is still a fundamental truth taught by prophets of how we are to fulfill our priesthood mandate of missionary work.
 
-In the 1959 April general conference, President David O. McKay taught this principle, as have the prophets since his day, including President Thomas S. Monson. President McKay related in his closing comments that in 1923 in the British Mission, there was a general instruction sent out to the members of the Church. They were told not to spend money on advertising to combat the bad feelings of the people against the Church. President McKay said the decision was: “Throw the responsibility upon every member of the Church that in the coming year of 1923 every member will be a missionary. Every member a missionary! You may bring your mother into the Church, or it may be your father; perhaps your fellow companion in the workshop. Somebody will hear the good message of the truth through you.”
+In the 1959 April general conference, President David O. McKay taught this principle, as have the prophets since his day, including President Thomas S. Monson. President McKay related in his closing comments that in 1923 in the British Mission, there was a general instruction sent out to the members of the Church. They were told not to spend money on advertising to combat the bad feelings of the people against the Church. President McKay said the decision was: “Throw the responsibility upon every member of the Church that in the coming year of 1923 every member will be a missionary. Every member a missionary! You may bring your mother into the Church, or it may be your father; perhaps your fellow companion in the workshop. Somebody will hear the good message of the truth through you.”
 
-And President McKay continued: “And that is the message today. Every member—a million and a half—a missionary!”2
+And President McKay continued: “And that is the message today. *Every member*—a million and a half—*a missionary!*”[^2]
 
 When it was announced in 2002 that missionary work would become the responsibility of the bishops, I marveled. I’d been one. It seemed to me they were already carrying a load close to their limits in ministering to the members and directing the organizations in the ward.
 
@@ -84,4 +87,11 @@ The priest will invite others to join with him in the tiny group of Saints where
 If he continues faithful in his priesthood duty, he will see the group become a branch, and then a stake of Zion will come to his city. There will be a ward with a caring bishop. It could be one of his sons or grandsons who will someday take a servant of God to a nearby hill and say, “This would be a wonderful place for a temple.”
 
 I pray that wherever we are and whatever duties we have in the priesthood of God, we will be united in the cause to bring the gospel to all the world and that we will encourage people we love to be cleansed from sin and to be happy with us in the kingdom of God. In the name of Jesus Christ, whose Church this is, amen.
+
+
+
+
+[^1]: [[D&C 38.40|Doctrine and Covenants 38:40–42]][[D&C 38.41|]][[D&C 38.42|]].
+
+[^2]: David O. McKay, in Conference Report, Apr. 1959, 122.
 

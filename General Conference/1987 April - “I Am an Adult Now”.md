@@ -1,5 +1,6 @@
 # “I Am an Adult Now”
-*By Marvin J. Ashton - Of the Quorum of the Twelve Apostles*
+
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
 
@@ -19,7 +20,7 @@ Young men and young women worldwide, you, as well as your parents, need not anno
 
 It takes courage to flee from verbal contention. When maturity begins to set in, adult lives set in. “Let all bitterness, and wrath, and anger, and clamour, and evil speaking, be put away from you, with all malice:
 
-“And be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ’s sake hath forgiven you” (Eph. 4:31–32). It is alarming how many older people go through life without ever becoming real adults.
+“And be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ’s sake hath forgiven you” ([[Ephesians 4.31|Eph. 4:31–32]][[Ephesians 4.32|]]). It is alarming how many older people go through life without ever becoming real adults.
 
 For many years I have had a very vivid picture in my mind of Jesus Christ standing before Pilate. While Jesus stood in front of an angry mob, who sneered and condemned, Pilate tried to get Him to respond and retaliate. He tried to get Him to declare himself a king. Jesus was silent. His life was his sermon. He was perfect in character, a worthy son, the Only Begotten of the Father. His maturity, if you please, would speak for itself.
 
@@ -29,7 +30,7 @@ For many years I have had a very vivid picture in my mind of Jesus Christ standi
 
 “Then said Pilate unto him, Hearest thou not how many things they witness against thee?
 
-“And he answered him to never a word; insomuch that the governor marvelled greatly” (Matt. 27:11–14).
+“And he answered him to never a word; insomuch that the governor marvelled greatly” ([[Matthew 27.11|Matt. 27:11–14]][[Matthew 27.12|]][[Matthew 27.13|]][[Matthew 27.14|]]).
 
 There are many opportunities to acquire mature behavior in the organizations in the Church. The other day a charming teenager paid a deserving tribute to her Young Women’s teacher. She said, “From her example and good lessons, we learned the importance of good grooming. We learned that though each of us is different, each is equally important. She taught us to solve our differences by discussion, not by shouting.”
 
@@ -37,21 +38,23 @@ The success of the Scouting program is that it teaches boys to stay on the trail
 
 “A certain man had two sons:
 
-“And the younger ... said to his father, Father, give me the portion of goods that falleth to me [I am an adult now]. And he divided unto them his living” (Luke 15:11–12).
+“And the younger … said to his father, Father, give me the portion of goods that falleth to me \[I am an adult now\]. And he divided unto them his living” ([[Luke 15.11|Luke 15:11–12]][[Luke 15.12|]]).
 
-The prodigal son parable is well known to all of us. He left and wasted his substance with riotous living. “When he came to himself, he said, ...
+The prodigal son parable is well known to all of us. He left and wasted his substance with riotous living. “When he came to himself, he said, …
 
 “I will arise and go to my father, and will say unto him, Father, I have sinned against heaven, and before thee,
 
-“And am no more worthy to be called thy son: [but I am more of an adult now] ...
+“And am no more worthy to be called thy son: \[but I am more of an adult now\] …
 
-“And he arose, and came to his father. ... His father saw him, and had compassion, and ran, and fell on his neck, and kissed him” (Luke 15:17–20).
+“And he arose, and came to his father. … His father saw him, and had compassion, and ran, and fell on his neck, and kissed him” ([[Luke 15.17|vs. 17–20]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]]).
 
-I believe it appropriate to say the father, too, had become more mature during the separation. Think, too, of the maturing and the becoming of more of an adult on the part of the elder son when he witnessed and participated in the Christ-like example of his father (see Luke 15:25–32).
+I believe it appropriate to say the father, too, had become more mature during the separation. Think, too, of the maturing and the becoming of more of an adult on the part of the elder son when he witnessed and participated in the Christ-like example of his father (see [[Luke 15.25|vs. 25–32]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]]).
 
 There is no doubt in my mind that one of the primary reasons Laman and Lemuel murmured and spoke harsh words to their brother Nephi and did smite him with a rod was because they were older and more adult than Nephi, so they supposed. Can’t you just hear Laman saying, “Nephi, you can’t treat me like that. I am an adult now.”
 
-Nephi displayed real maturity when he declared, “I, Nephi, said unto my father: I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them. And it came to pass that when my father had heard these words he was exceedingly glad, for he knew that I had been blessed of the Lord” (1 Ne. 3:7–8). Lehi was adult enough to know which son was the most mature and who would be blessed of the Lord accordingly.
+Nephi displayed real maturity when he declared, “I, Nephi, said unto my father: I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.
+
+“And it came to pass that when my father had heard these words he was exceedingly glad, for he knew that I had been blessed of the Lord” ([[1 Nephi 3.7|1 Ne. 3:7–8]][[1 Nephi 3.8|]]). Lehi was adult enough to know which son was the most mature and who would be blessed of the Lord accordingly.
 
 Too many of us fail to realize adult conduct is a process, not a status. To become a disciple of Jesus Christ, we must continue in righteousness and in His word. When someone shares with enthusiasm his joy in now being an active member of the Church, the thought crosses my mind, “Wonderful, but for how long will you stay that way?” Incidentally, some years ago I was contacted by an insurance agent. When he started his sales approach with “I am an active member of the Church,” the first thought that crossed my mind was, “Who said so?”
 
@@ -67,11 +70,14 @@ There is real purpose and power in the First Presidency’s continuing invitatio
 
 Joseph Smith declared to the world he was like a rough stone shaped and polished by the stream of life. Bumps, disappointments, and the unexpected helped him gain the status of being wise beyond his years. Oftentimes maturity can best be measured by our endurance. “If the heavens gather blackness, and all the elements combine to hedge up the way; and above all, if the very jaws of hell shall gape open the mouth wide after thee, know thou, my son, that all these things shall give thee experience, and shall be for thy good.
 
-“The Son of Man hath descended below them all. Art thou greater than he?” (D&C 122:7–8).
+“The Son of Man hath descended below them all. Art thou greater than he?” ([[D&C 122.7|D&C 122:7–8]][[D&C 122.8|]]).
 
 My young friends, in a spirit of love I make the suggestion that we avoid the placing of self-labels. For you to classify yourself as all-state, all-American, or even all-world doesn’t mean anything if you alone determine the winner and present the trophy to yourself. By the same token, who among us has the right to label himself as a loser, no good, a dropout, or a failure? Self-judgment in any direction is a hazardous pastime. It is a fact of life that the direction in which we are moving is more important than where we are. I have never heard the best-educated ever declare, “I am educated now.” Some of the most potentially wise people in the world forfeit that classification when they spend their time advertising their abilities and knowledge rather than using their wisdom to improve themselves and help those with whom they associate.
 
 Mothers, fathers, and family members, maturity does not necessarily come with age. Let us communicate in words and deeds our concern and love for each other. Threats, ears that do not hear, eyes that do not see, and hearts that do not feel will never bring joy, unity, and growth. Patience with others, self, and God brings eternal maturity. Let God and our daily actions determine the authenticity of the statement “I am an adult now.”
 
 God is our Father. Jesus is the Christ. May our knowledge of them on a continuing basis give us Christ-centered adult conduct, I pray in the name of Jesus Christ, amen.
+
+
+
 

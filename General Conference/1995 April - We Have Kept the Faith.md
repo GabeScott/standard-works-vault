@@ -1,5 +1,6 @@
 # We Have Kept the Faith
-*By Eduardo Ayala - Of the Seventy*
+
+By Elder Eduardo Ayala - *Of the Seventy*
 
 *Given in the April session of the 1995 General Conference*
 
@@ -13,23 +14,23 @@ When we arrived at the stake center, the president and his counselors were waiti
 
 During our meeting with them, we learned many things, one of which was how to keep the faith in areas such as these, far from large cities and far from the headquarters of the Church. In the things that we learned, we were able to distinguish at least five principles which aided them to overcome their difficulties.
 
-First: They never stopped trusting in the Lord, and they placed all of their faith in him. This was the foundation for their assurance. They trusted in the fact that he would protect and guide them. The Lord has said, “If ye will have faith in me ye shall have power to do whatsoever thing is expedient in me” (Moro. 7:33).
+**First: They never stopped trusting in the Lord, and they placed all of their faith in him.** This was the foundation for their assurance. They trusted in the fact that he would protect and guide them. The Lord has said, “If ye will have faith in me ye shall have power to do whatsoever thing is expedient in me” ([[Moroni 7.33|Moro. 7:33]]).
 
 Occasionally, in the midst of our desperation, we seek other ways, other guides. But those who counsel us are not always prepared to help, because they do not understand our spiritual needs. They are not prepared to give us the counsel and the revelation that we need in trying circumstances.
 
-We have the great example of the sons of Mosiah, who endured so much adversity and so many trials. Because of the trust they had in the Lord, “the Lord did visit them with his Spirit, and said unto them: Be comforted. And they were comforted. ...
+We have the great example of the sons of Mosiah, who endured so much adversity and so many trials. Because of the trust they had in the Lord, “the Lord did visit them with his Spirit, and said unto them: Be comforted. And they were comforted. …
 
-“Yet ye shall be patient in long-suffering and afflictions, that ye may show forth good examples unto them in me, and I will make an instrument of thee in my hands unto the salvation of many souls” (Alma 17:10–11).
+“Yet ye shall be patient in long-suffering and afflictions, that ye may show forth good examples unto them in me, and I will make an instrument of thee in my hands unto the salvation of many souls” ([[Alma 17.10|Alma 17:10–11]][[Alma 17.11|]]).
 
-Second: They remained faithful in prayer. Each member, whether adult, child, or adolescent, faithfully followed this holy practice each day, praying individually and as families with all of their faith. As we know, prayer is the means by which we communicate with our Heavenly Father. He listens to us because we are his children and he loves us, and he is anxious to bless us when we keep the commandments.
+**Second: They remained faithful in prayer.** Each member, whether adult, child, or adolescent, faithfully followed this holy practice each day, praying individually and as families with all of their faith. As we know, prayer is the means by which we communicate with our Heavenly Father. He listens to us because we are his children and he loves us, and he is anxious to bless us when we keep the commandments.
 
-As the Savior instructed the Nephites, he taught them: “Pray in your families unto the Father, always in my name, that your wives and your children may be blessed” (3 Ne. 18:21). No one could have given them greater assurance that they would be heard by the Father than his own Son.
+As the Savior instructed the Nephites, he taught them: “Pray in your families unto the Father, always in my name, that your wives and your children may be blessed” ([[3 Nephi 18.21|3 Ne. 18:21]]). No one could have given them greater assurance that they would be heard by the Father than his own Son.
 
-Third: They never stopped studying the scriptures. In the scriptures they found faith to overcome fear, solutions to their problems, divine comfort from the Master, the loving counsel of the Father, and especially the assurance of being guided in righteousness towards eternal life. “Search the scriptures; for in them ye think ye have eternal life: and they are they which testify of me” (John 5:39). They lived this commandment even in the midst of all their difficulties. One of the Saints there said, “We have never been as close to the Lord as when we were reading the scriptures.”
+**Third: They never stopped studying the scriptures.** In the scriptures they found faith to overcome fear, solutions to their problems, divine comfort from the Master, the loving counsel of the Father, and especially the assurance of being guided in righteousness towards eternal life. “Search the scriptures; for in them ye think ye have eternal life: and they are they which testify of me” ([[John 5.39|John 5:39]]). They lived this commandment even in the midst of all their difficulties. One of the Saints there said, “We have never been as close to the Lord as when we were reading the scriptures.”
 
-Fourth: They implemented priesthood programs. Due to the fatal incident that had taken place there, it was necessary to remove full-time missionaries. In order to make up for the help that was lost, it became necessary to organize the returned missionaries so that they could teach the gospel to those who wanted to hear it. References came in from member families. Home teaching increased. Nobody was overlooked. Just as they said, they had kept the faith.
+**Fourth: They implemented priesthood programs.** Due to the fatal incident that had taken place there, it was necessary to remove full-time missionaries. In order to make up for the help that was lost, it became necessary to organize the returned missionaries so that they could teach the gospel to those who wanted to hear it. References came in from member families. Home teaching increased. Nobody was overlooked. Just as they said, they had kept the faith.
 
-Fifth: They humbled themselves before the Lord. They purified their lives, they repented, they tried to live together as Saints, sharing much of what they had, fasting when problems arose or when they were threatened.
+**Fifth: They humbled themselves before the Lord.** They purified their lives, they repented, they tried to live together as Saints, sharing much of what they had, fasting when problems arose or when they were threatened.
 
 These simple yet powerful principles enabled them to sustain themselves, to be preserved, to remain faithful and active as members of the Church in that area.
 
@@ -39,7 +40,7 @@ Keeping the faith must also be a challenge for those who are alone in the Church
 
 Our pioneers did not complain; they did not deny the faith or turn back. It is difficult to conceive of the great loneliness of the people of the Church during those first years when they were a small group, the only Church members on all the face of the earth. They were persecuted, humiliated, rejected, and some were killed. The faith which they developed in the Lord, in the face of so much adversity, made them strong and humble at the same time. It must have been very difficult to keep the faith when there was so much opposition, so much loneliness, so much anguish. It was a glorious time, a time of martyrs, a time in which to lay the foundation of a courageous and inspiring religion such as ours.
 
-President Kimball said regarding this theme, “Suffering can make Saints of people as they learn patience, long suffering, and self-mastery. The sufferings of our Savior were part of his education” (“Tragedy or Destiny,” Brigham Young University Speeches of the Year, Provo, Utah: BYU Extension Division, 1955, p. 5).
+President Kimball said regarding this theme, “Suffering can make Saints of people as they learn patience, long suffering, and self-mastery. The sufferings of our Savior were part of his education” (“Tragedy or Destiny,” *Brigham Young University Speeches of the Year,* Provo, Utah: BYU Extension Division, 1955, p. 5).
 
 How grateful we are for those who, with their simple example, allow us to follow without fainting, seeking to return to our Father. Perhaps isolation makes small and distant towns and villages stronger and more pure.
 
@@ -53,7 +54,10 @@ The conditions of peoples and of nations change due to progress in the world; ne
 
 We are fortunate this day to be able to sustain a new prophet and his counselors, whom we love and support. In the coming days, in nearly all the nations of the earth, even in the most remote towns and villages, our members will also have the privilege of raising their hands joyfully to sustain them as we have done today.
 
-Someday our journey here on the earth will end, and we will return to the presence of our Heavenly Father. I pray that on that day we may have the same courage and give the same testimony given by the Apostle Paul to Timothy: “I have fought a good fight, I have finished my course, I have kept the faith” (2 Tim. 4:7).
+Someday our journey here on the earth will end, and we will return to the presence of our Heavenly Father. I pray that on that day we may have the same courage and give the same testimony given by the Apostle Paul to Timothy: “I have fought a good fight, I have finished my course, I have kept the faith” ([[2 Timothy 4.7|2 Tim. 4:7]]).
 
 May the Lord bless us to continue being valiant, humble, and faithful. In the name of Jesus Christ, amen.
+
+
+
 

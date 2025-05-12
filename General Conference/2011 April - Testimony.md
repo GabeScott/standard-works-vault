@@ -1,7 +1,10 @@
 # Testimony
-*By Cecil O. Samuelson Jr. - Of the Seventy*
+
+By Elder Cecil O. Samuelson Jr. - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
+
+>*The fundamentals of gaining and retaining a testimony of the gospel of Jesus Christ are straightforward, clear, and within the capacity of every person.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/04/testimony?lang=eng)
 
@@ -13,27 +16,27 @@ While a testimony is simple and clear in this defining declaration, arising from
 
 Let me briefly respond to these possible uncertainties and then refer to some insights that have been shared recently by trusted young adult friends who have had personal experience in gaining their testimonies. They have also had opportunities to minister to others having challenges or difficulties with some aspects of their faith and beliefs.
 
-First, who is entitled to have a testimony? Everyone who is willing to pay the price—meaning keeping the commandments—may have a testimony. “Wherefore the voice of the Lord is unto the ends of the earth, that all that will hear may hear” (D&C 1:11). A fundamental reason for the Restoration of the gospel is so “every man might speak in the name of God the Lord, even the Savior of the world; that faith also might increase in the earth” (D&C 1:20–21).
+First, who is entitled to have a testimony? Everyone who is willing to pay the price—meaning keeping the commandments—may have a testimony. “Wherefore the voice of the Lord is unto the ends of the earth, that all that will hear may hear” ([[D&C 1.11|D&C 1:11]]). A fundamental reason for the Restoration of the gospel is so “every man might speak in the name of God the Lord, even the Savior of the world; that faith also might increase in the earth” ([[D&C 1.20|D&C 1:20–21]][[D&C 1.21|]]).
 
 Second, how does one obtain the necessary revelation, and what are the fundamental steps to achieve it? The pattern has been clear and consistent throughout the ages. The promise given for obtaining a testimony of the Book of Mormon also applies generally:
 
 “And when ye shall receive these things”—meaning you have listened, read, studied, and pondered on the question at hand—“ask God, the Eternal Father, in the name of Christ, if these things are not true”—meaning you will pray thoughtfully, specifically, and reverently with a firm commitment to follow the answer to your prayer—“and if ye shall ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost.
 
-“And by the power of the Holy Ghost ye may know the truth of all things” (Moroni 10:4–5).
+“And by the power of the Holy Ghost ye may know the truth of all things” ([[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]]).
 
-Third, is gaining a testimony an isolated event or an ongoing process? A testimony is similar to a living organism that grows and develops when treated properly. It needs constant nourishment, care, and protection to thrive and prosper. Likewise, neglect or deviance from the pattern of living that a testimony clarifies can lead to its loss or diminishment. The scriptures warn that transgressing or breaking the commandments of God can result in the loss of the Spirit and even to one denying the testimony he or she once possessed (see D&C 42:23).
+Third, is gaining a testimony an isolated event or an ongoing process? A testimony is similar to a living organism that grows and develops when treated properly. It needs constant nourishment, care, and protection to thrive and prosper. Likewise, neglect or deviance from the pattern of living that a testimony clarifies can lead to its loss or diminishment. The scriptures warn that transgressing or breaking the commandments of God can result in the loss of the Spirit and even to one denying the testimony he or she once possessed (see [[D&C 42.23|D&C 42:23]]).
 
-Let me now share 10 of the observations and suggestions of my valued and faithful young friends. The ideas they share have a commonality in their thinking and experience; thus, they likely will not be surprising to any of us. Unfortunately and especially at times of our own struggle and distress, we may temporarily forget or discount their applicability to us personally.
+Let me now share 10 of the observations and suggestions of my valued and faithful young friends. The ideas they share have a commonality in their thinking and experience; thus, they likely will not be surprising to any of us. Unfortunately, and especially at times of our own struggle and distress, we may temporarily forget or discount their applicability to us personally.
 
 First, everyone has worth because we are all children of God. He knows us, loves us, and wants us to succeed and return to Him. We must learn to trust in His love and in His timing rather than in our own sometimes impatient and imperfect desires.
 
-Second, while we believe fully in the mighty change of heart described in the scriptures (see Mosiah 5:2; Alma 5:12–14, 26), we must understand it often occurs gradually, rather than instantaneously or globally, and in response to specific questions, experiences, and concerns as well as by our study and prayer.
+Second, while we believe fully in the mighty change of heart described in the scriptures (see [[Mosiah 5.2|Mosiah 5:2]]; [[Alma 5.12|Alma 5:12–14, 26]][[Alma 5.13|]][[Alma 5.14|]][[Alma 5.26|]]), we must understand it often occurs gradually, rather than instantaneously or globally, and in response to specific questions, experiences, and concerns as well as by our study and prayer.
 
 Third, we need to remember that a fundamental purpose of life is to be tested and stretched, and thus we must learn to grow from our challenges and be grateful for the lessons learned that we cannot gain in an easier way.
 
 Fourth, we must learn to trust the things that we believe in or know to sustain us in times of uncertainty or with issues where we struggle.
 
-Fifth, as Alma taught, gaining a testimony is usually a progression along the continuum of hoping, believing, and finally knowing the truth of a specific principle, doctrine, or the gospel itself (see Alma 32).
+Fifth, as Alma taught, gaining a testimony is usually a progression along the continuum of hoping, believing, and finally knowing the truth of a specific principle, doctrine, or the gospel itself (see [[Alma 32.1|Alma 32]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]]).
 
 Sixth, teaching someone else what we know strengthens our own testimony as we build that of another. When you give someone money or food, you will have less. However, when you share your testimony, it strengthens and increases for both the bearer and the hearer.
 
@@ -43,7 +46,7 @@ Eighth, we should not have higher standards for others than we do for ourselves.
 
 Ninth, it is good to remember that being too hard on yourself when you make a mistake can be as negative as being too casual when real repentance is needed.
 
-And tenth, we must always be clear that the Atonement of Christ is fully and continuously operative for each of us when we allow it to be so. Then everything else fits into place even when we continue to struggle with certain details, habits, or seemingly missing parts in the mosaic of our faith.
+And tenth, we must always be clear that the Atonement of Christ is fully and continuously operative for each of us when we allow it to be so. Then everything else fits into place, even when we continue to struggle with certain details, habits, or seemingly missing parts in the mosaic of our faith.
 
 I am grateful for the insights, strengths, and testimonies of so many of my exemplary young friends and associates. When I am with them, I am strengthened, and when I know that they are with others, I am encouraged with the knowledge of the good that they are doing and the service that they are rendering in behalf of the Master they worship and strive to obey.
 
@@ -51,11 +54,14 @@ People do good and important things because they have testimonies. While this is
 
 “My doctrine is not mine, but his that sent me.
 
-“If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself” (John 7:16–17).
+“If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself” ([[John 7.16|John 7:16–17]][[John 7.17|]]).
 
-“If ye love me, keep my commandments” (John 14:15).
+“If ye love me, keep my commandments” ([[John 14.15|John 14:15]]).
 
-Like Nephi and Mormon of old, “I do not know the meaning of all things” (1 Nephi 11:17; see also Words of Mormon 1:7), but let me tell you what I do know.
+Like Nephi and Mormon of old, “I do not know the meaning of all things” ([[1 Nephi 11.17|1 Nephi 11:17]]; see also [[Words of Mormon 1.7|Words of Mormon 1:7]]), but let me tell you what I do know.
 
-I know God our Heavenly Father lives and loves us. I know His uniquely special Son, Jesus Christ, is our Savior and Redeemer and the head of the Church, which bears His name. I know Joseph Smith experienced all that he has reported and taught with respect to the Restoration of the gospel in our day. I know we are led by apostles and prophets today and President Thomas S. Monson holds all of the keys of the priesthood necessary to bless our lives and advance the work of the Lord. I know we are all entitled to this knowledge, and if you are struggling, you can rely on the truthfulness of the testimonies you hear from this pulpit at this conference. These things I know and bear testimony of in the name of Jesus Christ, amen.
+I know God our Heavenly Father lives and loves us. I know His uniquely special Son, Jesus Christ, is our Savior and Redeemer and the head of the Church, which bears His name. I know Joseph Smith experienced all that he has reported and taught with respect to the Restoration of the gospel in our day. I know we are led by apostles and prophets today and President Thomas S. Monson holds all of the keys of the priesthood necessary to bless our lives and advance the work of the Lord. I know we are all entitled to this knowledge, and if you are struggling, you can rely on the truthfulness of the testimonies you hear from this pulpit at this conference. These things I know and bear testimony of in the name of Jesus Christ, amen.
+
+
+
 

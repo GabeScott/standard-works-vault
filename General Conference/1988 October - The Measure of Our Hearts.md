@@ -1,5 +1,6 @@
 # The Measure of Our Hearts
-*By Marvin J. Ashton - Of the Quorum of the Twelve Apostles*
+
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
 
@@ -9,43 +10,47 @@ I would like to share some thoughts about measurements. A measurement is a stand
 
 If I say, “She is a three-point student,” you have a pretty good idea of this person’s scholastic ability. A measurement may also be an estimate of what is expected.
 
-Human measurement, of course, is subject to human fallibility. My generation, for example, was taught that a person’s I.Q. was supposedly a fixed measurement of a person’s capacity to learn. Such a notion is now generally discredited by the teaching profession. Interestingly, the Prophet Joseph Smith taught in the nineteenth century: “We consider that God has created man with a mind capable of instruction, and a faculty which may be enlarged in proportion to the heed and diligence given to the light communicated from heaven to the intellect.” (Teachings of the Prophet Joseph Smith, sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 51.) He was obviously ahead of his time!
+Human measurement, of course, is subject to human fallibility. My generation, for example, was taught that a person’s I.Q. was supposedly a fixed measurement of a person’s capacity to learn. Such a notion is now generally discredited by the teaching profession. Interestingly, the Prophet Joseph Smith taught in the nineteenth century: “We consider that God has created man with a mind capable of instruction, and a faculty which may be enlarged in proportion to the heed and diligence given to the light communicated from heaven to the intellect.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 51.) He was obviously ahead of his time!
 
 We also tend to evaluate others on the basis of physical, outward appearance: their “good looks,” their social status, their family pedigrees, their degrees, or their economic situations.
 
-The Lord, however, has a different standard by which he measures a person. When it came time to choose a king to replace King Saul, the Lord gave this criteria to his prophet Samuel: “Look not on his countenance, or on the height of his stature; ... for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” (1 Sam. 16:7.)
+The Lord, however, has a different standard by which he measures a person. When it came time to choose a king to replace King Saul, the Lord gave this criteria to his prophet Samuel: “Look not on his countenance, or on the height of his stature; … for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
 
 When the Lord measures an individual, He does not take a tape measure around the person’s head to determine his mental capacity, nor his chest to determine his manliness, but He measures the heart as an indicator of the person’s capacity and potential to bless others.
 
-Why the heart? Because the heart is a synonym for one’s entire makeup. We often use phrases about the heart to describe the total person. Thus, we describe people as being “big-hearted” or “goodhearted” or having a “heart of gold.” Or we speak of people with faint hearts, wise hearts, pure hearts, willing hearts, deceitful hearts, conniving hearts, courageous hearts, cold hearts, hearts of stone, or selfish hearts.
+Why the heart? Because the heart is a synonym for one’s entire makeup. We often use phrases about the heart to describe the total person. Thus we describe people as being “big-hearted” or “good-hearted” or having a “heart of gold.” Or we speak of people with faint hearts, wise hearts, pure hearts, willing hearts, deceitful hearts, conniving hearts, courageous hearts, cold hearts, hearts of stone, or selfish hearts.
 
 The measure of our hearts is the measure of our total performance. As used by the Lord, the “heart” of a person describes his effort to better self, or others, or the conditions he confronts.
 
 A question I suggest to you is this: How do you measure up? Ultimately you and I will be judged not only for our actions, but also for the desires of our hearts. This truth was revealed to the Prophet Joseph Smith at a time when he was shown in vision the celestial kingdom. The revelation is recorded in section 137 of the Doctrine and Covenants. Joseph marveled when he saw his deceased brother Alvin in the celestial kingdom, for Alvin had died before the gospel was restored. Joseph then received this great truth:
 
-“All who have died without a knowledge of this gospel, who would have received it if they had been permitted to tarry, shall be heirs of the celestial kingdom of God; ...
+“All who have died without a knowledge of this gospel, who would have received it if they had been permitted to tarry, shall be heirs of the celestial kingdom of God; …
 
-“For I, the Lord, will judge all men according to their works, according to the desire of their hearts.” (D&C 137:7, 9.)
+“For I, the Lord, will judge all men according to their works, according to the desire of their hearts.” ([[D&C 137.7|Vs. 7, 9]][[D&C 137.9|]].)
 
 If our works and the desires of our hearts are the ultimate criteria of our character, how do we measure up? What kind of heart should we seek? For what kind of heart should we pray? How should we measure the worth of other people?
 
 Today, may I suggest four questions that deal with the heart that may help you determine how you are measuring up.
 
+## First Question: How honest in heart am I?
+
 We pray that our missionaries will find the honest in heart. What does it mean to be honest in heart? It describes an individual who is open to truth, who will evaluate information or people without prejudice.
 
 Honest-hearted persons are individuals without pretense, without hypocrisy. They are reliable in word and action. They have no “hidden agendas” to deceive others or to misrepresent facts. In contrast, those with conniving hearts will deceive and misrepresent.
 
-An honest heart will lead to a change of heart. Spiritually speaking, a change of heart is not only desirable, but essential for eternal life. The Book of Mormon describes the conversion experience, which all of us must have, as a “mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually.” (Mosiah 5:2.)
+An honest heart will lead to a change of heart. Spiritually speaking, a change of heart is not only desirable, but essential for eternal life. The Book of Mormon describes the conversion experience, which all of us must have, as a “mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually.” ([[Mosiah 5.2|Mosiah 5:2]].)
 
 The Book of Mormon is a study of interesting contrasts between those who hardened their hearts and those whose hearts were softened by the Spirit of the Lord. How does one have his or her heart softened under the influence of the Holy Ghost?
 
-Nephi’s testimony provides an answer: “Having great desires to know of the mysteries of God, wherefore, I did cry unto the Lord; and behold he did ... soften my heart that I did believe all the words which had been spoken by my father.” (1 Ne. 2:16; italics added.)
+Nephi’s testimony provides an answer: “Having great desires to know of the mysteries of God, wherefore, I did cry unto the Lord; and behold *he did* … *soften my heart* that I did believe all the words which had been spoken by my father.” ([[1 Nephi 2.16|1 Ne. 2:16]]; italics added.)
 
 After obtaining a testimony of the gospel and the Lord’s church, we should then strive to become pure in heart. This will result in happiness and eventually the promise of a society without contention. It is the Savior’s way to peace.
 
+## Second Question: Do I have a willing heart?
+
 Let us look again to the scriptures for guidance.
 
-“Behold, the Lord requireth the heart and a willing mind; and the willing and obedient shall eat the good of the land of Zion in these last days.” (D&C 64:34.)
+“Behold, the Lord requireth the heart and a willing mind; and the willing and obedient shall eat the good of the land of Zion in these last days.” ([[D&C 64.34|D&C 64:34]].)
 
 A willing heart describes one who desires to please the Lord and to serve His cause first. He serves the Lord on the Lord’s terms, not his own. There are no restrictions to where or how he will serve.
 
@@ -77,11 +82,15 @@ Mike fulfilled an honorable mission to California and is now working in his home
 
 What does the Lord require for service? A willing heart and intense desire.
 
-An understanding, loving heart is the pinnacle of all human emotions. As the Apostle Paul said, charity “beareth all things, believeth all things, hopeth all things, endureth all things.” (1 Cor. 13:7.) We come closest to becoming Christlike when we are charitable and understanding of others.
+## Third Question: Do I have an understanding, loving heart?
+
+An understanding, loving heart is the pinnacle of all human emotions. As the Apostle Paul said, charity “beareth all things, believeth all things, hopeth all things, endureth all things.” ([[1 Corinthians 13.7|1 Cor. 13:7]].) We come closest to becoming Christlike when we are charitable and understanding of others.
 
 One may have many talents and knowledge but never acquire wisdom because he does not learn to be compassionate with his fellow man.
 
 We will never approach godliness until we learn to love and lift. Indifference to others and their plight denies us life’s sweetest moments of joy and service.
+
+## Last Question (this taken directly from the Book of Mormon): “If ye have experienced a change of heart, and if ye have felt to sing the song of redeeming love, … can ye feel so now?” ([[Alma 5.26|Alma 5:26]]; italics added).
 
 Having a “change of heart” at one time in our lives is insufficient to give us an understanding heart today. Helping and understanding a person years ago do not fill us with the love of God today.
 
@@ -102,4 +111,7 @@ If we can do this, when the final judgment is made and our hearts are measured b
 I bear my testimony and witness that the gospel of Jesus Christ has the power to change hearts and help individuals become pure, gentle, honest, kind, and loving.
 
 We are led by a living prophet today. President Ezra Taft Benson has a pure, gentle, honest, kind, and loving heart. This I know. In the name of Jesus Christ, amen.
+
+
+
 

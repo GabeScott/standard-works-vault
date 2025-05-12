@@ -1,5 +1,6 @@
 # Boys Need Heroes Close By
-*By Spencer W. Kimball - President of the Church*
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -9,57 +10,34 @@ In the long decades that I have been coming to conference, I have been greatly i
 
 This prompted my reading some lines that you may have heard before:
 
-Only a Dad
-
-Only a dad, with a tired face,
-
-Coming home from the daily race;
-
-Bringing little of gold and fame
-
-To show how well he has played the game,
-
-But glad in his heart that his own rejoice
-
-To see him come home and to hear his voice.
-
-Only a dad, of a brood of four,
-
-One of ten million men or more,
-
-Plodding along in the daily strife,
-
-Bearing the whips and scorns of life
-
-With never a whimper of pain or hate,
-
-For the sake of those who at home await.
-
-Only a dad, neither rich nor proud,
-
-Merely one of the surging crowd,
-
-Toiling, striving, from day to day,
-
-Facing whatever may come his way;
-
-Silent, whenever the harsh condemn,
-
-And bearing it all for the love of them.
-
-Only a dad, but he gives his all
-
-To smooth the way for his children small;
-
-Doing, with courage stern and grim,
-
-The deeds that his father did for him.
-
-These are the lines that for him I pen;
-
-Only a dad, but the best of men.
-
-(Edgar A. Guest. Source Book of Poetry, Al Bryant, comp.; Grand Rapids, Zondervan Publishing House, 1968.)
+>Only a dad, with a tired face,
+>Coming home from the daily race;
+>Bringing little of gold and fame
+>To show how well he has played the game,
+>But glad in his heart that his own rejoice
+>To see him come home and to hear his voice.
+>
+>Only a dad, of a brood of four,
+>One of ten million men or more,
+>Plodding along in the daily strife,
+>Bearing the whips and scorns of life
+>With never a whimper of pain or hate,
+>For the sake of those who at home await.
+>
+>Only a dad, neither rich nor proud,
+>Merely one of the surging crowd,
+>Toiling, striving, from day to day,
+>Facing whatever may come his way;
+>Silent, whenever the harsh condemn,
+>And bearing it all for the love of them.
+>
+>Only a dad, but he gives his all
+>To smooth the way for his children small;
+>Doing, with courage stern and grim,
+>The deeds that his father did for him.
+>These are the lines that for him I pen;
+>Only a dad, but the best of men.
+>
 
 I hope that every boy that is present tonight feels that way about his father and expresses to his father his affection for him and how grateful he is to have a dad that is faithful and true and dependable.
 
@@ -95,7 +73,7 @@ Please avoid, even by implication, involving the Church in political issues. It 
 
 Develop spiritual strength in yourself, and there will be felicity in the family. Righteousness proceeds outward from the individual to the group. We will find that if we are converted (through studying, searching, and praying), our immediate desire is to want to help others. True conversion causes us to want to reach out to the living and to the deceased to do what we can to help in each case. If we are truly converted, we will also want to provide for our own in the fullness of what welfare service means.
 
-When the Savior said, “When thou art converted, strengthen thy brethren” (Luke 22:32), he was reminding us not only of an obligation we have, but also of the reality that we really can’t strengthen our brethren much until we are personally converted.
+When the Savior said, “When thou art converted, strengthen thy brethren” ([[Luke 22.32|Luke 22:32]]), he was reminding us not only of an obligation we have, but also of the reality that we really can’t strengthen our brethren much until we are personally converted.
 
 No father, no son, no mother, no daughter should get so busy that he or she does not have time to study the scriptures and the words of modern prophets. None of us should get so busy that we crowd out contemplation and praying. None of us should become so busy in our formal Church assignments that there is no room left for quiet Christian service to our neighbors.
 
@@ -109,13 +87,16 @@ Do you know of someone who has been convicted of a felony? If so, he should get 
 
 The youth of the Church should realize that they do not need to be old men, long experienced, to receive the blessings of the Church. Joseph Smith was only 14 when he had the Vision, 25 when the Church was organized, 18 when he met Moroni, 24 when he got the plates, and 39 when he was martyred.
 
-Thomas B. Marsh was 31, David W. Patten 30, about the time they became apostles. These were all young men, so to speak.
+Thomas B. Marsh was 31, David W. Patten 30, about the time they became apostles. These were all young men, so to speak.
 
-Brigham Young was 28, Heber C. Kimball 28, Orson Hyde only 25, William E. McLellin 24, Parley P. Pratt 23, Luke Johnson 22, William Smith 19, Orson Pratt 18, John F. Boynton 18, and Lyman E. Johnson 18, when the Church was organized on April 6, 1830. And these men, many of them, were of the apostleship in 1835 when the Council of the Twelve was organized. All were still young men when they were deprived of Joseph.
+Brigham Young was 28, Heber C. Kimball 28, Orson Hyde only 25, William E. McLellin 24, Parley P. Pratt 23, Luke Johnson 22, William Smith 19, Orson Pratt 18, John F. Boynton 18, and Lyman E. Johnson 18, when the Church was organized on April 6, 1830. And these men, many of them, were of the apostleship in 1835 when the Council of the Twelve was organized. All were still young men when they were deprived of Joseph.
 
 They were able to inspire boys. They became great missionaries. You young boys need not wait to be great. You can be superior missionaries, strong young men, great companions, and happy, trusted Church leaders. You need not wait until tomorrow.
 
 The Lord bless you as you grow year by year to receive the inspiration of the Lord to be able to pass on the glorious blessings of the gospel.
 
 And this, my dear beloved brethren, I pray in the name of Jesus Christ. Amen.
+
+
+
 

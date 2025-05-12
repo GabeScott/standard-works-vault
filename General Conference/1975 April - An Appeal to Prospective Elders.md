@@ -1,5 +1,6 @@
 # An Appeal to Prospective Elders
-*By Boyd K. Packer - Of the Council of the Twelve*
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -45,9 +46,9 @@ The next years saw me busy getting an education, raising a family. I was not aro
 
 The morning after my arrival in Tokyo, I was leaving the mission home with President Abo when a Japanese elder spoke to him in Japanese. President Abo said that the matter was urgent and apologized for the delay.
 
-He went through some papers with the elder, discussing them in Japanese. Then he held up one of the letters and, pointing to a sentence, he said, “Korewa ...”
+He went through some papers with the elder, discussing them in Japanese. Then he held up one of the letters and, pointing to a sentence, he said, *“Korewa …”*
 
-And before he could complete the sentence I had completed it in my mind. Korewa nan desuka. I knew what he was saying. I knew what he was asking the elder. Korewa nan desuka means “What is this?” After 26 years, having been back in Japan but overnight, a sentence had come back into my mind—Korewa nan desuka, “What is this?”
+And before he could complete the sentence I had completed it in my mind. *Korewa nan desuka.* I knew what he was saying. I knew what he was asking the elder. *Korewa nan desuka* means “What is this?” After 26 years, having been back in Japan but overnight, a sentence had come back into my mind—*Korewa nan desuka,* “What is this?”
 
 I had not used those words in 26 years. I had thought that I should never use them again. But they were not lost.
 
@@ -55,13 +56,12 @@ I spent ten days in Japan and concluded my tour in Fukuoka. The morning I was to
 
 And then I recalled a little song that I had learned those 26 years before, and I sang it to those children:
 
-Momotaro-san, Momotaro-san
+>*Momotaro-san, Momotaro-san*
+>*Okoshi ni tsuketa kibi dango*
+>*Hitotsu watashi ni kudasai na*
+>
 
-Okoshi ni tsuketa kibi dango
-
-Hitotsu watashi ni kudasai na
-
-I think that may make Brother Ottley restless, but ...
+I think that may make Brother Ottley restless, but …
 
 Sister Watanabe said, “I know that song.” And so we sang it together to the little children and then she told me the meaning of it, and as she did so, I remembered that also.
 
@@ -75,7 +75,7 @@ I, of course, do not suggest that this experience was the result of an alert min
 
 If you will return to the environment where spiritual truths are spoken, there will flood back into your minds the things that you thought were lost. Things smothered under many years of disuse and inactivity will emerge. Your ability to understand them will be quickened.
 
-That word quickened is much used in the scriptures, you know.
+That word *quickened* is much used in the scriptures, you know.
 
 If you will make your pilgrimage back among the Saints, soon you will be understanding once again the language of inspiration. And more quickly than you know, it will seem that you have never been away. Oh, how important it is for you to realize that if you will return, it can be made as though you have never been away.
 
@@ -115,7 +115,7 @@ You may never have read the parable of the Laborers in the Vineyard, and I would
 
 “So when even was come, the lord of the vineyard saith unto his steward, Call the labourers, and give them their hire, beginning from the last unto the first.
 
-“And when they came that were hired about the eleventh hour, they received every man a penny.” (Matt. 20:1–9.)
+“And when they came that were hired about the eleventh hour, they received every man a penny.” ([[Matthew 20.1|Matt. 20:1–9]][[Matthew 20.2|]][[Matthew 20.3|]][[Matthew 20.4|]][[Matthew 20.5|]][[Matthew 20.6|]][[Matthew 20.7|]][[Matthew 20.8|]][[Matthew 20.9|]].)
 
 There is enough pay—a penny, as it were—for everyone: those who start early and, I thank the Lord, those who are latecomers. There is no shortage of room in the celestial kingdom. There is room for all.
 
@@ -123,11 +123,9 @@ In this life we are constantly confronted with a spirit of competition. Teams co
 
 In the eyes of the Lord, everyone may be a winner. Now it is true that we must earn it; but if there is competition in His work, it is not with another soul—it’s with our own former selves.
 
-I do not say that it is easy. I am not talking about appearing to change. I am talking about changing. I do not say it is easy. I say it is possible and quickly possible.
+I do not say that it is easy. I am not talking about appearing to change. I am talking about *changing.* I do not say it is easy. I say it is possible and quickly possible.
 
 I did not read all of that parable. There is more to it. The latter part of it, I think, is directed to those of us who are active in the Church. Let me repeat a verse or two and then continue.
-
-“So when even was come, the lord of the vineyard saith unto his steward, Call the labourers, and give them their hire, beginning from the last unto the first.
 
 “And when they came that were hired about the eleventh hour, they received every man a penny.
 
@@ -143,7 +141,7 @@ I did not read all of that parable. There is more to it. The latter part of it, 
 
 “Is it not lawful for me to do what I will with mine own? Is thine eye evil, because I am good?
 
-“So the last shall be first, and the first last: for many be called, but few chosen.” (Matt. 20:8–16.)
+“So the last shall be first, and the first last: for many be called, but few chosen.” ([[Matthew 20.8|Matt. 20:8–16]][[Matthew 20.9|]][[Matthew 20.10|]][[Matthew 20.11|]][[Matthew 20.12|]][[Matthew 20.13|]][[Matthew 20.14|]][[Matthew 20.15|]][[Matthew 20.16|]].)
 
 I wish you brethren of the prospective elders knew how hard we are working for your redemption. How anxiously we pray that you can return to the Church and kingdom of God and speak once again the language of inspiration—after two years or 26 years or a lifetime. And I repeat, it can soon be much as though you had never been away.
 
@@ -162,4 +160,7 @@ This awkward newness of making such a change in your lives will soon fade, and s
 I bear witness to you, my brethren, you of the prospective elders and you in like situations, that the gospel of Jesus Christ is true. We love you, and the thousands of voices—the voices of the priesthood home teachers, the Relief Society sisters, the bishops, the stake presidents, the quorum leaders—all speaking through inspiration of Him—the voices of those who are called as leaders in the Church, are calling to you as David called to his wayward son, Absalom, “Come back, my son.”
 
 God grant that you who are fathers, who are without that inspiration in your home and in your family, can return and speak once again, after your sojourn in the wilderness, with the language of inspiration. You likewise can bear witness that you know, as I know, that He lives. In the name of Jesus Christ. Amen.
+
+
+
 

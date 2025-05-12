@@ -1,5 +1,6 @@
 # Sanctification through Missionary Service
-*By William R. Bradford - Of the First Quorum of the Seventy*
+
+By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -21,7 +22,7 @@ Being inspired and directed by the Lord, these prophets, seers, and revelators h
 
 “And they shall go forth and none shall stay them, for I the Lord have commanded them.
 
-“Wherefore, fear and tremble, O ye people, for what I the Lord have decreed in them shall be fulfilled.” (D&C 1:4–5, 7.)
+“Wherefore, fear and tremble, O ye people, for what I the Lord have decreed in them shall be fulfilled.” ([[D&C 1.4|D&C 1:4–5, 7]][[D&C 1.5|]][[D&C 1.7|]].)
 
 Presently there are about thirty thousand missionaries serving in 188 missions. They are proclaiming the restored gospel in 82 nations, territories, and possessions in 48 different languages.
 
@@ -77,9 +78,9 @@ I would remind you of the Lord’s own words as He addressed those who “doeth 
 
 “I command and men obey not; I revoke and they receive not the blessing.
 
-“Then they say in their hearts: This is not the work of the Lord, for his promises are not fulfilled. But wo unto such, for their reward lurketh beneath, and not from above.” (D&C 58:29–33.)
+“Then they say in their hearts: This is not the work of the Lord, for his promises are not fulfilled. But wo unto such, for their reward lurketh beneath, and not from above.” ([[D&C 58.29|D&C 58:29–33]][[D&C 58.30|]][[D&C 58.31|]][[D&C 58.32|]][[D&C 58.33|]].)
 
-Do you really believe that earthly fame and title, tied to earthly positions and occupations, can compare with God’s promises to the faithful? He has promised “thrones, kingdoms, principalities, and powers.” He has promised “exaltation and glory in all things.” He has promised “a fulness and a continuation of the seeds forever and ever.” He has promised eternal life. (D&C 132:19.)
+Do you really believe that earthly fame and title, tied to earthly positions and occupations, can compare with God’s promises to the faithful? He has promised “thrones, kingdoms, principalities, and powers.” He has promised “exaltation and glory in all things.” He has promised “a fulness and a continuation of the seeds forever and ever.” He has promised eternal life. ([[D&C 132.19|D&C 132:19]].)
 
 I would say to you that you are left without excuse and without justification and that you have placed your eternal salvation in grave danger.
 
@@ -103,7 +104,7 @@ If I could speak separately with each bishop and stake president about those who
 
 This is a marvelous plan. It is a process of sanctification. When a missionary is placed in a mission environment of order and discipline where all that is done is in harmony with the Spirit, the missionary experiences a great transformation. The heavens open. Powers are showered out. Mysteries are revealed. Habits are improved. Sanctification begins. Through this process the missionary becomes a vessel of light that can shine forth the gospel of Jesus Christ in a world in darkness.
 
-There is much to do. You are the royal generation that has been “hid from the world with Christ” to come forth in this day to do the work. (See D&C 86:9.)
+There is much to do. You are the royal generation that has been “hid from the world with Christ” to come forth in this day to do the work. (See [[D&C 86.9|D&C 86:9]].)
 
 You must prepare. You must now make yourselves worthy and available. If you do not, the work will go on without you. It will go on at a slower pace, but it will go on. If you are not part of it, if you do not do your duty, what will happen to you? How will you be sanctified?
 
@@ -113,7 +114,10 @@ Missions are for missionaries. It is a marvelous gift of time, a time given when
 
 The teaching and conversion of others is the natural product of this process. To sanctify yourself you must serve others. The highest of all service to others is to teach them truth and bring them into the kingdom of God.
 
-Thus the decree: Send forth the elders and preach my gospel to every kindred, tongue, and people. (See D&C 133:8.)
+Thus the decree: Send forth the elders and preach my gospel to every kindred, tongue, and people. (See [[D&C 133.8|D&C 133:8]].)
 
 In the name of Jesus Christ, amen.
+
+
+
 
