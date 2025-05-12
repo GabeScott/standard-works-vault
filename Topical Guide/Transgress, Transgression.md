@@ -1,6 +1,6 @@
 # Transgress, Transgression
 
-[Transgress, Transgression](https://www.churchofjesuschrist.org/study/scriptures/tg/Transgress-Transgression?lang=eng)
+[Transgress, Transgression](https://churchofjesuschrist.org/study/scriptures/tg/transgress?lang=eng)
 
 ### References
 - [[Genesis 3.6|Genesis 3:6]]

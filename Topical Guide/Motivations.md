@@ -1,6 +1,6 @@
 # Motivations
 
-[Motivations](https://www.churchofjesuschrist.org/study/scriptures/tg/Motivations?lang=eng)
+[Motivations](https://churchofjesuschrist.org/study/scriptures/tg/motivations?lang=eng)
 
 ### References
 - [[Genesis 6.5|Genesis 6:5]]

@@ -1,6 +1,6 @@
 # Sweet, Sweeter
 
-[Sweet, Sweeter](https://www.churchofjesuschrist.org/study/scriptures/tg/Sweet-Sweeter?lang=eng)
+[Sweet, Sweeter](https://churchofjesuschrist.org/study/scriptures/tg/sweet?lang=eng)
 
 ### References
 - [[Exodus 15.25|Exodus 15:25]]

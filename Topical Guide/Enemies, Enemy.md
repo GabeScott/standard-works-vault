@@ -1,6 +1,6 @@
 # Enemies, Enemy
 
-[Enemies, Enemy](https://www.churchofjesuschrist.org/study/scriptures/tg/Enemies-Enemy?lang=eng)
+[Enemies, Enemy](https://churchofjesuschrist.org/study/scriptures/tg/enemies?lang=eng)
 
 ### References
 - [[Exodus 23.22|Exodus 23:22]]

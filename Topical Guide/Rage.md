@@ -1,6 +1,6 @@
 # Rage
 
-[Rage](https://www.churchofjesuschrist.org/study/scriptures/tg/Rage?lang=eng)
+[Rage](https://churchofjesuschrist.org/study/scriptures/tg/rage?lang=eng)
 
 ### References
 - [[Psalms 2.1|Psalms 2:1]]

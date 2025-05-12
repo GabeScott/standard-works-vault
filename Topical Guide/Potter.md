@@ -1,6 +1,6 @@
 # Potter
 
-[Potter](https://www.churchofjesuschrist.org/study/scriptures/tg/Potter?lang=eng)
+[Potter](https://churchofjesuschrist.org/study/scriptures/tg/potter?lang=eng)
 
 ### References
 - [[Psalms 2.9|Psalms 2:9]]

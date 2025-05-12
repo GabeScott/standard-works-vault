@@ -1,6 +1,6 @@
 # Leadership
 
-[Leadership](https://www.churchofjesuschrist.org/study/scriptures/tg/Leadership?lang=eng)
+[Leadership](https://churchofjesuschrist.org/study/scriptures/tg/leadership?lang=eng)
 
 ### References
 - [[Exodus 18.22|Exodus 18:22]]

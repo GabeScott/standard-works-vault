@@ -1,6 +1,6 @@
 # Lover
 
-[Lover](https://www.churchofjesuschrist.org/study/scriptures/tg/Lover?lang=eng)
+[Lover](https://churchofjesuschrist.org/study/scriptures/tg/lover?lang=eng)
 
 ### References
 - [[2 Timothy 3.2|2 Timothy 3:2]]

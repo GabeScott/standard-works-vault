@@ -1,6 +1,6 @@
 # Equal
 
-[Equal](https://www.churchofjesuschrist.org/study/scriptures/tg/Equal?lang=eng)
+[Equal](https://churchofjesuschrist.org/study/scriptures/tg/equal?lang=eng)
 
 ### References
 - [[Ezekiel 18.25|Ezekiel 18:25]]

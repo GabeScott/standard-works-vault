@@ -1,6 +1,6 @@
 # Presbytery
 
-[Presbytery](https://www.churchofjesuschrist.org/study/scriptures/tg/Presbytery?lang=eng)
+[Presbytery](https://churchofjesuschrist.org/study/scriptures/tg/presbytery?lang=eng)
 
 ### References
 - [[1 Timothy 4.14|1 Timothy 4:14]]

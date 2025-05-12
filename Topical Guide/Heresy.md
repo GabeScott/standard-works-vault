@@ -1,6 +1,6 @@
 # Heresy
 
-[Heresy](https://www.churchofjesuschrist.org/study/scriptures/tg/Heresy?lang=eng)
+[Heresy](https://churchofjesuschrist.org/study/scriptures/tg/heresy?lang=eng)
 
 ### References
 - [[Acts 24.14|Acts 24:14]]

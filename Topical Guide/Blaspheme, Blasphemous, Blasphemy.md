@@ -1,6 +1,6 @@
 # Blaspheme, Blasphemous, Blasphemy
 
-[Blaspheme, Blasphemous, Blasphemy](https://www.churchofjesuschrist.org/study/scriptures/tg/Blaspheme-Blasphemous-Blasphemy?lang=eng)
+[Blaspheme, Blasphemous, Blasphemy](https://churchofjesuschrist.org/study/scriptures/tg/blaspheme?lang=eng)
 
 ### References
 - [[Leviticus 24.11|Leviticus 24:11]]

@@ -1,6 +1,6 @@
 # Wholesome
 
-[Wholesome](https://www.churchofjesuschrist.org/study/scriptures/tg/Wholesome?lang=eng)
+[Wholesome](https://churchofjesuschrist.org/study/scriptures/tg/wholesome?lang=eng)
 
 ### References
 - [[Proverbs 15.4|Proverbs 15:4]]

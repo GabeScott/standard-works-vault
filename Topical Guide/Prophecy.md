@@ -1,6 +1,6 @@
 # Prophecy
 
-[Prophecy](https://www.churchofjesuschrist.org/study/scriptures/tg/Prophecy?lang=eng)
+[Prophecy](https://churchofjesuschrist.org/study/scriptures/tg/prophecy?lang=eng)
 
 ### References
 - [[Exodus 4.12|Exodus 4:12]]

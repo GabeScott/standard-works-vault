@@ -1,6 +1,6 @@
 # Shorten
 
-[Shorten](https://www.churchofjesuschrist.org/study/scriptures/tg/Shorten?lang=eng)
+[Shorten](https://churchofjesuschrist.org/study/scriptures/tg/shorten?lang=eng)
 
 ### References
 - [[Proverbs 10.27|Proverbs 10:27]]

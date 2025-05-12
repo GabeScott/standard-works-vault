@@ -1,6 +1,6 @@
 # Sour
 
-[Sour](https://www.churchofjesuschrist.org/study/scriptures/tg/Sour?lang=eng)
+[Sour](https://churchofjesuschrist.org/study/scriptures/tg/sour?lang=eng)
 
 ### References
 - [[Jeremiah 31.29|Jeremiah 31:29]]

@@ -1,6 +1,6 @@
 # Dissolve
 
-[Dissolve](https://www.churchofjesuschrist.org/study/scriptures/tg/Dissolve?lang=eng)
+[Dissolve](https://churchofjesuschrist.org/study/scriptures/tg/dissolve?lang=eng)
 
 ### References
 - [[Isaiah 34.4|Isaiah 34:4]]

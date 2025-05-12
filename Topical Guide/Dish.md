@@ -1,6 +1,6 @@
 # Dish
 
-[Dish](https://www.churchofjesuschrist.org/study/scriptures/tg/Dish?lang=eng)
+[Dish](https://churchofjesuschrist.org/study/scriptures/tg/dish?lang=eng)
 
 ### References
 - [[2 Kings 21.13|2 Kings 21:13]]

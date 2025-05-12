@@ -1,6 +1,6 @@
 # Blessing
 
-[Blessing](https://www.churchofjesuschrist.org/study/scriptures/tg/Blessing?lang=eng)
+[Blessing](https://churchofjesuschrist.org/study/scriptures/tg/blessing?lang=eng)
 
 ### References
 - [[Genesis 12.2|Genesis 12:2]]

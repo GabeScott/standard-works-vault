@@ -1,6 +1,6 @@
 # Safety
 
-[Safety](https://www.churchofjesuschrist.org/study/scriptures/tg/Safety?lang=eng)
+[Safety](https://churchofjesuschrist.org/study/scriptures/tg/safety?lang=eng)
 
 ### References
 - [[Deuteronomy 33.12|Deuteronomy 33:12]]

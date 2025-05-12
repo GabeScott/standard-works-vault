@@ -1,6 +1,6 @@
 # Loving-Kindness
 
-[Loving-Kindness](https://www.churchofjesuschrist.org/study/scriptures/tg/Loving-Kindness?lang=eng)
+[Loving-Kindness](https://churchofjesuschrist.org/study/scriptures/tg/loving-kindness?lang=eng)
 
 ### References
 - [[Psalms 51.1|Psalms 51:1]]

@@ -1,6 +1,6 @@
 # Want
 
-[Want](https://www.churchofjesuschrist.org/study/scriptures/tg/Want?lang=eng)
+[Want](https://churchofjesuschrist.org/study/scriptures/tg/want?lang=eng)
 
 ### References
 - [[Deuteronomy 28.48|Deuteronomy 28:48]]

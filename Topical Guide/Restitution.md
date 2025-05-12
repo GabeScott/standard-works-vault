@@ -1,6 +1,6 @@
 # Restitution
 
-[Restitution](https://www.churchofjesuschrist.org/study/scriptures/tg/Restitution?lang=eng)
+[Restitution](https://churchofjesuschrist.org/study/scriptures/tg/restitution?lang=eng)
 
 ### References
 - [[Exodus 22.12|Exodus 22:12]]

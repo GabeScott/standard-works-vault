@@ -1,6 +1,6 @@
 # Close
 
-[Close](https://www.churchofjesuschrist.org/study/scriptures/tg/Close?lang=eng)
+[Close](https://churchofjesuschrist.org/study/scriptures/tg/close?lang=eng)
 
 ### References
 - [[Genesis 20.18|Genesis 20:18]]

@@ -1,6 +1,6 @@
 # Former
 
-[Former](https://www.churchofjesuschrist.org/study/scriptures/tg/Former?lang=eng)
+[Former](https://churchofjesuschrist.org/study/scriptures/tg/former?lang=eng)
 
 ### References
 - [[Ecclesiastes 7.10|Ecclesiastes 7:10]]

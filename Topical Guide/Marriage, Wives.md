@@ -1,6 +1,6 @@
 # Marriage, Wives
 
-[Marriage, Wives](https://www.churchofjesuschrist.org/study/scriptures/tg/Marriage-Wives?lang=eng)
+[Marriage, Wives](https://churchofjesuschrist.org/study/scriptures/tg/marriage-wives?lang=eng)
 
 ### References
 - [[Genesis 2.18|Genesis 2:18]]

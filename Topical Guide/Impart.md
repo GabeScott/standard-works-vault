@@ -1,6 +1,6 @@
 # Impart
 
-[Impart](https://www.churchofjesuschrist.org/study/scriptures/tg/Impart?lang=eng)
+[Impart](https://churchofjesuschrist.org/study/scriptures/tg/impart?lang=eng)
 
 ### References
 - [[Luke 3.11|Luke 3:11]]

@@ -1,6 +1,6 @@
 # Riches
 
-[Riches](https://www.churchofjesuschrist.org/study/scriptures/tg/Riches?lang=eng)
+[Riches](https://churchofjesuschrist.org/study/scriptures/tg/riches?lang=eng)
 
 ### References
 - [[1 Kings 10.23|1 Kings 10:23]]

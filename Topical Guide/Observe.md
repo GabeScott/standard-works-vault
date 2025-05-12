@@ -1,6 +1,6 @@
 # Observe
 
-[Observe](https://www.churchofjesuschrist.org/study/scriptures/tg/Observe?lang=eng)
+[Observe](https://churchofjesuschrist.org/study/scriptures/tg/observe?lang=eng)
 
 ### References
 - [[Exodus 12.42|Exodus 12:42]]

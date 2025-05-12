@@ -1,6 +1,6 @@
 # Priesthood, Keys of
 
-[Priesthood, Keys of](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood-Keys-of?lang=eng)
+[Priesthood, Keys of](https://churchofjesuschrist.org/study/scriptures/tg/priesthood-keys-of?lang=eng)
 
 ### References
 - [[Exodus 3.10|Exodus 3:10]]

@@ -1,6 +1,6 @@
 # Behold, Beheld
 
-[Behold, Beheld](https://www.churchofjesuschrist.org/study/scriptures/tg/Behold-Beheld?lang=eng)
+[Behold, Beheld](https://churchofjesuschrist.org/study/scriptures/tg/behold?lang=eng)
 
 ### References
 - [[Numbers 21.9|Numbers 21:9]]

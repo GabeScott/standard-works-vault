@@ -1,6 +1,6 @@
 # Haste, Hasten, Hasty
 
-[Haste, Hasten, Hasty](https://www.churchofjesuschrist.org/study/scriptures/tg/Haste-Hasten-Hasty?lang=eng)
+[Haste, Hasten, Hasty](https://churchofjesuschrist.org/study/scriptures/tg/haste?lang=eng)
 
 ### References
 - [[Exodus 12.11|Exodus 12:11]]

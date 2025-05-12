@@ -1,6 +1,6 @@
 # Refine
 
-[Refine](https://www.churchofjesuschrist.org/study/scriptures/tg/Refine?lang=eng)
+[Refine](https://churchofjesuschrist.org/study/scriptures/tg/refine?lang=eng)
 
 ### References
 - [[Isaiah 48.10|Isaiah 48:10]]

@@ -1,6 +1,6 @@
 # Poor
 
-[Poor](https://www.churchofjesuschrist.org/study/scriptures/tg/Poor?lang=eng)
+[Poor](https://churchofjesuschrist.org/study/scriptures/tg/poor?lang=eng)
 
 ### References
 - [[Exodus 22.25|Exodus 22:25]]

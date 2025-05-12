@@ -1,6 +1,6 @@
 # Precious
 
-[Precious](https://www.churchofjesuschrist.org/study/scriptures/tg/Precious?lang=eng)
+[Precious](https://churchofjesuschrist.org/study/scriptures/tg/precious?lang=eng)
 
 ### References
 - [[Deuteronomy 33.13|Deuteronomy 33:13]]

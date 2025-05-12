@@ -1,6 +1,6 @@
 # Rehearse
 
-[Rehearse](https://www.churchofjesuschrist.org/study/scriptures/tg/Rehearse?lang=eng)
+[Rehearse](https://churchofjesuschrist.org/study/scriptures/tg/rehearse?lang=eng)
 
 ### References
 - [[Exodus 17.14|Exodus 17:14]]

@@ -1,6 +1,6 @@
 # Man, Antemortal Existence of
 
-[Man, Antemortal Existence of](https://www.churchofjesuschrist.org/study/scriptures/tg/Man-Antemortal-Existence-of?lang=eng)
+[Man, Antemortal Existence of](https://churchofjesuschrist.org/study/scriptures/tg/man-antemortal-existence-of?lang=eng)
 
 ### References
 - [[Numbers 16.22|Numbers 16:22]]

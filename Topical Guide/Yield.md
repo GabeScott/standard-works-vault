@@ -1,6 +1,6 @@
 # Yield
 
-[Yield](https://www.churchofjesuschrist.org/study/scriptures/tg/Yield?lang=eng)
+[Yield](https://churchofjesuschrist.org/study/scriptures/tg/yield?lang=eng)
 
 ### References
 - [[Genesis 4.12|Genesis 4:12]]

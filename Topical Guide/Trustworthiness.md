@@ -1,6 +1,6 @@
 # Trustworthiness
 
-[Trustworthiness](https://www.churchofjesuschrist.org/study/scriptures/tg/Trustworthiness?lang=eng)
+[Trustworthiness](https://churchofjesuschrist.org/study/scriptures/tg/trustworthiness?lang=eng)
 
 ### References
 - [[Genesis 18.19|Genesis 18:19]]

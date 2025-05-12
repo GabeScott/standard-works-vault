@@ -1,6 +1,6 @@
 # Taste
 
-[Taste](https://www.churchofjesuschrist.org/study/scriptures/tg/Taste?lang=eng)
+[Taste](https://churchofjesuschrist.org/study/scriptures/tg/taste?lang=eng)
 
 ### References
 - [[Numbers 11.8|Numbers 11:8]]

@@ -1,6 +1,6 @@
 # Hands, Laying on of
 
-[Hands, Laying on of](https://www.churchofjesuschrist.org/study/scriptures/tg/Hands-Laying-on-of?lang=eng)
+[Hands, Laying on of](https://churchofjesuschrist.org/study/scriptures/tg/hands-laying-on-of?lang=eng)
 
 ### References
 - [[Genesis 48.17|Genesis 48:17]]

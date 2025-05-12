@@ -1,6 +1,6 @@
 # Mix, Mixed
 
-[Mix, Mixed](https://www.churchofjesuschrist.org/study/scriptures/tg/Mix-Mixed?lang=eng)
+[Mix, Mixed](https://churchofjesuschrist.org/study/scriptures/tg/mix?lang=eng)
 
 ### References
 - [[Exodus 12.38|Exodus 12:38]]

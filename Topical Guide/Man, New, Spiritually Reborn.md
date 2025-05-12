@@ -1,6 +1,6 @@
 # Man, New, Spiritually Reborn
 
-[Man, New, Spiritually Reborn](https://www.churchofjesuschrist.org/study/scriptures/tg/Man-New-Spiritually-Reborn?lang=eng)
+[Man, New, Spiritually Reborn](https://churchofjesuschrist.org/study/scriptures/tg/man-new-spiritually-reborn?lang=eng)
 
 ### References
 - [[1 Samuel 10.9|1 Samuel 10:9]]

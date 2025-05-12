@@ -1,6 +1,6 @@
 # Entice
 
-[Entice](https://www.churchofjesuschrist.org/study/scriptures/tg/Entice?lang=eng)
+[Entice](https://churchofjesuschrist.org/study/scriptures/tg/entice?lang=eng)
 
 ### References
 - [[Judges 16.5|Judges 16:5]]

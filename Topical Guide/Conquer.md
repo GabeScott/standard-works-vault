@@ -1,6 +1,6 @@
 # Conquer
 
-[Conquer](https://www.churchofjesuschrist.org/study/scriptures/tg/Conquer?lang=eng)
+[Conquer](https://churchofjesuschrist.org/study/scriptures/tg/conquer?lang=eng)
 
 ### References
 - [[Revelation 6.2|Revelation 6:2]]

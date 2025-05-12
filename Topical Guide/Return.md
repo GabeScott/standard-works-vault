@@ -1,6 +1,6 @@
 # Return
 
-[Return](https://www.churchofjesuschrist.org/study/scriptures/tg/Return?lang=eng)
+[Return](https://churchofjesuschrist.org/study/scriptures/tg/return?lang=eng)
 
 ### References
 - [[Genesis 3.19|Genesis 3:19]]

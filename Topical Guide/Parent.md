@@ -1,6 +1,6 @@
 # Parent
 
-[Parent](https://www.churchofjesuschrist.org/study/scriptures/tg/Parent?lang=eng)
+[Parent](https://churchofjesuschrist.org/study/scriptures/tg/parent?lang=eng)
 
 ### References
 - [[Matthew 10.21|Matthew 10:21]]

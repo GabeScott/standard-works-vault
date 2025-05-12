@@ -1,6 +1,6 @@
 # Earnest, Earnestly
 
-[Earnest, Earnestly](https://www.churchofjesuschrist.org/study/scriptures/tg/Earnest-Earnestly?lang=eng)
+[Earnest, Earnestly](https://churchofjesuschrist.org/study/scriptures/tg/earnest?lang=eng)
 
 ### References
 - [[Romans 8.19|Romans 8:19]]

@@ -1,6 +1,6 @@
 # Israel, Bondage of, in Egypt
 
-[Israel, Bondage of, in Egypt](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Bondage-of-in-Egypt?lang=eng)
+[Israel, Bondage of, in Egypt](https://churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-egypt?lang=eng)
 
 ### References
 - [[Genesis 15.13|Genesis 15:13]]

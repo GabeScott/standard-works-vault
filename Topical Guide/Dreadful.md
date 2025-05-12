@@ -1,6 +1,6 @@
 # Dreadful
 
-[Dreadful](https://www.churchofjesuschrist.org/study/scriptures/tg/Dreadful?lang=eng)
+[Dreadful](https://churchofjesuschrist.org/study/scriptures/tg/dreadful?lang=eng)
 
 ### References
 - [[Genesis 28.17|Genesis 28:17]]

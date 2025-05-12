@@ -1,6 +1,6 @@
 # Ram
 
-[Ram](https://www.churchofjesuschrist.org/study/scriptures/tg/Ram?lang=eng)
+[Ram](https://churchofjesuschrist.org/study/scriptures/tg/ram?lang=eng)
 
 ### References
 - [[Genesis 22.13|Genesis 22:13]]

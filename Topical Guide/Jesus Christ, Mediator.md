@@ -1,6 +1,6 @@
 # Jesus Christ, Mediator
 
-[Jesus Christ, Mediator](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Mediator?lang=eng)
+[Jesus Christ, Mediator](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mediator?lang=eng)
 
 ### References
 - [[John 14.6|John 14:6]]

@@ -1,6 +1,6 @@
 # Courtesy
 
-[Courtesy](https://www.churchofjesuschrist.org/study/scriptures/tg/Courtesy?lang=eng)
+[Courtesy](https://churchofjesuschrist.org/study/scriptures/tg/courtesy?lang=eng)
 
 ### References
 - [[Genesis 18.2|Genesis 18:2]]

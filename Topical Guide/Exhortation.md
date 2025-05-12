@@ -1,6 +1,6 @@
 # Exhortation
 
-[Exhortation](https://www.churchofjesuschrist.org/study/scriptures/tg/Exhortation?lang=eng)
+[Exhortation](https://churchofjesuschrist.org/study/scriptures/tg/exhortation?lang=eng)
 
 ### References
 - [[1 Timothy 4.13|1 Timothy 4:13]]

@@ -1,6 +1,6 @@
 # Terror
 
-[Terror](https://www.churchofjesuschrist.org/study/scriptures/tg/Terror?lang=eng)
+[Terror](https://churchofjesuschrist.org/study/scriptures/tg/terror?lang=eng)
 
 ### References
 - [[Genesis 35.5|Genesis 35:5]]

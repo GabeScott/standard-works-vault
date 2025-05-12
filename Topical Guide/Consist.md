@@ -1,6 +1,6 @@
 # Consist
 
-[Consist](https://www.churchofjesuschrist.org/study/scriptures/tg/Consist?lang=eng)
+[Consist](https://churchofjesuschrist.org/study/scriptures/tg/consist?lang=eng)
 
 ### References
 - [[Luke 12.15|Luke 12:15]]

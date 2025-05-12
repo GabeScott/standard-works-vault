@@ -1,6 +1,6 @@
 # Commitment
 
-[Commitment](https://www.churchofjesuschrist.org/study/scriptures/tg/Commitment?lang=eng)
+[Commitment](https://churchofjesuschrist.org/study/scriptures/tg/commitment?lang=eng)
 
 ### References
 - [[Numbers 14.24|Numbers 14:24]]

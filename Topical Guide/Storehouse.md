@@ -1,6 +1,6 @@
 # Storehouse
 
-[Storehouse](https://www.churchofjesuschrist.org/study/scriptures/tg/Storehouse?lang=eng)
+[Storehouse](https://churchofjesuschrist.org/study/scriptures/tg/storehouse?lang=eng)
 
 ### References
 - [[Genesis 41.56|Genesis 41:56]]

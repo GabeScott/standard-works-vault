@@ -1,6 +1,6 @@
 # Thine
 
-[Thine](https://www.churchofjesuschrist.org/study/scriptures/tg/Thine?lang=eng)
+[Thine](https://churchofjesuschrist.org/study/scriptures/tg/thine?lang=eng)
 
 ### References
 - [[Matthew 6.13|Matthew 6:13]]

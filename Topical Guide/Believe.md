@@ -1,6 +1,6 @@
 # Believe
 
-[Believe](https://www.churchofjesuschrist.org/study/scriptures/tg/Believe?lang=eng)
+[Believe](https://churchofjesuschrist.org/study/scriptures/tg/believe?lang=eng)
 
 ### References
 - [[Genesis 15.6|Genesis 15:6]]

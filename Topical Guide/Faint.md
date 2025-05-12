@@ -1,6 +1,6 @@
 # Faint
 
-[Faint](https://www.churchofjesuschrist.org/study/scriptures/tg/Faint?lang=eng)
+[Faint](https://churchofjesuschrist.org/study/scriptures/tg/faint?lang=eng)
 
 ### References
 - [[Genesis 25.29|Genesis 25:29]]

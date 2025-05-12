@@ -1,6 +1,6 @@
 # Partake
 
-[Partake](https://www.churchofjesuschrist.org/study/scriptures/tg/Partake?lang=eng)
+[Partake](https://churchofjesuschrist.org/study/scriptures/tg/partake?lang=eng)
 
 ### References
 - [[1 Nephi 8.11|1 Nephi 8:11]]

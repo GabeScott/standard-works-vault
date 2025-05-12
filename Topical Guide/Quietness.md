@@ -1,6 +1,6 @@
 # Quietness
 
-[Quietness](https://www.churchofjesuschrist.org/study/scriptures/tg/Quietness?lang=eng)
+[Quietness](https://churchofjesuschrist.org/study/scriptures/tg/quietness?lang=eng)
 
 ### References
 - [[Job 34.29|Job 34:29]]

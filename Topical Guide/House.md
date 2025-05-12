@@ -1,6 +1,6 @@
 # House
 
-[House](https://www.churchofjesuschrist.org/study/scriptures/tg/House?lang=eng)
+[House](https://churchofjesuschrist.org/study/scriptures/tg/house?lang=eng)
 
 ### References
 - [[Genesis 28.17|Genesis 28:17]]

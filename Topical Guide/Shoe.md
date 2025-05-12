@@ -1,6 +1,6 @@
 # Shoe
 
-[Shoe](https://www.churchofjesuschrist.org/study/scriptures/tg/Shoe?lang=eng)
+[Shoe](https://churchofjesuschrist.org/study/scriptures/tg/shoe?lang=eng)
 
 ### References
 - [[Exodus 12.11|Exodus 12:11]]

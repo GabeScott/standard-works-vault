@@ -1,6 +1,6 @@
 # Unknown
 
-[Unknown](https://www.churchofjesuschrist.org/study/scriptures/tg/Unknown?lang=eng)
+[Unknown](https://churchofjesuschrist.org/study/scriptures/tg/unknown?lang=eng)
 
 ### References
 - [[Acts 17.23|Acts 17:23]]

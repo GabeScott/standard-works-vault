@@ -1,6 +1,6 @@
 # Reunite
 
-[Reunite](https://www.churchofjesuschrist.org/study/scriptures/tg/Reunite?lang=eng)
+[Reunite](https://churchofjesuschrist.org/study/scriptures/tg/reunite?lang=eng)
 
 ### References
 - [[Alma 11.43|Alma 11:43]]

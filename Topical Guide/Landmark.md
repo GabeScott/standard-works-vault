@@ -1,6 +1,6 @@
 # Landmark
 
-[Landmark](https://www.churchofjesuschrist.org/study/scriptures/tg/Landmark?lang=eng)
+[Landmark](https://churchofjesuschrist.org/study/scriptures/tg/landmark?lang=eng)
 
 ### References
 - [[Deuteronomy 19.14|Deuteronomy 19:14]]

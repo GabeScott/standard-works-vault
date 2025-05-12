@@ -1,6 +1,6 @@
 # Chain
 
-[Chain](https://www.churchofjesuschrist.org/study/scriptures/tg/Chain?lang=eng)
+[Chain](https://churchofjesuschrist.org/study/scriptures/tg/chain?lang=eng)
 
 ### References
 - [[Genesis 41.42|Genesis 41:42]]

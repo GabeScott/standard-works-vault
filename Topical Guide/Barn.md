@@ -1,6 +1,6 @@
 # Barn
 
-[Barn](https://www.churchofjesuschrist.org/study/scriptures/tg/Barn?lang=eng)
+[Barn](https://churchofjesuschrist.org/study/scriptures/tg/barn?lang=eng)
 
 ### References
 - [[Proverbs 3.10|Proverbs 3:10]]

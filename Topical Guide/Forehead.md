@@ -1,6 +1,6 @@
 # Forehead
 
-[Forehead](https://www.churchofjesuschrist.org/study/scriptures/tg/Forehead?lang=eng)
+[Forehead](https://churchofjesuschrist.org/study/scriptures/tg/forehead?lang=eng)
 
 ### References
 - [[1 Samuel 17.49|1 Samuel 17:49]]

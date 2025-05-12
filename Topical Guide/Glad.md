@@ -1,6 +1,6 @@
 # Glad
 
-[Glad](https://www.churchofjesuschrist.org/study/scriptures/tg/Glad?lang=eng)
+[Glad](https://churchofjesuschrist.org/study/scriptures/tg/glad?lang=eng)
 
 ### References
 - [[Psalms 105.38|Psalms 105:38]]

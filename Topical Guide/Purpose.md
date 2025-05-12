@@ -1,6 +1,6 @@
 # Purpose
 
-[Purpose](https://www.churchofjesuschrist.org/study/scriptures/tg/Purpose?lang=eng)
+[Purpose](https://churchofjesuschrist.org/study/scriptures/tg/purpose?lang=eng)
 
 ### References
 - [[Proverbs 20.18|Proverbs 20:18]]

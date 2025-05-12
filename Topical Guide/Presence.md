@@ -1,6 +1,6 @@
 # Presence
 
-[Presence](https://www.churchofjesuschrist.org/study/scriptures/tg/Presence?lang=eng)
+[Presence](https://churchofjesuschrist.org/study/scriptures/tg/presence?lang=eng)
 
 ### References
 - [[Genesis 4.16|Genesis 4:16]]

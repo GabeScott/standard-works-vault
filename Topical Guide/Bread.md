@@ -1,6 +1,6 @@
 # Bread
 
-[Bread](https://www.churchofjesuschrist.org/study/scriptures/tg/Bread?lang=eng)
+[Bread](https://churchofjesuschrist.org/study/scriptures/tg/bread?lang=eng)
 
 ### References
 - [[Genesis 14.18|Genesis 14:18]]

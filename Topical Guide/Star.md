@@ -1,6 +1,6 @@
 # Star
 
-[Star](https://www.churchofjesuschrist.org/study/scriptures/tg/Star?lang=eng)
+[Star](https://churchofjesuschrist.org/study/scriptures/tg/star?lang=eng)
 
 ### References
 - [[Genesis 15.5|Genesis 15:5]]

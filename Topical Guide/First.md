@@ -1,6 +1,6 @@
 # First
 
-[First](https://www.churchofjesuschrist.org/study/scriptures/tg/First?lang=eng)
+[First](https://churchofjesuschrist.org/study/scriptures/tg/death-spiritual-first?lang=eng)
 
 ### References
 - [[Genesis 1.5|Genesis 1:5]]

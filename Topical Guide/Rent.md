@@ -1,6 +1,6 @@
 # Rent
 
-[Rent](https://www.churchofjesuschrist.org/study/scriptures/tg/Rent?lang=eng)
+[Rent](https://churchofjesuschrist.org/study/scriptures/tg/rend?lang=eng)
 
 ### References
 - [[Joshua 9.4|Joshua 9:4]]

@@ -1,6 +1,6 @@
 # Reviling, Revile
 
-[Reviling, Revile](https://www.churchofjesuschrist.org/study/scriptures/tg/Reviling-Revile?lang=eng)
+[Reviling, Revile](https://churchofjesuschrist.org/study/scriptures/tg/reviling?lang=eng)
 
 ### References
 - [[Exodus 22.28|Exodus 22:28]]

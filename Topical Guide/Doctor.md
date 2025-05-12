@@ -1,6 +1,6 @@
 # Doctor
 
-[Doctor](https://www.churchofjesuschrist.org/study/scriptures/tg/Doctor?lang=eng)
+[Doctor](https://churchofjesuschrist.org/study/scriptures/tg/doctor?lang=eng)
 
 ### References
 - [[Luke 2.46|Luke 2:46]]

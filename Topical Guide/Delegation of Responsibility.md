@@ -1,6 +1,6 @@
 # Delegation of Responsibility
 
-[Delegation of Responsibility](https://www.churchofjesuschrist.org/study/scriptures/tg/Delegation-of-Responsibility?lang=eng)
+[Delegation of Responsibility](https://churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng)
 
 ### References
 - [[Exodus 18.25|Exodus 18:25]]

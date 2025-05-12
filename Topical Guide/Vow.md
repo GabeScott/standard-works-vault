@@ -1,6 +1,6 @@
 # Vow
 
-[Vow](https://www.churchofjesuschrist.org/study/scriptures/tg/Vow?lang=eng)
+[Vow](https://churchofjesuschrist.org/study/scriptures/tg/vow?lang=eng)
 
 ### References
 - [[Genesis 28.20|Genesis 28:20]]

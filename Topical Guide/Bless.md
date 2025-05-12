@@ -1,6 +1,6 @@
 # Bless
 
-[Bless](https://www.churchofjesuschrist.org/study/scriptures/tg/Bless?lang=eng)
+[Bless](https://churchofjesuschrist.org/study/scriptures/tg/bless-verb?lang=eng)
 
 ### References
 - [[Genesis 1.22|Genesis 1:22]]

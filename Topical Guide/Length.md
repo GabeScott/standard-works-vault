@@ -1,6 +1,6 @@
 # Length
 
-[Length](https://www.churchofjesuschrist.org/study/scriptures/tg/Length?lang=eng)
+[Length](https://churchofjesuschrist.org/study/scriptures/tg/length?lang=eng)
 
 ### References
 - [[Deuteronomy 30.20|Deuteronomy 30:20]]

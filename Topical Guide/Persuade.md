@@ -1,6 +1,6 @@
 # Persuade
 
-[Persuade](https://www.churchofjesuschrist.org/study/scriptures/tg/Persuade?lang=eng)
+[Persuade](https://churchofjesuschrist.org/study/scriptures/tg/persuade?lang=eng)
 
 ### References
 - [[Proverbs 25.15|Proverbs 25:15]]

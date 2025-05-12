@@ -1,6 +1,6 @@
 # Insurrection
 
-[Insurrection](https://www.churchofjesuschrist.org/study/scriptures/tg/Insurrection?lang=eng)
+[Insurrection](https://churchofjesuschrist.org/study/scriptures/tg/insurrection?lang=eng)
 
 ### References
 - [[Mark 15.7|Mark 15:7]]

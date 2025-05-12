@@ -1,6 +1,6 @@
 # Unchangeable
 
-[Unchangeable](https://www.churchofjesuschrist.org/study/scriptures/tg/Unchangeable?lang=eng)
+[Unchangeable](https://churchofjesuschrist.org/study/scriptures/tg/unchangeable?lang=eng)
 
 ### References
 - [[Hebrews 7.24|Hebrews 7:24]]

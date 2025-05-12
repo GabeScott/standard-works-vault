@@ -1,6 +1,6 @@
 # Overtake, Overtook, Overtaken
 
-[Overtake, Overtook, Overtaken](https://www.churchofjesuschrist.org/study/scriptures/tg/Overtake-Overtook-Overtaken?lang=eng)
+[Overtake, Overtook, Overtaken](https://churchofjesuschrist.org/study/scriptures/tg/overtake?lang=eng)
 
 ### References
 - [[Genesis 31.25|Genesis 31:25]]

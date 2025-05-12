@@ -1,6 +1,6 @@
 # Singing, Sing, Sang, Sung
 
-[Singing, Sing, Sang, Sung](https://www.churchofjesuschrist.org/study/scriptures/tg/Singing-Sing-Sang-Sung?lang=eng)
+[Singing, Sing, Sang, Sung](https://churchofjesuschrist.org/study/scriptures/tg/singing?lang=eng)
 
 ### References
 - [[Exodus 15.1|Exodus 15:1]]

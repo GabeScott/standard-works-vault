@@ -1,6 +1,6 @@
 # Footstool
 
-[Footstool](https://www.churchofjesuschrist.org/study/scriptures/tg/Footstool?lang=eng)
+[Footstool](https://churchofjesuschrist.org/study/scriptures/tg/footstool?lang=eng)
 
 ### References
 - [[1 Chronicles 28.2|1 Chronicles 28:2]]

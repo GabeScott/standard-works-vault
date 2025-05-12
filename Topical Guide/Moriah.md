@@ -1,6 +1,6 @@
 # Moriah
 
-[Moriah](https://www.churchofjesuschrist.org/study/scriptures/tg/Moriah?lang=eng)
+[Moriah](https://churchofjesuschrist.org/study/scriptures/tg/moriah?lang=eng)
 
 ### References
 - [[Genesis 22.2|Genesis 22:2]]

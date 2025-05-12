@@ -1,6 +1,6 @@
 # Attain
 
-[Attain](https://www.churchofjesuschrist.org/study/scriptures/tg/Attain?lang=eng)
+[Attain](https://churchofjesuschrist.org/study/scriptures/tg/attain?lang=eng)
 
 ### References
 - [[Romans 9.31|Romans 9:31]]

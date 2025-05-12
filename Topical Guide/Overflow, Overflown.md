@@ -1,6 +1,6 @@
 # Overflow, Overflown
 
-[Overflow, Overflown](https://www.churchofjesuschrist.org/study/scriptures/tg/Overflow-Overflown?lang=eng)
+[Overflow, Overflown](https://churchofjesuschrist.org/study/scriptures/tg/overflow?lang=eng)
 
 ### References
 - [[Joshua 3.15|Joshua 3:15]]

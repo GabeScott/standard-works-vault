@@ -1,6 +1,6 @@
 # Church
 
-[Church](https://www.churchofjesuschrist.org/study/scriptures/tg/Church?lang=eng)
+[Church](https://churchofjesuschrist.org/study/scriptures/tg/abominable-church?lang=eng)
 
 ### References
 - [[Exodus 16.22|Exodus 16:22]]

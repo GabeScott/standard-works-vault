@@ -1,6 +1,6 @@
 # Sobriety, Sober, Soberness
 
-[Sobriety, Sober, Soberness](https://www.churchofjesuschrist.org/study/scriptures/tg/Sobriety-Sober-Soberness?lang=eng)
+[Sobriety, Sober, Soberness](https://churchofjesuschrist.org/study/scriptures/tg/sobriety?lang=eng)
 
 ### References
 - [[Romans 12.3|Romans 12:3]]

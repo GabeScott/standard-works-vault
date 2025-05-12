@@ -1,6 +1,6 @@
 # Hearken
 
-[Hearken](https://www.churchofjesuschrist.org/study/scriptures/tg/Hearken?lang=eng)
+[Hearken](https://churchofjesuschrist.org/study/scriptures/tg/hearken?lang=eng)
 
 ### References
 - [[Exodus 3.18|Exodus 3:18]]

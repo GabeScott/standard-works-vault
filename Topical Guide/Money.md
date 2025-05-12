@@ -1,6 +1,6 @@
 # Money
 
-[Money](https://www.churchofjesuschrist.org/study/scriptures/tg/Money?lang=eng)
+[Money](https://churchofjesuschrist.org/study/scriptures/tg/money?lang=eng)
 
 ### References
 - [[Genesis 42.25|Genesis 42:25]]

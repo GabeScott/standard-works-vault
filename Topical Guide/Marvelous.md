@@ -1,6 +1,6 @@
 # Marvelous
 
-[Marvelous](https://www.churchofjesuschrist.org/study/scriptures/tg/Marvelous?lang=eng)
+[Marvelous](https://churchofjesuschrist.org/study/scriptures/tg/marvelous?lang=eng)
 
 ### References
 - [[Psalms 78.12|Psalms 78:12]]

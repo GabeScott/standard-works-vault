@@ -1,6 +1,6 @@
 # Request
 
-[Request](https://www.churchofjesuschrist.org/study/scriptures/tg/Request?lang=eng)
+[Request](https://churchofjesuschrist.org/study/scriptures/tg/request?lang=eng)
 
 ### References
 - [[Daniel 2.49|Daniel 2:49]]

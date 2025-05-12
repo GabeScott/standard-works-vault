@@ -1,6 +1,6 @@
 # Diversity
 
-[Diversity](https://www.churchofjesuschrist.org/study/scriptures/tg/Diversity?lang=eng)
+[Diversity](https://churchofjesuschrist.org/study/scriptures/tg/diversity?lang=eng)
 
 ### References
 - [[1 Corinthians 12.4|1 Corinthians 12:4]]

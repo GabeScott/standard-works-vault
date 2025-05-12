@@ -1,6 +1,6 @@
 # Sons of Perdition
 
-[Sons of Perdition](https://www.churchofjesuschrist.org/study/scriptures/tg/Sons-of-Perdition?lang=eng)
+[Sons of Perdition](https://churchofjesuschrist.org/study/scriptures/tg/sons-of-perdition?lang=eng)
 
 ### References
 - [[John 17.12|John 17:12]]

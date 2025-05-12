@@ -1,6 +1,6 @@
 # Trust in God
 
-[Trust in God](https://www.churchofjesuschrist.org/study/scriptures/tg/Trust-in-God?lang=eng)
+[Trust in God](https://churchofjesuschrist.org/study/scriptures/tg/trust-in-god?lang=eng)
 
 ### References
 - [[Ruth 2.12|Ruth 2:12]]

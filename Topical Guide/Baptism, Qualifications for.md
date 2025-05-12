@@ -1,6 +1,6 @@
 # Baptism, Qualifications for
 
-[Baptism, Qualifications for](https://www.churchofjesuschrist.org/study/scriptures/tg/Baptism-Qualifications-for?lang=eng)
+[Baptism, Qualifications for](https://churchofjesuschrist.org/study/scriptures/tg/baptism-qualifications-for?lang=eng)
 
 ### References
 - [[Matthew 3.11|Matthew 3:11]]

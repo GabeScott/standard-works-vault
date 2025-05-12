@@ -1,6 +1,6 @@
 # Jesus Christ, Judge
 
-[Jesus Christ, Judge](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Judge?lang=eng)
+[Jesus Christ, Judge](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
 
 ### References
 - [[Genesis 18.25|Genesis 18:25]]

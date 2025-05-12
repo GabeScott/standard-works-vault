@@ -1,6 +1,6 @@
 # Pretence
 
-[Pretence](https://www.churchofjesuschrist.org/study/scriptures/tg/Pretence?lang=eng)
+[Pretence](https://churchofjesuschrist.org/study/scriptures/tg/pretence?lang=eng)
 
 ### References
 - [[Matthew 23.14|Matthew 23:14]]

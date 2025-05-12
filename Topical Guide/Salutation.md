@@ -1,6 +1,6 @@
 # Salutation
 
-[Salutation](https://www.churchofjesuschrist.org/study/scriptures/tg/Salutation?lang=eng)
+[Salutation](https://churchofjesuschrist.org/study/scriptures/tg/salutation?lang=eng)
 
 ### References
 - [[Mark 12.38|Mark 12:38]]

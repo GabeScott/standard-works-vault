@@ -1,6 +1,6 @@
 # Provoking, Provoke
 
-[Provoking, Provoke](https://www.churchofjesuschrist.org/study/scriptures/tg/Provoking-Provoke?lang=eng)
+[Provoking, Provoke](https://churchofjesuschrist.org/study/scriptures/tg/provoking?lang=eng)
 
 ### References
 - [[Exodus 23.21|Exodus 23:21]]

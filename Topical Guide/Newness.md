@@ -1,6 +1,6 @@
 # Newness
 
-[Newness](https://www.churchofjesuschrist.org/study/scriptures/tg/Newness?lang=eng)
+[Newness](https://churchofjesuschrist.org/study/scriptures/tg/newness?lang=eng)
 
 ### References
 - [[Romans 6.4|Romans 6:4]]

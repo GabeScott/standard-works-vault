@@ -1,6 +1,6 @@
 # Children
 
-[Children](https://www.churchofjesuschrist.org/study/scriptures/tg/Children?lang=eng)
+[Children](https://churchofjesuschrist.org/study/scriptures/tg/blessing-of-children?lang=eng)
 
 ### References
 - [[Genesis 1.28|Genesis 1:28]]

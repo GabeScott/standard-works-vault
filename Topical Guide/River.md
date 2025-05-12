@@ -1,6 +1,6 @@
 # River
 
-[River](https://www.churchofjesuschrist.org/study/scriptures/tg/River?lang=eng)
+[River](https://churchofjesuschrist.org/study/scriptures/tg/river?lang=eng)
 
 ### References
 - [[Genesis 15.18|Genesis 15:18]]

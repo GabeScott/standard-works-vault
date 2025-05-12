@@ -1,6 +1,6 @@
 # Build, Built
 
-[Build, Built](https://www.churchofjesuschrist.org/study/scriptures/tg/Build-Built?lang=eng)
+[Build, Built](https://churchofjesuschrist.org/study/scriptures/tg/build?lang=eng)
 
 ### References
 - [[Genesis 11.4|Genesis 11:4]]

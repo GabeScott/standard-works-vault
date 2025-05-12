@@ -1,6 +1,6 @@
 # Womb
 
-[Womb](https://www.churchofjesuschrist.org/study/scriptures/tg/Womb?lang=eng)
+[Womb](https://churchofjesuschrist.org/study/scriptures/tg/womb?lang=eng)
 
 ### References
 - [[Genesis 25.23|Genesis 25:23]]

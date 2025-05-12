@@ -1,6 +1,6 @@
 # Hardly
 
-[Hardly](https://www.churchofjesuschrist.org/study/scriptures/tg/Hardly?lang=eng)
+[Hardly](https://churchofjesuschrist.org/study/scriptures/tg/hardly?lang=eng)
 
 ### References
 - [[Matthew 19.23|Matthew 19:23]]

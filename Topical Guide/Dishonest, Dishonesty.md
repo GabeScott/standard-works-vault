@@ -1,6 +1,6 @@
 # Dishonest, Dishonesty
 
-[Dishonest, Dishonesty](https://www.churchofjesuschrist.org/study/scriptures/tg/Dishonest-Dishonesty?lang=eng)
+[Dishonest, Dishonesty](https://churchofjesuschrist.org/study/scriptures/tg/dishonest?lang=eng)
 
 ### References
 - [[Ezekiel 22.13|Ezekiel 22:13]]

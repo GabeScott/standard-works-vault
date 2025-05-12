@@ -1,6 +1,6 @@
 # Plenteous
 
-[Plenteous](https://www.churchofjesuschrist.org/study/scriptures/tg/Plenteous?lang=eng)
+[Plenteous](https://churchofjesuschrist.org/study/scriptures/tg/plenteous?lang=eng)
 
 ### References
 - [[Genesis 41.34|Genesis 41:34]]

@@ -1,6 +1,6 @@
 # Course
 
-[Course](https://www.churchofjesuschrist.org/study/scriptures/tg/Course?lang=eng)
+[Course](https://churchofjesuschrist.org/study/scriptures/tg/course?lang=eng)
 
 ### References
 - [[2 Chronicles 31.2|2 Chronicles 31:2]]

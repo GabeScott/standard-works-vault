@@ -1,6 +1,6 @@
 # Prison
 
-[Prison](https://www.churchofjesuschrist.org/study/scriptures/tg/Prison?lang=eng)
+[Prison](https://churchofjesuschrist.org/study/scriptures/tg/prison?lang=eng)
 
 ### References
 - [[Genesis 39.20|Genesis 39:20]]

@@ -1,6 +1,6 @@
 # Adversary
 
-[Adversary](https://www.churchofjesuschrist.org/study/scriptures/tg/Adversary?lang=eng)
+[Adversary](https://churchofjesuschrist.org/study/scriptures/tg/adversary?lang=eng)
 
 ### References
 - [[1 Kings 11.14|1 Kings 11:14]]

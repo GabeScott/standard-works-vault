@@ -1,6 +1,6 @@
 # Opinion
 
-[Opinion](https://www.churchofjesuschrist.org/study/scriptures/tg/Opinion?lang=eng)
+[Opinion](https://churchofjesuschrist.org/study/scriptures/tg/opinion?lang=eng)
 
 ### References
 - [[1 Kings 18.21|1 Kings 18:21]]

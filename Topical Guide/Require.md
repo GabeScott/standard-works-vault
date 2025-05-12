@@ -1,6 +1,6 @@
 # Require
 
-[Require](https://www.churchofjesuschrist.org/study/scriptures/tg/Require?lang=eng)
+[Require](https://churchofjesuschrist.org/study/scriptures/tg/require?lang=eng)
 
 ### References
 - [[Genesis 9.5|Genesis 9:5]]

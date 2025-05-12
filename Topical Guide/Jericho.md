@@ -1,6 +1,6 @@
 # Jericho
 
-[Jericho](https://www.churchofjesuschrist.org/study/scriptures/tg/Jericho?lang=eng)
+[Jericho](https://churchofjesuschrist.org/study/scriptures/tg/jericho?lang=eng)
 
 ### References
 - [[Numbers 22.1|Numbers 22:1]]

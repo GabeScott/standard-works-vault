@@ -1,6 +1,6 @@
 # Lodge
 
-[Lodge](https://www.churchofjesuschrist.org/study/scriptures/tg/Lodge?lang=eng)
+[Lodge](https://churchofjesuschrist.org/study/scriptures/tg/lodge?lang=eng)
 
 ### References
 - [[Ruth 1.16|Ruth 1:16]]

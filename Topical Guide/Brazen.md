@@ -1,6 +1,6 @@
 # Brazen
 
-[Brazen](https://www.churchofjesuschrist.org/study/scriptures/tg/Brazen?lang=eng)
+[Brazen](https://churchofjesuschrist.org/study/scriptures/tg/brazen?lang=eng)
 
 ### References
 - [[2 Kings 18.4|2 Kings 18:4]]

@@ -1,6 +1,6 @@
 # God, Wisdom of
 
-[God, Wisdom of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Wisdom-of?lang=eng)
+[God, Wisdom of](https://churchofjesuschrist.org/study/scriptures/tg/god-wisdom-of?lang=eng)
 
 ### References
 - [[Exodus 31.3|Exodus 31:3]]

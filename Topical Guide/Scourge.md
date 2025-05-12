@@ -1,6 +1,6 @@
 # Scourge
 
-[Scourge](https://www.churchofjesuschrist.org/study/scriptures/tg/Scourge?lang=eng)
+[Scourge](https://churchofjesuschrist.org/study/scriptures/tg/scourge?lang=eng)
 
 ### References
 - [[Leviticus 19.20|Leviticus 19:20]]

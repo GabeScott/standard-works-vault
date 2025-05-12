@@ -1,6 +1,6 @@
 # Herb
 
-[Herb](https://www.churchofjesuschrist.org/study/scriptures/tg/Herb?lang=eng)
+[Herb](https://churchofjesuschrist.org/study/scriptures/tg/herb?lang=eng)
 
 ### References
 - [[Genesis 1.11|Genesis 1:11]]

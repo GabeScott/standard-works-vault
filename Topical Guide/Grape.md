@@ -1,6 +1,6 @@
 # Grape
 
-[Grape](https://www.churchofjesuschrist.org/study/scriptures/tg/Grape?lang=eng)
+[Grape](https://churchofjesuschrist.org/study/scriptures/tg/grape?lang=eng)
 
 ### References
 - [[Genesis 40.10|Genesis 40:10]]

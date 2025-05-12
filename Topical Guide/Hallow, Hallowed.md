@@ -1,6 +1,6 @@
 # Hallow, Hallowed
 
-[Hallow, Hallowed](https://www.churchofjesuschrist.org/study/scriptures/tg/Hallow-Hallowed?lang=eng)
+[Hallow, Hallowed](https://churchofjesuschrist.org/study/scriptures/tg/hallow?lang=eng)
 
 ### References
 - [[Exodus 29.1|Exodus 29:1]]

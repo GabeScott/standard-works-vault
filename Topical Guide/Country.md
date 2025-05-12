@@ -1,6 +1,6 @@
 # Country
 
-[Country](https://www.churchofjesuschrist.org/study/scriptures/tg/Country?lang=eng)
+[Country](https://churchofjesuschrist.org/study/scriptures/tg/country?lang=eng)
 
 ### References
 - [[Genesis 12.1|Genesis 12:1]]

@@ -1,6 +1,6 @@
 # Change
 
-[Change](https://www.churchofjesuschrist.org/study/scriptures/tg/Change?lang=eng)
+[Change](https://churchofjesuschrist.org/study/scriptures/tg/change?lang=eng)
 
 ### References
 - [[Psalms 15.4|Psalms 15:4]]

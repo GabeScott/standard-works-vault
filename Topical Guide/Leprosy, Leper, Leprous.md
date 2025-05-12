@@ -1,6 +1,6 @@
 # Leprosy, Leper, Leprous
 
-[Leprosy, Leper, Leprous](https://www.churchofjesuschrist.org/study/scriptures/tg/Leprosy-Leper-Leprous?lang=eng)
+[Leprosy, Leper, Leprous](https://churchofjesuschrist.org/study/scriptures/tg/leprosy?lang=eng)
 
 ### References
 - [[Exodus 4.6|Exodus 4:6]]

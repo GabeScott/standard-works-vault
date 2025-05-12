@@ -1,6 +1,6 @@
 # Mysteries of Godliness
 
-[Mysteries of Godliness](https://www.churchofjesuschrist.org/study/scriptures/tg/Mysteries-of-Godliness?lang=eng)
+[Mysteries of Godliness](https://churchofjesuschrist.org/study/scriptures/tg/mysteries-of-godliness?lang=eng)
 
 ### References
 - [[Deuteronomy 29.29|Deuteronomy 29:29]]

@@ -1,6 +1,6 @@
 # Jew, Jewish
 
-[Jew, Jewish](https://www.churchofjesuschrist.org/study/scriptures/tg/Jew-Jewish?lang=eng)
+[Jew, Jewish](https://churchofjesuschrist.org/study/scriptures/tg/jew?lang=eng)
 
 ### References
 - [[Nehemiah 1.2|Nehemiah 1:2]]

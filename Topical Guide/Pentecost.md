@@ -1,6 +1,6 @@
 # Pentecost
 
-[Pentecost](https://www.churchofjesuschrist.org/study/scriptures/tg/Pentecost?lang=eng)
+[Pentecost](https://churchofjesuschrist.org/study/scriptures/tg/pentecost?lang=eng)
 
 ### References
 - [[Acts 2.1|Acts 2:1]]

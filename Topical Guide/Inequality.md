@@ -1,6 +1,6 @@
 # Inequality
 
-[Inequality](https://www.churchofjesuschrist.org/study/scriptures/tg/Inequality?lang=eng)
+[Inequality](https://churchofjesuschrist.org/study/scriptures/tg/inequality?lang=eng)
 
 ### References
 - [[Mosiah 29.32|Mosiah 29:32]]

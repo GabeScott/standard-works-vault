@@ -1,6 +1,6 @@
 # Transfiguration, Transfigured
 
-[Transfiguration, Transfigured](https://www.churchofjesuschrist.org/study/scriptures/tg/Transfiguration-Transfigured?lang=eng)
+[Transfiguration, Transfigured](https://churchofjesuschrist.org/study/scriptures/tg/transfiguration?lang=eng)
 
 ### References
 - [[Exodus 34.29|Exodus 34:29]]

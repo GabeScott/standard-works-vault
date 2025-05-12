@@ -1,6 +1,6 @@
 # Number
 
-[Number](https://www.churchofjesuschrist.org/study/scriptures/tg/Number?lang=eng)
+[Number](https://churchofjesuschrist.org/study/scriptures/tg/number?lang=eng)
 
 ### References
 - [[Genesis 13.16|Genesis 13:16]]

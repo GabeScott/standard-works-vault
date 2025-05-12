@@ -1,6 +1,6 @@
 # Ordinance
 
-[Ordinance](https://www.churchofjesuschrist.org/study/scriptures/tg/Ordinance?lang=eng)
+[Ordinance](https://churchofjesuschrist.org/study/scriptures/tg/ordinance?lang=eng)
 
 ### References
 - [[Exodus 12.14|Exodus 12:14]]

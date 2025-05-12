@@ -1,6 +1,6 @@
 # Add
 
-[Add](https://www.churchofjesuschrist.org/study/scriptures/tg/Add?lang=eng)
+[Add](https://churchofjesuschrist.org/study/scriptures/tg/add?lang=eng)
 
 ### References
 - [[Deuteronomy 4.2|Deuteronomy 4:2]]

@@ -1,6 +1,6 @@
 # Rust
 
-[Rust](https://www.churchofjesuschrist.org/study/scriptures/tg/Rust?lang=eng)
+[Rust](https://churchofjesuschrist.org/study/scriptures/tg/rust?lang=eng)
 
 ### References
 - [[Matthew 6.19|Matthew 6:19]]

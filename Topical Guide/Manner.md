@@ -1,6 +1,6 @@
 # Manner
 
-[Manner](https://www.churchofjesuschrist.org/study/scriptures/tg/Manner?lang=eng)
+[Manner](https://churchofjesuschrist.org/study/scriptures/tg/manner?lang=eng)
 
 ### References
 - [[Matthew 6.9|Matthew 6:9]]

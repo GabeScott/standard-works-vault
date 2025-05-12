@@ -1,6 +1,6 @@
 # Instrument
 
-[Instrument](https://www.churchofjesuschrist.org/study/scriptures/tg/Instrument?lang=eng)
+[Instrument](https://churchofjesuschrist.org/study/scriptures/tg/instrument?lang=eng)
 
 ### References
 - [[Genesis 49.5|Genesis 49:5]]

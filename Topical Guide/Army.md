@@ -1,6 +1,6 @@
 # Army
 
-[Army](https://www.churchofjesuschrist.org/study/scriptures/tg/Army?lang=eng)
+[Army](https://churchofjesuschrist.org/study/scriptures/tg/army?lang=eng)
 
 ### References
 - [[Exodus 12.17|Exodus 12:17]]

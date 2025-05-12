@@ -1,6 +1,6 @@
 # Rack
 
-[Rack](https://www.churchofjesuschrist.org/study/scriptures/tg/Rack?lang=eng)
+[Rack](https://churchofjesuschrist.org/study/scriptures/tg/rack?lang=eng)
 
 ### References
 - [[Mosiah 27.29|Mosiah 27:29]]

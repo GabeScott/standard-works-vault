@@ -1,6 +1,6 @@
 # Jot
 
-[Jot](https://www.churchofjesuschrist.org/study/scriptures/tg/Jot?lang=eng)
+[Jot](https://churchofjesuschrist.org/study/scriptures/tg/jot?lang=eng)
 
 ### References
 - [[Matthew 5.18|Matthew 5:18]]

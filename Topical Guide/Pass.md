@@ -1,6 +1,6 @@
 # Pass
 
-[Pass](https://www.churchofjesuschrist.org/study/scriptures/tg/Pass?lang=eng)
+[Pass](https://churchofjesuschrist.org/study/scriptures/tg/pass?lang=eng)
 
 ### References
 - [[Exodus 12.23|Exodus 12:23]]

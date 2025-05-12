@@ -1,6 +1,6 @@
 # Reconciliation, Reconcile
 
-[Reconciliation, Reconcile](https://www.churchofjesuschrist.org/study/scriptures/tg/Reconciliation-Reconcile?lang=eng)
+[Reconciliation, Reconcile](https://churchofjesuschrist.org/study/scriptures/tg/reconciliation?lang=eng)
 
 ### References
 - [[Exodus 23.5|Exodus 23:5]]

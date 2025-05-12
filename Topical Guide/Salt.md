@@ -1,6 +1,6 @@
 # Salt
 
-[Salt](https://www.churchofjesuschrist.org/study/scriptures/tg/Salt?lang=eng)
+[Salt](https://churchofjesuschrist.org/study/scriptures/tg/salt?lang=eng)
 
 ### References
 - [[Genesis 19.26|Genesis 19:26]]

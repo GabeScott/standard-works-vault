@@ -1,6 +1,6 @@
 # Trap
 
-[Trap](https://www.churchofjesuschrist.org/study/scriptures/tg/Trap?lang=eng)
+[Trap](https://churchofjesuschrist.org/study/scriptures/tg/trap?lang=eng)
 
 ### References
 - [[Psalms 69.22|Psalms 69:22]]

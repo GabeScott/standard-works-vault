@@ -1,6 +1,6 @@
 # Holy Ghost, Mission of
 
-[Holy Ghost, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Ghost-Mission-of?lang=eng)
+[Holy Ghost, Mission of](https://churchofjesuschrist.org/study/scriptures/tg/holy-ghost-mission-of?lang=eng)
 
 ### References
 - [[1 Samuel 16.13|1 Samuel 16:13]]

@@ -1,6 +1,6 @@
 # Murder, Murderer
 
-[Murder, Murderer](https://www.churchofjesuschrist.org/study/scriptures/tg/Murder-Murderer?lang=eng)
+[Murder, Murderer](https://churchofjesuschrist.org/study/scriptures/tg/murder?lang=eng)
 
 ### References
 - [[Genesis 4.8|Genesis 4:8]]

@@ -1,6 +1,6 @@
 # Pavilion
 
-[Pavilion](https://www.churchofjesuschrist.org/study/scriptures/tg/Pavilion?lang=eng)
+[Pavilion](https://churchofjesuschrist.org/study/scriptures/tg/pavilion?lang=eng)
 
 ### References
 - [[1 Kings 20.12|1 Kings 20:12]]

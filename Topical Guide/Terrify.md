@@ -1,6 +1,6 @@
 # Terrify
 
-[Terrify](https://www.churchofjesuschrist.org/study/scriptures/tg/Terrify?lang=eng)
+[Terrify](https://churchofjesuschrist.org/study/scriptures/tg/terrify?lang=eng)
 
 ### References
 - [[Deuteronomy 20.3|Deuteronomy 20:3]]

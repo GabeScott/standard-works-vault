@@ -1,6 +1,6 @@
 # Hire, Hireling
 
-[Hire, Hireling](https://www.churchofjesuschrist.org/study/scriptures/tg/Hire-Hireling?lang=eng)
+[Hire, Hireling](https://churchofjesuschrist.org/study/scriptures/tg/hire?lang=eng)
 
 ### References
 - [[Genesis 30.18|Genesis 30:18]]

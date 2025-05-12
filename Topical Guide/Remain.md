@@ -1,6 +1,6 @@
 # Remain
 
-[Remain](https://www.churchofjesuschrist.org/study/scriptures/tg/Remain?lang=eng)
+[Remain](https://churchofjesuschrist.org/study/scriptures/tg/remain?lang=eng)
 
 ### References
 - [[Genesis 8.22|Genesis 8:22]]

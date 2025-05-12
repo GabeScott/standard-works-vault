@@ -1,6 +1,6 @@
 # Spacious
 
-[Spacious](https://www.churchofjesuschrist.org/study/scriptures/tg/Spacious?lang=eng)
+[Spacious](https://churchofjesuschrist.org/study/scriptures/tg/spacious?lang=eng)
 
 ### References
 - [[1 Nephi 11.35|1 Nephi 11:35]]

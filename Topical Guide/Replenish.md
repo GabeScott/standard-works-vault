@@ -1,6 +1,6 @@
 # Replenish
 
-[Replenish](https://www.churchofjesuschrist.org/study/scriptures/tg/Replenish?lang=eng)
+[Replenish](https://churchofjesuschrist.org/study/scriptures/tg/replenish?lang=eng)
 
 ### References
 - [[Genesis 1.28|Genesis 1:28]]

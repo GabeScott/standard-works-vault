@@ -1,6 +1,6 @@
 # Heave Offering
 
-[Heave Offering](https://www.churchofjesuschrist.org/study/scriptures/tg/Heave-Offering?lang=eng)
+[Heave Offering](https://churchofjesuschrist.org/study/scriptures/tg/heave-offering?lang=eng)
 
 ### References
 - [[Exodus 29.27|Exodus 29:27]]

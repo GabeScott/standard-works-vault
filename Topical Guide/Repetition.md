@@ -1,6 +1,6 @@
 # Repetition
 
-[Repetition](https://www.churchofjesuschrist.org/study/scriptures/tg/Repetition?lang=eng)
+[Repetition](https://churchofjesuschrist.org/study/scriptures/tg/repetition?lang=eng)
 
 ### References
 - [[Matthew 6.7|Matthew 6:7]]

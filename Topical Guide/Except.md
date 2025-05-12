@@ -1,6 +1,6 @@
 # Except
 
-[Except](https://www.churchofjesuschrist.org/study/scriptures/tg/Except?lang=eng)
+[Except](https://churchofjesuschrist.org/study/scriptures/tg/except?lang=eng)
 
 ### References
 - [[Psalms 127.1|Psalms 127:1]]

@@ -1,6 +1,6 @@
 # Thresh
 
-[Thresh](https://www.churchofjesuschrist.org/study/scriptures/tg/Thresh?lang=eng)
+[Thresh](https://churchofjesuschrist.org/study/scriptures/tg/thresh?lang=eng)
 
 ### References
 - [[Judges 6.11|Judges 6:11]]

@@ -1,6 +1,6 @@
 # Ask
 
-[Ask](https://www.churchofjesuschrist.org/study/scriptures/tg/Ask?lang=eng)
+[Ask](https://churchofjesuschrist.org/study/scriptures/tg/ask?lang=eng)
 
 ### References
 - [[Exodus 13.14|Exodus 13:14]]

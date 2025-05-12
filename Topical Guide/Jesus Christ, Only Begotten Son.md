@@ -1,6 +1,6 @@
 # Jesus Christ, Only Begotten Son
 
-[Jesus Christ, Only Begotten Son](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Only-Begotten-Son?lang=eng)
+[Jesus Christ, Only Begotten Son](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-only-begotten-son?lang=eng)
 
 ### References
 - [[John 1.14|John 1:14]]

@@ -1,6 +1,6 @@
 # Appearing
 
-[Appearing](https://www.churchofjesuschrist.org/study/scriptures/tg/Appearing?lang=eng)
+[Appearing](https://churchofjesuschrist.org/study/scriptures/tg/appearing?lang=eng)
 
 ### References
 - [[1 Timothy 6.14|1 Timothy 6:14]]

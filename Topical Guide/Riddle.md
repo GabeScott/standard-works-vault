@@ -1,6 +1,6 @@
 # Riddle
 
-[Riddle](https://www.churchofjesuschrist.org/study/scriptures/tg/Riddle?lang=eng)
+[Riddle](https://churchofjesuschrist.org/study/scriptures/tg/riddle?lang=eng)
 
 ### References
 - [[Judges 14.12|Judges 14:12]]

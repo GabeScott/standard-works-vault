@@ -1,6 +1,6 @@
 # Interpretation
 
-[Interpretation](https://www.churchofjesuschrist.org/study/scriptures/tg/Interpretation?lang=eng)
+[Interpretation](https://churchofjesuschrist.org/study/scriptures/tg/interpretation?lang=eng)
 
 ### References
 - [[Genesis 40.8|Genesis 40:8]]

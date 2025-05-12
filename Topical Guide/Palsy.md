@@ -1,6 +1,6 @@
 # Palsy
 
-[Palsy](https://www.churchofjesuschrist.org/study/scriptures/tg/Palsy?lang=eng)
+[Palsy](https://churchofjesuschrist.org/study/scriptures/tg/palsy?lang=eng)
 
 ### References
 - [[Matthew 4.24|Matthew 4:24]]

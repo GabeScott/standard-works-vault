@@ -1,6 +1,6 @@
 # Almsgiving
 
-[Almsgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/Almsgiving?lang=eng)
+[Almsgiving](https://churchofjesuschrist.org/study/scriptures/tg/almsgiving?lang=eng)
 
 ### References
 - [[Deuteronomy 15.8|Deuteronomy 15:8]]

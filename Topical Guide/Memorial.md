@@ -1,6 +1,6 @@
 # Memorial
 
-[Memorial](https://www.churchofjesuschrist.org/study/scriptures/tg/Memorial?lang=eng)
+[Memorial](https://churchofjesuschrist.org/study/scriptures/tg/memorial?lang=eng)
 
 ### References
 - [[Exodus 12.14|Exodus 12:14]]

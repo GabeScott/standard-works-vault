@@ -1,6 +1,6 @@
 # Foal
 
-[Foal](https://www.churchofjesuschrist.org/study/scriptures/tg/Foal?lang=eng)
+[Foal](https://churchofjesuschrist.org/study/scriptures/tg/foal?lang=eng)
 
 ### References
 - [[Zechariah 9.9|Zechariah 9:9]]

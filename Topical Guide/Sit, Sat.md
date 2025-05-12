@@ -1,6 +1,6 @@
 # Sit, Sat
 
-[Sit, Sat](https://www.churchofjesuschrist.org/study/scriptures/tg/Sit-Sat?lang=eng)
+[Sit, Sat](https://churchofjesuschrist.org/study/scriptures/tg/sit?lang=eng)
 
 ### References
 - [[Psalms 110.1|Psalms 110:1]]

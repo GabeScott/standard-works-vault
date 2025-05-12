@@ -1,6 +1,6 @@
 # Fatherless
 
-[Fatherless](https://www.churchofjesuschrist.org/study/scriptures/tg/Fatherless?lang=eng)
+[Fatherless](https://churchofjesuschrist.org/study/scriptures/tg/fatherless?lang=eng)
 
 ### References
 - [[Exodus 22.22|Exodus 22:22]]

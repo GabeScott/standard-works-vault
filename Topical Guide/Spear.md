@@ -1,6 +1,6 @@
 # Spear
 
-[Spear](https://www.churchofjesuschrist.org/study/scriptures/tg/Spear?lang=eng)
+[Spear](https://churchofjesuschrist.org/study/scriptures/tg/spear?lang=eng)
 
 ### References
 - [[1 Samuel 17.45|1 Samuel 17:45]]

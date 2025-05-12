@@ -1,6 +1,6 @@
 # Naked
 
-[Naked](https://www.churchofjesuschrist.org/study/scriptures/tg/Naked?lang=eng)
+[Naked](https://churchofjesuschrist.org/study/scriptures/tg/naked?lang=eng)
 
 ### References
 - [[Genesis 2.25|Genesis 2:25]]

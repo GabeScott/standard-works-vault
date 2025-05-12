@@ -1,6 +1,6 @@
 # Governments
 
-[Governments](https://www.churchofjesuschrist.org/study/scriptures/tg/Governments?lang=eng)
+[Governments](https://churchofjesuschrist.org/study/scriptures/tg/governments?lang=eng)
 
 ### References
 - [[Deuteronomy 17.15|Deuteronomy 17:15]]

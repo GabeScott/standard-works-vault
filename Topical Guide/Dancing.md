@@ -1,6 +1,6 @@
 # Dancing
 
-[Dancing](https://www.churchofjesuschrist.org/study/scriptures/tg/Dancing?lang=eng)
+[Dancing](https://churchofjesuschrist.org/study/scriptures/tg/dancing?lang=eng)
 
 ### References
 - [[Exodus 32.19|Exodus 32:19]]

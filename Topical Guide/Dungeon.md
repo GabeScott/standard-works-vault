@@ -1,6 +1,6 @@
 # Dungeon
 
-[Dungeon](https://www.churchofjesuschrist.org/study/scriptures/tg/Dungeon?lang=eng)
+[Dungeon](https://churchofjesuschrist.org/study/scriptures/tg/dungeon?lang=eng)
 
 ### References
 - [[Genesis 41.14|Genesis 41:14]]

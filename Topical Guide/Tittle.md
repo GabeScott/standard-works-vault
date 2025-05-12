@@ -1,6 +1,6 @@
 # Tittle
 
-[Tittle](https://www.churchofjesuschrist.org/study/scriptures/tg/Tittle?lang=eng)
+[Tittle](https://churchofjesuschrist.org/study/scriptures/tg/tittle?lang=eng)
 
 ### References
 - [[Matthew 5.18|Matthew 5:18]]

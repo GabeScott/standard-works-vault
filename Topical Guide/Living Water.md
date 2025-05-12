@@ -1,6 +1,6 @@
 # Living Water
 
-[Living Water](https://www.churchofjesuschrist.org/study/scriptures/tg/Living-Water?lang=eng)
+[Living Water](https://churchofjesuschrist.org/study/scriptures/tg/living-water?lang=eng)
 
 ### References
 - [[Isaiah 12.3|Isaiah 12:3]]

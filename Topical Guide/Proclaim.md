@@ -1,6 +1,6 @@
 # Proclaim
 
-[Proclaim](https://www.churchofjesuschrist.org/study/scriptures/tg/Proclaim?lang=eng)
+[Proclaim](https://churchofjesuschrist.org/study/scriptures/tg/proclaim?lang=eng)
 
 ### References
 - [[Exodus 33.19|Exodus 33:19]]

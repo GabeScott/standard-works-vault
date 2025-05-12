@@ -1,6 +1,6 @@
 # Standing
 
-[Standing](https://www.churchofjesuschrist.org/study/scriptures/tg/Standing?lang=eng)
+[Standing](https://churchofjesuschrist.org/study/scriptures/tg/standing?lang=eng)
 
 ### References
 - [[Alma 13.5|Alma 13:5]]

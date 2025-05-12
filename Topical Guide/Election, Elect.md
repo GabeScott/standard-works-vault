@@ -1,6 +1,6 @@
 # Election, Elect
 
-[Election, Elect](https://www.churchofjesuschrist.org/study/scriptures/tg/Election-Elect?lang=eng)
+[Election, Elect](https://churchofjesuschrist.org/study/scriptures/tg/election?lang=eng)
 
 ### References
 - [[Genesis 12.3|Genesis 12:3]]

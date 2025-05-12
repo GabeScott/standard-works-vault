@@ -1,6 +1,6 @@
 # God, Works of
 
-[God, Works of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Works-of?lang=eng)
+[God, Works of](https://churchofjesuschrist.org/study/scriptures/tg/god-works-of?lang=eng)
 
 ### References
 - [[Deuteronomy 10.14|Deuteronomy 10:14]]

@@ -1,6 +1,6 @@
 # Cover
 
-[Cover](https://www.churchofjesuschrist.org/study/scriptures/tg/Cover?lang=eng)
+[Cover](https://churchofjesuschrist.org/study/scriptures/tg/cover?lang=eng)
 
 ### References
 - [[Genesis 24.65|Genesis 24:65]]

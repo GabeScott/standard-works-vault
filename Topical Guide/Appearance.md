@@ -1,6 +1,6 @@
 # Appearance
 
-[Appearance](https://www.churchofjesuschrist.org/study/scriptures/tg/Appearance?lang=eng)
+[Appearance](https://churchofjesuschrist.org/study/scriptures/tg/appearance?lang=eng)
 
 ### References
 - [[1 Samuel 16.7|1 Samuel 16:7]]

@@ -1,6 +1,6 @@
 # Profess
 
-[Profess](https://www.churchofjesuschrist.org/study/scriptures/tg/Profess?lang=eng)
+[Profess](https://churchofjesuschrist.org/study/scriptures/tg/profess?lang=eng)
 
 ### References
 - [[Deuteronomy 26.3|Deuteronomy 26:3]]

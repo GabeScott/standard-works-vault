@@ -1,6 +1,6 @@
 # Poor in Spirit
 
-[Poor in Spirit](https://www.churchofjesuschrist.org/study/scriptures/tg/Poor-in-Spirit?lang=eng)
+[Poor in Spirit](https://churchofjesuschrist.org/study/scriptures/tg/poor-in-spirit?lang=eng)
 
 ### References
 - [[Matthew 5.3|Matthew 5:3]]

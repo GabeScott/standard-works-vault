@@ -1,6 +1,6 @@
 # Net
 
-[Net](https://www.churchofjesuschrist.org/study/scriptures/tg/Net?lang=eng)
+[Net](https://churchofjesuschrist.org/study/scriptures/tg/net?lang=eng)
 
 ### References
 - [[Psalms 141.10|Psalms 141:10]]

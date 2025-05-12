@@ -1,6 +1,6 @@
 # Mean, Meant
 
-[Mean, Meant](https://www.churchofjesuschrist.org/study/scriptures/tg/Mean-Meant?lang=eng)
+[Mean, Meant](https://churchofjesuschrist.org/study/scriptures/tg/mean?lang=eng)
 
 ### References
 - [[Genesis 50.20|Genesis 50:20]]

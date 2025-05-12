@@ -1,6 +1,6 @@
 # Extortioner
 
-[Extortioner](https://www.churchofjesuschrist.org/study/scriptures/tg/Extortioner?lang=eng)
+[Extortioner](https://churchofjesuschrist.org/study/scriptures/tg/extortioner?lang=eng)
 
 ### References
 - [[Luke 18.11|Luke 18:11]]

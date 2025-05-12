@@ -1,6 +1,6 @@
 # Turtledove
 
-[Turtledove](https://www.churchofjesuschrist.org/study/scriptures/tg/Turtledove?lang=eng)
+[Turtledove](https://churchofjesuschrist.org/study/scriptures/tg/turtledove?lang=eng)
 
 ### References
 - [[Genesis 15.9|Genesis 15:9]]

@@ -1,6 +1,6 @@
 # Spirituality
 
-[Spirituality](https://www.churchofjesuschrist.org/study/scriptures/tg/Spirituality?lang=eng)
+[Spirituality](https://churchofjesuschrist.org/study/scriptures/tg/spirituality?lang=eng)
 
 ### References
 - [[Job 32.8|Job 32:8]]

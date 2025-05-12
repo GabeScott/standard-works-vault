@@ -1,6 +1,6 @@
 # Passover
 
-[Passover](https://www.churchofjesuschrist.org/study/scriptures/tg/Passover?lang=eng)
+[Passover](https://churchofjesuschrist.org/study/scriptures/tg/passover?lang=eng)
 
 ### References
 - [[Genesis 22.8|Genesis 22:8]]

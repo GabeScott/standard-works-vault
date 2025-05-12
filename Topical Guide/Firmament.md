@@ -1,6 +1,6 @@
 # Firmament
 
-[Firmament](https://www.churchofjesuschrist.org/study/scriptures/tg/Firmament?lang=eng)
+[Firmament](https://churchofjesuschrist.org/study/scriptures/tg/firmament?lang=eng)
 
 ### References
 - [[Genesis 1.6|Genesis 1:6]]

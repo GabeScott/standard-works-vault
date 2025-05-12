@@ -1,6 +1,6 @@
 # Spotless
 
-[Spotless](https://www.churchofjesuschrist.org/study/scriptures/tg/Spotless?lang=eng)
+[Spotless](https://churchofjesuschrist.org/study/scriptures/tg/spotless?lang=eng)
 
 ### References
 - [[2 Nephi 33.7|2 Nephi 33:7]]

@@ -1,6 +1,6 @@
 # Isle
 
-[Isle](https://www.churchofjesuschrist.org/study/scriptures/tg/Isle?lang=eng)
+[Isle](https://churchofjesuschrist.org/study/scriptures/tg/isle?lang=eng)
 
 ### References
 - [[Genesis 10.5|Genesis 10:5]]

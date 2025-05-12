@@ -1,6 +1,6 @@
 # Ointment
 
-[Ointment](https://www.churchofjesuschrist.org/study/scriptures/tg/Ointment?lang=eng)
+[Ointment](https://churchofjesuschrist.org/study/scriptures/tg/ointment?lang=eng)
 
 ### References
 - [[Exodus 30.25|Exodus 30:25]]

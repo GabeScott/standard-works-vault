@@ -1,6 +1,6 @@
 # Tear, Tare, Tore, Torn
 
-[Tear, Tare, Tore, Torn](https://www.churchofjesuschrist.org/study/scriptures/tg/Tear-Tare-Tore-Torn?lang=eng)
+[Tear, Tare, Tore, Torn](https://churchofjesuschrist.org/study/scriptures/tg/tear-verb?lang=eng)
 
 ### References
 - [[Genesis 44.28|Genesis 44:28]]

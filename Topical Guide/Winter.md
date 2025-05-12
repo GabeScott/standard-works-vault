@@ -1,6 +1,6 @@
 # Winter
 
-[Winter](https://www.churchofjesuschrist.org/study/scriptures/tg/Winter?lang=eng)
+[Winter](https://churchofjesuschrist.org/study/scriptures/tg/winter?lang=eng)
 
 ### References
 - [[Genesis 8.22|Genesis 8:22]]

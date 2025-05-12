@@ -1,6 +1,6 @@
 # Full
 
-[Full](https://www.churchofjesuschrist.org/study/scriptures/tg/Full?lang=eng)
+[Full](https://churchofjesuschrist.org/study/scriptures/tg/full?lang=eng)
 
 ### References
 - [[Genesis 15.16|Genesis 15:16]]

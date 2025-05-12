@@ -1,6 +1,6 @@
 # Leaven
 
-[Leaven](https://www.churchofjesuschrist.org/study/scriptures/tg/Leaven?lang=eng)
+[Leaven](https://churchofjesuschrist.org/study/scriptures/tg/leaven?lang=eng)
 
 ### References
 - [[Exodus 12.15|Exodus 12:15]]

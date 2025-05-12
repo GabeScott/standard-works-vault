@@ -1,6 +1,6 @@
 # Struggle
 
-[Struggle](https://www.churchofjesuschrist.org/study/scriptures/tg/Struggle?lang=eng)
+[Struggle](https://churchofjesuschrist.org/study/scriptures/tg/struggle?lang=eng)
 
 ### References
 - [[Genesis 25.22|Genesis 25:22]]

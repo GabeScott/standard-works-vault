@@ -1,6 +1,6 @@
 # Solemn Assembly
 
-[Solemn Assembly](https://www.churchofjesuschrist.org/study/scriptures/tg/Solemn-Assembly?lang=eng)
+[Solemn Assembly](https://churchofjesuschrist.org/study/scriptures/tg/solemn-assembly?lang=eng)
 
 ### References
 - [[Leviticus 23.36|Leviticus 23:36]]

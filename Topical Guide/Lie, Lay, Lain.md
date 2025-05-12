@@ -1,6 +1,6 @@
 # Lie, Lay, Lain
 
-[Lie, Lay, Lain](https://www.churchofjesuschrist.org/study/scriptures/tg/Lie-Lay-Lain?lang=eng)
+[Lie, Lay, Lain](https://churchofjesuschrist.org/study/scriptures/tg/lie?lang=eng)
 
 ### References
 - [[Genesis 19.32|Genesis 19:32]]

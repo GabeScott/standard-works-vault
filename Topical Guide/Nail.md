@@ -1,6 +1,6 @@
 # Nail
 
-[Nail](https://www.churchofjesuschrist.org/study/scriptures/tg/Nail?lang=eng)
+[Nail](https://churchofjesuschrist.org/study/scriptures/tg/nail?lang=eng)
 
 ### References
 - [[Judges 4.21|Judges 4:21]]

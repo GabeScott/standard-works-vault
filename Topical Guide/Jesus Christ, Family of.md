@@ -1,6 +1,6 @@
 # Jesus Christ, Family of
 
-[Jesus Christ, Family of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Family-of?lang=eng)
+[Jesus Christ, Family of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-family-of?lang=eng)
 
 ### References
 - [[Matthew 12.46|Matthew 12:46]]

@@ -1,6 +1,6 @@
 # Play
 
-[Play](https://www.churchofjesuschrist.org/study/scriptures/tg/Play?lang=eng)
+[Play](https://churchofjesuschrist.org/study/scriptures/tg/play?lang=eng)
 
 ### References
 - [[Exodus 32.6|Exodus 32:6]]

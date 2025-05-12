@@ -1,6 +1,6 @@
 # Family, Children, Responsibilities toward
 
-[Family, Children, Responsibilities toward](https://www.churchofjesuschrist.org/study/scriptures/tg/Family-Children-Responsibilities-toward?lang=eng)
+[Family, Children, Responsibilities toward](https://churchofjesuschrist.org/study/scriptures/tg/family-children-responsibilities-toward?lang=eng)
 
 ### References
 - [[Genesis 18.19|Genesis 18:19]]

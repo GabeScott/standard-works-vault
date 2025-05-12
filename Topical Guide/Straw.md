@@ -1,6 +1,6 @@
 # Straw
 
-[Straw](https://www.churchofjesuschrist.org/study/scriptures/tg/Straw?lang=eng)
+[Straw](https://churchofjesuschrist.org/study/scriptures/tg/straw?lang=eng)
 
 ### References
 - [[Exodus 5.7|Exodus 5:7]]

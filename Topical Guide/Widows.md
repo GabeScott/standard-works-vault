@@ -1,6 +1,6 @@
 # Widows
 
-[Widows](https://www.churchofjesuschrist.org/study/scriptures/tg/Widows?lang=eng)
+[Widows](https://churchofjesuschrist.org/study/scriptures/tg/widows?lang=eng)
 
 ### References
 - [[Genesis 38.8|Genesis 38:8]]

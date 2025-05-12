@@ -1,6 +1,6 @@
 # Barren, Barrenness
 
-[Barren, Barrenness](https://www.churchofjesuschrist.org/study/scriptures/tg/Barren-Barrenness?lang=eng)
+[Barren, Barrenness](https://churchofjesuschrist.org/study/scriptures/tg/barren?lang=eng)
 
 ### References
 - [[Genesis 11.30|Genesis 11:30]]

@@ -1,6 +1,6 @@
 # Knowledge
 
-[Knowledge](https://www.churchofjesuschrist.org/study/scriptures/tg/Knowledge?lang=eng)
+[Knowledge](https://churchofjesuschrist.org/study/scriptures/tg/knowledge?lang=eng)
 
 ### References
 - [[Genesis 2.17|Genesis 2:17]]

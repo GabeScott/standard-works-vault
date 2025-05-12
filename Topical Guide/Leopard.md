@@ -1,6 +1,6 @@
 # Leopard
 
-[Leopard](https://www.churchofjesuschrist.org/study/scriptures/tg/Leopard?lang=eng)
+[Leopard](https://churchofjesuschrist.org/study/scriptures/tg/leopard?lang=eng)
 
 ### References
 - [[Isaiah 11.6|Isaiah 11:6]]

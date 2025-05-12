@@ -1,6 +1,6 @@
 # Righteously
 
-[Righteously](https://www.churchofjesuschrist.org/study/scriptures/tg/Righteously?lang=eng)
+[Righteously](https://churchofjesuschrist.org/study/scriptures/tg/righteously?lang=eng)
 
 ### References
 - [[Deuteronomy 1.16|Deuteronomy 1:16]]

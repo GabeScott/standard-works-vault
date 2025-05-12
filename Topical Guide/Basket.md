@@ -1,6 +1,6 @@
 # Basket
 
-[Basket](https://www.churchofjesuschrist.org/study/scriptures/tg/Basket?lang=eng)
+[Basket](https://churchofjesuschrist.org/study/scriptures/tg/basket?lang=eng)
 
 ### References
 - [[Matthew 14.20|Matthew 14:20]]

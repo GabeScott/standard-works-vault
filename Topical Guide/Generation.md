@@ -1,6 +1,6 @@
 # Generation
 
-[Generation](https://www.churchofjesuschrist.org/study/scriptures/tg/Generation?lang=eng)
+[Generation](https://churchofjesuschrist.org/study/scriptures/tg/generation?lang=eng)
 
 ### References
 - [[Genesis 2.4|Genesis 2:4]]

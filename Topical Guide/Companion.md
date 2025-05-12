@@ -1,6 +1,6 @@
 # Companion
 
-[Companion](https://www.churchofjesuschrist.org/study/scriptures/tg/Companion?lang=eng)
+[Companion](https://churchofjesuschrist.org/study/scriptures/tg/companion?lang=eng)
 
 ### References
 - [[Judges 14.20|Judges 14:20]]

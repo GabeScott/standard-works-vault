@@ -1,6 +1,6 @@
 # Dearth
 
-[Dearth](https://www.churchofjesuschrist.org/study/scriptures/tg/Dearth?lang=eng)
+[Dearth](https://churchofjesuschrist.org/study/scriptures/tg/dearth?lang=eng)
 
 ### References
 - [[Genesis 41.54|Genesis 41:54]]

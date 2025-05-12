@@ -1,6 +1,6 @@
 # Lip
 
-[Lip](https://www.churchofjesuschrist.org/study/scriptures/tg/Lip?lang=eng)
+[Lip](https://churchofjesuschrist.org/study/scriptures/tg/lip?lang=eng)
 
 ### References
 - [[Psalms 140.3|Psalms 140:3]]

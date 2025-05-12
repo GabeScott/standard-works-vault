@@ -1,6 +1,6 @@
 # Cloth
 
-[Cloth](https://www.churchofjesuschrist.org/study/scriptures/tg/Cloth?lang=eng)
+[Cloth](https://churchofjesuschrist.org/study/scriptures/tg/cloth?lang=eng)
 
 ### References
 - [[Matthew 9.16|Matthew 9:16]]

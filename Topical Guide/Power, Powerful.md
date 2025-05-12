@@ -1,6 +1,6 @@
 # Power, Powerful
 
-[Power, Powerful](https://www.churchofjesuschrist.org/study/scriptures/tg/Power-Powerful?lang=eng)
+[Power, Powerful](https://churchofjesuschrist.org/study/scriptures/tg/power?lang=eng)
 
 ### References
 - [[Genesis 32.28|Genesis 32:28]]

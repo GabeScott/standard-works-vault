@@ -1,6 +1,6 @@
 # Throne
 
-[Throne](https://www.churchofjesuschrist.org/study/scriptures/tg/Throne?lang=eng)
+[Throne](https://churchofjesuschrist.org/study/scriptures/tg/throne?lang=eng)
 
 ### References
 - [[Genesis 41.40|Genesis 41:40]]

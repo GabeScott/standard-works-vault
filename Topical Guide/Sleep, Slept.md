@@ -1,6 +1,6 @@
 # Sleep, Slept
 
-[Sleep, Slept](https://www.churchofjesuschrist.org/study/scriptures/tg/Sleep-Slept?lang=eng)
+[Sleep, Slept](https://churchofjesuschrist.org/study/scriptures/tg/sleep?lang=eng)
 
 ### References
 - [[Genesis 15.12|Genesis 15:12]]

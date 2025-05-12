@@ -1,6 +1,6 @@
 # Zeal, Zealous
 
-[Zeal, Zealous](https://www.churchofjesuschrist.org/study/scriptures/tg/Zeal-Zealous?lang=eng)
+[Zeal, Zealous](https://churchofjesuschrist.org/study/scriptures/tg/zeal?lang=eng)
 
 ### References
 - [[Numbers 25.13|Numbers 25:13]]

@@ -1,6 +1,6 @@
 # Grace, Man May Fall from
 
-[Grace, Man May Fall from](https://www.churchofjesuschrist.org/study/scriptures/tg/Grace-Man-May-Fall-from?lang=eng)
+[Grace, Man May Fall from](https://churchofjesuschrist.org/study/scriptures/tg/grace-man-may-fall-from?lang=eng)
 
 ### References
 - [[Matthew 10.22|Matthew 10:22]]

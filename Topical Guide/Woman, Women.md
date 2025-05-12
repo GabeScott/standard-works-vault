@@ -1,6 +1,6 @@
 # Woman, Women
 
-[Woman, Women](https://www.churchofjesuschrist.org/study/scriptures/tg/Woman-Women?lang=eng)
+[Woman, Women](https://churchofjesuschrist.org/study/scriptures/tg/woman?lang=eng)
 
 ### References
 - [[Genesis 1.27|Genesis 1:27]]

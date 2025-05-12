@@ -1,6 +1,6 @@
 # Science
 
-[Science](https://www.churchofjesuschrist.org/study/scriptures/tg/Science?lang=eng)
+[Science](https://churchofjesuschrist.org/study/scriptures/tg/science?lang=eng)
 
 ### References
 - [[Daniel 1.4|Daniel 1:4]]

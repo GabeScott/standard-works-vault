@@ -1,6 +1,6 @@
 # Sow, Sown
 
-[Sow, Sown](https://www.churchofjesuschrist.org/study/scriptures/tg/Sow-Sown?lang=eng)
+[Sow, Sown](https://churchofjesuschrist.org/study/scriptures/tg/sow?lang=eng)
 
 ### References
 - [[Judges 9.45|Judges 9:45]]

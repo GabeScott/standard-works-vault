@@ -1,6 +1,6 @@
 # Devil
 
-[Devil](https://www.churchofjesuschrist.org/study/scriptures/tg/Devil?lang=eng)
+[Devil](https://churchofjesuschrist.org/study/scriptures/tg/church-of-the-devil?lang=eng)
 
 ### References
 - [[Genesis 3.1|Genesis 3:1]]

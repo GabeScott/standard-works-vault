@@ -1,6 +1,6 @@
 # Marrow
 
-[Marrow](https://www.churchofjesuschrist.org/study/scriptures/tg/Marrow?lang=eng)
+[Marrow](https://churchofjesuschrist.org/study/scriptures/tg/marrow?lang=eng)
 
 ### References
 - [[Proverbs 3.8|Proverbs 3:8]]

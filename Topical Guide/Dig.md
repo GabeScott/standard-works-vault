@@ -1,6 +1,6 @@
 # Dig
 
-[Dig](https://www.churchofjesuschrist.org/study/scriptures/tg/Dig?lang=eng)
+[Dig](https://churchofjesuschrist.org/study/scriptures/tg/dig?lang=eng)
 
 ### References
 - [[Exodus 21.33|Exodus 21:33]]

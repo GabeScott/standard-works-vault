@@ -1,6 +1,6 @@
 # Enlarge
 
-[Enlarge](https://www.churchofjesuschrist.org/study/scriptures/tg/Enlarge?lang=eng)
+[Enlarge](https://churchofjesuschrist.org/study/scriptures/tg/enlarge?lang=eng)
 
 ### References
 - [[Genesis 9.27|Genesis 9:27]]

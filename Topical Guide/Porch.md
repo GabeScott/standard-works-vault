@@ -1,6 +1,6 @@
 # Porch
 
-[Porch](https://www.churchofjesuschrist.org/study/scriptures/tg/Porch?lang=eng)
+[Porch](https://churchofjesuschrist.org/study/scriptures/tg/porch?lang=eng)
 
 ### References
 - [[1 Kings 7.6|1 Kings 7:6]]

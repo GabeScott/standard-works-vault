@@ -1,6 +1,6 @@
 # Exercise
 
-[Exercise](https://www.churchofjesuschrist.org/study/scriptures/tg/Exercise?lang=eng)
+[Exercise](https://churchofjesuschrist.org/study/scriptures/tg/exercise?lang=eng)
 
 ### References
 - [[1 Timothy 4.8|1 Timothy 4:8]]

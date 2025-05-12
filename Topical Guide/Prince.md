@@ -1,6 +1,6 @@
 # Prince
 
-[Prince](https://www.churchofjesuschrist.org/study/scriptures/tg/Prince?lang=eng)
+[Prince](https://churchofjesuschrist.org/study/scriptures/tg/prince?lang=eng)
 
 ### References
 - [[Genesis 23.6|Genesis 23:6]]

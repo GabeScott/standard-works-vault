@@ -1,6 +1,6 @@
 # Spirit Creation
 
-[Spirit Creation](https://www.churchofjesuschrist.org/study/scriptures/tg/Spirit-Creation?lang=eng)
+[Spirit Creation](https://churchofjesuschrist.org/study/scriptures/tg/spirit-creation?lang=eng)
 
 ### References
 - [[Genesis 2.5|Genesis 2:5]]

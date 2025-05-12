@@ -1,6 +1,6 @@
 # Sting
 
-[Sting](https://www.churchofjesuschrist.org/study/scriptures/tg/Sting?lang=eng)
+[Sting](https://churchofjesuschrist.org/study/scriptures/tg/sting?lang=eng)
 
 ### References
 - [[Proverbs 23.32|Proverbs 23:32]]

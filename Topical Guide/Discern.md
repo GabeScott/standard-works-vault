@@ -1,6 +1,6 @@
 # Discern
 
-[Discern](https://www.churchofjesuschrist.org/study/scriptures/tg/Discern?lang=eng)
+[Discern](https://churchofjesuschrist.org/study/scriptures/tg/discern?lang=eng)
 
 ### References
 - [[Matthew 16.3|Matthew 16:3]]

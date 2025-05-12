@@ -1,6 +1,6 @@
 # Astronomy
 
-[Astronomy](https://www.churchofjesuschrist.org/study/scriptures/tg/Astronomy?lang=eng)
+[Astronomy](https://churchofjesuschrist.org/study/scriptures/tg/astronomy?lang=eng)
 
 ### References
 - [[Genesis 1.1|Genesis 1:1]]

@@ -1,6 +1,6 @@
 # Railing
 
-[Railing](https://www.churchofjesuschrist.org/study/scriptures/tg/Railing?lang=eng)
+[Railing](https://churchofjesuschrist.org/study/scriptures/tg/railing?lang=eng)
 
 ### References
 - [[1 Timothy 6.4|1 Timothy 6:4]]

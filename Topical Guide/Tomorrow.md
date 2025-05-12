@@ -1,6 +1,6 @@
 # Tomorrow
 
-[Tomorrow](https://www.churchofjesuschrist.org/study/scriptures/tg/Tomorrow?lang=eng)
+[Tomorrow](https://churchofjesuschrist.org/study/scriptures/tg/tomorrow?lang=eng)
 
 ### References
 - [[Proverbs 27.1|Proverbs 27:1]]

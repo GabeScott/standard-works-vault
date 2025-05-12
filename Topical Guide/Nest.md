@@ -1,6 +1,6 @@
 # Nest
 
-[Nest](https://www.churchofjesuschrist.org/study/scriptures/tg/Nest?lang=eng)
+[Nest](https://churchofjesuschrist.org/study/scriptures/tg/nest?lang=eng)
 
 ### References
 - [[Proverbs 27.8|Proverbs 27:8]]

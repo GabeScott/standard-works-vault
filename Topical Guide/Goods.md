@@ -1,6 +1,6 @@
 # Goods
 
-[Goods](https://www.churchofjesuschrist.org/study/scriptures/tg/Goods?lang=eng)
+[Goods](https://churchofjesuschrist.org/study/scriptures/tg/goods?lang=eng)
 
 ### References
 - [[Genesis 14.16|Genesis 14:16]]

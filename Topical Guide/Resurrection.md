@@ -1,6 +1,6 @@
 # Resurrection
 
-[Resurrection](https://www.churchofjesuschrist.org/study/scriptures/tg/Resurrection?lang=eng)
+[Resurrection](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
 
 ### References
 - [[Deuteronomy 32.39|Deuteronomy 32:39]]

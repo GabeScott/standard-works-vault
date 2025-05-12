@@ -1,6 +1,6 @@
 # Less, Lesser
 
-[Less, Lesser](https://www.churchofjesuschrist.org/study/scriptures/tg/Less-Lesser?lang=eng)
+[Less, Lesser](https://churchofjesuschrist.org/study/scriptures/tg/less?lang=eng)
 
 ### References
 - [[Genesis 1.16|Genesis 1:16]]

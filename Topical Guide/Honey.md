@@ -1,6 +1,6 @@
 # Honey
 
-[Honey](https://www.churchofjesuschrist.org/study/scriptures/tg/Honey?lang=eng)
+[Honey](https://churchofjesuschrist.org/study/scriptures/tg/honey?lang=eng)
 
 ### References
 - [[Exodus 16.31|Exodus 16:31]]

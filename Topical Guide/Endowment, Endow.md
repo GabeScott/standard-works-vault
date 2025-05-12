@@ -1,6 +1,6 @@
 # Endowment, Endow
 
-[Endowment, Endow](https://www.churchofjesuschrist.org/study/scriptures/tg/Endowment-Endow?lang=eng)
+[Endowment, Endow](https://churchofjesuschrist.org/study/scriptures/tg/endowment?lang=eng)
 
 ### References
 - [[Isaiah 22.20|Isaiah 22:20]]

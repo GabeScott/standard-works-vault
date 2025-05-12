@@ -1,6 +1,6 @@
 # Jesus Christ, Lord
 
-[Jesus Christ, Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Lord?lang=eng)
+[Jesus Christ, Lord](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lord?lang=eng)
 
 ### References
 - [[Matthew 28.6|Matthew 28:6]]

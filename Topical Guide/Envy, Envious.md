@@ -1,6 +1,6 @@
 # Envy, Envious
 
-[Envy, Envious](https://www.churchofjesuschrist.org/study/scriptures/tg/Envy-Envious?lang=eng)
+[Envy, Envious](https://churchofjesuschrist.org/study/scriptures/tg/envy?lang=eng)
 
 ### References
 - [[Genesis 30.1|Genesis 30:1]]

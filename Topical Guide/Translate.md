@@ -1,6 +1,6 @@
 # Translate
 
-[Translate](https://www.churchofjesuschrist.org/study/scriptures/tg/Translate?lang=eng)
+[Translate](https://churchofjesuschrist.org/study/scriptures/tg/translate?lang=eng)
 
 ### References
 - [[2 Samuel 3.10|2 Samuel 3:10]]

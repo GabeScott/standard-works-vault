@@ -1,6 +1,6 @@
 # Lowly
 
-[Lowly](https://www.churchofjesuschrist.org/study/scriptures/tg/Lowly?lang=eng)
+[Lowly](https://churchofjesuschrist.org/study/scriptures/tg/lowly?lang=eng)
 
 ### References
 - [[Proverbs 3.34|Proverbs 3:34]]

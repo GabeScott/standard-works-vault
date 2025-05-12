@@ -1,6 +1,6 @@
 # Impossible
 
-[Impossible](https://www.churchofjesuschrist.org/study/scriptures/tg/Impossible?lang=eng)
+[Impossible](https://churchofjesuschrist.org/study/scriptures/tg/impossible?lang=eng)
 
 ### References
 - [[Matthew 17.20|Matthew 17:20]]

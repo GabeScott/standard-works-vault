@@ -1,6 +1,6 @@
 # Inquire
 
-[Inquire](https://www.churchofjesuschrist.org/study/scriptures/tg/Inquire?lang=eng)
+[Inquire](https://churchofjesuschrist.org/study/scriptures/tg/inquire?lang=eng)
 
 ### References
 - [[Genesis 24.57|Genesis 24:57]]

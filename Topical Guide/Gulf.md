@@ -1,6 +1,6 @@
 # Gulf
 
-[Gulf](https://www.churchofjesuschrist.org/study/scriptures/tg/Gulf?lang=eng)
+[Gulf](https://churchofjesuschrist.org/study/scriptures/tg/gulf?lang=eng)
 
 ### References
 - [[Luke 16.26|Luke 16:26]]

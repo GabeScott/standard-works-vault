@@ -1,6 +1,6 @@
 # Help
 
-[Help](https://www.churchofjesuschrist.org/study/scriptures/tg/Help?lang=eng)
+[Help](https://churchofjesuschrist.org/study/scriptures/tg/help?lang=eng)
 
 ### References
 - [[Genesis 2.18|Genesis 2:18]]

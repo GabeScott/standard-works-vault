@@ -1,6 +1,6 @@
 # Diligence, Diligent, Diligently
 
-[Diligence, Diligent, Diligently](https://www.churchofjesuschrist.org/study/scriptures/tg/Diligence-Diligent-Diligently?lang=eng)
+[Diligence, Diligent, Diligently](https://churchofjesuschrist.org/study/scriptures/tg/diligence?lang=eng)
 
 ### References
 - [[Exodus 15.26|Exodus 15:26]]

@@ -1,6 +1,6 @@
 # Letter
 
-[Letter](https://www.churchofjesuschrist.org/study/scriptures/tg/Letter?lang=eng)
+[Letter](https://churchofjesuschrist.org/study/scriptures/tg/letter?lang=eng)
 
 ### References
 - [[2 Samuel 11.15|2 Samuel 11:15]]

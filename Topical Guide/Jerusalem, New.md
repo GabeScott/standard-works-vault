@@ -1,6 +1,6 @@
 # Jerusalem, New
 
-[Jerusalem, New](https://www.churchofjesuschrist.org/study/scriptures/tg/Jerusalem-New?lang=eng)
+[Jerusalem, New](https://churchofjesuschrist.org/study/scriptures/tg/jerusalem-new?lang=eng)
 
 ### References
 - [[Isaiah 2.2|Isaiah 2:2]]

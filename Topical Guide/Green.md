@@ -1,6 +1,6 @@
 # Green
 
-[Green](https://www.churchofjesuschrist.org/study/scriptures/tg/Green?lang=eng)
+[Green](https://churchofjesuschrist.org/study/scriptures/tg/green?lang=eng)
 
 ### References
 - [[Genesis 1.30|Genesis 1:30]]

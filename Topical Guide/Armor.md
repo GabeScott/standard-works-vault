@@ -1,6 +1,6 @@
 # Armor
 
-[Armor](https://www.churchofjesuschrist.org/study/scriptures/tg/Armor?lang=eng)
+[Armor](https://churchofjesuschrist.org/study/scriptures/tg/armor?lang=eng)
 
 ### References
 - [[1 Samuel 17.38|1 Samuel 17:38]]

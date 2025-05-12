@@ -1,6 +1,6 @@
 # Plead
 
-[Plead](https://www.churchofjesuschrist.org/study/scriptures/tg/Plead?lang=eng)
+[Plead](https://churchofjesuschrist.org/study/scriptures/tg/plead?lang=eng)
 
 ### References
 - [[Judges 6.31|Judges 6:31]]

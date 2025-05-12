@@ -1,6 +1,6 @@
 # Pluck
 
-[Pluck](https://www.churchofjesuschrist.org/study/scriptures/tg/Pluck?lang=eng)
+[Pluck](https://churchofjesuschrist.org/study/scriptures/tg/pluck?lang=eng)
 
 ### References
 - [[Exodus 4.7|Exodus 4:7]]

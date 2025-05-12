@@ -1,6 +1,6 @@
 # Height
 
-[Height](https://www.churchofjesuschrist.org/study/scriptures/tg/Height?lang=eng)
+[Height](https://churchofjesuschrist.org/study/scriptures/tg/height?lang=eng)
 
 ### References
 - [[1 Samuel 16.7|1 Samuel 16:7]]

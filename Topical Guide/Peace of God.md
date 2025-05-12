@@ -1,6 +1,6 @@
 # Peace of God
 
-[Peace of God](https://www.churchofjesuschrist.org/study/scriptures/tg/Peace-of-God?lang=eng)
+[Peace of God](https://churchofjesuschrist.org/study/scriptures/tg/peace-of-god?lang=eng)
 
 ### References
 - [[Numbers 6.26|Numbers 6:26]]

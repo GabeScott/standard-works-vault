@@ -1,6 +1,6 @@
 # Affliction
 
-[Affliction](https://www.churchofjesuschrist.org/study/scriptures/tg/Affliction?lang=eng)
+[Affliction](https://churchofjesuschrist.org/study/scriptures/tg/affliction?lang=eng)
 
 ### References
 - [[Exodus 3.7|Exodus 3:7]]

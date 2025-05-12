@@ -1,6 +1,6 @@
 # List
 
-[List](https://www.churchofjesuschrist.org/study/scriptures/tg/List?lang=eng)
+[List](https://churchofjesuschrist.org/study/scriptures/tg/list?lang=eng)
 
 ### References
 - [[Matthew 17.12|Matthew 17:12]]

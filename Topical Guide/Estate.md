@@ -1,6 +1,6 @@
 # Estate
 
-[Estate](https://www.churchofjesuschrist.org/study/scriptures/tg/Estate?lang=eng)
+[Estate](https://churchofjesuschrist.org/study/scriptures/tg/estate?lang=eng)
 
 ### References
 - [[Ecclesiastes 3.18|Ecclesiastes 3:18]]

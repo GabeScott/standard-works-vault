@@ -1,6 +1,6 @@
 # Blindness
 
-[Blindness](https://www.churchofjesuschrist.org/study/scriptures/tg/Blindness?lang=eng)
+[Blindness](https://churchofjesuschrist.org/study/scriptures/tg/blindness?lang=eng)
 
 ### References
 - [[Genesis 19.11|Genesis 19:11]]

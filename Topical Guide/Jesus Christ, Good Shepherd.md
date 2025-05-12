@@ -1,6 +1,6 @@
 # Jesus Christ, Good Shepherd
 
-[Jesus Christ, Good Shepherd](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Good-Shepherd?lang=eng)
+[Jesus Christ, Good Shepherd](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng)
 
 ### References
 - [[Genesis 49.24|Genesis 49:24]]

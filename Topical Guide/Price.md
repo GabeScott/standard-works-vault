@@ -1,6 +1,6 @@
 # Price
 
-[Price](https://www.churchofjesuschrist.org/study/scriptures/tg/Price?lang=eng)
+[Price](https://churchofjesuschrist.org/study/scriptures/tg/price?lang=eng)
 
 ### References
 - [[Leviticus 25.52|Leviticus 25:52]]

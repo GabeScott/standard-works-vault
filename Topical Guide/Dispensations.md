@@ -1,6 +1,6 @@
 # Dispensations
 
-[Dispensations](https://www.churchofjesuschrist.org/study/scriptures/tg/Dispensations?lang=eng)
+[Dispensations](https://churchofjesuschrist.org/study/scriptures/tg/dispensations?lang=eng)
 
 ### References
 - [[Deuteronomy 4.31|Deuteronomy 4:31]]

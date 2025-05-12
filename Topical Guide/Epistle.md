@@ -1,6 +1,6 @@
 # Epistle
 
-[Epistle](https://www.churchofjesuschrist.org/study/scriptures/tg/Epistle?lang=eng)
+[Epistle](https://churchofjesuschrist.org/study/scriptures/tg/epistle?lang=eng)
 
 ### References
 - [[Acts 15.30|Acts 15:30]]

@@ -1,6 +1,6 @@
 # Consider
 
-[Consider](https://www.churchofjesuschrist.org/study/scriptures/tg/Consider?lang=eng)
+[Consider](https://churchofjesuschrist.org/study/scriptures/tg/consider?lang=eng)
 
 ### References
 - [[Leviticus 13.13|Leviticus 13:13]]

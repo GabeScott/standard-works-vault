@@ -1,6 +1,6 @@
 # Purification, Purify, Purifying
 
-[Purification, Purify, Purifying](https://www.churchofjesuschrist.org/study/scriptures/tg/Purification-Purify-Purifying?lang=eng)
+[Purification, Purify, Purifying](https://churchofjesuschrist.org/study/scriptures/tg/purification?lang=eng)
 
 ### References
 - [[Leviticus 12.6|Leviticus 12:6]]

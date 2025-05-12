@@ -1,6 +1,6 @@
 # Sad
 
-[Sad](https://www.churchofjesuschrist.org/study/scriptures/tg/Sad?lang=eng)
+[Sad](https://churchofjesuschrist.org/study/scriptures/tg/sad?lang=eng)
 
 ### References
 - [[Genesis 40.6|Genesis 40:6]]

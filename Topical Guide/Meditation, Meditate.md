@@ -1,6 +1,6 @@
 # Meditation, Meditate
 
-[Meditation, Meditate](https://www.churchofjesuschrist.org/study/scriptures/tg/Meditation-Meditate?lang=eng)
+[Meditation, Meditate](https://churchofjesuschrist.org/study/scriptures/tg/meditation?lang=eng)
 
 ### References
 - [[Genesis 24.63|Genesis 24:63]]

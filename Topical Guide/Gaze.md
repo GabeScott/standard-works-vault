@@ -1,6 +1,6 @@
 # Gaze
 
-[Gaze](https://www.churchofjesuschrist.org/study/scriptures/tg/Gaze?lang=eng)
+[Gaze](https://churchofjesuschrist.org/study/scriptures/tg/gaze?lang=eng)
 
 ### References
 - [[Exodus 19.21|Exodus 19:21]]

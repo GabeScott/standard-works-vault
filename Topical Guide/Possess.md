@@ -1,6 +1,6 @@
 # Possess
 
-[Possess](https://www.churchofjesuschrist.org/study/scriptures/tg/Possess?lang=eng)
+[Possess](https://churchofjesuschrist.org/study/scriptures/tg/possess?lang=eng)
 
 ### References
 - [[Genesis 22.17|Genesis 22:17]]

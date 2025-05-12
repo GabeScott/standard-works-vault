@@ -1,6 +1,6 @@
 # Curtain
 
-[Curtain](https://www.churchofjesuschrist.org/study/scriptures/tg/Curtain?lang=eng)
+[Curtain](https://churchofjesuschrist.org/study/scriptures/tg/curtain?lang=eng)
 
 ### References
 - [[Exodus 26.1|Exodus 26:1]]

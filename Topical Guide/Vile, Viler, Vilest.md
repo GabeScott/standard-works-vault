@@ -1,6 +1,6 @@
 # Vile, Viler, Vilest
 
-[Vile, Viler, Vilest](https://www.churchofjesuschrist.org/study/scriptures/tg/Vile-Viler-Vilest?lang=eng)
+[Vile, Viler, Vilest](https://churchofjesuschrist.org/study/scriptures/tg/vile?lang=eng)
 
 ### References
 - [[Deuteronomy 25.3|Deuteronomy 25:3]]

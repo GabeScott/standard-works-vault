@@ -1,6 +1,6 @@
 # Forewarn
 
-[Forewarn](https://www.churchofjesuschrist.org/study/scriptures/tg/Forewarn?lang=eng)
+[Forewarn](https://churchofjesuschrist.org/study/scriptures/tg/forewarn?lang=eng)
 
 ### References
 - [[Luke 12.5|Luke 12:5]]

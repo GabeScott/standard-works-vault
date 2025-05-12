@@ -1,6 +1,6 @@
 # Bite
 
-[Bite](https://www.churchofjesuschrist.org/study/scriptures/tg/Bite?lang=eng)
+[Bite](https://churchofjesuschrist.org/study/scriptures/tg/bite?lang=eng)
 
 ### References
 - [[Genesis 49.17|Genesis 49:17]]

@@ -1,6 +1,6 @@
 # Unfruitful
 
-[Unfruitful](https://www.churchofjesuschrist.org/study/scriptures/tg/Unfruitful?lang=eng)
+[Unfruitful](https://churchofjesuschrist.org/study/scriptures/tg/unfruitful?lang=eng)
 
 ### References
 - [[Matthew 13.22|Matthew 13:22]]

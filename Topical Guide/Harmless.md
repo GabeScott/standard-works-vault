@@ -1,6 +1,6 @@
 # Harmless
 
-[Harmless](https://www.churchofjesuschrist.org/study/scriptures/tg/Harmless?lang=eng)
+[Harmless](https://churchofjesuschrist.org/study/scriptures/tg/harmless?lang=eng)
 
 ### References
 - [[Matthew 10.16|Matthew 10:16]]

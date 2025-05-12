@@ -1,6 +1,6 @@
 # lord
 
-[lord](https://www.churchofjesuschrist.org/study/scriptures/tg/lord?lang=eng)
+[Lord](https://churchofjesuschrist.org/study/scriptures/tg/day-of-the-lord?lang=eng)
 
 ### References
 - [[Genesis 18.12|Genesis 18:12]]

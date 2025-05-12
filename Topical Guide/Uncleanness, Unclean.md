@@ -1,6 +1,6 @@
 # Uncleanness, Unclean
 
-[Uncleanness, Unclean](https://www.churchofjesuschrist.org/study/scriptures/tg/Uncleanness-Unclean?lang=eng)
+[Uncleanness, Unclean](https://churchofjesuschrist.org/study/scriptures/tg/uncleanness?lang=eng)
 
 ### References
 - [[Leviticus 10.10|Leviticus 10:10]]

@@ -1,6 +1,6 @@
 # Contend
 
-[Contend](https://www.churchofjesuschrist.org/study/scriptures/tg/Contend?lang=eng)
+[Contend](https://churchofjesuschrist.org/study/scriptures/tg/contend?lang=eng)
 
 ### References
 - [[Proverbs 28.4|Proverbs 28:4]]

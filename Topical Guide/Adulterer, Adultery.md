@@ -1,6 +1,6 @@
 # Adulterer, Adultery
 
-[Adulterer, Adultery](https://www.churchofjesuschrist.org/study/scriptures/tg/Adulterer-Adultery?lang=eng)
+[Adulterer, Adultery](https://churchofjesuschrist.org/study/scriptures/tg/adulterer?lang=eng)
 
 ### References
 - [[Genesis 39.9|Genesis 39:9]]

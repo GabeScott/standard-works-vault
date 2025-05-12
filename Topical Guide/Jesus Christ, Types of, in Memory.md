@@ -1,6 +1,6 @@
 # Jesus Christ, Types of, in Memory
 
-[Jesus Christ, Types of, in Memory](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Types-of-in-Memory?lang=eng)
+[Jesus Christ, Types of, in Memory](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-memory?lang=eng)
 
 ### References
 - [[Matthew 26.26|Matthew 26:26]]

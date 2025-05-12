@@ -1,6 +1,6 @@
 # Defend
 
-[Defend](https://www.churchofjesuschrist.org/study/scriptures/tg/Defend?lang=eng)
+[Defend](https://churchofjesuschrist.org/study/scriptures/tg/defend?lang=eng)
 
 ### References
 - [[2 Kings 19.34|2 Kings 19:34]]

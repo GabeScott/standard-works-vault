@@ -1,6 +1,6 @@
 # Awake, Awaken
 
-[Awake, Awaken](https://www.churchofjesuschrist.org/study/scriptures/tg/Awake-Awaken?lang=eng)
+[Awake, Awaken](https://churchofjesuschrist.org/study/scriptures/tg/awake?lang=eng)
 
 ### References
 - [[Psalms 78.65|Psalms 78:65]]

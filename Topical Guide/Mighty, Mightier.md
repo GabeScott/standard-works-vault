@@ -1,6 +1,6 @@
 # Mighty, Mightier
 
-[Mighty, Mightier](https://www.churchofjesuschrist.org/study/scriptures/tg/Mighty-Mightier?lang=eng)
+[Mighty, Mightier](https://churchofjesuschrist.org/study/scriptures/tg/mighty?lang=eng)
 
 ### References
 - [[Genesis 10.8|Genesis 10:8]]

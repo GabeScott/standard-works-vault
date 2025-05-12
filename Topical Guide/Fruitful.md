@@ -1,6 +1,6 @@
 # Fruitful
 
-[Fruitful](https://www.churchofjesuschrist.org/study/scriptures/tg/Fruitful?lang=eng)
+[Fruitful](https://churchofjesuschrist.org/study/scriptures/tg/fruitful?lang=eng)
 
 ### References
 - [[Genesis 1.22|Genesis 1:22]]

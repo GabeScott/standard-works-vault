@@ -1,6 +1,6 @@
 # Godhead
 
-[Godhead](https://www.churchofjesuschrist.org/study/scriptures/tg/Godhead?lang=eng)
+[Godhead](https://churchofjesuschrist.org/study/scriptures/tg/godhead?lang=eng)
 
 ### References
 - [[Genesis 1.26|Genesis 1:26]]

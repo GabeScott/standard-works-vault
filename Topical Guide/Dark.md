@@ -1,6 +1,6 @@
 # Dark
 
-[Dark](https://www.churchofjesuschrist.org/study/scriptures/tg/Dark?lang=eng)
+[Dark](https://churchofjesuschrist.org/study/scriptures/tg/dark?lang=eng)
 
 ### References
 - [[Numbers 12.8|Numbers 12:8]]

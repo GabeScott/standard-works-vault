@@ -1,6 +1,6 @@
 # Wagon
 
-[Wagon](https://www.churchofjesuschrist.org/study/scriptures/tg/Wagon?lang=eng)
+[Wagon](https://churchofjesuschrist.org/study/scriptures/tg/wagon?lang=eng)
 
 ### References
 - [[Genesis 45.19|Genesis 45:19]]

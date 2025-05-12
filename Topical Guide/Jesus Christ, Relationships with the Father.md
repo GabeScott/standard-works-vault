@@ -1,6 +1,6 @@
 # Jesus Christ, Relationships with the Father
 
-[Jesus Christ, Relationships with the Father](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Relationships-with-the-Father?lang=eng)
+[Jesus Christ, Relationships with the Father](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-relationships-with-the-father?lang=eng)
 
 ### References
 - [[Luke 2.52|Luke 2:52]]

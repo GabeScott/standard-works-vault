@@ -1,6 +1,6 @@
 # Agency
 
-[Agency](https://www.churchofjesuschrist.org/study/scriptures/tg/Agency?lang=eng)
+[Agency](https://churchofjesuschrist.org/study/scriptures/tg/agency?lang=eng)
 
 ### References
 - [[Genesis 2.16|Genesis 2:16]]

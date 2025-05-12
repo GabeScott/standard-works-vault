@@ -1,6 +1,6 @@
 # Necessity
 
-[Necessity](https://www.churchofjesuschrist.org/study/scriptures/tg/Necessity?lang=eng)
+[Necessity](https://churchofjesuschrist.org/study/scriptures/tg/necessity?lang=eng)
 
 ### References
 - [[Luke 23.17|Luke 23:17]]

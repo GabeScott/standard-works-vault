@@ -1,6 +1,6 @@
 # Purge
 
-[Purge](https://www.churchofjesuschrist.org/study/scriptures/tg/Purge?lang=eng)
+[Purge](https://churchofjesuschrist.org/study/scriptures/tg/purge?lang=eng)
 
 ### References
 - [[1 Samuel 3.14|1 Samuel 3:14]]

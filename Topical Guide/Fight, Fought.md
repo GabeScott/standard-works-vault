@@ -1,6 +1,6 @@
 # Fight, Fought
 
-[Fight, Fought](https://www.churchofjesuschrist.org/study/scriptures/tg/Fight-Fought?lang=eng)
+[Fight, Fought](https://churchofjesuschrist.org/study/scriptures/tg/fight?lang=eng)
 
 ### References
 - [[Exodus 1.10|Exodus 1:10]]

@@ -1,6 +1,6 @@
 # Tribute
 
-[Tribute](https://www.churchofjesuschrist.org/study/scriptures/tg/Tribute?lang=eng)
+[Tribute](https://churchofjesuschrist.org/study/scriptures/tg/tribute?lang=eng)
 
 ### References
 - [[Genesis 49.15|Genesis 49:15]]

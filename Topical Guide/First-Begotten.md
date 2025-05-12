@@ -1,6 +1,6 @@
 # First-Begotten
 
-[First-Begotten](https://www.churchofjesuschrist.org/study/scriptures/tg/First-Begotten?lang=eng)
+[First-Begotten](https://churchofjesuschrist.org/study/scriptures/tg/first-begotten?lang=eng)
 
 ### References
 - [[Hebrews 1.6|Hebrews 1:6]]

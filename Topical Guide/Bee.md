@@ -1,6 +1,6 @@
 # Bee
 
-[Bee](https://www.churchofjesuschrist.org/study/scriptures/tg/Bee?lang=eng)
+[Bee](https://churchofjesuschrist.org/study/scriptures/tg/bee?lang=eng)
 
 ### References
 - [[Deuteronomy 1.44|Deuteronomy 1:44]]

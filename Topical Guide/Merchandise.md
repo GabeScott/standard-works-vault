@@ -1,6 +1,6 @@
 # Merchandise
 
-[Merchandise](https://www.churchofjesuschrist.org/study/scriptures/tg/Merchandise?lang=eng)
+[Merchandise](https://churchofjesuschrist.org/study/scriptures/tg/merchandise?lang=eng)
 
 ### References
 - [[Deuteronomy 24.7|Deuteronomy 24:7]]

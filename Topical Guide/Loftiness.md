@@ -1,6 +1,6 @@
 # Loftiness
 
-[Loftiness](https://www.churchofjesuschrist.org/study/scriptures/tg/Loftiness?lang=eng)
+[Loftiness](https://churchofjesuschrist.org/study/scriptures/tg/loftiness?lang=eng)
 
 ### References
 - [[Isaiah 2.17|Isaiah 2:17]]

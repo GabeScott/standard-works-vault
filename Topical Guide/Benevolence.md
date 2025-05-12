@@ -1,6 +1,6 @@
 # Benevolence
 
-[Benevolence](https://www.churchofjesuschrist.org/study/scriptures/tg/Benevolence?lang=eng)
+[Benevolence](https://churchofjesuschrist.org/study/scriptures/tg/benevolence?lang=eng)
 
 ### References
 - [[Joshua 2.12|Joshua 2:12]]

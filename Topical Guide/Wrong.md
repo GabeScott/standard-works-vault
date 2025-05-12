@@ -1,6 +1,6 @@
 # Wrong
 
-[Wrong](https://www.churchofjesuschrist.org/study/scriptures/tg/Wrong?lang=eng)
+[Wrong](https://churchofjesuschrist.org/study/scriptures/tg/wrong?lang=eng)
 
 ### References
 - [[Jeremiah 22.3|Jeremiah 22:3]]

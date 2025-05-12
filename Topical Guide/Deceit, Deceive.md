@@ -1,6 +1,6 @@
 # Deceit, Deceive
 
-[Deceit, Deceive](https://www.churchofjesuschrist.org/study/scriptures/tg/Deceit-Deceive?lang=eng)
+[Deceit, Deceive](https://churchofjesuschrist.org/study/scriptures/tg/deceit?lang=eng)
 
 ### References
 - [[Genesis 31.7|Genesis 31:7]]

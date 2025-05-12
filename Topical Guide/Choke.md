@@ -1,6 +1,6 @@
 # Choke
 
-[Choke](https://www.churchofjesuschrist.org/study/scriptures/tg/Choke?lang=eng)
+[Choke](https://churchofjesuschrist.org/study/scriptures/tg/choke?lang=eng)
 
 ### References
 - [[Matthew 13.22|Matthew 13:22]]

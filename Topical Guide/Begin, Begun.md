@@ -1,6 +1,6 @@
 # Begin, Begun
 
-[Begin, Begun](https://www.churchofjesuschrist.org/study/scriptures/tg/Begin-Begun?lang=eng)
+[Begin, Begun](https://churchofjesuschrist.org/study/scriptures/tg/begin?lang=eng)
 
 ### References
 - [[1 Samuel 3.12|1 Samuel 3:12]]

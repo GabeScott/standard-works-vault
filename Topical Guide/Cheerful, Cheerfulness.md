@@ -1,6 +1,6 @@
 # Cheerful, Cheerfulness
 
-[Cheerful, Cheerfulness](https://www.churchofjesuschrist.org/study/scriptures/tg/Cheerful-Cheerfulness?lang=eng)
+[Cheerful, Cheerfulness](https://churchofjesuschrist.org/study/scriptures/tg/cheerful?lang=eng)
 
 ### References
 - [[Psalms 100.1|Psalms 100:1]]

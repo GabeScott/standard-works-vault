@@ -1,6 +1,6 @@
 # Pleasure
 
-[Pleasure](https://www.churchofjesuschrist.org/study/scriptures/tg/Pleasure?lang=eng)
+[Pleasure](https://churchofjesuschrist.org/study/scriptures/tg/pleasure?lang=eng)
 
 ### References
 - [[Psalms 147.11|Psalms 147:11]]

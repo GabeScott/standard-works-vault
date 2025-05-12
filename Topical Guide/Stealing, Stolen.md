@@ -1,6 +1,6 @@
 # Stealing, Stolen
 
-[Stealing, Stolen](https://www.churchofjesuschrist.org/study/scriptures/tg/Stealing-Stolen?lang=eng)
+[Stealing, Stolen](https://churchofjesuschrist.org/study/scriptures/tg/stealing?lang=eng)
 
 ### References
 - [[Genesis 31.19|Genesis 31:19]]

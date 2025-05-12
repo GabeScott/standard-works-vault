@@ -1,6 +1,6 @@
 # God, Spirit of
 
-[God, Spirit of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Spirit-of?lang=eng)
+[God, Spirit of](https://churchofjesuschrist.org/study/scriptures/tg/god-spirit-of?lang=eng)
 
 ### References
 - [[Genesis 1.2|Genesis 1:2]]

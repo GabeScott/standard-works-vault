@@ -1,6 +1,6 @@
 # Plant
 
-[Plant](https://www.churchofjesuschrist.org/study/scriptures/tg/Plant?lang=eng)
+[Plant](https://churchofjesuschrist.org/study/scriptures/tg/plant?lang=eng)
 
 ### References
 - [[Genesis 2.5|Genesis 2:5]]

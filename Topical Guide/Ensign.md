@@ -1,6 +1,6 @@
 # Ensign
 
-[Ensign](https://www.churchofjesuschrist.org/study/scriptures/tg/Ensign?lang=eng)
+[Ensign](https://churchofjesuschrist.org/study/scriptures/tg/ensign?lang=eng)
 
 ### References
 - [[Numbers 2.2|Numbers 2:2]]

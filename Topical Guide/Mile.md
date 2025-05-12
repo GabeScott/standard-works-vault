@@ -1,6 +1,6 @@
 # Mile
 
-[Mile](https://www.churchofjesuschrist.org/study/scriptures/tg/Mile?lang=eng)
+[Mile](https://churchofjesuschrist.org/study/scriptures/tg/mile?lang=eng)
 
 ### References
 - [[Matthew 5.41|Matthew 5:41]]

@@ -1,6 +1,6 @@
 # Cruelty, Cruel
 
-[Cruelty, Cruel](https://www.churchofjesuschrist.org/study/scriptures/tg/Cruelty-Cruel?lang=eng)
+[Cruelty, Cruel](https://churchofjesuschrist.org/study/scriptures/tg/cruelty?lang=eng)
 
 ### References
 - [[Genesis 49.5|Genesis 49:5]]

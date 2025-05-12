@@ -1,6 +1,6 @@
 # Defense
 
-[Defense](https://www.churchofjesuschrist.org/study/scriptures/tg/Defense?lang=eng)
+[Defense](https://churchofjesuschrist.org/study/scriptures/tg/defense?lang=eng)
 
 ### References
 - [[Psalms 59.9|Psalms 59:9]]

@@ -1,6 +1,6 @@
 # Pay, Paid
 
-[Pay, Paid](https://www.churchofjesuschrist.org/study/scriptures/tg/Pay-Paid?lang=eng)
+[Pay, Paid](https://churchofjesuschrist.org/study/scriptures/tg/pay?lang=eng)
 
 ### References
 - [[Exodus 21.19|Exodus 21:19]]

@@ -1,6 +1,6 @@
 # Religion
 
-[Religion](https://www.churchofjesuschrist.org/study/scriptures/tg/Religion?lang=eng)
+[Religion](https://churchofjesuschrist.org/study/scriptures/tg/religion?lang=eng)
 
 ### References
 - [[Acts 26.5|Acts 26:5]]

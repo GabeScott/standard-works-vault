@@ -1,6 +1,6 @@
 # Pool
 
-[Pool](https://www.churchofjesuschrist.org/study/scriptures/tg/Pool?lang=eng)
+[Pool](https://churchofjesuschrist.org/study/scriptures/tg/pool?lang=eng)
 
 ### References
 - [[Exodus 7.19|Exodus 7:19]]

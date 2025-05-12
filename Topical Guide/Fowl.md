@@ -1,6 +1,6 @@
 # Fowl
 
-[Fowl](https://www.churchofjesuschrist.org/study/scriptures/tg/Fowl?lang=eng)
+[Fowl](https://churchofjesuschrist.org/study/scriptures/tg/fowl?lang=eng)
 
 ### References
 - [[Genesis 1.20|Genesis 1:20]]

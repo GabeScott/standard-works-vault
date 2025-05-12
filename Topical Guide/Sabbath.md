@@ -1,6 +1,6 @@
 # Sabbath
 
-[Sabbath](https://www.churchofjesuschrist.org/study/scriptures/tg/Sabbath?lang=eng)
+[Sabbath](https://churchofjesuschrist.org/study/scriptures/tg/sabbath?lang=eng)
 
 ### References
 - [[Genesis 2.2|Genesis 2:2]]

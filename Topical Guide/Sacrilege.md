@@ -1,6 +1,6 @@
 # Sacrilege
 
-[Sacrilege](https://www.churchofjesuschrist.org/study/scriptures/tg/Sacrilege?lang=eng)
+[Sacrilege](https://churchofjesuschrist.org/study/scriptures/tg/sacrilege?lang=eng)
 
 ### References
 - [[Exodus 20.7|Exodus 20:7]]

@@ -1,6 +1,6 @@
 # Vary
 
-[Vary](https://www.churchofjesuschrist.org/study/scriptures/tg/Vary?lang=eng)
+[Vary](https://churchofjesuschrist.org/study/scriptures/tg/vary?lang=eng)
 
 ### References
 - [[Mosiah 2.22|Mosiah 2:22]]

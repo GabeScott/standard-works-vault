@@ -1,6 +1,6 @@
 # Earth, Purpose of
 
-[Earth, Purpose of](https://www.churchofjesuschrist.org/study/scriptures/tg/Earth-Purpose-of?lang=eng)
+[Earth, Purpose of](https://churchofjesuschrist.org/study/scriptures/tg/earth-purpose-of?lang=eng)
 
 ### References
 - [[Genesis 1.28|Genesis 1:28]]

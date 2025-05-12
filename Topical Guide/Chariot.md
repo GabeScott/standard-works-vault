@@ -1,6 +1,6 @@
 # Chariot
 
-[Chariot](https://www.churchofjesuschrist.org/study/scriptures/tg/Chariot?lang=eng)
+[Chariot](https://churchofjesuschrist.org/study/scriptures/tg/chariot?lang=eng)
 
 ### References
 - [[Exodus 14.25|Exodus 14:25]]

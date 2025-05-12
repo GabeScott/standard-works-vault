@@ -1,6 +1,6 @@
 # Fountain
 
-[Fountain](https://www.churchofjesuschrist.org/study/scriptures/tg/Fountain?lang=eng)
+[Fountain](https://churchofjesuschrist.org/study/scriptures/tg/fountain?lang=eng)
 
 ### References
 - [[Genesis 7.11|Genesis 7:11]]

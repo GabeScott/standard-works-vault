@@ -1,6 +1,6 @@
 # Sojourn
 
-[Sojourn](https://www.churchofjesuschrist.org/study/scriptures/tg/Sojourn?lang=eng)
+[Sojourn](https://churchofjesuschrist.org/study/scriptures/tg/sojourn?lang=eng)
 
 ### References
 - [[Genesis 12.10|Genesis 12:10]]

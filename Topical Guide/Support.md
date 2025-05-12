@@ -1,6 +1,6 @@
 # Support
 
-[Support](https://www.churchofjesuschrist.org/study/scriptures/tg/Support?lang=eng)
+[Support](https://churchofjesuschrist.org/study/scriptures/tg/support?lang=eng)
 
 ### References
 - [[Acts 20.35|Acts 20:35]]

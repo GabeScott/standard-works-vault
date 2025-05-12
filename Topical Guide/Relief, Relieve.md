@@ -1,6 +1,6 @@
 # Relief, Relieve
 
-[Relief, Relieve](https://www.churchofjesuschrist.org/study/scriptures/tg/Relief-Relieve?lang=eng)
+[Relief, Relieve](https://churchofjesuschrist.org/study/scriptures/tg/relief?lang=eng)
 
 ### References
 - [[Psalms 146.9|Psalms 146:9]]

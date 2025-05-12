@@ -1,6 +1,6 @@
 # Reproach
 
-[Reproach](https://www.churchofjesuschrist.org/study/scriptures/tg/Reproach?lang=eng)
+[Reproach](https://churchofjesuschrist.org/study/scriptures/tg/reproach?lang=eng)
 
 ### References
 - [[Genesis 30.23|Genesis 30:23]]

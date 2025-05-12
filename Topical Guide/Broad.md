@@ -1,6 +1,6 @@
 # Broad
 
-[Broad](https://www.churchofjesuschrist.org/study/scriptures/tg/Broad?lang=eng)
+[Broad](https://churchofjesuschrist.org/study/scriptures/tg/broad?lang=eng)
 
 ### References
 - [[Psalms 119.96|Psalms 119:96]]

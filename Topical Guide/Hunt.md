@@ -1,6 +1,6 @@
 # Hunt
 
-[Hunt](https://www.churchofjesuschrist.org/study/scriptures/tg/Hunt?lang=eng)
+[Hunt](https://churchofjesuschrist.org/study/scriptures/tg/hunt?lang=eng)
 
 ### References
 - [[Genesis 27.5|Genesis 27:5]]

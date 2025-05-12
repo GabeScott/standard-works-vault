@@ -1,6 +1,6 @@
 # Health
 
-[Health](https://www.churchofjesuschrist.org/study/scriptures/tg/Health?lang=eng)
+[Health](https://churchofjesuschrist.org/study/scriptures/tg/health?lang=eng)
 
 ### References
 - [[Proverbs 3.8|Proverbs 3:8]]

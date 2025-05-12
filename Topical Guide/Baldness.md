@@ -1,6 +1,6 @@
 # Baldness
 
-[Baldness](https://www.churchofjesuschrist.org/study/scriptures/tg/Baldness?lang=eng)
+[Baldness](https://churchofjesuschrist.org/study/scriptures/tg/baldness?lang=eng)
 
 ### References
 - [[Deuteronomy 14.1|Deuteronomy 14:1]]

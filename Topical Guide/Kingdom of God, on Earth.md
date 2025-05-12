@@ -1,6 +1,6 @@
 # Kingdom of God, on Earth
 
-[Kingdom of God, on Earth](https://www.churchofjesuschrist.org/study/scriptures/tg/Kingdom-of-God-on-Earth?lang=eng)
+[Kingdom of God, on Earth](https://churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-on-earth?lang=eng)
 
 ### References
 - [[Psalms 89.4|Psalms 89:4]]

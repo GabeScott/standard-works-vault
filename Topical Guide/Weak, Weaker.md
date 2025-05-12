@@ -1,6 +1,6 @@
 # Weak, Weaker
 
-[Weak, Weaker](https://www.churchofjesuschrist.org/study/scriptures/tg/Weak-Weaker?lang=eng)
+[Weak, Weaker](https://churchofjesuschrist.org/study/scriptures/tg/weak?lang=eng)
 
 ### References
 - [[Judges 16.7|Judges 16:7]]

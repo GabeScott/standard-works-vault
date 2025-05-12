@@ -1,6 +1,6 @@
 # Ponder
 
-[Ponder](https://www.churchofjesuschrist.org/study/scriptures/tg/Ponder?lang=eng)
+[Ponder](https://churchofjesuschrist.org/study/scriptures/tg/ponder?lang=eng)
 
 ### References
 - [[Proverbs 21.2|Proverbs 21:2]]

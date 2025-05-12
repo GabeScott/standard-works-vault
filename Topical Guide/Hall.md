@@ -1,6 +1,6 @@
 # Hall
 
-[Hall](https://www.churchofjesuschrist.org/study/scriptures/tg/Hall?lang=eng)
+[Hall](https://churchofjesuschrist.org/study/scriptures/tg/hall?lang=eng)
 
 ### References
 - [[Matthew 27.27|Matthew 27:27]]

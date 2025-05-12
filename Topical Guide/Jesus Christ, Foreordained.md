@@ -1,6 +1,6 @@
 # Jesus Christ, Foreordained
 
-[Jesus Christ, Foreordained](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Foreordained?lang=eng)
+[Jesus Christ, Foreordained](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-foreordained?lang=eng)
 
 ### References
 - [[Genesis 3.15|Genesis 3:15]]

@@ -1,6 +1,6 @@
 # Promise
 
-[Promise](https://www.churchofjesuschrist.org/study/scriptures/tg/Promise?lang=eng)
+[Promise](https://churchofjesuschrist.org/study/scriptures/tg/holy-spirit-of-promise?lang=eng)
 
 ### References
 - [[Joshua 23.10|Joshua 23:10]]

@@ -1,6 +1,6 @@
 # Destruction
 
-[Destruction](https://www.churchofjesuschrist.org/study/scriptures/tg/Destruction?lang=eng)
+[Destruction](https://churchofjesuschrist.org/study/scriptures/tg/destruction?lang=eng)
 
 ### References
 - [[Job 21.30|Job 21:30]]

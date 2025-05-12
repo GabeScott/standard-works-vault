@@ -1,6 +1,6 @@
 # Thousand
 
-[Thousand](https://www.churchofjesuschrist.org/study/scriptures/tg/Thousand?lang=eng)
+[Thousand](https://churchofjesuschrist.org/study/scriptures/tg/thousand?lang=eng)
 
 ### References
 - [[Genesis 24.60|Genesis 24:60]]

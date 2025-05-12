@@ -1,6 +1,6 @@
 # Rock
 
-[Rock](https://www.churchofjesuschrist.org/study/scriptures/tg/Rock?lang=eng)
+[Rock](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-rock?lang=eng)
 
 ### References
 - [[Exodus 17.6|Exodus 17:6]]

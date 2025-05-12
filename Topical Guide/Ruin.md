@@ -1,6 +1,6 @@
 # Ruin
 
-[Ruin](https://www.churchofjesuschrist.org/study/scriptures/tg/Ruin?lang=eng)
+[Ruin](https://churchofjesuschrist.org/study/scriptures/tg/ruin?lang=eng)
 
 ### References
 - [[2 Chronicles 28.23|2 Chronicles 28:23]]

@@ -1,6 +1,6 @@
 # Messenger
 
-[Messenger](https://www.churchofjesuschrist.org/study/scriptures/tg/Messenger?lang=eng)
+[Messenger](https://churchofjesuschrist.org/study/scriptures/tg/messenger?lang=eng)
 
 ### References
 - [[Genesis 32.3|Genesis 32:3]]

@@ -1,6 +1,6 @@
 # Battle
 
-[Battle](https://www.churchofjesuschrist.org/study/scriptures/tg/Battle?lang=eng)
+[Battle](https://churchofjesuschrist.org/study/scriptures/tg/battle?lang=eng)
 
 ### References
 - [[Deuteronomy 20.1|Deuteronomy 20:1]]

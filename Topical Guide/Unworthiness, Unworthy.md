@@ -1,6 +1,6 @@
 # Unworthiness, Unworthy
 
-[Unworthiness, Unworthy](https://www.churchofjesuschrist.org/study/scriptures/tg/Unworthiness-Unworthy?lang=eng)
+[Unworthiness, Unworthy](https://churchofjesuschrist.org/study/scriptures/tg/unworthiness?lang=eng)
 
 ### References
 - [[Acts 13.46|Acts 13:46]]

@@ -1,6 +1,6 @@
 # Hole
 
-[Hole](https://www.churchofjesuschrist.org/study/scriptures/tg/Hole?lang=eng)
+[Hole](https://churchofjesuschrist.org/study/scriptures/tg/hole?lang=eng)
 
 ### References
 - [[Isaiah 11.8|Isaiah 11:8]]

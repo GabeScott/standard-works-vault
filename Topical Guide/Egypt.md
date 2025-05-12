@@ -1,6 +1,6 @@
 # Egypt
 
-[Egypt](https://www.churchofjesuschrist.org/study/scriptures/tg/Egypt?lang=eng)
+[Egypt](https://churchofjesuschrist.org/study/scriptures/tg/egypt?lang=eng)
 
 ### References
 - [[Genesis 12.10|Genesis 12:10]]

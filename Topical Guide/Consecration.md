@@ -1,6 +1,6 @@
 # Consecration
 
-[Consecration](https://www.churchofjesuschrist.org/study/scriptures/tg/Consecration?lang=eng)
+[Consecration](https://churchofjesuschrist.org/study/scriptures/tg/consecration?lang=eng)
 
 ### References
 - [[Acts 2.44|Acts 2:44]]

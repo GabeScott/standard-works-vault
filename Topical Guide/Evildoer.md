@@ -1,6 +1,6 @@
 # Evildoer
 
-[Evildoer](https://www.churchofjesuschrist.org/study/scriptures/tg/Evildoer?lang=eng)
+[Evildoer](https://churchofjesuschrist.org/study/scriptures/tg/evildoer?lang=eng)
 
 ### References
 - [[Psalms 37.1|Psalms 37:1]]

@@ -1,6 +1,6 @@
 # Record Keeping
 
-[Record Keeping](https://www.churchofjesuschrist.org/study/scriptures/tg/Record-Keeping?lang=eng)
+[Record Keeping](https://churchofjesuschrist.org/study/scriptures/tg/record-keeping?lang=eng)
 
 ### References
 - [[Exodus 24.4|Exodus 24:4]]

@@ -1,6 +1,6 @@
 # Member
 
-[Member](https://www.churchofjesuschrist.org/study/scriptures/tg/Member?lang=eng)
+[Member](https://churchofjesuschrist.org/study/scriptures/tg/member?lang=eng)
 
 ### References
 - [[Romans 6.13|Romans 6:13]]

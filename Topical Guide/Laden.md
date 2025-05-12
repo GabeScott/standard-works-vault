@@ -1,6 +1,6 @@
 # Laden
 
-[Laden](https://www.churchofjesuschrist.org/study/scriptures/tg/Laden?lang=eng)
+[Laden](https://churchofjesuschrist.org/study/scriptures/tg/laden?lang=eng)
 
 ### References
 - [[Matthew 11.28|Matthew 11:28]]

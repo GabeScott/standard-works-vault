@@ -1,6 +1,6 @@
 # Rule
 
-[Rule](https://www.churchofjesuschrist.org/study/scriptures/tg/Rule?lang=eng)
+[Rule](https://churchofjesuschrist.org/study/scriptures/tg/golden-rule?lang=eng)
 
 ### References
 - [[Genesis 1.16|Genesis 1:16]]

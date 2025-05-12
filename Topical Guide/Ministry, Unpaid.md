@@ -1,6 +1,6 @@
 # Ministry, Unpaid
 
-[Ministry, Unpaid](https://www.churchofjesuschrist.org/study/scriptures/tg/Ministry-Unpaid?lang=eng)
+[Ministry, Unpaid](https://churchofjesuschrist.org/study/scriptures/tg/ministry-unpaid?lang=eng)
 
 ### References
 - [[Matthew 10.8|Matthew 10:8]]

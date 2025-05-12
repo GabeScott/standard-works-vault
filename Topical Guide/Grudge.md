@@ -1,6 +1,6 @@
 # Grudge
 
-[Grudge](https://www.churchofjesuschrist.org/study/scriptures/tg/Grudge?lang=eng)
+[Grudge](https://churchofjesuschrist.org/study/scriptures/tg/grudge?lang=eng)
 
 ### References
 - [[Leviticus 19.18|Leviticus 19:18]]

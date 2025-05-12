@@ -1,6 +1,6 @@
 # Unfold
 
-[Unfold](https://www.churchofjesuschrist.org/study/scriptures/tg/Unfold?lang=eng)
+[Unfold](https://churchofjesuschrist.org/study/scriptures/tg/unfold?lang=eng)
 
 ### References
 - [[1 Nephi 10.19|1 Nephi 10:19]]

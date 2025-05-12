@@ -1,6 +1,6 @@
 # Lucifer
 
-[Lucifer](https://www.churchofjesuschrist.org/study/scriptures/tg/Lucifer?lang=eng)
+[Lucifer](https://churchofjesuschrist.org/study/scriptures/tg/lucifer?lang=eng)
 
 ### References
 - [[Isaiah 14.12|Isaiah 14:12]]

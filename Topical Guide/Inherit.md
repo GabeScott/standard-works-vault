@@ -1,6 +1,6 @@
 # Inherit
 
-[Inherit](https://www.churchofjesuschrist.org/study/scriptures/tg/Inherit?lang=eng)
+[Inherit](https://churchofjesuschrist.org/study/scriptures/tg/inherit?lang=eng)
 
 ### References
 - [[Genesis 15.7|Genesis 15:7]]

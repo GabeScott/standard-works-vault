@@ -1,6 +1,6 @@
 # Afflict
 
-[Afflict](https://www.churchofjesuschrist.org/study/scriptures/tg/Afflict?lang=eng)
+[Afflict](https://churchofjesuschrist.org/study/scriptures/tg/afflict?lang=eng)
 
 ### References
 - [[Exodus 22.22|Exodus 22:22]]

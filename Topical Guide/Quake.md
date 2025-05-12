@@ -1,6 +1,6 @@
 # Quake
 
-[Quake](https://www.churchofjesuschrist.org/study/scriptures/tg/Quake?lang=eng)
+[Quake](https://churchofjesuschrist.org/study/scriptures/tg/quake?lang=eng)
 
 ### References
 - [[Exodus 19.18|Exodus 19:18]]

@@ -1,6 +1,6 @@
 # Disease, Diseased
 
-[Disease, Diseased](https://www.churchofjesuschrist.org/study/scriptures/tg/Disease-Diseased?lang=eng)
+[Disease, Diseased](https://churchofjesuschrist.org/study/scriptures/tg/disease?lang=eng)
 
 ### References
 - [[Exodus 15.26|Exodus 15:26]]

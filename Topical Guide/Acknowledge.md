@@ -1,6 +1,6 @@
 # Acknowledge
 
-[Acknowledge](https://www.churchofjesuschrist.org/study/scriptures/tg/Acknowledge?lang=eng)
+[Acknowledge](https://churchofjesuschrist.org/study/scriptures/tg/acknowledge?lang=eng)
 
 ### References
 - [[Proverbs 3.6|Proverbs 3:6]]

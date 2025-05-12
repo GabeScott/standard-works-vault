@@ -1,6 +1,6 @@
 # Scribe
 
-[Scribe](https://www.churchofjesuschrist.org/study/scriptures/tg/Scribe?lang=eng)
+[Scribe](https://churchofjesuschrist.org/study/scriptures/tg/scribe?lang=eng)
 
 ### References
 - [[Exodus 24.4|Exodus 24:4]]

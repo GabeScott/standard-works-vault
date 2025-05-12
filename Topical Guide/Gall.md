@@ -1,6 +1,6 @@
 # Gall
 
-[Gall](https://www.churchofjesuschrist.org/study/scriptures/tg/Gall?lang=eng)
+[Gall](https://churchofjesuschrist.org/study/scriptures/tg/gall?lang=eng)
 
 ### References
 - [[Deuteronomy 29.18|Deuteronomy 29:18]]

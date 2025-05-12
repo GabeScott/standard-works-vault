@@ -1,6 +1,6 @@
 # Wonderful
 
-[Wonderful](https://www.churchofjesuschrist.org/study/scriptures/tg/Wonderful?lang=eng)
+[Wonderful](https://churchofjesuschrist.org/study/scriptures/tg/wonderful?lang=eng)
 
 ### References
 - [[Isaiah 9.6|Isaiah 9:6]]

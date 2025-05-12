@@ -1,6 +1,6 @@
 # Finisher
 
-[Finisher](https://www.churchofjesuschrist.org/study/scriptures/tg/Finisher?lang=eng)
+[Finisher](https://churchofjesuschrist.org/study/scriptures/tg/finisher?lang=eng)
 
 ### References
 - [[Hebrews 12.2|Hebrews 12:2]]

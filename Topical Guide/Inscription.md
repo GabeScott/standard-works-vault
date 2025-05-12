@@ -1,6 +1,6 @@
 # Inscription
 
-[Inscription](https://www.churchofjesuschrist.org/study/scriptures/tg/Inscription?lang=eng)
+[Inscription](https://churchofjesuschrist.org/study/scriptures/tg/inscription?lang=eng)
 
 ### References
 - [[Acts 17.23|Acts 17:23]]

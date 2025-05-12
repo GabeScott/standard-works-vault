@@ -1,6 +1,6 @@
 # Wile
 
-[Wile](https://www.churchofjesuschrist.org/study/scriptures/tg/Wile?lang=eng)
+[Wile](https://churchofjesuschrist.org/study/scriptures/tg/wile?lang=eng)
 
 ### References
 - [[Numbers 25.18|Numbers 25:18]]

@@ -1,6 +1,6 @@
 # Voice
 
-[Voice](https://www.churchofjesuschrist.org/study/scriptures/tg/Voice?lang=eng)
+[Voice](https://churchofjesuschrist.org/study/scriptures/tg/voice?lang=eng)
 
 ### References
 - [[Genesis 27.22|Genesis 27:22]]

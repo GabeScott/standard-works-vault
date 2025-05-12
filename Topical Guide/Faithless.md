@@ -1,6 +1,6 @@
 # Faithless
 
-[Faithless](https://www.churchofjesuschrist.org/study/scriptures/tg/Faithless?lang=eng)
+[Faithless](https://churchofjesuschrist.org/study/scriptures/tg/faithless?lang=eng)
 
 ### References
 - [[Matthew 17.17|Matthew 17:17]]

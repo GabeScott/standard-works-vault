@@ -1,6 +1,6 @@
 # Blood, Shedding of
 
-[Blood, Shedding of](https://www.churchofjesuschrist.org/study/scriptures/tg/Blood-Shedding-of?lang=eng)
+[Blood, Shedding of](https://churchofjesuschrist.org/study/scriptures/tg/blood-shedding-of?lang=eng)
 
 ### References
 - [[Genesis 9.6|Genesis 9:6]]

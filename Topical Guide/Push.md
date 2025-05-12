@@ -1,6 +1,6 @@
 # Push
 
-[Push](https://www.churchofjesuschrist.org/study/scriptures/tg/Push?lang=eng)
+[Push](https://churchofjesuschrist.org/study/scriptures/tg/push?lang=eng)
 
 ### References
 - [[Exodus 21.29|Exodus 21:29]]

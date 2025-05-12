@@ -1,6 +1,6 @@
 # Save
 
-[Save](https://www.churchofjesuschrist.org/study/scriptures/tg/Save?lang=eng)
+[Save](https://churchofjesuschrist.org/study/scriptures/tg/save?lang=eng)
 
 ### References
 - [[Genesis 45.7|Genesis 45:7]]

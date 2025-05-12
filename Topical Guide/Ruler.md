@@ -1,6 +1,6 @@
 # Ruler
 
-[Ruler](https://www.churchofjesuschrist.org/study/scriptures/tg/Ruler?lang=eng)
+[Ruler](https://churchofjesuschrist.org/study/scriptures/tg/ruler?lang=eng)
 
 ### References
 - [[Genesis 41.43|Genesis 41:43]]

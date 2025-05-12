@@ -1,6 +1,6 @@
 # Astray
 
-[Astray](https://www.churchofjesuschrist.org/study/scriptures/tg/Astray?lang=eng)
+[Astray](https://churchofjesuschrist.org/study/scriptures/tg/astray?lang=eng)
 
 ### References
 - [[Proverbs 28.10|Proverbs 28:10]]

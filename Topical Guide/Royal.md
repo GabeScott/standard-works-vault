@@ -1,6 +1,6 @@
 # Royal
 
-[Royal](https://www.churchofjesuschrist.org/study/scriptures/tg/Royal?lang=eng)
+[Royal](https://churchofjesuschrist.org/study/scriptures/tg/royal?lang=eng)
 
 ### References
 - [[Acts 12.21|Acts 12:21]]

@@ -1,6 +1,6 @@
 # Translated Beings
 
-[Translated Beings](https://www.churchofjesuschrist.org/study/scriptures/tg/Translated-Beings?lang=eng)
+[Translated Beings](https://churchofjesuschrist.org/study/scriptures/tg/translated-beings?lang=eng)
 
 ### References
 - [[Genesis 5.24|Genesis 5:24]]

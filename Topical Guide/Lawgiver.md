@@ -1,6 +1,6 @@
 # Lawgiver
 
-[Lawgiver](https://www.churchofjesuschrist.org/study/scriptures/tg/Lawgiver?lang=eng)
+[Lawgiver](https://churchofjesuschrist.org/study/scriptures/tg/lawgiver?lang=eng)
 
 ### References
 - [[Genesis 49.10|Genesis 49:10]]

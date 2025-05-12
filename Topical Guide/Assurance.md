@@ -1,6 +1,6 @@
 # Assurance
 
-[Assurance](https://www.churchofjesuschrist.org/study/scriptures/tg/Assurance?lang=eng)
+[Assurance](https://churchofjesuschrist.org/study/scriptures/tg/assurance?lang=eng)
 
 ### References
 - [[Acts 17.31|Acts 17:31]]

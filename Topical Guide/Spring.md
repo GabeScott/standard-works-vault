@@ -1,6 +1,6 @@
 # Spring
 
-[Spring](https://www.churchofjesuschrist.org/study/scriptures/tg/Spring?lang=eng)
+[Spring](https://churchofjesuschrist.org/study/scriptures/tg/spring-noun?lang=eng)
 
 ### References
 - [[Joshua 15.19|Joshua 15:19]]

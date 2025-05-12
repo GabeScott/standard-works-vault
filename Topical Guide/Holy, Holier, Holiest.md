@@ -1,6 +1,6 @@
 # Holy, Holier, Holiest
 
-[Holy, Holier, Holiest](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Holier-Holiest?lang=eng)
+[Holy, Holier, Holiest](https://churchofjesuschrist.org/study/scriptures/tg/holy?lang=eng)
 
 ### References
 - [[Exodus 19.6|Exodus 19:6]]

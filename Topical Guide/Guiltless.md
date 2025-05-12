@@ -1,6 +1,6 @@
 # Guiltless
 
-[Guiltless](https://www.churchofjesuschrist.org/study/scriptures/tg/Guiltless?lang=eng)
+[Guiltless](https://churchofjesuschrist.org/study/scriptures/tg/guiltless?lang=eng)
 
 ### References
 - [[Exodus 20.7|Exodus 20:7]]

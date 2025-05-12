@@ -1,6 +1,6 @@
 # Jesus Christ, Jehovah
 
-[Jesus Christ, Jehovah](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Jehovah?lang=eng)
+[Jesus Christ, Jehovah](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-jehovah?lang=eng)
 
 ### References
 - [[Genesis 2.4|Genesis 2:4]]

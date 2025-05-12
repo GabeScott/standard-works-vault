@@ -1,6 +1,6 @@
 # Cleave
 
-[Cleave](https://www.churchofjesuschrist.org/study/scriptures/tg/Cleave?lang=eng)
+[Cleave](https://churchofjesuschrist.org/study/scriptures/tg/cleave?lang=eng)
 
 ### References
 - [[Genesis 2.24|Genesis 2:24]]

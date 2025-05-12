@@ -1,6 +1,6 @@
 # Angels
 
-[Angels](https://www.churchofjesuschrist.org/study/scriptures/tg/Angels?lang=eng)
+[Angels](https://churchofjesuschrist.org/study/scriptures/tg/angels?lang=eng)
 
 ### References
 - [[Genesis 16.9|Genesis 16:9]]

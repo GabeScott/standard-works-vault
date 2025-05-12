@@ -1,6 +1,6 @@
 # Silly
 
-[Silly](https://www.churchofjesuschrist.org/study/scriptures/tg/Silly?lang=eng)
+[Silly](https://churchofjesuschrist.org/study/scriptures/tg/silly?lang=eng)
 
 ### References
 - [[Hosea 7.11|Hosea 7:11]]

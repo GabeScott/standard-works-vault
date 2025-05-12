@@ -1,6 +1,6 @@
 # Wheat
 
-[Wheat](https://www.churchofjesuschrist.org/study/scriptures/tg/Wheat?lang=eng)
+[Wheat](https://churchofjesuschrist.org/study/scriptures/tg/wheat?lang=eng)
 
 ### References
 - [[Exodus 9.32|Exodus 9:32]]

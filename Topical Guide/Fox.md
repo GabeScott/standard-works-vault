@@ -1,6 +1,6 @@
 # Fox
 
-[Fox](https://www.churchofjesuschrist.org/study/scriptures/tg/Fox?lang=eng)
+[Fox](https://churchofjesuschrist.org/study/scriptures/tg/fox?lang=eng)
 
 ### References
 - [[Judges 15.4|Judges 15:4]]

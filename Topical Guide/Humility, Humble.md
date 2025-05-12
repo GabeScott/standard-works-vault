@@ -1,6 +1,6 @@
 # Humility, Humble
 
-[Humility, Humble](https://www.churchofjesuschrist.org/study/scriptures/tg/Humility-Humble?lang=eng)
+[Humility, Humble](https://churchofjesuschrist.org/study/scriptures/tg/humility?lang=eng)
 
 ### References
 - [[Exodus 10.3|Exodus 10:3]]

@@ -1,6 +1,6 @@
 # Miracle
 
-[Miracle](https://www.churchofjesuschrist.org/study/scriptures/tg/Miracle?lang=eng)
+[Miracle](https://churchofjesuschrist.org/study/scriptures/tg/miracle?lang=eng)
 
 ### References
 - [[Exodus 3.20|Exodus 3:20]]

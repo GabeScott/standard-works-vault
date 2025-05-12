@@ -1,6 +1,6 @@
 # Profitable
 
-[Profitable](https://www.churchofjesuschrist.org/study/scriptures/tg/Profitable?lang=eng)
+[Profitable](https://churchofjesuschrist.org/study/scriptures/tg/profitable?lang=eng)
 
 ### References
 - [[Matthew 5.29|Matthew 5:29]]

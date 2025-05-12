@@ -1,6 +1,6 @@
 # Author
 
-[Author](https://www.churchofjesuschrist.org/study/scriptures/tg/Author?lang=eng)
+[Author](https://churchofjesuschrist.org/study/scriptures/tg/author?lang=eng)
 
 ### References
 - [[1 Corinthians 14.33|1 Corinthians 14:33]]

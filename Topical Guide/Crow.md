@@ -1,6 +1,6 @@
 # Crow
 
-[Crow](https://www.churchofjesuschrist.org/study/scriptures/tg/Crow?lang=eng)
+[Crow](https://churchofjesuschrist.org/study/scriptures/tg/crow?lang=eng)
 
 ### References
 - [[Matthew 26.34|Matthew 26:34]]

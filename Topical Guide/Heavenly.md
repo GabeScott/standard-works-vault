@@ -1,6 +1,6 @@
 # Heavenly
 
-[Heavenly](https://www.churchofjesuschrist.org/study/scriptures/tg/Heavenly?lang=eng)
+[Heavenly](https://churchofjesuschrist.org/study/scriptures/tg/heavenly?lang=eng)
 
 ### References
 - [[Matthew 6.26|Matthew 6:26]]

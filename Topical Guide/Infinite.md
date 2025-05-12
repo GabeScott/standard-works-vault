@@ -1,6 +1,6 @@
 # Infinite
 
-[Infinite](https://www.churchofjesuschrist.org/study/scriptures/tg/Infinite?lang=eng)
+[Infinite](https://churchofjesuschrist.org/study/scriptures/tg/infinite?lang=eng)
 
 ### References
 - [[Psalms 147.5|Psalms 147:5]]

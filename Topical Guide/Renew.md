@@ -1,6 +1,6 @@
 # Renew
 
-[Renew](https://www.churchofjesuschrist.org/study/scriptures/tg/Renew?lang=eng)
+[Renew](https://churchofjesuschrist.org/study/scriptures/tg/renew?lang=eng)
 
 ### References
 - [[Psalms 104.30|Psalms 104:30]]

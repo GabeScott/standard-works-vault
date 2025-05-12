@@ -1,6 +1,6 @@
 # Five
 
-[Five](https://www.churchofjesuschrist.org/study/scriptures/tg/Five?lang=eng)
+[Five](https://churchofjesuschrist.org/study/scriptures/tg/five?lang=eng)
 
 ### References
 - [[Matthew 14.21|Matthew 14:21]]

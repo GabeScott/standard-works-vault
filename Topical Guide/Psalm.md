@@ -1,6 +1,6 @@
 # Psalm
 
-[Psalm](https://www.churchofjesuschrist.org/study/scriptures/tg/Psalm?lang=eng)
+[Psalm](https://churchofjesuschrist.org/study/scriptures/tg/psalm?lang=eng)
 
 ### References
 - [[1 Chronicles 16.7|1 Chronicles 16:7]]

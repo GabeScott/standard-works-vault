@@ -1,6 +1,6 @@
 # Day of the Lord
 
-[Day of the Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/Day-of-the-Lord?lang=eng)
+[Day of the Lord](https://churchofjesuschrist.org/study/scriptures/tg/day-of-the-lord?lang=eng)
 
 ### References
 - [[Isaiah 11.10|Isaiah 11:10]]

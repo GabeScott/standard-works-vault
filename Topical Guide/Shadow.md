@@ -1,6 +1,6 @@
 # Shadow
 
-[Shadow](https://www.churchofjesuschrist.org/study/scriptures/tg/Shadow?lang=eng)
+[Shadow](https://churchofjesuschrist.org/study/scriptures/tg/shadow?lang=eng)
 
 ### References
 - [[Judges 9.15|Judges 9:15]]

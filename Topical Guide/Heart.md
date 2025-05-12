@@ -1,6 +1,6 @@
 # Heart
 
-[Heart](https://www.churchofjesuschrist.org/study/scriptures/tg/Heart?lang=eng)
+[Heart](https://churchofjesuschrist.org/study/scriptures/tg/contrite-heart?lang=eng)
 
 ### References
 - [[Genesis 6.5|Genesis 6:5]]

@@ -1,6 +1,6 @@
 # Filthiness, Filthy
 
-[Filthiness, Filthy](https://www.churchofjesuschrist.org/study/scriptures/tg/Filthiness-Filthy?lang=eng)
+[Filthiness, Filthy](https://churchofjesuschrist.org/study/scriptures/tg/filthiness?lang=eng)
 
 ### References
 - [[2 Chronicles 29.5|2 Chronicles 29:5]]

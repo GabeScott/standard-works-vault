@@ -1,6 +1,6 @@
 # Earthly
 
-[Earthly](https://www.churchofjesuschrist.org/study/scriptures/tg/Earthly?lang=eng)
+[Earthly](https://churchofjesuschrist.org/study/scriptures/tg/earthly?lang=eng)
 
 ### References
 - [[John 3.12|John 3:12]]

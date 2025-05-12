@@ -1,6 +1,6 @@
 # Cast
 
-[Cast](https://www.churchofjesuschrist.org/study/scriptures/tg/Cast?lang=eng)
+[Cast](https://churchofjesuschrist.org/study/scriptures/tg/cast?lang=eng)
 
 ### References
 - [[Genesis 21.10|Genesis 21:10]]

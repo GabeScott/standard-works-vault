@@ -1,6 +1,6 @@
 # Death, Spiritual, First
 
-[Death, Spiritual, First](https://www.churchofjesuschrist.org/study/scriptures/tg/Death-Spiritual-First?lang=eng)
+[Death, Spiritual, First](https://churchofjesuschrist.org/study/scriptures/tg/death-spiritual-first?lang=eng)
 
 ### References
 - [[Genesis 2.17|Genesis 2:17]]

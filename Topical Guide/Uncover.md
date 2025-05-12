@@ -1,6 +1,6 @@
 # Uncover
 
-[Uncover](https://www.churchofjesuschrist.org/study/scriptures/tg/Uncover?lang=eng)
+[Uncover](https://churchofjesuschrist.org/study/scriptures/tg/uncover?lang=eng)
 
 ### References
 - [[Genesis 9.21|Genesis 9:21]]

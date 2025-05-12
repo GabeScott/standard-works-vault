@@ -1,6 +1,6 @@
 # Giant
 
-[Giant](https://www.churchofjesuschrist.org/study/scriptures/tg/Giant?lang=eng)
+[Giant](https://churchofjesuschrist.org/study/scriptures/tg/giant?lang=eng)
 
 ### References
 - [[Genesis 6.4|Genesis 6:4]]

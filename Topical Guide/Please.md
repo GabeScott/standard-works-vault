@@ -1,6 +1,6 @@
 # Please
 
-[Please](https://www.churchofjesuschrist.org/study/scriptures/tg/Please?lang=eng)
+[Please](https://churchofjesuschrist.org/study/scriptures/tg/please?lang=eng)
 
 ### References
 - [[Deuteronomy 1.23|Deuteronomy 1:23]]

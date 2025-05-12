@@ -1,6 +1,6 @@
 # Excess
 
-[Excess](https://www.churchofjesuschrist.org/study/scriptures/tg/Excess?lang=eng)
+[Excess](https://churchofjesuschrist.org/study/scriptures/tg/excess?lang=eng)
 
 ### References
 - [[Matthew 23.25|Matthew 23:25]]

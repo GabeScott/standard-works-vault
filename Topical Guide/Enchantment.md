@@ -1,6 +1,6 @@
 # Enchantment
 
-[Enchantment](https://www.churchofjesuschrist.org/study/scriptures/tg/Enchantment?lang=eng)
+[Enchantment](https://churchofjesuschrist.org/study/scriptures/tg/enchantment?lang=eng)
 
 ### References
 - [[Exodus 7.11|Exodus 7:11]]

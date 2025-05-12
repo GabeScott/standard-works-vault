@@ -1,6 +1,6 @@
 # Forty
 
-[Forty](https://www.churchofjesuschrist.org/study/scriptures/tg/Forty?lang=eng)
+[Forty](https://churchofjesuschrist.org/study/scriptures/tg/forty?lang=eng)
 
 ### References
 - [[Genesis 7.4|Genesis 7:4]]

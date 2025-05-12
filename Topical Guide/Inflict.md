@@ -1,6 +1,6 @@
 # Inflict
 
-[Inflict](https://www.churchofjesuschrist.org/study/scriptures/tg/Inflict?lang=eng)
+[Inflict](https://churchofjesuschrist.org/study/scriptures/tg/inflict?lang=eng)
 
 ### References
 - [[2 Nephi 2.10|2 Nephi 2:10]]

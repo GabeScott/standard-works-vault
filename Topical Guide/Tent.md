@@ -1,6 +1,6 @@
 # Tent
 
-[Tent](https://www.churchofjesuschrist.org/study/scriptures/tg/Tent?lang=eng)
+[Tent](https://churchofjesuschrist.org/study/scriptures/tg/tent?lang=eng)
 
 ### References
 - [[Genesis 25.27|Genesis 25:27]]

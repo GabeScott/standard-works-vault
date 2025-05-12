@@ -1,6 +1,6 @@
 # Creation, Create
 
-[Creation, Create](https://www.churchofjesuschrist.org/study/scriptures/tg/Creation-Create?lang=eng)
+[Creation, Create](https://churchofjesuschrist.org/study/scriptures/tg/creation?lang=eng)
 
 ### References
 - [[Genesis 1.1|Genesis 1:1]]

@@ -1,6 +1,6 @@
 # Malefactor
 
-[Malefactor](https://www.churchofjesuschrist.org/study/scriptures/tg/Malefactor?lang=eng)
+[Malefactor](https://churchofjesuschrist.org/study/scriptures/tg/malefactor?lang=eng)
 
 ### References
 - [[Luke 23.32|Luke 23:32]]

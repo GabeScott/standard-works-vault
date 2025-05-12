@@ -1,6 +1,6 @@
 # Sedition
 
-[Sedition](https://www.churchofjesuschrist.org/study/scriptures/tg/Sedition?lang=eng)
+[Sedition](https://churchofjesuschrist.org/study/scriptures/tg/sedition?lang=eng)
 
 ### References
 - [[Ezra 4.15|Ezra 4:15]]

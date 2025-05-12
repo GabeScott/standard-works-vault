@@ -1,6 +1,6 @@
 # Brimstone
 
-[Brimstone](https://www.churchofjesuschrist.org/study/scriptures/tg/Brimstone?lang=eng)
+[Brimstone](https://churchofjesuschrist.org/study/scriptures/tg/brimstone?lang=eng)
 
 ### References
 - [[Genesis 19.24|Genesis 19:24]]

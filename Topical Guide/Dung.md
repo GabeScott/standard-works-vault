@@ -1,6 +1,6 @@
 # Dung
 
-[Dung](https://www.churchofjesuschrist.org/study/scriptures/tg/Dung?lang=eng)
+[Dung](https://churchofjesuschrist.org/study/scriptures/tg/dung?lang=eng)
 
 ### References
 - [[Nehemiah 12.31|Nehemiah 12:31]]

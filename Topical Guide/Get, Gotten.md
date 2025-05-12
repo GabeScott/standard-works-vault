@@ -1,6 +1,6 @@
 # Get, Gotten
 
-[Get, Gotten](https://www.churchofjesuschrist.org/study/scriptures/tg/Get-Gotten?lang=eng)
+[Get, Gotten](https://churchofjesuschrist.org/study/scriptures/tg/get?lang=eng)
 
 ### References
 - [[Genesis 12.1|Genesis 12:1]]

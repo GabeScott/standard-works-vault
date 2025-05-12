@@ -1,6 +1,6 @@
 # Token
 
-[Token](https://www.churchofjesuschrist.org/study/scriptures/tg/Token?lang=eng)
+[Token](https://churchofjesuschrist.org/study/scriptures/tg/token?lang=eng)
 
 ### References
 - [[Genesis 17.11|Genesis 17:11]]

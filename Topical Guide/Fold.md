@@ -1,6 +1,6 @@
 # Fold
 
-[Fold](https://www.churchofjesuschrist.org/study/scriptures/tg/Fold?lang=eng)
+[Fold](https://churchofjesuschrist.org/study/scriptures/tg/fold?lang=eng)
 
 ### References
 - [[Jeremiah 23.3|Jeremiah 23:3]]

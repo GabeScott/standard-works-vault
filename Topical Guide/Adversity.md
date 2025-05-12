@@ -1,6 +1,6 @@
 # Adversity
 
-[Adversity](https://www.churchofjesuschrist.org/study/scriptures/tg/Adversity?lang=eng)
+[Adversity](https://churchofjesuschrist.org/study/scriptures/tg/adversity?lang=eng)
 
 ### References
 - [[1 Samuel 10.19|1 Samuel 10:19]]

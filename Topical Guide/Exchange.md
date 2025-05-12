@@ -1,6 +1,6 @@
 # Exchange
 
-[Exchange](https://www.churchofjesuschrist.org/study/scriptures/tg/Exchange?lang=eng)
+[Exchange](https://churchofjesuschrist.org/study/scriptures/tg/exchange?lang=eng)
 
 ### References
 - [[Genesis 47.17|Genesis 47:17]]

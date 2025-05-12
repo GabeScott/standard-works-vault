@@ -1,6 +1,6 @@
 # Decree
 
-[Decree](https://www.churchofjesuschrist.org/study/scriptures/tg/Decree?lang=eng)
+[Decree](https://churchofjesuschrist.org/study/scriptures/tg/decree?lang=eng)
 
 ### References
 - [[Ezra 6.1|Ezra 6:1]]

@@ -1,6 +1,6 @@
 # Vanish
 
-[Vanish](https://www.churchofjesuschrist.org/study/scriptures/tg/Vanish?lang=eng)
+[Vanish](https://churchofjesuschrist.org/study/scriptures/tg/vanish?lang=eng)
 
 ### References
 - [[Isaiah 51.6|Isaiah 51:6]]

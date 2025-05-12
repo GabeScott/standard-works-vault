@@ -1,6 +1,6 @@
 # Toil
 
-[Toil](https://www.churchofjesuschrist.org/study/scriptures/tg/Toil?lang=eng)
+[Toil](https://churchofjesuschrist.org/study/scriptures/tg/toil?lang=eng)
 
 ### References
 - [[Genesis 5.29|Genesis 5:29]]

@@ -1,6 +1,6 @@
 # Neck
 
-[Neck](https://www.churchofjesuschrist.org/study/scriptures/tg/Neck?lang=eng)
+[Neck](https://churchofjesuschrist.org/study/scriptures/tg/neck?lang=eng)
 
 ### References
 - [[Genesis 41.42|Genesis 41:42]]

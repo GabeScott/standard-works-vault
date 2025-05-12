@@ -1,6 +1,6 @@
 # Dedication, Dedicate
 
-[Dedication, Dedicate](https://www.churchofjesuschrist.org/study/scriptures/tg/Dedication-Dedicate?lang=eng)
+[Dedication, Dedicate](https://churchofjesuschrist.org/study/scriptures/tg/dedication?lang=eng)
 
 ### References
 - [[1 Kings 8.63|1 Kings 8:63]]

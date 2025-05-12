@@ -1,6 +1,6 @@
 # Gentleness
 
-[Gentleness](https://www.churchofjesuschrist.org/study/scriptures/tg/Gentleness?lang=eng)
+[Gentleness](https://churchofjesuschrist.org/study/scriptures/tg/gentleness?lang=eng)
 
 ### References
 - [[2 Samuel 22.36|2 Samuel 22:36]]

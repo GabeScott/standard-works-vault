@@ -1,6 +1,6 @@
 # Rain
 
-[Rain](https://www.churchofjesuschrist.org/study/scriptures/tg/Rain?lang=eng)
+[Rain](https://churchofjesuschrist.org/study/scriptures/tg/rain?lang=eng)
 
 ### References
 - [[Genesis 2.5|Genesis 2:5]]

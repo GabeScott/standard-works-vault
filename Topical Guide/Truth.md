@@ -1,6 +1,6 @@
 # Truth
 
-[Truth](https://www.churchofjesuschrist.org/study/scriptures/tg/Truth?lang=eng)
+[Truth](https://churchofjesuschrist.org/study/scriptures/tg/spirit-of-truth?lang=eng)
 
 ### References
 - [[Exodus 18.21|Exodus 18:21]]

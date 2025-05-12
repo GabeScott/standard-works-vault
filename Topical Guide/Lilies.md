@@ -1,6 +1,6 @@
 # Lilies
 
-[Lilies](https://www.churchofjesuschrist.org/study/scriptures/tg/Lilies?lang=eng)
+[Lilies](https://churchofjesuschrist.org/study/scriptures/tg/lilies?lang=eng)
 
 ### References
 - [[Matthew 6.28|Matthew 6:28]]

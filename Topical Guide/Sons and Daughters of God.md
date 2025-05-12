@@ -1,6 +1,6 @@
 # Sons and Daughters of God
 
-[Sons and Daughters of God](https://www.churchofjesuschrist.org/study/scriptures/tg/Sons-and-Daughters-of-God?lang=eng)
+[Sons and Daughters of God](https://churchofjesuschrist.org/study/scriptures/tg/sons-and-daughters-of-god?lang=eng)
 
 ### References
 - [[Genesis 6.2|Genesis 6:2]]

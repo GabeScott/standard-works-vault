@@ -1,6 +1,6 @@
 # Consolation
 
-[Consolation](https://www.churchofjesuschrist.org/study/scriptures/tg/Consolation?lang=eng)
+[Consolation](https://churchofjesuschrist.org/study/scriptures/tg/consolation?lang=eng)
 
 ### References
 - [[Jeremiah 16.7|Jeremiah 16:7]]

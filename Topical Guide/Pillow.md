@@ -1,6 +1,6 @@
 # Pillow
 
-[Pillow](https://www.churchofjesuschrist.org/study/scriptures/tg/Pillow?lang=eng)
+[Pillow](https://churchofjesuschrist.org/study/scriptures/tg/pillow?lang=eng)
 
 ### References
 - [[Genesis 28.11|Genesis 28:11]]

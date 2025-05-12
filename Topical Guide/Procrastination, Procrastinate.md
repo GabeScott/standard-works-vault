@@ -1,6 +1,6 @@
 # Procrastination, Procrastinate
 
-[Procrastination, Procrastinate](https://www.churchofjesuschrist.org/study/scriptures/tg/Procrastination-Procrastinate?lang=eng)
+[Procrastination, Procrastinate](https://churchofjesuschrist.org/study/scriptures/tg/procrastination?lang=eng)
 
 ### References
 - [[Joshua 24.15|Joshua 24:15]]

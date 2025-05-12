@@ -1,6 +1,6 @@
 # Worse
 
-[Worse](https://www.churchofjesuschrist.org/study/scriptures/tg/Worse?lang=eng)
+[Worse](https://churchofjesuschrist.org/study/scriptures/tg/worse?lang=eng)
 
 ### References
 - [[Genesis 19.9|Genesis 19:9]]

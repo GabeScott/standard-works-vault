@@ -1,6 +1,6 @@
 # Music
 
-[Music](https://www.churchofjesuschrist.org/study/scriptures/tg/Music?lang=eng)
+[Music](https://churchofjesuschrist.org/study/scriptures/tg/music?lang=eng)
 
 ### References
 - [[1 Chronicles 15.16|1 Chronicles 15:16]]

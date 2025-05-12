@@ -1,6 +1,6 @@
 # Office
 
-[Office](https://www.churchofjesuschrist.org/study/scriptures/tg/Office?lang=eng)
+[Office](https://churchofjesuschrist.org/study/scriptures/tg/office?lang=eng)
 
 ### References
 - [[Genesis 41.13|Genesis 41:13]]

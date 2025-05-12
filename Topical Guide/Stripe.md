@@ -1,6 +1,6 @@
 # Stripe
 
-[Stripe](https://www.churchofjesuschrist.org/study/scriptures/tg/Stripe?lang=eng)
+[Stripe](https://churchofjesuschrist.org/study/scriptures/tg/stripe?lang=eng)
 
 ### References
 - [[Deuteronomy 25.3|Deuteronomy 25:3]]

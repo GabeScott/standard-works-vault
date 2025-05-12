@@ -1,6 +1,6 @@
 # Honoring Father and Mother
 
-[Honoring Father and Mother](https://www.churchofjesuschrist.org/study/scriptures/tg/Honoring-Father-and-Mother?lang=eng)
+[Honoring Father and Mother](https://churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng)
 
 ### References
 - [[Exodus 20.12|Exodus 20:12]]

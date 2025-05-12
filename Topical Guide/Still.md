@@ -1,6 +1,6 @@
 # Still
 
-[Still](https://www.churchofjesuschrist.org/study/scriptures/tg/Still?lang=eng)
+[Still](https://churchofjesuschrist.org/study/scriptures/tg/still?lang=eng)
 
 ### References
 - [[Exodus 14.13|Exodus 14:13]]

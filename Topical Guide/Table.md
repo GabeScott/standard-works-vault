@@ -1,6 +1,6 @@
 # Table
 
-[Table](https://www.churchofjesuschrist.org/study/scriptures/tg/Table?lang=eng)
+[Table](https://churchofjesuschrist.org/study/scriptures/tg/table?lang=eng)
 
 ### References
 - [[Exodus 24.12|Exodus 24:12]]

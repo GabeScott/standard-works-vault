@@ -1,6 +1,6 @@
 # Openly
 
-[Openly](https://www.churchofjesuschrist.org/study/scriptures/tg/Openly?lang=eng)
+[Openly](https://churchofjesuschrist.org/study/scriptures/tg/openly?lang=eng)
 
 ### References
 - [[Matthew 6.4|Matthew 6:4]]

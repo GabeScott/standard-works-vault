@@ -1,6 +1,6 @@
 # Despitefully
 
-[Despitefully](https://www.churchofjesuschrist.org/study/scriptures/tg/Despitefully?lang=eng)
+[Despitefully](https://churchofjesuschrist.org/study/scriptures/tg/despitefully?lang=eng)
 
 ### References
 - [[Matthew 5.44|Matthew 5:44]]

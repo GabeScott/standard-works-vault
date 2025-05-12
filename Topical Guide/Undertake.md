@@ -1,6 +1,6 @@
 # Undertake
 
-[Undertake](https://www.churchofjesuschrist.org/study/scriptures/tg/Undertake?lang=eng)
+[Undertake](https://churchofjesuschrist.org/study/scriptures/tg/undertake?lang=eng)
 
 ### References
 - [[Alma 17.13|Alma 17:13]]

@@ -1,6 +1,6 @@
 # Here
 
-[Here](https://www.churchofjesuschrist.org/study/scriptures/tg/Here?lang=eng)
+[Here](https://churchofjesuschrist.org/study/scriptures/tg/here?lang=eng)
 
 ### References
 - [[Exodus 3.4|Exodus 3:4]]

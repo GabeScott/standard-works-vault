@@ -1,6 +1,6 @@
 # Fulness
 
-[Fulness](https://www.churchofjesuschrist.org/study/scriptures/tg/Fulness?lang=eng)
+[Fulness](https://churchofjesuschrist.org/study/scriptures/tg/fulness?lang=eng)
 
 ### References
 - [[Psalms 16.11|Psalms 16:11]]

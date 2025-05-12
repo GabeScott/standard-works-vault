@@ -1,6 +1,6 @@
 # Jesus Christ, Appearances, Antemortal
 
-[Jesus Christ, Appearances, Antemortal](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Appearances-Antemortal?lang=eng)
+[Jesus Christ, Appearances, Antemortal](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-antemortal?lang=eng)
 
 ### References
 - [[Genesis 12.7|Genesis 12:7]]

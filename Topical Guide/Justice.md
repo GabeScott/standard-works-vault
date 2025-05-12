@@ -1,6 +1,6 @@
 # Justice
 
-[Justice](https://www.churchofjesuschrist.org/study/scriptures/tg/Justice?lang=eng)
+[Justice](https://churchofjesuschrist.org/study/scriptures/tg/justice?lang=eng)
 
 ### References
 - [[Genesis 18.19|Genesis 18:19]]

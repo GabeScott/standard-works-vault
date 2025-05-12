@@ -1,6 +1,6 @@
 # Forgive, Forgiveness
 
-[Forgive, Forgiveness](https://www.churchofjesuschrist.org/study/scriptures/tg/Forgive-Forgiveness?lang=eng)
+[Forgive, Forgiveness](https://churchofjesuschrist.org/study/scriptures/tg/forgive?lang=eng)
 
 ### References
 - [[Genesis 50.17|Genesis 50:17]]

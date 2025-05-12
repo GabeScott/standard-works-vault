@@ -1,6 +1,6 @@
 # Anointing, Anoint
 
-[Anointing, Anoint](https://www.churchofjesuschrist.org/study/scriptures/tg/Anointing-Anoint?lang=eng)
+[Anointing, Anoint](https://churchofjesuschrist.org/study/scriptures/tg/anointing?lang=eng)
 
 ### References
 - [[Exodus 28.41|Exodus 28:41]]

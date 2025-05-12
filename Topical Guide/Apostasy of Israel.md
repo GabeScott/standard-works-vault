@@ -1,6 +1,6 @@
 # Apostasy of Israel
 
-[Apostasy of Israel](https://www.churchofjesuschrist.org/study/scriptures/tg/Apostasy-of-Israel?lang=eng)
+[Apostasy of Israel](https://churchofjesuschrist.org/study/scriptures/tg/apostasy-of-israel?lang=eng)
 
 ### References
 - [[Exodus 32.9|Exodus 32:9]]

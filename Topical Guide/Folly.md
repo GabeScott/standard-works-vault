@@ -1,6 +1,6 @@
 # Folly
 
-[Folly](https://www.churchofjesuschrist.org/study/scriptures/tg/Folly?lang=eng)
+[Folly](https://churchofjesuschrist.org/study/scriptures/tg/folly?lang=eng)
 
 ### References
 - [[Deuteronomy 22.21|Deuteronomy 22:21]]

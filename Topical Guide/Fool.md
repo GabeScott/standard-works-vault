@@ -1,6 +1,6 @@
 # Fool
 
-[Fool](https://www.churchofjesuschrist.org/study/scriptures/tg/Fool?lang=eng)
+[Fool](https://churchofjesuschrist.org/study/scriptures/tg/fool?lang=eng)
 
 ### References
 - [[1 Samuel 26.21|1 Samuel 26:21]]

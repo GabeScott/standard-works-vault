@@ -1,6 +1,6 @@
 # Pipe
 
-[Pipe](https://www.churchofjesuschrist.org/study/scriptures/tg/Pipe?lang=eng)
+[Pipe](https://churchofjesuschrist.org/study/scriptures/tg/pipe?lang=eng)
 
 ### References
 - [[1 Kings 1.40|1 Kings 1:40]]

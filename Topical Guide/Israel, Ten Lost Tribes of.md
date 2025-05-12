@@ -1,6 +1,6 @@
 # Israel, Ten Lost Tribes of
 
-[Israel, Ten Lost Tribes of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Ten-Lost-Tribes-of?lang=eng)
+[Israel, Ten Lost Tribes of](https://churchofjesuschrist.org/study/scriptures/tg/israel-ten-lost-tribes-of?lang=eng)
 
 ### References
 - [[1 Kings 11.31|1 Kings 11:31]]

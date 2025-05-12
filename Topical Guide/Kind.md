@@ -1,6 +1,6 @@
 # Kind
 
-[Kind](https://www.churchofjesuschrist.org/study/scriptures/tg/Kind?lang=eng)
+[Kind](https://churchofjesuschrist.org/study/scriptures/tg/kind?lang=eng)
 
 ### References
 - [[Genesis 1.12|Genesis 1:12]]

@@ -1,6 +1,6 @@
 # Oath
 
-[Oath](https://www.churchofjesuschrist.org/study/scriptures/tg/Oath?lang=eng)
+[Oath](https://churchofjesuschrist.org/study/scriptures/tg/oath?lang=eng)
 
 ### References
 - [[Genesis 26.3|Genesis 26:3]]

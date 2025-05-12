@@ -1,6 +1,6 @@
 # Excommunication
 
-[Excommunication](https://www.churchofjesuschrist.org/study/scriptures/tg/Excommunication?lang=eng)
+[Excommunication](https://churchofjesuschrist.org/study/scriptures/tg/excommunication?lang=eng)
 
 ### References
 - [[Exodus 12.15|Exodus 12:15]]

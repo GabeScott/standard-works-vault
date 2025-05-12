@@ -1,6 +1,6 @@
 # Helmet
 
-[Helmet](https://www.churchofjesuschrist.org/study/scriptures/tg/Helmet?lang=eng)
+[Helmet](https://churchofjesuschrist.org/study/scriptures/tg/helmet?lang=eng)
 
 ### References
 - [[1 Samuel 17.5|1 Samuel 17:5]]

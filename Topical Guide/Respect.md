@@ -1,6 +1,6 @@
 # Respect
 
-[Respect](https://www.churchofjesuschrist.org/study/scriptures/tg/Respect?lang=eng)
+[Respect](https://churchofjesuschrist.org/study/scriptures/tg/respect?lang=eng)
 
 ### References
 - [[Genesis 4.4|Genesis 4:4]]

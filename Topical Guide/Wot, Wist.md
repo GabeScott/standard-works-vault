@@ -1,6 +1,6 @@
 # Wot, Wist
 
-[Wot, Wist](https://www.churchofjesuschrist.org/study/scriptures/tg/Wot-Wist?lang=eng)
+[Wot, Wist](https://churchofjesuschrist.org/study/scriptures/tg/wot?lang=eng)
 
 ### References
 - [[Exodus 16.15|Exodus 16:15]]

@@ -1,6 +1,6 @@
 # Hardheartedness, Harden, Hardness
 
-[Hardheartedness, Harden, Hardness](https://www.churchofjesuschrist.org/study/scriptures/tg/Hardheartedness-Harden-Hardness?lang=eng)
+[Hardheartedness, Harden, Hardness](https://churchofjesuschrist.org/study/scriptures/tg/hardheartedness?lang=eng)
 
 ### References
 - [[Exodus 10.1|Exodus 10:1]]

@@ -1,6 +1,6 @@
 # Waste
 
-[Waste](https://www.churchofjesuschrist.org/study/scriptures/tg/Waste?lang=eng)
+[Waste](https://churchofjesuschrist.org/study/scriptures/tg/waste?lang=eng)
 
 ### References
 - [[Leviticus 26.20|Leviticus 26:20]]

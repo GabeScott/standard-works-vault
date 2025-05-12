@@ -1,6 +1,6 @@
 # Beg
 
-[Beg](https://www.churchofjesuschrist.org/study/scriptures/tg/Beg?lang=eng)
+[Beg](https://churchofjesuschrist.org/study/scriptures/tg/beg?lang=eng)
 
 ### References
 - [[Psalms 37.25|Psalms 37:25]]

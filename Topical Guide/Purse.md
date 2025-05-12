@@ -1,6 +1,6 @@
 # Purse
 
-[Purse](https://www.churchofjesuschrist.org/study/scriptures/tg/Purse?lang=eng)
+[Purse](https://churchofjesuschrist.org/study/scriptures/tg/purse?lang=eng)
 
 ### References
 - [[Proverbs 1.14|Proverbs 1:14]]

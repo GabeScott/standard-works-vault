@@ -1,6 +1,6 @@
 # Corruptible
 
-[Corruptible](https://www.churchofjesuschrist.org/study/scriptures/tg/Corruptible?lang=eng)
+[Corruptible](https://churchofjesuschrist.org/study/scriptures/tg/corruptible?lang=eng)
 
 ### References
 - [[Romans 1.23|Romans 1:23]]

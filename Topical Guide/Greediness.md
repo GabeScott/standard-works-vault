@@ -1,6 +1,6 @@
 # Greediness
 
-[Greediness](https://www.churchofjesuschrist.org/study/scriptures/tg/Greediness?lang=eng)
+[Greediness](https://churchofjesuschrist.org/study/scriptures/tg/greediness?lang=eng)
 
 ### References
 - [[Ephesians 4.19|Ephesians 4:19]]

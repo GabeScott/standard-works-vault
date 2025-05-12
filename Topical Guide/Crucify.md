@@ -1,6 +1,6 @@
 # Crucify
 
-[Crucify](https://www.churchofjesuschrist.org/study/scriptures/tg/Crucify?lang=eng)
+[Crucify](https://churchofjesuschrist.org/study/scriptures/tg/crucify?lang=eng)
 
 ### References
 - [[Matthew 23.34|Matthew 23:34]]

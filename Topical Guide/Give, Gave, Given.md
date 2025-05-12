@@ -1,6 +1,6 @@
 # Give, Gave, Given
 
-[Give, Gave, Given](https://www.churchofjesuschrist.org/study/scriptures/tg/Give-Gave-Given?lang=eng)
+[Give, Gave, Given](https://churchofjesuschrist.org/study/scriptures/tg/give?lang=eng)
 
 ### References
 - [[Genesis 12.7|Genesis 12:7]]

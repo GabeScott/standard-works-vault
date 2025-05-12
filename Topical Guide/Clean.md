@@ -1,6 +1,6 @@
 # Clean
 
-[Clean](https://www.churchofjesuschrist.org/study/scriptures/tg/Clean?lang=eng)
+[Clean](https://churchofjesuschrist.org/study/scriptures/tg/clean?lang=eng)
 
 ### References
 - [[Genesis 8.20|Genesis 8:20]]

@@ -1,6 +1,6 @@
 # Know, Knew, Known
 
-[Know, Knew, Known](https://www.churchofjesuschrist.org/study/scriptures/tg/Know-Knew-Known?lang=eng)
+[Know, Knew, Known](https://churchofjesuschrist.org/study/scriptures/tg/know?lang=eng)
 
 ### References
 - [[Genesis 28.16|Genesis 28:16]]

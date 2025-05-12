@@ -1,6 +1,6 @@
 # Freedom
 
-[Freedom](https://www.churchofjesuschrist.org/study/scriptures/tg/Freedom?lang=eng)
+[Freedom](https://churchofjesuschrist.org/study/scriptures/tg/freedom?lang=eng)
 
 ### References
 - [[Acts 22.28|Acts 22:28]]

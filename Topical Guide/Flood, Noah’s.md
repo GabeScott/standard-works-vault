@@ -1,6 +1,6 @@
 # Flood, Noah’s
 
-[Flood, Noah’s](https://www.churchofjesuschrist.org/study/scriptures/tg/Flood-Noah’s?lang=eng)
+[Flood, Noah’s](https://churchofjesuschrist.org/study/scriptures/tg/flood-noahs?lang=eng)
 
 ### References
 - [[Genesis 6.17|Genesis 6:17]]

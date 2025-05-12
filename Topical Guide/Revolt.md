@@ -1,6 +1,6 @@
 # Revolt
 
-[Revolt](https://www.churchofjesuschrist.org/study/scriptures/tg/Revolt?lang=eng)
+[Revolt](https://churchofjesuschrist.org/study/scriptures/tg/revolt?lang=eng)
 
 ### References
 - [[2 Kings 8.20|2 Kings 8:20]]

@@ -1,6 +1,6 @@
 # Fable
 
-[Fable](https://www.churchofjesuschrist.org/study/scriptures/tg/Fable?lang=eng)
+[Fable](https://churchofjesuschrist.org/study/scriptures/tg/fable?lang=eng)
 
 ### References
 - [[1 Timothy 1.4|1 Timothy 1:4]]

@@ -1,6 +1,6 @@
 # Baptism
 
-[Baptism](https://www.churchofjesuschrist.org/study/scriptures/tg/Baptism?lang=eng)
+[Baptism](https://churchofjesuschrist.org/study/scriptures/tg/baptism?lang=eng)
 
 ### References
 - [[1 Kings 7.23|1 Kings 7:23]]

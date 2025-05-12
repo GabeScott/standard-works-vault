@@ -1,6 +1,6 @@
 # Vision
 
-[Vision](https://www.churchofjesuschrist.org/study/scriptures/tg/Vision?lang=eng)
+[Vision](https://churchofjesuschrist.org/study/scriptures/tg/first-vision?lang=eng)
 
 ### References
 - [[Genesis 15.1|Genesis 15:1]]

@@ -1,6 +1,6 @@
 # Lose, Lost
 
-[Lose, Lost](https://www.churchofjesuschrist.org/study/scriptures/tg/Lose-Lost?lang=eng)
+[Lose, Lost](https://churchofjesuschrist.org/study/scriptures/tg/lose?lang=eng)
 
 ### References
 - [[Psalms 119.176|Psalms 119:176]]

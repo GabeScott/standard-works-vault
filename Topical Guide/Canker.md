@@ -1,6 +1,6 @@
 # Canker
 
-[Canker](https://www.churchofjesuschrist.org/study/scriptures/tg/Canker?lang=eng)
+[Canker](https://churchofjesuschrist.org/study/scriptures/tg/canker?lang=eng)
 
 ### References
 - [[2 Timothy 2.17|2 Timothy 2:17]]

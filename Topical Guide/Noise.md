@@ -1,6 +1,6 @@
 # Noise
 
-[Noise](https://www.churchofjesuschrist.org/study/scriptures/tg/Noise?lang=eng)
+[Noise](https://churchofjesuschrist.org/study/scriptures/tg/noise?lang=eng)
 
 ### References
 - [[Exodus 20.18|Exodus 20:18]]

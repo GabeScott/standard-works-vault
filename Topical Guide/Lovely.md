@@ -1,6 +1,6 @@
 # Lovely
 
-[Lovely](https://www.churchofjesuschrist.org/study/scriptures/tg/Lovely?lang=eng)
+[Lovely](https://churchofjesuschrist.org/study/scriptures/tg/lovely?lang=eng)
 
 ### References
 - [[Philippians 4.8|Philippians 4:8]]

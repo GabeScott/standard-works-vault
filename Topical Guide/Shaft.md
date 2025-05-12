@@ -1,6 +1,6 @@
 # Shaft
 
-[Shaft](https://www.churchofjesuschrist.org/study/scriptures/tg/Shaft?lang=eng)
+[Shaft](https://churchofjesuschrist.org/study/scriptures/tg/shaft?lang=eng)
 
 ### References
 - [[Isaiah 49.2|Isaiah 49:2]]

@@ -1,6 +1,6 @@
 # Delay
 
-[Delay](https://www.churchofjesuschrist.org/study/scriptures/tg/Delay?lang=eng)
+[Delay](https://churchofjesuschrist.org/study/scriptures/tg/delay?lang=eng)
 
 ### References
 - [[Exodus 22.29|Exodus 22:29]]

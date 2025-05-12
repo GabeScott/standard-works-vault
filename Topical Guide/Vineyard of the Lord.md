@@ -1,6 +1,6 @@
 # Vineyard of the Lord
 
-[Vineyard of the Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/Vineyard-of-the-Lord?lang=eng)
+[Vineyard of the Lord](https://churchofjesuschrist.org/study/scriptures/tg/vineyard-of-the-lord?lang=eng)
 
 ### References
 - [[Genesis 49.22|Genesis 49:22]]

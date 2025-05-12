@@ -1,6 +1,6 @@
 # Abstain, Abstinence
 
-[Abstain, Abstinence](https://www.churchofjesuschrist.org/study/scriptures/tg/Abstain-Abstinence?lang=eng)
+[Abstain, Abstinence](https://churchofjesuschrist.org/study/scriptures/tg/abstain?lang=eng)
 
 ### References
 - [[Proverbs 1.15|Proverbs 1:15]]

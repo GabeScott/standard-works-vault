@@ -1,6 +1,6 @@
 # Robe
 
-[Robe](https://www.churchofjesuschrist.org/study/scriptures/tg/Robe?lang=eng)
+[Robe](https://churchofjesuschrist.org/study/scriptures/tg/robe?lang=eng)
 
 ### References
 - [[Leviticus 8.7|Leviticus 8:7]]

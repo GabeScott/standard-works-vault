@@ -1,6 +1,6 @@
 # Foolish
 
-[Foolish](https://www.churchofjesuschrist.org/study/scriptures/tg/Foolish?lang=eng)
+[Foolish](https://churchofjesuschrist.org/study/scriptures/tg/foolish?lang=eng)
 
 ### References
 - [[Deuteronomy 32.21|Deuteronomy 32:21]]

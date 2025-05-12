@@ -1,6 +1,6 @@
 # Feel, Felt
 
-[Feel, Felt](https://www.churchofjesuschrist.org/study/scriptures/tg/Feel-Felt?lang=eng)
+[Feel, Felt](https://churchofjesuschrist.org/study/scriptures/tg/feel?lang=eng)
 
 ### References
 - [[Exodus 10.21|Exodus 10:21]]

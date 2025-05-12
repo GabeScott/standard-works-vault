@@ -1,6 +1,6 @@
 # Garden
 
-[Garden](https://www.churchofjesuschrist.org/study/scriptures/tg/Garden?lang=eng)
+[Garden](https://churchofjesuschrist.org/study/scriptures/tg/garden?lang=eng)
 
 ### References
 - [[Genesis 2.15|Genesis 2:15]]

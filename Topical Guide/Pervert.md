@@ -1,6 +1,6 @@
 # Pervert
 
-[Pervert](https://www.churchofjesuschrist.org/study/scriptures/tg/Pervert?lang=eng)
+[Pervert](https://churchofjesuschrist.org/study/scriptures/tg/pervert?lang=eng)
 
 ### References
 - [[Exodus 23.8|Exodus 23:8]]

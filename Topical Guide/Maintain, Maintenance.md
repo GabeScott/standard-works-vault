@@ -1,6 +1,6 @@
 # Maintain, Maintenance
 
-[Maintain, Maintenance](https://www.churchofjesuschrist.org/study/scriptures/tg/Maintain-Maintenance?lang=eng)
+[Maintain, Maintenance](https://churchofjesuschrist.org/study/scriptures/tg/maintain?lang=eng)
 
 ### References
 - [[1 Chronicles 26.27|1 Chronicles 26:27]]

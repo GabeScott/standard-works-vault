@@ -1,6 +1,6 @@
 # Ivory
 
-[Ivory](https://www.churchofjesuschrist.org/study/scriptures/tg/Ivory?lang=eng)
+[Ivory](https://churchofjesuschrist.org/study/scriptures/tg/ivory?lang=eng)
 
 ### References
 - [[1 Kings 10.18|1 Kings 10:18]]

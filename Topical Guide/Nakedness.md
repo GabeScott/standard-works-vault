@@ -1,6 +1,6 @@
 # Nakedness
 
-[Nakedness](https://www.churchofjesuschrist.org/study/scriptures/tg/Nakedness?lang=eng)
+[Nakedness](https://churchofjesuschrist.org/study/scriptures/tg/nakedness?lang=eng)
 
 ### References
 - [[Genesis 9.22|Genesis 9:22]]

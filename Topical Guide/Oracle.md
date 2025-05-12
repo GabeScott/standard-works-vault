@@ -1,6 +1,6 @@
 # Oracle
 
-[Oracle](https://www.churchofjesuschrist.org/study/scriptures/tg/Oracle?lang=eng)
+[Oracle](https://churchofjesuschrist.org/study/scriptures/tg/oracle?lang=eng)
 
 ### References
 - [[2 Samuel 16.23|2 Samuel 16:23]]

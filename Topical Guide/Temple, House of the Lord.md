@@ -1,6 +1,6 @@
 # Temple, House of the Lord
 
-[Temple, House of the Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/Temple-House-of-the-Lord?lang=eng)
+[Temple, House of the Lord](https://churchofjesuschrist.org/study/scriptures/tg/temple-house-of-the-lord?lang=eng)
 
 ### References
 - [[2 Samuel 7.5|2 Samuel 7:5]]

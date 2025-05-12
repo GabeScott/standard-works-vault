@@ -1,6 +1,6 @@
 # Talents
 
-[Talents](https://www.churchofjesuschrist.org/study/scriptures/tg/Talents?lang=eng)
+[Talents](https://churchofjesuschrist.org/study/scriptures/tg/talents?lang=eng)
 
 ### References
 - [[Genesis 39.6|Genesis 39:6]]

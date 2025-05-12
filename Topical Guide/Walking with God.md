@@ -1,6 +1,6 @@
 # Walking with God
 
-[Walking with God](https://www.churchofjesuschrist.org/study/scriptures/tg/Walking-with-God?lang=eng)
+[Walking with God](https://churchofjesuschrist.org/study/scriptures/tg/walking-with-god?lang=eng)
 
 ### References
 - [[Genesis 17.1|Genesis 17:1]]

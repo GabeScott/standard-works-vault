@@ -1,6 +1,6 @@
 # Jesus Christ, Crucifixion of
 
-[Jesus Christ, Crucifixion of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Crucifixion-of?lang=eng)
+[Jesus Christ, Crucifixion of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-crucifixion-of?lang=eng)
 
 ### References
 - [[Deuteronomy 21.23|Deuteronomy 21:23]]

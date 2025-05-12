@@ -1,6 +1,6 @@
 # Glass
 
-[Glass](https://www.churchofjesuschrist.org/study/scriptures/tg/Glass?lang=eng)
+[Glass](https://churchofjesuschrist.org/study/scriptures/tg/glass?lang=eng)
 
 ### References
 - [[1 Corinthians 13.12|1 Corinthians 13:12]]

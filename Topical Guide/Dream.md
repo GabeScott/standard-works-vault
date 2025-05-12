@@ -1,6 +1,6 @@
 # Dream
 
-[Dream](https://www.churchofjesuschrist.org/study/scriptures/tg/Dream?lang=eng)
+[Dream](https://churchofjesuschrist.org/study/scriptures/tg/dream?lang=eng)
 
 ### References
 - [[Genesis 20.3|Genesis 20:3]]

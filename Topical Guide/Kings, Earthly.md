@@ -1,6 +1,6 @@
 # Kings, Earthly
 
-[Kings, Earthly](https://www.churchofjesuschrist.org/study/scriptures/tg/Kings-Earthly?lang=eng)
+[Kings, Earthly](https://churchofjesuschrist.org/study/scriptures/tg/kings-earthly?lang=eng)
 
 ### References
 - [[Genesis 14.18|Genesis 14:18]]

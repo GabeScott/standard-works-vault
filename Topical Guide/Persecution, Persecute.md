@@ -1,6 +1,6 @@
 # Persecution, Persecute
 
-[Persecution, Persecute](https://www.churchofjesuschrist.org/study/scriptures/tg/Persecution-Persecute?lang=eng)
+[Persecution, Persecute](https://churchofjesuschrist.org/study/scriptures/tg/persecution?lang=eng)
 
 ### References
 - [[Psalms 10.2|Psalms 10:2]]

@@ -1,6 +1,6 @@
 # Knife, Knives
 
-[Knife, Knives](https://www.churchofjesuschrist.org/study/scriptures/tg/Knife-Knives?lang=eng)
+[Knife, Knives](https://churchofjesuschrist.org/study/scriptures/tg/knife?lang=eng)
 
 ### References
 - [[Genesis 22.10|Genesis 22:10]]

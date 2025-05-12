@@ -1,6 +1,6 @@
 # Proceed
 
-[Proceed](https://www.churchofjesuschrist.org/study/scriptures/tg/Proceed?lang=eng)
+[Proceed](https://churchofjesuschrist.org/study/scriptures/tg/proceed?lang=eng)
 
 ### References
 - [[Deuteronomy 8.3|Deuteronomy 8:3]]

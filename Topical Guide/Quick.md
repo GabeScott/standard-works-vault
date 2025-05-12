@@ -1,6 +1,6 @@
 # Quick
 
-[Quick](https://www.churchofjesuschrist.org/study/scriptures/tg/Quick?lang=eng)
+[Quick](https://churchofjesuschrist.org/study/scriptures/tg/quick?lang=eng)
 
 ### References
 - [[Numbers 16.30|Numbers 16:30]]

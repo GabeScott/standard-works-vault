@@ -1,6 +1,6 @@
 # Deliver, Deliverance
 
-[Deliver, Deliverance](https://www.churchofjesuschrist.org/study/scriptures/tg/Deliver-Deliverance?lang=eng)
+[Deliver, Deliverance](https://churchofjesuschrist.org/study/scriptures/tg/deliver?lang=eng)
 
 ### References
 - [[Genesis 32.11|Genesis 32:11]]

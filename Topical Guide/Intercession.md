@@ -1,6 +1,6 @@
 # Intercession
 
-[Intercession](https://www.churchofjesuschrist.org/study/scriptures/tg/Intercession?lang=eng)
+[Intercession](https://churchofjesuschrist.org/study/scriptures/tg/intercession?lang=eng)
 
 ### References
 - [[Isaiah 53.12|Isaiah 53:12]]

@@ -1,6 +1,6 @@
 # Surety
 
-[Surety](https://www.churchofjesuschrist.org/study/scriptures/tg/Surety?lang=eng)
+[Surety](https://churchofjesuschrist.org/study/scriptures/tg/surety?lang=eng)
 
 ### References
 - [[Genesis 43.9|Genesis 43:9]]

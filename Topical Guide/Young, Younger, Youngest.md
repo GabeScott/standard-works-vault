@@ -1,6 +1,6 @@
 # Young, Younger, Youngest
 
-[Young, Younger, Youngest](https://www.churchofjesuschrist.org/study/scriptures/tg/Young-Younger-Youngest?lang=eng)
+[Young, Younger, Youngest](https://churchofjesuschrist.org/study/scriptures/tg/young?lang=eng)
 
 ### References
 - [[Genesis 19.31|Genesis 19:31]]

@@ -1,6 +1,6 @@
 # Praise
 
-[Praise](https://www.churchofjesuschrist.org/study/scriptures/tg/Praise?lang=eng)
+[Praise](https://churchofjesuschrist.org/study/scriptures/tg/praise?lang=eng)
 
 ### References
 - [[Genesis 29.35|Genesis 29:35]]

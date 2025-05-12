@@ -1,6 +1,6 @@
 # Elias
 
-[Elias](https://www.churchofjesuschrist.org/study/scriptures/tg/Elias?lang=eng)
+[Elias](https://churchofjesuschrist.org/study/scriptures/tg/elias?lang=eng)
 
 ### References
 - [[Matthew 11.14|Matthew 11:14]]

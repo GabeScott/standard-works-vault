@@ -1,6 +1,6 @@
 # Belly
 
-[Belly](https://www.churchofjesuschrist.org/study/scriptures/tg/Belly?lang=eng)
+[Belly](https://churchofjesuschrist.org/study/scriptures/tg/belly?lang=eng)
 
 ### References
 - [[Genesis 3.14|Genesis 3:14]]

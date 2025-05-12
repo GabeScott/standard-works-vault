@@ -1,6 +1,6 @@
 # Shake, Shook, Shaken
 
-[Shake, Shook, Shaken](https://www.churchofjesuschrist.org/study/scriptures/tg/Shake-Shook-Shaken?lang=eng)
+[Shake, Shook, Shaken](https://churchofjesuschrist.org/study/scriptures/tg/shake?lang=eng)
 
 ### References
 - [[2 Samuel 6.6|2 Samuel 6:6]]

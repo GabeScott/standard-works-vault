@@ -1,6 +1,6 @@
 # Hollow
 
-[Hollow](https://www.churchofjesuschrist.org/study/scriptures/tg/Hollow?lang=eng)
+[Hollow](https://churchofjesuschrist.org/study/scriptures/tg/hollow?lang=eng)
 
 ### References
 - [[Genesis 32.25|Genesis 32:25]]

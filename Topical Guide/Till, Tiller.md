@@ -1,6 +1,6 @@
 # Till, Tiller
 
-[Till, Tiller](https://www.churchofjesuschrist.org/study/scriptures/tg/Till-Tiller?lang=eng)
+[Till, Tiller](https://churchofjesuschrist.org/study/scriptures/tg/till?lang=eng)
 
 ### References
 - [[Genesis 2.5|Genesis 2:5]]

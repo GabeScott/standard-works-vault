@@ -1,6 +1,6 @@
 # Flourish
 
-[Flourish](https://www.churchofjesuschrist.org/study/scriptures/tg/Flourish?lang=eng)
+[Flourish](https://churchofjesuschrist.org/study/scriptures/tg/flourish?lang=eng)
 
 ### References
 - [[Psalms 72.7|Psalms 72:7]]

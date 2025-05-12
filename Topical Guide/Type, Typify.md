@@ -1,6 +1,6 @@
 # Type, Typify
 
-[Type, Typify](https://www.churchofjesuschrist.org/study/scriptures/tg/Type-Typify?lang=eng)
+[Type, Typify](https://churchofjesuschrist.org/study/scriptures/tg/type?lang=eng)
 
 ### References
 - [[2 Nephi 11.4|2 Nephi 11:4]]

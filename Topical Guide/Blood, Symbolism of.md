@@ -1,6 +1,6 @@
 # Blood, Symbolism of
 
-[Blood, Symbolism of](https://www.churchofjesuschrist.org/study/scriptures/tg/Blood-Symbolism-of?lang=eng)
+[Blood, Symbolism of](https://churchofjesuschrist.org/study/scriptures/tg/blood-symbolism-of?lang=eng)
 
 ### References
 - [[Exodus 24.3|Exodus 24:3]]

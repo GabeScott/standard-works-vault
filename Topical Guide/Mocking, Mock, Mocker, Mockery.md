@@ -1,6 +1,6 @@
 # Mocking, Mock, Mocker, Mockery
 
-[Mocking, Mock, Mocker, Mockery](https://www.churchofjesuschrist.org/study/scriptures/tg/Mocking-Mock-Mocker-Mockery?lang=eng)
+[Mocking, Mock, Mocker, Mockery](https://churchofjesuschrist.org/study/scriptures/tg/mocking?lang=eng)
 
 ### References
 - [[Genesis 19.14|Genesis 19:14]]

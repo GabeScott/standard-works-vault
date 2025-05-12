@@ -1,6 +1,6 @@
 # Enter
 
-[Enter](https://www.churchofjesuschrist.org/study/scriptures/tg/Enter?lang=eng)
+[Enter](https://churchofjesuschrist.org/study/scriptures/tg/enter?lang=eng)
 
 ### References
 - [[Numbers 20.24|Numbers 20:24]]

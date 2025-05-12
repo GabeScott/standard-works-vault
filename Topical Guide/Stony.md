@@ -1,6 +1,6 @@
 # Stony
 
-[Stony](https://www.churchofjesuschrist.org/study/scriptures/tg/Stony?lang=eng)
+[Stony](https://churchofjesuschrist.org/study/scriptures/tg/stony?lang=eng)
 
 ### References
 - [[Ezekiel 11.19|Ezekiel 11:19]]

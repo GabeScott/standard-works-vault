@@ -1,6 +1,6 @@
 # Against
 
-[Against](https://www.churchofjesuschrist.org/study/scriptures/tg/Against?lang=eng)
+[Against](https://churchofjesuschrist.org/study/scriptures/tg/against?lang=eng)
 
 ### References
 - [[Matthew 12.30|Matthew 12:30]]

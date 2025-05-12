@@ -1,6 +1,6 @@
 # Iron
 
-[Iron](https://www.churchofjesuschrist.org/study/scriptures/tg/Iron?lang=eng)
+[Iron](https://churchofjesuschrist.org/study/scriptures/tg/iron?lang=eng)
 
 ### References
 - [[Genesis 4.22|Genesis 4:22]]

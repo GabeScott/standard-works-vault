@@ -1,6 +1,6 @@
 # Month, Monthly
 
-[Month, Monthly](https://www.churchofjesuschrist.org/study/scriptures/tg/Month-Monthly?lang=eng)
+[Month, Monthly](https://churchofjesuschrist.org/study/scriptures/tg/month?lang=eng)
 
 ### References
 - [[Exodus 12.2|Exodus 12:2]]

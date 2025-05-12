@@ -1,6 +1,6 @@
 # Millennium, Preparing a People for
 
-[Millennium, Preparing a People for](https://www.churchofjesuschrist.org/study/scriptures/tg/Millennium-Preparing-a-People-for?lang=eng)
+[Millennium, Preparing a People for](https://churchofjesuschrist.org/study/scriptures/tg/millennium-preparing-a-people-for?lang=eng)
 
 ### References
 - [[Isaiah 2.3|Isaiah 2:3]]

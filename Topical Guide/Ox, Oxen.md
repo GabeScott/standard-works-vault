@@ -1,6 +1,6 @@
 # Ox, Oxen
 
-[Ox, Oxen](https://www.churchofjesuschrist.org/study/scriptures/tg/Ox-Oxen?lang=eng)
+[Ox, Oxen](https://churchofjesuschrist.org/study/scriptures/tg/ox?lang=eng)
 
 ### References
 - [[Exodus 21.28|Exodus 21:28]]

@@ -1,6 +1,6 @@
 # Oven
 
-[Oven](https://www.churchofjesuschrist.org/study/scriptures/tg/Oven?lang=eng)
+[Oven](https://churchofjesuschrist.org/study/scriptures/tg/oven?lang=eng)
 
 ### References
 - [[Psalms 21.9|Psalms 21:9]]

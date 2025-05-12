@@ -1,6 +1,6 @@
 # Ark
 
-[Ark](https://www.churchofjesuschrist.org/study/scriptures/tg/Ark?lang=eng)
+[Ark](https://churchofjesuschrist.org/study/scriptures/tg/ark?lang=eng)
 
 ### References
 - [[Genesis 6.14|Genesis 6:14]]

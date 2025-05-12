@@ -1,6 +1,6 @@
 # Faithful
 
-[Faithful](https://www.churchofjesuschrist.org/study/scriptures/tg/Faithful?lang=eng)
+[Faithful](https://churchofjesuschrist.org/study/scriptures/tg/faithful?lang=eng)
 
 ### References
 - [[Numbers 12.7|Numbers 12:7]]

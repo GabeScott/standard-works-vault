@@ -1,6 +1,6 @@
 # Swine
 
-[Swine](https://www.churchofjesuschrist.org/study/scriptures/tg/Swine?lang=eng)
+[Swine](https://churchofjesuschrist.org/study/scriptures/tg/swine?lang=eng)
 
 ### References
 - [[Leviticus 11.7|Leviticus 11:7]]

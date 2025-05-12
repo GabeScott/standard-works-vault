@@ -1,6 +1,6 @@
 # Tight
 
-[Tight](https://www.churchofjesuschrist.org/study/scriptures/tg/Tight?lang=eng)
+[Tight](https://churchofjesuschrist.org/study/scriptures/tg/tight?lang=eng)
 
 ### References
 - [[Ether 2.17|Ether 2:17]]

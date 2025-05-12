@@ -1,6 +1,6 @@
 # Worthiness, Worthy
 
-[Worthiness, Worthy](https://www.churchofjesuschrist.org/study/scriptures/tg/Worthiness-Worthy?lang=eng)
+[Worthiness, Worthy](https://churchofjesuschrist.org/study/scriptures/tg/worthiness?lang=eng)
 
 ### References
 - [[Genesis 32.10|Genesis 32:10]]

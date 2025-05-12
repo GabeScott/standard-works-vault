@@ -1,6 +1,6 @@
 # Cleanse
 
-[Cleanse](https://www.churchofjesuschrist.org/study/scriptures/tg/Cleanse?lang=eng)
+[Cleanse](https://churchofjesuschrist.org/study/scriptures/tg/cleanse?lang=eng)
 
 ### References
 - [[Leviticus 16.19|Leviticus 16:19]]

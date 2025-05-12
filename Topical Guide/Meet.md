@@ -1,6 +1,6 @@
 # Meet
 
-[Meet](https://www.churchofjesuschrist.org/study/scriptures/tg/Meet?lang=eng)
+[Meet](https://churchofjesuschrist.org/study/scriptures/tg/meet-adjective?lang=eng)
 
 ### References
 - [[Genesis 2.18|Genesis 2:18]]

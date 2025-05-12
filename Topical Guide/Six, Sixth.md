@@ -1,6 +1,6 @@
 # Six, Sixth
 
-[Six, Sixth](https://www.churchofjesuschrist.org/study/scriptures/tg/Six-Sixth?lang=eng)
+[Six, Sixth](https://churchofjesuschrist.org/study/scriptures/tg/six?lang=eng)
 
 ### References
 - [[Genesis 7.6|Genesis 7:6]]

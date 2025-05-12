@@ -1,6 +1,6 @@
 # Strike, Struck, Stricken
 
-[Strike, Struck, Stricken](https://www.churchofjesuschrist.org/study/scriptures/tg/Strike-Struck-Stricken?lang=eng)
+[Strike, Struck, Stricken](https://churchofjesuschrist.org/study/scriptures/tg/strike?lang=eng)
 
 ### References
 - [[Psalms 110.5|Psalms 110:5]]

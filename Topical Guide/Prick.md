@@ -1,6 +1,6 @@
 # Prick
 
-[Prick](https://www.churchofjesuschrist.org/study/scriptures/tg/Prick?lang=eng)
+[Prick](https://churchofjesuschrist.org/study/scriptures/tg/prick?lang=eng)
 
 ### References
 - [[Psalms 73.21|Psalms 73:21]]

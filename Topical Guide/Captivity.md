@@ -1,6 +1,6 @@
 # Captivity
 
-[Captivity](https://www.churchofjesuschrist.org/study/scriptures/tg/Captivity?lang=eng)
+[Captivity](https://churchofjesuschrist.org/study/scriptures/tg/captivity?lang=eng)
 
 ### References
 - [[Deuteronomy 30.3|Deuteronomy 30:3]]

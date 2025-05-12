@@ -1,6 +1,6 @@
 # Sound
 
-[Sound](https://www.churchofjesuschrist.org/study/scriptures/tg/Sound?lang=eng)
+[Sound](https://churchofjesuschrist.org/study/scriptures/tg/sound-adjective?lang=eng)
 
 ### References
 - [[Psalms 119.80|Psalms 119:80]]

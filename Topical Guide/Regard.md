@@ -1,6 +1,6 @@
 # Regard
 
-[Regard](https://www.churchofjesuschrist.org/study/scriptures/tg/Regard?lang=eng)
+[Regard](https://churchofjesuschrist.org/study/scriptures/tg/regard?lang=eng)
 
 ### References
 - [[Leviticus 19.31|Leviticus 19:31]]

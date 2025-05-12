@@ -1,6 +1,6 @@
 # Storm
 
-[Storm](https://www.churchofjesuschrist.org/study/scriptures/tg/Storm?lang=eng)
+[Storm](https://churchofjesuschrist.org/study/scriptures/tg/storm?lang=eng)
 
 ### References
 - [[Psalms 107.29|Psalms 107:29]]

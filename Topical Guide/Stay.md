@@ -1,6 +1,6 @@
 # Stay
 
-[Stay](https://www.churchofjesuschrist.org/study/scriptures/tg/Stay?lang=eng)
+[Stay](https://churchofjesuschrist.org/study/scriptures/tg/stay?lang=eng)
 
 ### References
 - [[Genesis 19.17|Genesis 19:17]]

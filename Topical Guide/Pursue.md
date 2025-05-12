@@ -1,6 +1,6 @@
 # Pursue
 
-[Pursue](https://www.churchofjesuschrist.org/study/scriptures/tg/Pursue?lang=eng)
+[Pursue](https://churchofjesuschrist.org/study/scriptures/tg/pursue?lang=eng)
 
 ### References
 - [[Exodus 14.8|Exodus 14:8]]

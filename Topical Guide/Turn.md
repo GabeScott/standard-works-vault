@@ -1,6 +1,6 @@
 # Turn
 
-[Turn](https://www.churchofjesuschrist.org/study/scriptures/tg/Turn?lang=eng)
+[Turn](https://churchofjesuschrist.org/study/scriptures/tg/turn?lang=eng)
 
 ### References
 - [[Exodus 32.8|Exodus 32:8]]

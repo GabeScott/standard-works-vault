@@ -1,6 +1,6 @@
 # Die
 
-[Die](https://www.churchofjesuschrist.org/study/scriptures/tg/Die?lang=eng)
+[Die](https://churchofjesuschrist.org/study/scriptures/tg/die?lang=eng)
 
 ### References
 - [[Genesis 2.17|Genesis 2:17]]

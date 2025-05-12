@@ -1,6 +1,6 @@
 # Fast, Fasting
 
-[Fast, Fasting](https://www.churchofjesuschrist.org/study/scriptures/tg/Fast-Fasting?lang=eng)
+[Fast, Fasting](https://churchofjesuschrist.org/study/scriptures/tg/fast-fasting?lang=eng)
 
 ### References
 - [[Exodus 34.28|Exodus 34:28]]

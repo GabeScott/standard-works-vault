@@ -1,6 +1,6 @@
 # Able
 
-[Able](https://www.churchofjesuschrist.org/study/scriptures/tg/Able?lang=eng)
+[Able](https://churchofjesuschrist.org/study/scriptures/tg/able?lang=eng)
 
 ### References
 - [[Exodus 18.25|Exodus 18:25]]

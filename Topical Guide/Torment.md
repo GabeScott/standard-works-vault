@@ -1,6 +1,6 @@
 # Torment
 
-[Torment](https://www.churchofjesuschrist.org/study/scriptures/tg/Torment?lang=eng)
+[Torment](https://churchofjesuschrist.org/study/scriptures/tg/torment?lang=eng)
 
 ### References
 - [[Matthew 8.29|Matthew 8:29]]

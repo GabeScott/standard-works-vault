@@ -1,6 +1,6 @@
 # Stink
 
-[Stink](https://www.churchofjesuschrist.org/study/scriptures/tg/Stink?lang=eng)
+[Stink](https://churchofjesuschrist.org/study/scriptures/tg/stink?lang=eng)
 
 ### References
 - [[Genesis 34.30|Genesis 34:30]]

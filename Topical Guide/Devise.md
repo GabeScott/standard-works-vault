@@ -1,6 +1,6 @@
 # Devise
 
-[Devise](https://www.churchofjesuschrist.org/study/scriptures/tg/Devise?lang=eng)
+[Devise](https://churchofjesuschrist.org/study/scriptures/tg/devise?lang=eng)
 
 ### References
 - [[Proverbs 16.9|Proverbs 16:9]]

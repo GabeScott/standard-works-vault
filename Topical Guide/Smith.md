@@ -1,6 +1,6 @@
 # Smith
 
-[Smith](https://www.churchofjesuschrist.org/study/scriptures/tg/Smith?lang=eng)
+[Smith](https://churchofjesuschrist.org/study/scriptures/tg/joseph-smith?lang=eng)
 
 ### References
 - [[1 Samuel 13.19|1 Samuel 13:19]]

@@ -1,6 +1,6 @@
 # Step
 
-[Step](https://www.churchofjesuschrist.org/study/scriptures/tg/Step?lang=eng)
+[Step](https://churchofjesuschrist.org/study/scriptures/tg/step?lang=eng)
 
 ### References
 - [[Psalms 37.23|Psalms 37:23]]

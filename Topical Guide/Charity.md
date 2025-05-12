@@ -1,6 +1,6 @@
 # Charity
 
-[Charity](https://www.churchofjesuschrist.org/study/scriptures/tg/Charity?lang=eng)
+[Charity](https://churchofjesuschrist.org/study/scriptures/tg/charity?lang=eng)
 
 ### References
 - [[Exodus 23.5|Exodus 23:5]]

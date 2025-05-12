@@ -1,6 +1,6 @@
 # Dip
 
-[Dip](https://www.churchofjesuschrist.org/study/scriptures/tg/Dip?lang=eng)
+[Dip](https://churchofjesuschrist.org/study/scriptures/tg/dip?lang=eng)
 
 ### References
 - [[Exodus 12.22|Exodus 12:22]]

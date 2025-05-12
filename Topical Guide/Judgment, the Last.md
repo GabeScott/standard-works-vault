@@ -1,6 +1,6 @@
 # Judgment, the Last
 
-[Judgment, the Last](https://www.churchofjesuschrist.org/study/scriptures/tg/Judgment-the-Last?lang=eng)
+[Judgment, the Last](https://churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
 
 ### References
 - [[1 Samuel 2.1|1 Samuel 2:1]]

@@ -1,6 +1,6 @@
 # Hebrew
 
-[Hebrew](https://www.churchofjesuschrist.org/study/scriptures/tg/Hebrew?lang=eng)
+[Hebrew](https://churchofjesuschrist.org/study/scriptures/tg/hebrew?lang=eng)
 
 ### References
 - [[Genesis 14.13|Genesis 14:13]]

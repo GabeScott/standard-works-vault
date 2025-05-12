@@ -1,6 +1,6 @@
 # Similitude
 
-[Similitude](https://www.churchofjesuschrist.org/study/scriptures/tg/Similitude?lang=eng)
+[Similitude](https://churchofjesuschrist.org/study/scriptures/tg/similitude?lang=eng)
 
 ### References
 - [[Numbers 12.8|Numbers 12:8]]

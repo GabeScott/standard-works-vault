@@ -1,6 +1,6 @@
 # Temporal
 
-[Temporal](https://www.churchofjesuschrist.org/study/scriptures/tg/Temporal?lang=eng)
+[Temporal](https://churchofjesuschrist.org/study/scriptures/tg/marriage-temporal?lang=eng)
 
 ### References
 - [[2 Corinthians 4.18|2 Corinthians 4:18]]

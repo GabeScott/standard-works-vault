@@ -1,6 +1,6 @@
 # Sink, Sunk
 
-[Sink, Sunk](https://www.churchofjesuschrist.org/study/scriptures/tg/Sink-Sunk?lang=eng)
+[Sink, Sunk](https://churchofjesuschrist.org/study/scriptures/tg/sink?lang=eng)
 
 ### References
 - [[Psalms 9.15|Psalms 9:15]]

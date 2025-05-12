@@ -1,6 +1,6 @@
 # Midst
 
-[Midst](https://www.churchofjesuschrist.org/study/scriptures/tg/Midst?lang=eng)
+[Midst](https://churchofjesuschrist.org/study/scriptures/tg/midst?lang=eng)
 
 ### References
 - [[Luke 23.45|Luke 23:45]]

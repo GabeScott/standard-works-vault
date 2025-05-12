@@ -1,6 +1,6 @@
 # Wind
 
-[Wind](https://www.churchofjesuschrist.org/study/scriptures/tg/Wind?lang=eng)
+[Wind](https://churchofjesuschrist.org/study/scriptures/tg/wind?lang=eng)
 
 ### References
 - [[Genesis 8.1|Genesis 8:1]]

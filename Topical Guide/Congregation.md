@@ -1,6 +1,6 @@
 # Congregation
 
-[Congregation](https://www.churchofjesuschrist.org/study/scriptures/tg/Congregation?lang=eng)
+[Congregation](https://churchofjesuschrist.org/study/scriptures/tg/congregation?lang=eng)
 
 ### References
 - [[Exodus 16.22|Exodus 16:22]]

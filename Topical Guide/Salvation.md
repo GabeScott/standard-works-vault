@@ -1,6 +1,6 @@
 # Salvation
 
-[Salvation](https://www.churchofjesuschrist.org/study/scriptures/tg/Salvation?lang=eng)
+[Salvation](https://churchofjesuschrist.org/study/scriptures/tg/salvation?lang=eng)
 
 ### References
 - [[Genesis 49.18|Genesis 49:18]]

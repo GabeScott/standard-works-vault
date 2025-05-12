@@ -1,6 +1,6 @@
 # Deed
 
-[Deed](https://www.churchofjesuschrist.org/study/scriptures/tg/Deed?lang=eng)
+[Deed](https://churchofjesuschrist.org/study/scriptures/tg/deed?lang=eng)
 
 ### References
 - [[1 Chronicles 16.8|1 Chronicles 16:8]]

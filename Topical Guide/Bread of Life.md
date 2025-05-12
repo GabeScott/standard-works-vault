@@ -1,6 +1,6 @@
 # Bread of Life
 
-[Bread of Life](https://www.churchofjesuschrist.org/study/scriptures/tg/Bread-of-Life?lang=eng)
+[Bread of Life](https://churchofjesuschrist.org/study/scriptures/tg/bread-of-life?lang=eng)
 
 ### References
 - [[Deuteronomy 8.3|Deuteronomy 8:3]]

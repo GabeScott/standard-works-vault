@@ -1,6 +1,6 @@
 # Bridegroom
 
-[Bridegroom](https://www.churchofjesuschrist.org/study/scriptures/tg/Bridegroom?lang=eng)
+[Bridegroom](https://churchofjesuschrist.org/study/scriptures/tg/bridegroom?lang=eng)
 
 ### References
 - [[Psalms 19.5|Psalms 19:5]]

@@ -1,6 +1,6 @@
 # Needy
 
-[Needy](https://www.churchofjesuschrist.org/study/scriptures/tg/Needy?lang=eng)
+[Needy](https://churchofjesuschrist.org/study/scriptures/tg/needy?lang=eng)
 
 ### References
 - [[Deuteronomy 15.11|Deuteronomy 15:11]]

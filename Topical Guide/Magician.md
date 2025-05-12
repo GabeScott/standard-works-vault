@@ -1,6 +1,6 @@
 # Magician
 
-[Magician](https://www.churchofjesuschrist.org/study/scriptures/tg/Magician?lang=eng)
+[Magician](https://churchofjesuschrist.org/study/scriptures/tg/magician?lang=eng)
 
 ### References
 - [[Genesis 41.8|Genesis 41:8]]

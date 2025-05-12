@@ -1,6 +1,6 @@
 # Genealogy and Temple Work
 
-[Genealogy and Temple Work](https://www.churchofjesuschrist.org/study/scriptures/tg/Genealogy-and-Temple-Work?lang=eng)
+[Genealogy and Temple Work](https://churchofjesuschrist.org/study/scriptures/tg/genealogy-and-temple-work?lang=eng)
 
 ### References
 - [[Exodus 22.16|Exodus 22:16]]

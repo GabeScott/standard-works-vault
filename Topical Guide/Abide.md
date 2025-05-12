@@ -1,6 +1,6 @@
 # Abide
 
-[Abide](https://www.churchofjesuschrist.org/study/scriptures/tg/Abide?lang=eng)
+[Abide](https://churchofjesuschrist.org/study/scriptures/tg/abide?lang=eng)
 
 ### References
 - [[Psalms 15.1|Psalms 15:1]]

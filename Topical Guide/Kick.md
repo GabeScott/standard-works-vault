@@ -1,6 +1,6 @@
 # Kick
 
-[Kick](https://www.churchofjesuschrist.org/study/scriptures/tg/Kick?lang=eng)
+[Kick](https://churchofjesuschrist.org/study/scriptures/tg/kick?lang=eng)
 
 ### References
 - [[1 Samuel 2.29|1 Samuel 2:29]]

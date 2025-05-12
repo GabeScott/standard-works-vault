@@ -1,6 +1,6 @@
 # Melt
 
-[Melt](https://www.churchofjesuschrist.org/study/scriptures/tg/Melt?lang=eng)
+[Melt](https://churchofjesuschrist.org/study/scriptures/tg/melt?lang=eng)
 
 ### References
 - [[Exodus 15.15|Exodus 15:15]]

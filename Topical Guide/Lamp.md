@@ -1,6 +1,6 @@
 # Lamp
 
-[Lamp](https://www.churchofjesuschrist.org/study/scriptures/tg/Lamp?lang=eng)
+[Lamp](https://churchofjesuschrist.org/study/scriptures/tg/lamp?lang=eng)
 
 ### References
 - [[Genesis 15.17|Genesis 15:17]]

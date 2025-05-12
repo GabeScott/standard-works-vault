@@ -1,6 +1,6 @@
 # Register
 
-[Register](https://www.churchofjesuschrist.org/study/scriptures/tg/Register?lang=eng)
+[Register](https://churchofjesuschrist.org/study/scriptures/tg/register?lang=eng)
 
 ### References
 - [[Ezra 2.62|Ezra 2:62]]

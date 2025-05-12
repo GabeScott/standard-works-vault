@@ -1,6 +1,6 @@
 # Elder, Melchizedek Priesthood
 
-[Elder, Melchizedek Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/Elder-Melchizedek-Priesthood?lang=eng)
+[Elder, Melchizedek Priesthood](https://churchofjesuschrist.org/study/scriptures/tg/elder-melchizedek-priesthood?lang=eng)
 
 ### References
 - [[Exodus 24.9|Exodus 24:9]]

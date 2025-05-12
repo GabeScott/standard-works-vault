@@ -1,6 +1,6 @@
 # Wing
 
-[Wing](https://www.churchofjesuschrist.org/study/scriptures/tg/Wing?lang=eng)
+[Wing](https://churchofjesuschrist.org/study/scriptures/tg/wing?lang=eng)
 
 ### References
 - [[Exodus 25.20|Exodus 25:20]]

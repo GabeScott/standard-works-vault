@@ -1,6 +1,6 @@
 # Abundantly
 
-[Abundantly](https://www.churchofjesuschrist.org/study/scriptures/tg/Abundantly?lang=eng)
+[Abundantly](https://churchofjesuschrist.org/study/scriptures/tg/abundantly?lang=eng)
 
 ### References
 - [[Isaiah 55.7|Isaiah 55:7]]

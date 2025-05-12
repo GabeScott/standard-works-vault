@@ -1,6 +1,6 @@
 # Afflicted
 
-[Afflicted](https://www.churchofjesuschrist.org/study/scriptures/tg/Afflicted?lang=eng)
+[Afflicted](https://churchofjesuschrist.org/study/scriptures/tg/afflicted?lang=eng)
 
 ### References
 - [[Job 34.28|Job 34:28]]

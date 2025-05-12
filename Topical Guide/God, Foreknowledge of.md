@@ -1,6 +1,6 @@
 # God, Foreknowledge of
 
-[God, Foreknowledge of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Foreknowledge-of?lang=eng)
+[God, Foreknowledge of](https://churchofjesuschrist.org/study/scriptures/tg/god-foreknowledge-of?lang=eng)
 
 ### References
 - [[Deuteronomy 32.8|Deuteronomy 32:8]]

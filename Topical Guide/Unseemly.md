@@ -1,6 +1,6 @@
 # Unseemly
 
-[Unseemly](https://www.churchofjesuschrist.org/study/scriptures/tg/Unseemly?lang=eng)
+[Unseemly](https://churchofjesuschrist.org/study/scriptures/tg/unseemly?lang=eng)
 
 ### References
 - [[Romans 1.27|Romans 1:27]]

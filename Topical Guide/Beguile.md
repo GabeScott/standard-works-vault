@@ -1,6 +1,6 @@
 # Beguile
 
-[Beguile](https://www.churchofjesuschrist.org/study/scriptures/tg/Beguile?lang=eng)
+[Beguile](https://churchofjesuschrist.org/study/scriptures/tg/beguile?lang=eng)
 
 ### References
 - [[Genesis 3.13|Genesis 3:13]]

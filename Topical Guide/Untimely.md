@@ -1,6 +1,6 @@
 # Untimely
 
-[Untimely](https://www.churchofjesuschrist.org/study/scriptures/tg/Untimely?lang=eng)
+[Untimely](https://churchofjesuschrist.org/study/scriptures/tg/untimely?lang=eng)
 
 ### References
 - [[Psalms 58.8|Psalms 58:8]]

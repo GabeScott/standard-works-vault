@@ -1,6 +1,6 @@
 # Three
 
-[Three](https://www.churchofjesuschrist.org/study/scriptures/tg/Three?lang=eng)
+[Three](https://churchofjesuschrist.org/study/scriptures/tg/three?lang=eng)
 
 ### References
 - [[Exodus 23.14|Exodus 23:14]]

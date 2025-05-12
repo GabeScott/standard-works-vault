@@ -1,6 +1,6 @@
 # Jesus Christ, Betrayal of
 
-[Jesus Christ, Betrayal of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Betrayal-of?lang=eng)
+[Jesus Christ, Betrayal of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-betrayal-of?lang=eng)
 
 ### References
 - [[Psalms 22.16|Psalms 22:16]]

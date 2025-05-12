@@ -1,6 +1,6 @@
 # Flesh and Blood
 
-[Flesh and Blood](https://www.churchofjesuschrist.org/study/scriptures/tg/Flesh-and-Blood?lang=eng)
+[Flesh and Blood](https://churchofjesuschrist.org/study/scriptures/tg/flesh-and-blood?lang=eng)
 
 ### References
 - [[Deuteronomy 12.27|Deuteronomy 12:27]]

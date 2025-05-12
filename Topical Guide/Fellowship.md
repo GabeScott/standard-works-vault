@@ -1,6 +1,6 @@
 # Fellowship
 
-[Fellowship](https://www.churchofjesuschrist.org/study/scriptures/tg/Fellowship?lang=eng)
+[Fellowship](https://churchofjesuschrist.org/study/scriptures/tg/fellowship?lang=eng)
 
 ### References
 - [[1 Corinthians 10.20|1 Corinthians 10:20]]

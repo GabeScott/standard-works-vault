@@ -1,6 +1,6 @@
 # Tempest
 
-[Tempest](https://www.churchofjesuschrist.org/study/scriptures/tg/Tempest?lang=eng)
+[Tempest](https://churchofjesuschrist.org/study/scriptures/tg/tempest?lang=eng)
 
 ### References
 - [[Isaiah 28.2|Isaiah 28:2]]

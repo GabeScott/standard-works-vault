@@ -1,6 +1,6 @@
 # Busybody
 
-[Busybody](https://www.churchofjesuschrist.org/study/scriptures/tg/Busybody?lang=eng)
+[Busybody](https://churchofjesuschrist.org/study/scriptures/tg/busybody?lang=eng)
 
 ### References
 - [[2 Thessalonians 3.11|2 Thessalonians 3:11]]

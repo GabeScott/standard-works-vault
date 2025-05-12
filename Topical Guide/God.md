@@ -1,6 +1,6 @@
 # god
 
-[god](https://www.churchofjesuschrist.org/study/scriptures/tg/god?lang=eng)
+[God](https://churchofjesuschrist.org/study/scriptures/tg/attributes-of-god?lang=eng)
 
 ### References
 - [[Genesis 35.2|Genesis 35:2]]

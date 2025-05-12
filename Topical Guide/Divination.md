@@ -1,6 +1,6 @@
 # Divination
 
-[Divination](https://www.churchofjesuschrist.org/study/scriptures/tg/Divination?lang=eng)
+[Divination](https://churchofjesuschrist.org/study/scriptures/tg/divination?lang=eng)
 
 ### References
 - [[Deuteronomy 18.10|Deuteronomy 18:10]]

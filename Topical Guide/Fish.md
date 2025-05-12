@@ -1,6 +1,6 @@
 # Fish
 
-[Fish](https://www.churchofjesuschrist.org/study/scriptures/tg/Fish?lang=eng)
+[Fish](https://churchofjesuschrist.org/study/scriptures/tg/fish?lang=eng)
 
 ### References
 - [[Genesis 1.26|Genesis 1:26]]

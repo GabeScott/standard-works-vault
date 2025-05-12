@@ -1,6 +1,6 @@
 # Harlot
 
-[Harlot](https://www.churchofjesuschrist.org/study/scriptures/tg/Harlot?lang=eng)
+[Harlot](https://churchofjesuschrist.org/study/scriptures/tg/harlot?lang=eng)
 
 ### References
 - [[Genesis 34.31|Genesis 34:31]]

@@ -1,6 +1,6 @@
 # Moon
 
-[Moon](https://www.churchofjesuschrist.org/study/scriptures/tg/Moon?lang=eng)
+[Moon](https://churchofjesuschrist.org/study/scriptures/tg/moon?lang=eng)
 
 ### References
 - [[Genesis 37.9|Genesis 37:9]]

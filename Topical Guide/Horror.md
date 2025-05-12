@@ -1,6 +1,6 @@
 # Horror
 
-[Horror](https://www.churchofjesuschrist.org/study/scriptures/tg/Horror?lang=eng)
+[Horror](https://churchofjesuschrist.org/study/scriptures/tg/horror?lang=eng)
 
 ### References
 - [[Genesis 15.12|Genesis 15:12]]

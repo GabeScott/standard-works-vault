@@ -1,6 +1,6 @@
 # Handmaid
 
-[Handmaid](https://www.churchofjesuschrist.org/study/scriptures/tg/Handmaid?lang=eng)
+[Handmaid](https://churchofjesuschrist.org/study/scriptures/tg/handmaid?lang=eng)
 
 ### References
 - [[Genesis 16.1|Genesis 16:1]]

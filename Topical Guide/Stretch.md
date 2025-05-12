@@ -1,6 +1,6 @@
 # Stretch
 
-[Stretch](https://www.churchofjesuschrist.org/study/scriptures/tg/Stretch?lang=eng)
+[Stretch](https://churchofjesuschrist.org/study/scriptures/tg/stretch?lang=eng)
 
 ### References
 - [[Deuteronomy 4.34|Deuteronomy 4:34]]

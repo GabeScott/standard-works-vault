@@ -1,6 +1,6 @@
 # Partition
 
-[Partition](https://www.churchofjesuschrist.org/study/scriptures/tg/Partition?lang=eng)
+[Partition](https://churchofjesuschrist.org/study/scriptures/tg/partition?lang=eng)
 
 ### References
 - [[Ephesians 2.14|Ephesians 2:14]]

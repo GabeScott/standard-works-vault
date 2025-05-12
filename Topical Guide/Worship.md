@@ -1,6 +1,6 @@
 # Worship
 
-[Worship](https://www.churchofjesuschrist.org/study/scriptures/tg/Worship?lang=eng)
+[Worship](https://churchofjesuschrist.org/study/scriptures/tg/assembly-for-worship?lang=eng)
 
 ### References
 - [[Genesis 22.5|Genesis 22:5]]

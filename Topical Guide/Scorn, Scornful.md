@@ -1,6 +1,6 @@
 # Scorn, Scornful
 
-[Scorn, Scornful](https://www.churchofjesuschrist.org/study/scriptures/tg/Scorn-Scornful?lang=eng)
+[Scorn, Scornful](https://churchofjesuschrist.org/study/scriptures/tg/scorn?lang=eng)
 
 ### References
 - [[Nehemiah 2.19|Nehemiah 2:19]]

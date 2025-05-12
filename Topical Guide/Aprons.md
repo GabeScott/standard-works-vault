@@ -1,6 +1,6 @@
 # Aprons
 
-[Aprons](https://www.churchofjesuschrist.org/study/scriptures/tg/Aprons?lang=eng)
+[Aprons](https://churchofjesuschrist.org/study/scriptures/tg/aprons?lang=eng)
 
 ### References
 - [[Genesis 3.7|Genesis 3:7]]

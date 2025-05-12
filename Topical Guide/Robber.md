@@ -1,6 +1,6 @@
 # Robber
 
-[Robber](https://www.churchofjesuschrist.org/study/scriptures/tg/Robber?lang=eng)
+[Robber](https://churchofjesuschrist.org/study/scriptures/tg/robber?lang=eng)
 
 ### References
 - [[Jeremiah 7.11|Jeremiah 7:11]]

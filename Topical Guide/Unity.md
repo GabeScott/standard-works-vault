@@ -1,6 +1,6 @@
 # Unity
 
-[Unity](https://www.churchofjesuschrist.org/study/scriptures/tg/Unity?lang=eng)
+[Unity](https://churchofjesuschrist.org/study/scriptures/tg/unity?lang=eng)
 
 ### References
 - [[Genesis 2.24|Genesis 2:24]]

@@ -1,6 +1,6 @@
 # Centurion
 
-[Centurion](https://www.churchofjesuschrist.org/study/scriptures/tg/Centurion?lang=eng)
+[Centurion](https://churchofjesuschrist.org/study/scriptures/tg/centurion?lang=eng)
 
 ### References
 - [[Matthew 27.54|Matthew 27:54]]

@@ -1,6 +1,6 @@
 # Israel, Restoration of
 
-[Israel, Restoration of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Restoration-of?lang=eng)
+[Israel, Restoration of](https://churchofjesuschrist.org/study/scriptures/tg/israel-restoration-of?lang=eng)
 
 ### References
 - [[Deuteronomy 30.2|Deuteronomy 30:2]]

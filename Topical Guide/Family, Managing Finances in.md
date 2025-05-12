@@ -1,6 +1,6 @@
 # Family, Managing Finances in
 
-[Family, Managing Finances in](https://www.churchofjesuschrist.org/study/scriptures/tg/Family-Managing-Finances-in?lang=eng)
+[Family, Managing Finances in](https://churchofjesuschrist.org/study/scriptures/tg/family-managing-finances-in?lang=eng)
 
 ### References
 - [[Haggai 1.6|Haggai 1:6]]

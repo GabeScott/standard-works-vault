@@ -1,6 +1,6 @@
 # Shape
 
-[Shape](https://www.churchofjesuschrist.org/study/scriptures/tg/Shape?lang=eng)
+[Shape](https://churchofjesuschrist.org/study/scriptures/tg/shape?lang=eng)
 
 ### References
 - [[Luke 3.22|Luke 3:22]]

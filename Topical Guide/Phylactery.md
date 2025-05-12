@@ -1,6 +1,6 @@
 # Phylactery
 
-[Phylactery](https://www.churchofjesuschrist.org/study/scriptures/tg/Phylactery?lang=eng)
+[Phylactery](https://churchofjesuschrist.org/study/scriptures/tg/phylactery?lang=eng)
 
 ### References
 - [[Matthew 23.5|Matthew 23:5]]

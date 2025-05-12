@@ -1,6 +1,6 @@
 # Self-Mastery
 
-[Self-Mastery](https://www.churchofjesuschrist.org/study/scriptures/tg/Self-Mastery?lang=eng)
+[Self-Mastery](https://churchofjesuschrist.org/study/scriptures/tg/self-mastery?lang=eng)
 
 ### References
 - [[Psalms 119.101|Psalms 119:101]]

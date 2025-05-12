@@ -1,6 +1,6 @@
 # Spare
 
-[Spare](https://www.churchofjesuschrist.org/study/scriptures/tg/Spare?lang=eng)
+[Spare](https://churchofjesuschrist.org/study/scriptures/tg/spare?lang=eng)
 
 ### References
 - [[Genesis 18.24|Genesis 18:24]]

@@ -1,6 +1,6 @@
 # God-Ward
 
-[God-Ward](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Ward?lang=eng)
+[God-Ward](https://churchofjesuschrist.org/study/scriptures/tg/god-ward?lang=eng)
 
 ### References
 - [[Exodus 18.19|Exodus 18:19]]

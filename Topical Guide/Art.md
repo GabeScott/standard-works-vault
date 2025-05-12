@@ -1,6 +1,6 @@
 # Art
 
-[Art](https://www.churchofjesuschrist.org/study/scriptures/tg/Art?lang=eng)
+[Art](https://churchofjesuschrist.org/study/scriptures/tg/art?lang=eng)
 
 ### References
 - [[Exodus 25.18|Exodus 25:18]]

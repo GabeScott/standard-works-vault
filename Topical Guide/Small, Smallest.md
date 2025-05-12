@@ -1,6 +1,6 @@
 # Small, Smallest
 
-[Small, Smallest](https://www.churchofjesuschrist.org/study/scriptures/tg/Small-Smallest?lang=eng)
+[Small, Smallest](https://churchofjesuschrist.org/study/scriptures/tg/small?lang=eng)
 
 ### References
 - [[Numbers 16.9|Numbers 16:9]]

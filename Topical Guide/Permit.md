@@ -1,6 +1,6 @@
 # Permit
 
-[Permit](https://www.churchofjesuschrist.org/study/scriptures/tg/Permit?lang=eng)
+[Permit](https://churchofjesuschrist.org/study/scriptures/tg/permit?lang=eng)
 
 ### References
 - [[Acts 26.1|Acts 26:1]]

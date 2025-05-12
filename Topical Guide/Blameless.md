@@ -1,6 +1,6 @@
 # Blameless
 
-[Blameless](https://www.churchofjesuschrist.org/study/scriptures/tg/Blameless?lang=eng)
+[Blameless](https://churchofjesuschrist.org/study/scriptures/tg/blameless?lang=eng)
 
 ### References
 - [[Genesis 44.10|Genesis 44:10]]

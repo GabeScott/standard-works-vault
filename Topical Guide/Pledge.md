@@ -1,6 +1,6 @@
 # Pledge
 
-[Pledge](https://www.churchofjesuschrist.org/study/scriptures/tg/Pledge?lang=eng)
+[Pledge](https://churchofjesuschrist.org/study/scriptures/tg/pledge?lang=eng)
 
 ### References
 - [[Exodus 22.26|Exodus 22:26]]

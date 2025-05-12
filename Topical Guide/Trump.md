@@ -1,6 +1,6 @@
 # Trump
 
-[Trump](https://www.churchofjesuschrist.org/study/scriptures/tg/Trump?lang=eng)
+[Trump](https://churchofjesuschrist.org/study/scriptures/tg/trump?lang=eng)
 
 ### References
 - [[1 Corinthians 15.52|1 Corinthians 15:52]]

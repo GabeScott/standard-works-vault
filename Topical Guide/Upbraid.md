@@ -1,6 +1,6 @@
 # Upbraid
 
-[Upbraid](https://www.churchofjesuschrist.org/study/scriptures/tg/Upbraid?lang=eng)
+[Upbraid](https://churchofjesuschrist.org/study/scriptures/tg/upbraid?lang=eng)
 
 ### References
 - [[Matthew 11.20|Matthew 11:20]]

@@ -1,6 +1,6 @@
 # Pruning Hook
 
-[Pruning Hook](https://www.churchofjesuschrist.org/study/scriptures/tg/Pruning-Hook?lang=eng)
+[Pruning Hook](https://churchofjesuschrist.org/study/scriptures/tg/pruning-hook?lang=eng)
 
 ### References
 - [[Isaiah 2.4|Isaiah 2:4]]

@@ -1,6 +1,6 @@
 # Hold, Held, Holden
 
-[Hold, Held, Holden](https://www.churchofjesuschrist.org/study/scriptures/tg/Hold-Held-Holden?lang=eng)
+[Hold, Held, Holden](https://churchofjesuschrist.org/study/scriptures/tg/hold?lang=eng)
 
 ### References
 - [[Exodus 20.7|Exodus 20:7]]

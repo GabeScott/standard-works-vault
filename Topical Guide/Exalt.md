@@ -1,6 +1,6 @@
 # Exalt
 
-[Exalt](https://www.churchofjesuschrist.org/study/scriptures/tg/Exalt?lang=eng)
+[Exalt](https://churchofjesuschrist.org/study/scriptures/tg/exalt?lang=eng)
 
 ### References
 - [[Exodus 15.2|Exodus 15:2]]

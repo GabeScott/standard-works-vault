@@ -1,6 +1,6 @@
 # Bare
 
-[Bare](https://www.churchofjesuschrist.org/study/scriptures/tg/Bare?lang=eng)
+[Bare](https://churchofjesuschrist.org/study/scriptures/tg/bare?lang=eng)
 
 ### References
 - [[Isaiah 52.10|Isaiah 52:10]]

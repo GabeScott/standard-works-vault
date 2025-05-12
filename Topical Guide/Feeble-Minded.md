@@ -1,6 +1,6 @@
 # Feeble-Minded
 
-[Feeble-Minded](https://www.churchofjesuschrist.org/study/scriptures/tg/Feeble-Minded?lang=eng)
+[Feeble-Minded](https://churchofjesuschrist.org/study/scriptures/tg/feeble-minded?lang=eng)
 
 ### References
 - [[1 Thessalonians 5.14|1 Thessalonians 5:14]]

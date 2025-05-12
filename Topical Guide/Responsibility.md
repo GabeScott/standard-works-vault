@@ -1,6 +1,6 @@
 # Responsibility
 
-[Responsibility](https://www.churchofjesuschrist.org/study/scriptures/tg/Responsibility?lang=eng)
+[Responsibility](https://churchofjesuschrist.org/study/scriptures/tg/delegation-of-responsibility?lang=eng)
 
 ### References
 - [[Jacob 1.19|Jacob 1:19]]

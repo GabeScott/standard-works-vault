@@ -1,6 +1,6 @@
 # Spirits, Evil or Unclean
 
-[Spirits, Evil or Unclean](https://www.churchofjesuschrist.org/study/scriptures/tg/Spirits-Evil-or-Unclean?lang=eng)
+[Spirits, Evil or Unclean](https://churchofjesuschrist.org/study/scriptures/tg/spirits-evil-or-unclean?lang=eng)
 
 ### References
 - [[Leviticus 19.31|Leviticus 19:31]]

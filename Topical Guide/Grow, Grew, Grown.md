@@ -1,6 +1,6 @@
 # Grow, Grew, Grown
 
-[Grow, Grew, Grown](https://www.churchofjesuschrist.org/study/scriptures/tg/Grow-Grew-Grown?lang=eng)
+[Grow, Grew, Grown](https://churchofjesuschrist.org/study/scriptures/tg/grow?lang=eng)
 
 ### References
 - [[Judges 16.22|Judges 16:22]]

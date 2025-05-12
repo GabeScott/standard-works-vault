@@ -1,6 +1,6 @@
 # Synagogue
 
-[Synagogue](https://www.churchofjesuschrist.org/study/scriptures/tg/Synagogue?lang=eng)
+[Synagogue](https://churchofjesuschrist.org/study/scriptures/tg/synagogue?lang=eng)
 
 ### References
 - [[Psalms 74.8|Psalms 74:8]]

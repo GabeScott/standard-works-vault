@@ -1,6 +1,6 @@
 # Thigh
 
-[Thigh](https://www.churchofjesuschrist.org/study/scriptures/tg/Thigh?lang=eng)
+[Thigh](https://churchofjesuschrist.org/study/scriptures/tg/thigh?lang=eng)
 
 ### References
 - [[Genesis 32.25|Genesis 32:25]]

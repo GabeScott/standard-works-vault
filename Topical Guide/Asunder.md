@@ -1,6 +1,6 @@
 # Asunder
 
-[Asunder](https://www.churchofjesuschrist.org/study/scriptures/tg/Asunder?lang=eng)
+[Asunder](https://churchofjesuschrist.org/study/scriptures/tg/asunder?lang=eng)
 
 ### References
 - [[Matthew 19.6|Matthew 19:6]]

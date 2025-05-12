@@ -1,6 +1,6 @@
 # Differ
 
-[Differ](https://www.churchofjesuschrist.org/study/scriptures/tg/Differ?lang=eng)
+[Differ](https://churchofjesuschrist.org/study/scriptures/tg/differ?lang=eng)
 
 ### References
 - [[1 Corinthians 15.41|1 Corinthians 15:41]]

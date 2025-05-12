@@ -1,6 +1,6 @@
 # Forbear, Forbearance
 
-[Forbear, Forbearance](https://www.churchofjesuschrist.org/study/scriptures/tg/Forbear-Forbearance?lang=eng)
+[Forbear, Forbearance](https://churchofjesuschrist.org/study/scriptures/tg/forbear?lang=eng)
 
 ### References
 - [[Genesis 26.27|Genesis 26:27]]

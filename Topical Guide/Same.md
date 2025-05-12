@@ -1,6 +1,6 @@
 # Same
 
-[Same](https://www.churchofjesuschrist.org/study/scriptures/tg/Same?lang=eng)
+[Same](https://churchofjesuschrist.org/study/scriptures/tg/same?lang=eng)
 
 ### References
 - [[Psalms 102.27|Psalms 102:27]]

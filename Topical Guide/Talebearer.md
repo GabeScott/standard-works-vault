@@ -1,6 +1,6 @@
 # Talebearer
 
-[Talebearer](https://www.churchofjesuschrist.org/study/scriptures/tg/Talebearer?lang=eng)
+[Talebearer](https://churchofjesuschrist.org/study/scriptures/tg/talebearer?lang=eng)
 
 ### References
 - [[Leviticus 19.16|Leviticus 19:16]]

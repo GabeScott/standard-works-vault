@@ -1,6 +1,6 @@
 # Stick
 
-[Stick](https://www.churchofjesuschrist.org/study/scriptures/tg/Stick?lang=eng)
+[Stick](https://churchofjesuschrist.org/study/scriptures/tg/stick?lang=eng)
 
 ### References
 - [[Numbers 15.32|Numbers 15:32]]

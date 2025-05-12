@@ -1,6 +1,6 @@
 # Valiantly
 
-[Valiantly](https://www.churchofjesuschrist.org/study/scriptures/tg/Valiantly?lang=eng)
+[Valiantly](https://churchofjesuschrist.org/study/scriptures/tg/valiantly?lang=eng)
 
 ### References
 - [[1 Chronicles 19.13|1 Chronicles 19:13]]

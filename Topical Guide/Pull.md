@@ -1,6 +1,6 @@
 # Pull
 
-[Pull](https://www.churchofjesuschrist.org/study/scriptures/tg/Pull?lang=eng)
+[Pull](https://churchofjesuschrist.org/study/scriptures/tg/pull?lang=eng)
 
 ### References
 - [[Isaiah 22.19|Isaiah 22:19]]

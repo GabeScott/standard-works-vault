@@ -1,6 +1,6 @@
 # Black
 
-[Black](https://www.churchofjesuschrist.org/study/scriptures/tg/Black?lang=eng)
+[Black](https://churchofjesuschrist.org/study/scriptures/tg/black?lang=eng)
 
 ### References
 - [[Revelation 6.12|Revelation 6:12]]

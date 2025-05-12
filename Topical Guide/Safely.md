@@ -1,6 +1,6 @@
 # Safely
 
-[Safely](https://www.churchofjesuschrist.org/study/scriptures/tg/Safely?lang=eng)
+[Safely](https://churchofjesuschrist.org/study/scriptures/tg/safely?lang=eng)
 
 ### References
 - [[Proverbs 1.33|Proverbs 1:33]]

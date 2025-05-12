@@ -1,6 +1,6 @@
 # Ransom
 
-[Ransom](https://www.churchofjesuschrist.org/study/scriptures/tg/Ransom?lang=eng)
+[Ransom](https://churchofjesuschrist.org/study/scriptures/tg/ransom?lang=eng)
 
 ### References
 - [[Exodus 30.12|Exodus 30:12]]

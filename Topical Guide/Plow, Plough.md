@@ -1,6 +1,6 @@
 # Plow, Plough
 
-[Plow, Plough](https://www.churchofjesuschrist.org/study/scriptures/tg/Plow-Plough?lang=eng)
+[Plow, Plough](https://churchofjesuschrist.org/study/scriptures/tg/plow?lang=eng)
 
 ### References
 - [[Deuteronomy 22.10|Deuteronomy 22:10]]

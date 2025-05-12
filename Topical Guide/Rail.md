@@ -1,6 +1,6 @@
 # Rail
 
-[Rail](https://www.churchofjesuschrist.org/study/scriptures/tg/Rail?lang=eng)
+[Rail](https://churchofjesuschrist.org/study/scriptures/tg/rail?lang=eng)
 
 ### References
 - [[1 Samuel 25.14|1 Samuel 25:14]]

@@ -1,6 +1,6 @@
 # Eagle
 
-[Eagle](https://www.churchofjesuschrist.org/study/scriptures/tg/Eagle?lang=eng)
+[Eagle](https://churchofjesuschrist.org/study/scriptures/tg/eagle?lang=eng)
 
 ### References
 - [[Exodus 19.4|Exodus 19:4]]

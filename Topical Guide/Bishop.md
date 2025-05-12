@@ -1,6 +1,6 @@
 # Bishop
 
-[Bishop](https://www.churchofjesuschrist.org/study/scriptures/tg/Bishop?lang=eng)
+[Bishop](https://churchofjesuschrist.org/study/scriptures/tg/bishop?lang=eng)
 
 ### References
 - [[Numbers 3.10|Numbers 3:10]]

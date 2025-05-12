@@ -1,6 +1,6 @@
 # Unquenchable
 
-[Unquenchable](https://www.churchofjesuschrist.org/study/scriptures/tg/Unquenchable?lang=eng)
+[Unquenchable](https://churchofjesuschrist.org/study/scriptures/tg/unquenchable?lang=eng)
 
 ### References
 - [[Matthew 3.12|Matthew 3:12]]

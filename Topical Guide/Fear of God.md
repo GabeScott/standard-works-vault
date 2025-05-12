@@ -1,6 +1,6 @@
 # Fear of God
 
-[Fear of God](https://www.churchofjesuschrist.org/study/scriptures/tg/Fear-of-God?lang=eng)
+[Fear of God](https://churchofjesuschrist.org/study/scriptures/tg/fear-of-god?lang=eng)
 
 ### References
 - [[Genesis 15.1|Genesis 15:1]]

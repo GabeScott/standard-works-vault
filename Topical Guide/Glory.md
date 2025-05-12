@@ -1,6 +1,6 @@
 # Glory
 
-[Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/Glory?lang=eng)
+[Glory](https://churchofjesuschrist.org/study/scriptures/tg/celestial-glory?lang=eng)
 
 ### References
 - [[1 Samuel 4.21|1 Samuel 4:21]]

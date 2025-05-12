@@ -1,6 +1,6 @@
 # Trust Not in the Arm of Flesh
 
-[Trust Not in the Arm of Flesh](https://www.churchofjesuschrist.org/study/scriptures/tg/Trust-Not-in-the-Arm-of-Flesh?lang=eng)
+[Trust Not in the Arm of Flesh](https://churchofjesuschrist.org/study/scriptures/tg/trust-not-in-the-arm-of-flesh?lang=eng)
 
 ### References
 - [[2 Chronicles 32.8|2 Chronicles 32:8]]

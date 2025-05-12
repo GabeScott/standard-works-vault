@@ -1,6 +1,6 @@
 # Heap
 
-[Heap](https://www.churchofjesuschrist.org/study/scriptures/tg/Heap?lang=eng)
+[Heap](https://churchofjesuschrist.org/study/scriptures/tg/heap?lang=eng)
 
 ### References
 - [[Exodus 15.8|Exodus 15:8]]

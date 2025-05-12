@@ -1,6 +1,6 @@
 # Thicket
 
-[Thicket](https://www.churchofjesuschrist.org/study/scriptures/tg/Thicket?lang=eng)
+[Thicket](https://churchofjesuschrist.org/study/scriptures/tg/thicket?lang=eng)
 
 ### References
 - [[Genesis 22.13|Genesis 22:13]]

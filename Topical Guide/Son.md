@@ -1,6 +1,6 @@
 # Son
 
-[Son](https://www.churchofjesuschrist.org/study/scriptures/tg/Son?lang=eng)
+[Son](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-only-begotten-son?lang=eng)
 
 ### References
 - [[Genesis 17.19|Genesis 17:19]]

@@ -1,6 +1,6 @@
 # Earthquake
 
-[Earthquake](https://www.churchofjesuschrist.org/study/scriptures/tg/Earthquake?lang=eng)
+[Earthquake](https://churchofjesuschrist.org/study/scriptures/tg/earthquake?lang=eng)
 
 ### References
 - [[1 Kings 19.11|1 Kings 19:11]]

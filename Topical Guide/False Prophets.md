@@ -1,6 +1,6 @@
 # False Prophets
 
-[False Prophets](https://www.churchofjesuschrist.org/study/scriptures/tg/False-Prophets?lang=eng)
+[False Prophets](https://churchofjesuschrist.org/study/scriptures/tg/false-prophets?lang=eng)
 
 ### References
 - [[Exodus 7.11|Exodus 7:11]]

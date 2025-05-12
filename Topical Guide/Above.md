@@ -1,6 +1,6 @@
 # Above
 
-[Above](https://www.churchofjesuschrist.org/study/scriptures/tg/Above?lang=eng)
+[Above](https://churchofjesuschrist.org/study/scriptures/tg/above?lang=eng)
 
 ### References
 - [[Deuteronomy 28.13|Deuteronomy 28:13]]

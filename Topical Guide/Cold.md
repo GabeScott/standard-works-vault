@@ -1,6 +1,6 @@
 # Cold
 
-[Cold](https://www.churchofjesuschrist.org/study/scriptures/tg/Cold?lang=eng)
+[Cold](https://churchofjesuschrist.org/study/scriptures/tg/cold?lang=eng)
 
 ### References
 - [[Proverbs 20.4|Proverbs 20:4]]

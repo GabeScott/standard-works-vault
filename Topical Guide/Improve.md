@@ -1,6 +1,6 @@
 # Improve
 
-[Improve](https://www.churchofjesuschrist.org/study/scriptures/tg/Improve?lang=eng)
+[Improve](https://churchofjesuschrist.org/study/scriptures/tg/improve?lang=eng)
 
 ### References
 - [[Alma 34.33|Alma 34:33]]

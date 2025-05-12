@@ -1,6 +1,6 @@
 # Red
 
-[Red](https://www.churchofjesuschrist.org/study/scriptures/tg/Red?lang=eng)
+[Red](https://churchofjesuschrist.org/study/scriptures/tg/red?lang=eng)
 
 ### References
 - [[Genesis 25.25|Genesis 25:25]]

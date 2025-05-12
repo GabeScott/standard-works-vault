@@ -1,6 +1,6 @@
 # Renown
 
-[Renown](https://www.churchofjesuschrist.org/study/scriptures/tg/Renown?lang=eng)
+[Renown](https://churchofjesuschrist.org/study/scriptures/tg/renown?lang=eng)
 
 ### References
 - [[Genesis 6.4|Genesis 6:4]]

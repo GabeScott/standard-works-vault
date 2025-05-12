@@ -1,6 +1,6 @@
 # Curse
 
-[Curse](https://www.churchofjesuschrist.org/study/scriptures/tg/Curse?lang=eng)
+[Curse](https://churchofjesuschrist.org/study/scriptures/tg/curse?lang=eng)
 
 ### References
 - [[Genesis 12.3|Genesis 12:3]]

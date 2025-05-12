@@ -1,6 +1,6 @@
 # Pestilence
 
-[Pestilence](https://www.churchofjesuschrist.org/study/scriptures/tg/Pestilence?lang=eng)
+[Pestilence](https://churchofjesuschrist.org/study/scriptures/tg/pestilence?lang=eng)
 
 ### References
 - [[Exodus 5.3|Exodus 5:3]]

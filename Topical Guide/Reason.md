@@ -1,6 +1,6 @@
 # Reason
 
-[Reason](https://www.churchofjesuschrist.org/study/scriptures/tg/Reason?lang=eng)
+[Reason](https://churchofjesuschrist.org/study/scriptures/tg/reason?lang=eng)
 
 ### References
 - [[1 Samuel 12.7|1 Samuel 12:7]]

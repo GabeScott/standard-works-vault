@@ -1,6 +1,6 @@
 # Church Organization
 
-[Church Organization](https://www.churchofjesuschrist.org/study/scriptures/tg/Church-Organization?lang=eng)
+[Church Organization](https://churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
 
 ### References
 - [[Genesis 14.18|Genesis 14:18]]

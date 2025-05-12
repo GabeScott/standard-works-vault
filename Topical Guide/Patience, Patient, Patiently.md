@@ -1,6 +1,6 @@
 # Patience, Patient, Patiently
 
-[Patience, Patient, Patiently](https://www.churchofjesuschrist.org/study/scriptures/tg/Patience-Patient-Patiently?lang=eng)
+[Patience, Patient, Patiently](https://churchofjesuschrist.org/study/scriptures/tg/patience?lang=eng)
 
 ### References
 - [[Genesis 26.22|Genesis 26:22]]

@@ -1,6 +1,6 @@
 # Road
 
-[Road](https://www.churchofjesuschrist.org/study/scriptures/tg/Road?lang=eng)
+[Road](https://churchofjesuschrist.org/study/scriptures/tg/road?lang=eng)
 
 ### References
 - [[1 Nephi 12.17|1 Nephi 12:17]]

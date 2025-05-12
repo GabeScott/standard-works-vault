@@ -1,6 +1,6 @@
 # Message
 
-[Message](https://www.churchofjesuschrist.org/study/scriptures/tg/Message?lang=eng)
+[Message](https://churchofjesuschrist.org/study/scriptures/tg/message?lang=eng)
 
 ### References
 - [[Judges 3.20|Judges 3:20]]

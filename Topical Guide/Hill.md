@@ -1,6 +1,6 @@
 # Hill
 
-[Hill](https://www.churchofjesuschrist.org/study/scriptures/tg/Hill?lang=eng)
+[Hill](https://churchofjesuschrist.org/study/scriptures/tg/hill?lang=eng)
 
 ### References
 - [[Genesis 49.26|Genesis 49:26]]

@@ -1,6 +1,6 @@
 # Poet
 
-[Poet](https://www.churchofjesuschrist.org/study/scriptures/tg/Poet?lang=eng)
+[Poet](https://churchofjesuschrist.org/study/scriptures/tg/poet?lang=eng)
 
 ### References
 - [[Acts 17.28|Acts 17:28]]

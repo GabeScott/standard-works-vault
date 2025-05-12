@@ -1,6 +1,6 @@
 # Sweat
 
-[Sweat](https://www.churchofjesuschrist.org/study/scriptures/tg/Sweat?lang=eng)
+[Sweat](https://churchofjesuschrist.org/study/scriptures/tg/sweat?lang=eng)
 
 ### References
 - [[Genesis 3.19|Genesis 3:19]]

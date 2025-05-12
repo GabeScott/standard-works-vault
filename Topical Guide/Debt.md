@@ -1,6 +1,6 @@
 # Debt
 
-[Debt](https://www.churchofjesuschrist.org/study/scriptures/tg/Debt?lang=eng)
+[Debt](https://churchofjesuschrist.org/study/scriptures/tg/debt?lang=eng)
 
 ### References
 - [[Exodus 22.25|Exodus 22:25]]

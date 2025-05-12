@@ -1,6 +1,6 @@
 # Bruise
 
-[Bruise](https://www.churchofjesuschrist.org/study/scriptures/tg/Bruise?lang=eng)
+[Bruise](https://churchofjesuschrist.org/study/scriptures/tg/bruise?lang=eng)
 
 ### References
 - [[Genesis 3.15|Genesis 3:15]]

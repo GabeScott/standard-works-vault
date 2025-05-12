@@ -1,6 +1,6 @@
 # Patriarchal Blessings
 
-[Patriarchal Blessings](https://www.churchofjesuschrist.org/study/scriptures/tg/Patriarchal-Blessings?lang=eng)
+[Patriarchal Blessings](https://churchofjesuschrist.org/study/scriptures/tg/patriarchal-blessings?lang=eng)
 
 ### References
 - [[Genesis 27.30|Genesis 27:30]]

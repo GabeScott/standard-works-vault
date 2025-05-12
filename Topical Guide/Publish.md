@@ -1,6 +1,6 @@
 # Publish
 
-[Publish](https://www.churchofjesuschrist.org/study/scriptures/tg/Publish?lang=eng)
+[Publish](https://churchofjesuschrist.org/study/scriptures/tg/publish?lang=eng)
 
 ### References
 - [[Deuteronomy 32.3|Deuteronomy 32:3]]

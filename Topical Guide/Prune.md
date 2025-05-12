@@ -1,6 +1,6 @@
 # Prune
 
-[Prune](https://www.churchofjesuschrist.org/study/scriptures/tg/Prune?lang=eng)
+[Prune](https://churchofjesuschrist.org/study/scriptures/tg/prune?lang=eng)
 
 ### References
 - [[Leviticus 25.3|Leviticus 25:3]]

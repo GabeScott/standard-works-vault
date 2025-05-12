@@ -1,6 +1,6 @@
 # Rashness
 
-[Rashness](https://www.churchofjesuschrist.org/study/scriptures/tg/Rashness?lang=eng)
+[Rashness](https://churchofjesuschrist.org/study/scriptures/tg/rashness?lang=eng)
 
 ### References
 - [[Numbers 20.10|Numbers 20:10]]

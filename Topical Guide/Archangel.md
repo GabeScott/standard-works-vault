@@ -1,6 +1,6 @@
 # Archangel
 
-[Archangel](https://www.churchofjesuschrist.org/study/scriptures/tg/Archangel?lang=eng)
+[Archangel](https://churchofjesuschrist.org/study/scriptures/tg/archangel?lang=eng)
 
 ### References
 - [[1 Thessalonians 4.16|1 Thessalonians 4:16]]

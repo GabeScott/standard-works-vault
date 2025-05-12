@@ -1,6 +1,6 @@
 # Doorpost
 
-[Doorpost](https://www.churchofjesuschrist.org/study/scriptures/tg/Doorpost?lang=eng)
+[Doorpost](https://churchofjesuschrist.org/study/scriptures/tg/doorpost?lang=eng)
 
 ### References
 - [[Exodus 12.7|Exodus 12:7]]

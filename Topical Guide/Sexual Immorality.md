@@ -1,6 +1,6 @@
 # Sexual Immorality
 
-[Sexual Immorality](https://www.churchofjesuschrist.org/study/scriptures/tg/Sexual-Immorality?lang=eng)
+[Sexual Immorality](https://churchofjesuschrist.org/study/scriptures/tg/sexual-immorality?lang=eng)
 
 ### References
 - [[Genesis 19.32|Genesis 19:32]]

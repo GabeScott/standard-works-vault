@@ -1,6 +1,6 @@
 # Unjust
 
-[Unjust](https://www.churchofjesuschrist.org/study/scriptures/tg/Unjust?lang=eng)
+[Unjust](https://churchofjesuschrist.org/study/scriptures/tg/unjust?lang=eng)
 
 ### References
 - [[Proverbs 11.7|Proverbs 11:7]]

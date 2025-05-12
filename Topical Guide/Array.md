@@ -1,6 +1,6 @@
 # Array
 
-[Array](https://www.churchofjesuschrist.org/study/scriptures/tg/Array?lang=eng)
+[Array](https://churchofjesuschrist.org/study/scriptures/tg/array?lang=eng)
 
 ### References
 - [[2 Samuel 10.9|2 Samuel 10:9]]

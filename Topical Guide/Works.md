@@ -1,6 +1,6 @@
 # Works
 
-[Works](https://www.churchofjesuschrist.org/study/scriptures/tg/Works?lang=eng)
+[Works](https://churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
 
 ### References
 - [[1 Chronicles 16.12|1 Chronicles 16:12]]

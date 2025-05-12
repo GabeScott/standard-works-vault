@@ -1,6 +1,6 @@
 # Wave
 
-[Wave](https://www.churchofjesuschrist.org/study/scriptures/tg/Wave?lang=eng)
+[Wave](https://churchofjesuschrist.org/study/scriptures/tg/wave?lang=eng)
 
 ### References
 - [[Exodus 29.24|Exodus 29:24]]

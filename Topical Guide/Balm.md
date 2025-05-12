@@ -1,6 +1,6 @@
 # Balm
 
-[Balm](https://www.churchofjesuschrist.org/study/scriptures/tg/Balm?lang=eng)
+[Balm](https://churchofjesuschrist.org/study/scriptures/tg/balm?lang=eng)
 
 ### References
 - [[Jeremiah 51.8|Jeremiah 51:8]]

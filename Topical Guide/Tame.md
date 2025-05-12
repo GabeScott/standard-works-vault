@@ -1,6 +1,6 @@
 # Tame
 
-[Tame](https://www.churchofjesuschrist.org/study/scriptures/tg/Tame?lang=eng)
+[Tame](https://churchofjesuschrist.org/study/scriptures/tg/tame?lang=eng)
 
 ### References
 - [[Mark 5.4|Mark 5:4]]

@@ -1,6 +1,6 @@
 # Edge
 
-[Edge](https://www.churchofjesuschrist.org/study/scriptures/tg/Edge?lang=eng)
+[Edge](https://churchofjesuschrist.org/study/scriptures/tg/edge?lang=eng)
 
 ### References
 - [[Ecclesiastes 10.10|Ecclesiastes 10:10]]

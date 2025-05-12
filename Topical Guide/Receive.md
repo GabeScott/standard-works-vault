@@ -1,6 +1,6 @@
 # Receive
 
-[Receive](https://www.churchofjesuschrist.org/study/scriptures/tg/Receive?lang=eng)
+[Receive](https://churchofjesuschrist.org/study/scriptures/tg/receive?lang=eng)
 
 ### References
 - [[Psalms 49.15|Psalms 49:15]]

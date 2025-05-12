@@ -1,6 +1,6 @@
 # Testimony
 
-[Testimony](https://www.churchofjesuschrist.org/study/scriptures/tg/Testimony?lang=eng)
+[Testimony](https://churchofjesuschrist.org/study/scriptures/tg/holy-ghost-source-of-testimony?lang=eng)
 
 ### References
 - [[Deuteronomy 6.20|Deuteronomy 6:20]]

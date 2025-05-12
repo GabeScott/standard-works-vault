@@ -1,6 +1,6 @@
 # Singleness
 
-[Singleness](https://www.churchofjesuschrist.org/study/scriptures/tg/Singleness?lang=eng)
+[Singleness](https://churchofjesuschrist.org/study/scriptures/tg/singleness?lang=eng)
 
 ### References
 - [[Acts 2.46|Acts 2:46]]

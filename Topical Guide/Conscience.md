@@ -1,6 +1,6 @@
 # Conscience
 
-[Conscience](https://www.churchofjesuschrist.org/study/scriptures/tg/Conscience?lang=eng)
+[Conscience](https://churchofjesuschrist.org/study/scriptures/tg/conscience?lang=eng)
 
 ### References
 - [[Genesis 3.22|Genesis 3:22]]

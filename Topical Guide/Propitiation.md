@@ -1,6 +1,6 @@
 # Propitiation
 
-[Propitiation](https://www.churchofjesuschrist.org/study/scriptures/tg/Propitiation?lang=eng)
+[Propitiation](https://churchofjesuschrist.org/study/scriptures/tg/propitiation?lang=eng)
 
 ### References
 - [[Romans 3.25|Romans 3:25]]

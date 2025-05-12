@@ -1,6 +1,6 @@
 # Innocence, Innocent
 
-[Innocence, Innocent](https://www.churchofjesuschrist.org/study/scriptures/tg/Innocence-Innocent?lang=eng)
+[Innocence, Innocent](https://churchofjesuschrist.org/study/scriptures/tg/innocence?lang=eng)
 
 ### References
 - [[Exodus 23.7|Exodus 23:7]]

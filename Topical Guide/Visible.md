@@ -1,6 +1,6 @@
 # Visible
 
-[Visible](https://www.churchofjesuschrist.org/study/scriptures/tg/Visible?lang=eng)
+[Visible](https://churchofjesuschrist.org/study/scriptures/tg/visible?lang=eng)
 
 ### References
 - [[Colossians 1.16|Colossians 1:16]]

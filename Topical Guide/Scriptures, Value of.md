@@ -1,6 +1,6 @@
 # Scriptures, Value of
 
-[Scriptures, Value of](https://www.churchofjesuschrist.org/study/scriptures/tg/Scriptures-Value-of?lang=eng)
+[Scriptures, Value of](https://churchofjesuschrist.org/study/scriptures/tg/scriptures-value-of?lang=eng)
 
 ### References
 - [[Deuteronomy 17.19|Deuteronomy 17:19]]

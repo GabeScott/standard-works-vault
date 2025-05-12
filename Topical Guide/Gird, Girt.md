@@ -1,6 +1,6 @@
 # Gird, Girt
 
-[Gird, Girt](https://www.churchofjesuschrist.org/study/scriptures/tg/Gird-Girt?lang=eng)
+[Gird, Girt](https://churchofjesuschrist.org/study/scriptures/tg/gird?lang=eng)
 
 ### References
 - [[Exodus 29.9|Exodus 29:9]]

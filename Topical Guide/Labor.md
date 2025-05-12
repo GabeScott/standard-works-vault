@@ -1,6 +1,6 @@
 # Labor
 
-[Labor](https://www.churchofjesuschrist.org/study/scriptures/tg/Labor?lang=eng)
+[Labor](https://churchofjesuschrist.org/study/scriptures/tg/labor?lang=eng)
 
 ### References
 - [[Exodus 20.9|Exodus 20:9]]

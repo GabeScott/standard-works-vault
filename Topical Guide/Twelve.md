@@ -1,6 +1,6 @@
 # Twelve
 
-[Twelve](https://www.churchofjesuschrist.org/study/scriptures/tg/Twelve?lang=eng)
+[Twelve](https://churchofjesuschrist.org/study/scriptures/tg/council-of-the-twelve?lang=eng)
 
 ### References
 - [[Genesis 17.20|Genesis 17:20]]

@@ -1,6 +1,6 @@
 # Special
 
-[Special](https://www.churchofjesuschrist.org/study/scriptures/tg/Special?lang=eng)
+[Special](https://churchofjesuschrist.org/study/scriptures/tg/special?lang=eng)
 
 ### References
 - [[Deuteronomy 7.6|Deuteronomy 7:6]]

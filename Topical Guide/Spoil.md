@@ -1,6 +1,6 @@
 # Spoil
 
-[Spoil](https://www.churchofjesuschrist.org/study/scriptures/tg/Spoil?lang=eng)
+[Spoil](https://churchofjesuschrist.org/study/scriptures/tg/spoil?lang=eng)
 
 ### References
 - [[Genesis 34.27|Genesis 34:27]]

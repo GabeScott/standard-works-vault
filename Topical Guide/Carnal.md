@@ -1,6 +1,6 @@
 # Carnal
 
-[Carnal](https://www.churchofjesuschrist.org/study/scriptures/tg/Carnal?lang=eng)
+[Carnal](https://churchofjesuschrist.org/study/scriptures/tg/carnal?lang=eng)
 
 ### References
 - [[Romans 7.14|Romans 7:14]]

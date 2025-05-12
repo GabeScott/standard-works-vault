@@ -1,6 +1,6 @@
 # Despise
 
-[Despise](https://www.churchofjesuschrist.org/study/scriptures/tg/Despise?lang=eng)
+[Despise](https://churchofjesuschrist.org/study/scriptures/tg/despise?lang=eng)
 
 ### References
 - [[Genesis 16.4|Genesis 16:4]]

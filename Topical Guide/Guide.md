@@ -1,6 +1,6 @@
 # Guide
 
-[Guide](https://www.churchofjesuschrist.org/study/scriptures/tg/Guide?lang=eng)
+[Guide](https://churchofjesuschrist.org/study/scriptures/tg/guide?lang=eng)
 
 ### References
 - [[Genesis 48.14|Genesis 48:14]]

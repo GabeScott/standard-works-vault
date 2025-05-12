@@ -1,6 +1,6 @@
 # Accursed
 
-[Accursed](https://www.churchofjesuschrist.org/study/scriptures/tg/Accursed?lang=eng)
+[Accursed](https://churchofjesuschrist.org/study/scriptures/tg/accursed?lang=eng)
 
 ### References
 - [[Deuteronomy 21.23|Deuteronomy 21:23]]

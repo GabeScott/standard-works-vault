@@ -1,6 +1,6 @@
 # Palace
 
-[Palace](https://www.churchofjesuschrist.org/study/scriptures/tg/Palace?lang=eng)
+[Palace](https://churchofjesuschrist.org/study/scriptures/tg/palace?lang=eng)
 
 ### References
 - [[Isaiah 25.2|Isaiah 25:2]]

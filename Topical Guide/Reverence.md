@@ -1,6 +1,6 @@
 # Reverence
 
-[Reverence](https://www.churchofjesuschrist.org/study/scriptures/tg/Reverence?lang=eng)
+[Reverence](https://churchofjesuschrist.org/study/scriptures/tg/reverence?lang=eng)
 
 ### References
 - [[Genesis 20.11|Genesis 20:11]]

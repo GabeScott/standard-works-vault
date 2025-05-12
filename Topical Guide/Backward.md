@@ -1,6 +1,6 @@
 # Backward
 
-[Backward](https://www.churchofjesuschrist.org/study/scriptures/tg/Backward?lang=eng)
+[Backward](https://churchofjesuschrist.org/study/scriptures/tg/backward?lang=eng)
 
 ### References
 - [[2 Kings 20.10|2 Kings 20:10]]

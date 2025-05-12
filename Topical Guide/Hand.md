@@ -1,6 +1,6 @@
 # Hand
 
-[Hand](https://www.churchofjesuschrist.org/study/scriptures/tg/Hand?lang=eng)
+[Hand](https://churchofjesuschrist.org/study/scriptures/tg/hand?lang=eng)
 
 ### References
 - [[Genesis 27.22|Genesis 27:22]]

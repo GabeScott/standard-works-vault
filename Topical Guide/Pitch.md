@@ -1,6 +1,6 @@
 # Pitch
 
-[Pitch](https://www.churchofjesuschrist.org/study/scriptures/tg/Pitch?lang=eng)
+[Pitch](https://churchofjesuschrist.org/study/scriptures/tg/pitch?lang=eng)
 
 ### References
 - [[Exodus 33.7|Exodus 33:7]]

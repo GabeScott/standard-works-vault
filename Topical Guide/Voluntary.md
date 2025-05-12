@@ -1,6 +1,6 @@
 # Voluntary
 
-[Voluntary](https://www.churchofjesuschrist.org/study/scriptures/tg/Voluntary?lang=eng)
+[Voluntary](https://churchofjesuschrist.org/study/scriptures/tg/voluntary?lang=eng)
 
 ### References
 - [[Leviticus 1.3|Leviticus 1:3]]

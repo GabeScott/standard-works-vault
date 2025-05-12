@@ -1,6 +1,6 @@
 # Habitation
 
-[Habitation](https://www.churchofjesuschrist.org/study/scriptures/tg/Habitation?lang=eng)
+[Habitation](https://churchofjesuschrist.org/study/scriptures/tg/habitation?lang=eng)
 
 ### References
 - [[Genesis 49.5|Genesis 49:5]]

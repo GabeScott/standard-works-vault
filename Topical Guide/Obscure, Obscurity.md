@@ -1,6 +1,6 @@
 # Obscure, Obscurity
 
-[Obscure, Obscurity](https://www.churchofjesuschrist.org/study/scriptures/tg/Obscure-Obscurity?lang=eng)
+[Obscure, Obscurity](https://churchofjesuschrist.org/study/scriptures/tg/obscure?lang=eng)
 
 ### References
 - [[Isaiah 29.18|Isaiah 29:18]]

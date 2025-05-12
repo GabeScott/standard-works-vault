@@ -1,6 +1,6 @@
 # Hide, Hid, Hidden
 
-[Hide, Hid, Hidden](https://www.churchofjesuschrist.org/study/scriptures/tg/Hide-Hid-Hidden?lang=eng)
+[Hide, Hid, Hidden](https://churchofjesuschrist.org/study/scriptures/tg/hide?lang=eng)
 
 ### References
 - [[Genesis 3.10|Genesis 3:10]]

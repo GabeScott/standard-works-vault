@@ -1,6 +1,6 @@
 # Unfaithful, Unfaithfully
 
-[Unfaithful, Unfaithfully](https://www.churchofjesuschrist.org/study/scriptures/tg/Unfaithful-Unfaithfully?lang=eng)
+[Unfaithful, Unfaithfully](https://churchofjesuschrist.org/study/scriptures/tg/unfaithful?lang=eng)
 
 ### References
 - [[Psalms 78.57|Psalms 78:57]]

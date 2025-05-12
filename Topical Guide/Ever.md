@@ -1,6 +1,6 @@
 # Ever
 
-[Ever](https://www.churchofjesuschrist.org/study/scriptures/tg/Ever?lang=eng)
+[Ever](https://churchofjesuschrist.org/study/scriptures/tg/ever?lang=eng)
 
 ### References
 - [[Psalms 146.10|Psalms 146:10]]

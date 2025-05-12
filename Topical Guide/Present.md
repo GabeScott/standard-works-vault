@@ -1,6 +1,6 @@
 # Present
 
-[Present](https://www.churchofjesuschrist.org/study/scriptures/tg/Present?lang=eng)
+[Present](https://churchofjesuschrist.org/study/scriptures/tg/present-adjective-adverb?lang=eng)
 
 ### References
 - [[Genesis 32.13|Genesis 32:13]]

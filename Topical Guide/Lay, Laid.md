@@ -1,6 +1,6 @@
 # Lay, Laid
 
-[Lay, Laid](https://www.churchofjesuschrist.org/study/scriptures/tg/Lay-Laid?lang=eng)
+[Lay, Laid](https://churchofjesuschrist.org/study/scriptures/tg/lay?lang=eng)
 
 ### References
 - [[Genesis 22.12|Genesis 22:12]]

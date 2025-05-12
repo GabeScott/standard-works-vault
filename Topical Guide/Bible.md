@@ -1,6 +1,6 @@
 # Bible
 
-[Bible](https://www.churchofjesuschrist.org/study/scriptures/tg/Bible?lang=eng)
+[Bible](https://churchofjesuschrist.org/study/scriptures/tg/bible?lang=eng)
 
 ### References
 - [[2 Nephi 29.10|2 Nephi 29:10]]

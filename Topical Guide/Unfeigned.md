@@ -1,6 +1,6 @@
 # Unfeigned
 
-[Unfeigned](https://www.churchofjesuschrist.org/study/scriptures/tg/Unfeigned?lang=eng)
+[Unfeigned](https://churchofjesuschrist.org/study/scriptures/tg/unfeigned?lang=eng)
 
 ### References
 - [[1 Timothy 1.5|1 Timothy 1:5]]

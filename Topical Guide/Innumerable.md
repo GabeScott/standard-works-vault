@@ -1,6 +1,6 @@
 # Innumerable
 
-[Innumerable](https://www.churchofjesuschrist.org/study/scriptures/tg/Innumerable?lang=eng)
+[Innumerable](https://churchofjesuschrist.org/study/scriptures/tg/innumerable?lang=eng)
 
 ### References
 - [[Hebrews 11.12|Hebrews 11:12]]

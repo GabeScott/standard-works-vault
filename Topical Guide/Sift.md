@@ -1,6 +1,6 @@
 # Sift
 
-[Sift](https://www.churchofjesuschrist.org/study/scriptures/tg/Sift?lang=eng)
+[Sift](https://churchofjesuschrist.org/study/scriptures/tg/sift?lang=eng)
 
 ### References
 - [[Isaiah 30.28|Isaiah 30:28]]

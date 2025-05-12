@@ -1,6 +1,6 @@
 # Pain
 
-[Pain](https://www.churchofjesuschrist.org/study/scriptures/tg/Pain?lang=eng)
+[Pain](https://churchofjesuschrist.org/study/scriptures/tg/pain?lang=eng)
 
 ### References
 - [[Psalms 116.3|Psalms 116:3]]

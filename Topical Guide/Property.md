@@ -1,6 +1,6 @@
 # Property
 
-[Property](https://www.churchofjesuschrist.org/study/scriptures/tg/Property?lang=eng)
+[Property](https://churchofjesuschrist.org/study/scriptures/tg/property?lang=eng)
 
 ### References
 - [[1 Nephi 3.25|1 Nephi 3:25]]

@@ -1,6 +1,6 @@
 # Yea
 
-[Yea](https://www.churchofjesuschrist.org/study/scriptures/tg/Yea?lang=eng)
+[Yea](https://churchofjesuschrist.org/study/scriptures/tg/yea?lang=eng)
 
 ### References
 - [[Matthew 5.37|Matthew 5:37]]

@@ -1,6 +1,6 @@
 # Child
 
-[Child](https://www.churchofjesuschrist.org/study/scriptures/tg/Child?lang=eng)
+[Child](https://churchofjesuschrist.org/study/scriptures/tg/child?lang=eng)
 
 ### References
 - [[Exodus 2.2|Exodus 2:2]]

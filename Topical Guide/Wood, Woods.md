@@ -1,6 +1,6 @@
 # Wood, Woods
 
-[Wood, Woods](https://www.churchofjesuschrist.org/study/scriptures/tg/Wood-Woods?lang=eng)
+[Wood, Woods](https://churchofjesuschrist.org/study/scriptures/tg/wood?lang=eng)
 
 ### References
 - [[Genesis 22.3|Genesis 22:3]]

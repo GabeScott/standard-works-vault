@@ -1,6 +1,6 @@
 # Confession
 
-[Confession](https://www.churchofjesuschrist.org/study/scriptures/tg/Confession?lang=eng)
+[Confession](https://churchofjesuschrist.org/study/scriptures/tg/confession?lang=eng)
 
 ### References
 - [[Leviticus 16.21|Leviticus 16:21]]

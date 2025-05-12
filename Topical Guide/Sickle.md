@@ -1,6 +1,6 @@
 # Sickle
 
-[Sickle](https://www.churchofjesuschrist.org/study/scriptures/tg/Sickle?lang=eng)
+[Sickle](https://churchofjesuschrist.org/study/scriptures/tg/sickle?lang=eng)
 
 ### References
 - [[Joel 3.13|Joel 3:13]]

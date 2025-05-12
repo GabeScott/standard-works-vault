@@ -1,6 +1,6 @@
 # Lord of Hosts
 
-[Lord of Hosts](https://www.churchofjesuschrist.org/study/scriptures/tg/Lord-of-Hosts?lang=eng)
+[Lord of Hosts](https://churchofjesuschrist.org/study/scriptures/tg/lord-of-hosts?lang=eng)
 
 ### References
 - [[1 Samuel 17.45|1 Samuel 17:45]]

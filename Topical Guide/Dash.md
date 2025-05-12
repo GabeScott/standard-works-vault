@@ -1,6 +1,6 @@
 # Dash
 
-[Dash](https://www.churchofjesuschrist.org/study/scriptures/tg/Dash?lang=eng)
+[Dash](https://churchofjesuschrist.org/study/scriptures/tg/dash?lang=eng)
 
 ### References
 - [[Psalms 2.9|Psalms 2:9]]

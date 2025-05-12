@@ -1,6 +1,6 @@
 # Two
 
-[Two](https://www.churchofjesuschrist.org/study/scriptures/tg/Two?lang=eng)
+[Two](https://churchofjesuschrist.org/study/scriptures/tg/two?lang=eng)
 
 ### References
 - [[Genesis 25.23|Genesis 25:23]]

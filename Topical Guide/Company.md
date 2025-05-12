@@ -1,6 +1,6 @@
 # Company
 
-[Company](https://www.churchofjesuschrist.org/study/scriptures/tg/Company?lang=eng)
+[Company](https://churchofjesuschrist.org/study/scriptures/tg/company?lang=eng)
 
 ### References
 - [[Numbers 14.7|Numbers 14:7]]

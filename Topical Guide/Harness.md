@@ -1,6 +1,6 @@
 # Harness
 
-[Harness](https://www.churchofjesuschrist.org/study/scriptures/tg/Harness?lang=eng)
+[Harness](https://churchofjesuschrist.org/study/scriptures/tg/harness?lang=eng)
 
 ### References
 - [[Exodus 13.18|Exodus 13:18]]

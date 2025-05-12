@@ -1,6 +1,6 @@
 # Declare
 
-[Declare](https://www.churchofjesuschrist.org/study/scriptures/tg/Declare?lang=eng)
+[Declare](https://churchofjesuschrist.org/study/scriptures/tg/declare?lang=eng)
 
 ### References
 - [[Exodus 9.16|Exodus 9:16]]

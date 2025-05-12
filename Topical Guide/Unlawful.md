@@ -1,6 +1,6 @@
 # Unlawful
 
-[Unlawful](https://www.churchofjesuschrist.org/study/scriptures/tg/Unlawful?lang=eng)
+[Unlawful](https://churchofjesuschrist.org/study/scriptures/tg/unlawful?lang=eng)
 
 ### References
 - [[Acts 10.28|Acts 10:28]]

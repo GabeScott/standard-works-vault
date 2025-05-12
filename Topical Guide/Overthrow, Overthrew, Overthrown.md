@@ -1,6 +1,6 @@
 # Overthrow, Overthrew, Overthrown
 
-[Overthrow, Overthrew, Overthrown](https://www.churchofjesuschrist.org/study/scriptures/tg/Overthrow-Overthrew-Overthrown?lang=eng)
+[Overthrow, Overthrew, Overthrown](https://churchofjesuschrist.org/study/scriptures/tg/overthrow?lang=eng)
 
 ### References
 - [[Exodus 14.27|Exodus 14:27]]

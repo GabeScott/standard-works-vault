@@ -1,6 +1,6 @@
 # Fear
 
-[Fear](https://www.churchofjesuschrist.org/study/scriptures/tg/Fear?lang=eng)
+[Fear](https://churchofjesuschrist.org/study/scriptures/tg/fear?lang=eng)
 
 ### References
 - [[Genesis 26.24|Genesis 26:24]]

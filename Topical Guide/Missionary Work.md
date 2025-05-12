@@ -1,6 +1,6 @@
 # Missionary Work
 
-[Missionary Work](https://www.churchofjesuschrist.org/study/scriptures/tg/Missionary-Work?lang=eng)
+[Missionary Work](https://churchofjesuschrist.org/study/scriptures/tg/missionary-work?lang=eng)
 
 ### References
 - [[Genesis 12.3|Genesis 12:3]]

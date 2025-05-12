@@ -1,6 +1,6 @@
 # Accept
 
-[Accept](https://www.churchofjesuschrist.org/study/scriptures/tg/Accept?lang=eng)
+[Accept](https://churchofjesuschrist.org/study/scriptures/tg/accept?lang=eng)
 
 ### References
 - [[Genesis 4.7|Genesis 4:7]]

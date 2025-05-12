@@ -1,6 +1,6 @@
 # Bush
 
-[Bush](https://www.churchofjesuschrist.org/study/scriptures/tg/Bush?lang=eng)
+[Bush](https://churchofjesuschrist.org/study/scriptures/tg/bush?lang=eng)
 
 ### References
 - [[Exodus 3.2|Exodus 3:2]]

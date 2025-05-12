@@ -1,6 +1,6 @@
 # Protect, Protection
 
-[Protect, Protection](https://www.churchofjesuschrist.org/study/scriptures/tg/Protect-Protection?lang=eng)
+[Protect, Protection](https://churchofjesuschrist.org/study/scriptures/tg/protect?lang=eng)
 
 ### References
 - [[Deuteronomy 32.38|Deuteronomy 32:38]]

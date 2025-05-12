@@ -1,6 +1,6 @@
 # Where
 
-[Where](https://www.churchofjesuschrist.org/study/scriptures/tg/Where?lang=eng)
+[Where](https://churchofjesuschrist.org/study/scriptures/tg/where?lang=eng)
 
 ### References
 - [[Genesis 3.9|Genesis 3:9]]

@@ -1,6 +1,6 @@
 # Falsehood
 
-[Falsehood](https://www.churchofjesuschrist.org/study/scriptures/tg/Falsehood?lang=eng)
+[Falsehood](https://churchofjesuschrist.org/study/scriptures/tg/falsehood?lang=eng)
 
 ### References
 - [[Psalms 144.8|Psalms 144:8]]

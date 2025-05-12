@@ -1,6 +1,6 @@
 # Disposition
 
-[Disposition](https://www.churchofjesuschrist.org/study/scriptures/tg/Disposition?lang=eng)
+[Disposition](https://churchofjesuschrist.org/study/scriptures/tg/disposition?lang=eng)
 
 ### References
 - [[Mosiah 5.2|Mosiah 5:2]]

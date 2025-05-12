@@ -1,6 +1,6 @@
 # Stupor
 
-[Stupor](https://www.churchofjesuschrist.org/study/scriptures/tg/Stupor?lang=eng)
+[Stupor](https://churchofjesuschrist.org/study/scriptures/tg/stupor?lang=eng)
 
 ### References
 - [[Alma 60.7|Alma 60:7]]

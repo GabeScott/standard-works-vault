@@ -1,6 +1,6 @@
 # Razor
 
-[Razor](https://www.churchofjesuschrist.org/study/scriptures/tg/Razor?lang=eng)
+[Razor](https://churchofjesuschrist.org/study/scriptures/tg/razor?lang=eng)
 
 ### References
 - [[Numbers 6.5|Numbers 6:5]]

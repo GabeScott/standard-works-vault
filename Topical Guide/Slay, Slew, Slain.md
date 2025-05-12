@@ -1,6 +1,6 @@
 # Slay, Slew, Slain
 
-[Slay, Slew, Slain](https://www.churchofjesuschrist.org/study/scriptures/tg/Slay-Slew-Slain?lang=eng)
+[Slay, Slew, Slain](https://churchofjesuschrist.org/study/scriptures/tg/slay?lang=eng)
 
 ### References
 - [[Genesis 20.4|Genesis 20:4]]

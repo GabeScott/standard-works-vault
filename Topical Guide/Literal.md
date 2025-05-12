@@ -1,6 +1,6 @@
 # Literal
 
-[Literal](https://www.churchofjesuschrist.org/study/scriptures/tg/Literal?lang=eng)
+[Literal](https://churchofjesuschrist.org/study/scriptures/tg/literal?lang=eng)
 
 ### References
 - [[D&C 107.16|D&C 107:16]]

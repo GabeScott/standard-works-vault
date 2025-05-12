@@ -1,6 +1,6 @@
 # Lying, Liar, Lie
 
-[Lying, Liar, Lie](https://www.churchofjesuschrist.org/study/scriptures/tg/Lying-Liar-Lie?lang=eng)
+[Lying, Liar, Lie](https://churchofjesuschrist.org/study/scriptures/tg/lying?lang=eng)
 
 ### References
 - [[Leviticus 19.11|Leviticus 19:11]]

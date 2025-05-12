@@ -1,6 +1,6 @@
 # Confirm
 
-[Confirm](https://www.churchofjesuschrist.org/study/scriptures/tg/Confirm?lang=eng)
+[Confirm](https://churchofjesuschrist.org/study/scriptures/tg/confirm?lang=eng)
 
 ### References
 - [[Isaiah 35.3|Isaiah 35:3]]

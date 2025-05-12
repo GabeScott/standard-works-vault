@@ -1,6 +1,6 @@
 # Nurse, Nursing
 
-[Nurse, Nursing](https://www.churchofjesuschrist.org/study/scriptures/tg/Nurse-Nursing?lang=eng)
+[Nurse, Nursing](https://churchofjesuschrist.org/study/scriptures/tg/nurse?lang=eng)
 
 ### References
 - [[Genesis 24.59|Genesis 24:59]]

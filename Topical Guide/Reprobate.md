@@ -1,6 +1,6 @@
 # Reprobate
 
-[Reprobate](https://www.churchofjesuschrist.org/study/scriptures/tg/Reprobate?lang=eng)
+[Reprobate](https://churchofjesuschrist.org/study/scriptures/tg/reprobate?lang=eng)
 
 ### References
 - [[Romans 1.28|Romans 1:28]]

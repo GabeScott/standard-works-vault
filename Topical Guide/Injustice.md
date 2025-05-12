@@ -1,6 +1,6 @@
 # Injustice
 
-[Injustice](https://www.churchofjesuschrist.org/study/scriptures/tg/Injustice?lang=eng)
+[Injustice](https://churchofjesuschrist.org/study/scriptures/tg/injustice?lang=eng)
 
 ### References
 - [[Exodus 23.6|Exodus 23:6]]

@@ -1,6 +1,6 @@
 # Bed
 
-[Bed](https://www.churchofjesuschrist.org/study/scriptures/tg/Bed?lang=eng)
+[Bed](https://churchofjesuschrist.org/study/scriptures/tg/bed?lang=eng)
 
 ### References
 - [[Psalms 139.8|Psalms 139:8]]

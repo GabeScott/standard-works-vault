@@ -1,6 +1,6 @@
 # Pride
 
-[Pride](https://www.churchofjesuschrist.org/study/scriptures/tg/Pride?lang=eng)
+[Pride](https://churchofjesuschrist.org/study/scriptures/tg/pride?lang=eng)
 
 ### References
 - [[Leviticus 26.19|Leviticus 26:19]]

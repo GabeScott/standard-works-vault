@@ -1,6 +1,6 @@
 # Time
 
-[Time](https://www.churchofjesuschrist.org/study/scriptures/tg/Time?lang=eng)
+[Time](https://churchofjesuschrist.org/study/scriptures/tg/leisure-time?lang=eng)
 
 ### References
 - [[Genesis 1.1|Genesis 1:1]]

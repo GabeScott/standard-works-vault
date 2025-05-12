@@ -1,6 +1,6 @@
 # Sickness, Sick
 
-[Sickness, Sick](https://www.churchofjesuschrist.org/study/scriptures/tg/Sickness-Sick?lang=eng)
+[Sickness, Sick](https://churchofjesuschrist.org/study/scriptures/tg/sickness?lang=eng)
 
 ### References
 - [[Exodus 23.25|Exodus 23:25]]

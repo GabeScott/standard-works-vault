@@ -1,6 +1,6 @@
 # Israel, Twelve Tribes of
 
-[Israel, Twelve Tribes of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Twelve-Tribes-of?lang=eng)
+[Israel, Twelve Tribes of](https://churchofjesuschrist.org/study/scriptures/tg/israel-twelve-tribes-of?lang=eng)
 
 ### References
 - [[Genesis 35.22|Genesis 35:22]]

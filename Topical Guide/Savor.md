@@ -1,6 +1,6 @@
 # Savor
 
-[Savor](https://www.churchofjesuschrist.org/study/scriptures/tg/Savor?lang=eng)
+[Savor](https://churchofjesuschrist.org/study/scriptures/tg/savor?lang=eng)
 
 ### References
 - [[Genesis 8.21|Genesis 8:21]]

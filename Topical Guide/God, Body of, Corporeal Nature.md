@@ -1,6 +1,6 @@
 # God, Body of, Corporeal Nature
 
-[God, Body of, Corporeal Nature](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Body-of-Corporeal-Nature?lang=eng)
+[God, Body of, Corporeal Nature](https://churchofjesuschrist.org/study/scriptures/tg/god-body-of-corporeal-nature?lang=eng)
 
 ### References
 - [[Genesis 1.27|Genesis 1:27]]

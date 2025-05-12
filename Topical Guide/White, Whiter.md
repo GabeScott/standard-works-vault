@@ -1,6 +1,6 @@
 # White, Whiter
 
-[White, Whiter](https://www.churchofjesuschrist.org/study/scriptures/tg/White-Whiter?lang=eng)
+[White, Whiter](https://churchofjesuschrist.org/study/scriptures/tg/white?lang=eng)
 
 ### References
 - [[Leviticus 13.10|Leviticus 13:10]]

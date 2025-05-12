@@ -1,6 +1,6 @@
 # Only
 
-[Only](https://www.churchofjesuschrist.org/study/scriptures/tg/Only?lang=eng)
+[Only](https://churchofjesuschrist.org/study/scriptures/tg/only?lang=eng)
 
 ### References
 - [[Genesis 22.2|Genesis 22:2]]

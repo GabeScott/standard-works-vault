@@ -1,6 +1,6 @@
 # Unsearchable
 
-[Unsearchable](https://www.churchofjesuschrist.org/study/scriptures/tg/Unsearchable?lang=eng)
+[Unsearchable](https://churchofjesuschrist.org/study/scriptures/tg/unsearchable?lang=eng)
 
 ### References
 - [[Romans 11.33|Romans 11:33]]

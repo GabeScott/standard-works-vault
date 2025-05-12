@@ -1,6 +1,6 @@
 # Corn
 
-[Corn](https://www.churchofjesuschrist.org/study/scriptures/tg/Corn?lang=eng)
+[Corn](https://churchofjesuschrist.org/study/scriptures/tg/corn?lang=eng)
 
 ### References
 - [[Genesis 27.28|Genesis 27:28]]

@@ -1,6 +1,6 @@
 # Find, Found
 
-[Find, Found](https://www.churchofjesuschrist.org/study/scriptures/tg/Find-Found?lang=eng)
+[Find, Found](https://churchofjesuschrist.org/study/scriptures/tg/find?lang=eng)
 
 ### References
 - [[Deuteronomy 4.29|Deuteronomy 4:29]]

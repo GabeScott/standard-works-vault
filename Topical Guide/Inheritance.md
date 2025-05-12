@@ -1,6 +1,6 @@
 # Inheritance
 
-[Inheritance](https://www.churchofjesuschrist.org/study/scriptures/tg/Inheritance?lang=eng)
+[Inheritance](https://churchofjesuschrist.org/study/scriptures/tg/inheritance?lang=eng)
 
 ### References
 - [[Genesis 31.14|Genesis 31:14]]

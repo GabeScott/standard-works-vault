@@ -1,6 +1,6 @@
 # Trumpet
 
-[Trumpet](https://www.churchofjesuschrist.org/study/scriptures/tg/Trumpet?lang=eng)
+[Trumpet](https://churchofjesuschrist.org/study/scriptures/tg/trumpet?lang=eng)
 
 ### References
 - [[Exodus 19.16|Exodus 19:16]]

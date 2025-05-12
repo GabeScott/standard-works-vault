@@ -1,6 +1,6 @@
 # Horn
 
-[Horn](https://www.churchofjesuschrist.org/study/scriptures/tg/Horn?lang=eng)
+[Horn](https://churchofjesuschrist.org/study/scriptures/tg/horn?lang=eng)
 
 ### References
 - [[Genesis 22.13|Genesis 22:13]]

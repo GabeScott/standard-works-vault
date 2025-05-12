@@ -1,6 +1,6 @@
 # Unprofitable
 
-[Unprofitable](https://www.churchofjesuschrist.org/study/scriptures/tg/Unprofitable?lang=eng)
+[Unprofitable](https://churchofjesuschrist.org/study/scriptures/tg/unprofitable?lang=eng)
 
 ### References
 - [[Matthew 25.30|Matthew 25:30]]

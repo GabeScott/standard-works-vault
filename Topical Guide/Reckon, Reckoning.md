@@ -1,6 +1,6 @@
 # Reckon, Reckoning
 
-[Reckon, Reckoning](https://www.churchofjesuschrist.org/study/scriptures/tg/Reckon-Reckoning?lang=eng)
+[Reckon, Reckoning](https://churchofjesuschrist.org/study/scriptures/tg/reckon?lang=eng)
 
 ### References
 - [[2 Kings 22.7|2 Kings 22:7]]

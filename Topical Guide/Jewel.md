@@ -1,6 +1,6 @@
 # Jewel
 
-[Jewel](https://www.churchofjesuschrist.org/study/scriptures/tg/Jewel?lang=eng)
+[Jewel](https://churchofjesuschrist.org/study/scriptures/tg/jewel?lang=eng)
 
 ### References
 - [[Genesis 24.53|Genesis 24:53]]

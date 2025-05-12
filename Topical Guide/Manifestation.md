@@ -1,6 +1,6 @@
 # Manifestation
 
-[Manifestation](https://www.churchofjesuschrist.org/study/scriptures/tg/Manifestation?lang=eng)
+[Manifestation](https://churchofjesuschrist.org/study/scriptures/tg/manifestation?lang=eng)
 
 ### References
 - [[Romans 8.19|Romans 8:19]]

@@ -1,6 +1,6 @@
 # Cool
 
-[Cool](https://www.churchofjesuschrist.org/study/scriptures/tg/Cool?lang=eng)
+[Cool](https://churchofjesuschrist.org/study/scriptures/tg/cool?lang=eng)
 
 ### References
 - [[Genesis 3.8|Genesis 3:8]]

@@ -1,6 +1,6 @@
 # God, Love of
 
-[God, Love of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Love-of?lang=eng)
+[God, Love of](https://churchofjesuschrist.org/study/scriptures/tg/god-love-of?lang=eng)
 
 ### References
 - [[Deuteronomy 10.15|Deuteronomy 10:15]]

@@ -1,6 +1,6 @@
 # Priest, False
 
-[Priest, False](https://www.churchofjesuschrist.org/study/scriptures/tg/Priest-False?lang=eng)
+[Priest, False](https://churchofjesuschrist.org/study/scriptures/tg/priest-false?lang=eng)
 
 ### References
 - [[1 Samuel 5.5|1 Samuel 5:5]]

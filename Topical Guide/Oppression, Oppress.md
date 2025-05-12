@@ -1,6 +1,6 @@
 # Oppression, Oppress
 
-[Oppression, Oppress](https://www.churchofjesuschrist.org/study/scriptures/tg/Oppression-Oppress?lang=eng)
+[Oppression, Oppress](https://churchofjesuschrist.org/study/scriptures/tg/oppression?lang=eng)
 
 ### References
 - [[Exodus 22.21|Exodus 22:21]]

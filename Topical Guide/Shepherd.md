@@ -1,6 +1,6 @@
 # Shepherd
 
-[Shepherd](https://www.churchofjesuschrist.org/study/scriptures/tg/Shepherd?lang=eng)
+[Shepherd](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-good-shepherd?lang=eng)
 
 ### References
 - [[Genesis 47.3|Genesis 47:3]]

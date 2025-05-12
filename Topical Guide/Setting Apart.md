@@ -1,6 +1,6 @@
 # Setting Apart
 
-[Setting Apart](https://www.churchofjesuschrist.org/study/scriptures/tg/Setting-Apart?lang=eng)
+[Setting Apart](https://churchofjesuschrist.org/study/scriptures/tg/setting-apart?lang=eng)
 
 ### References
 - [[Numbers 6.21|Numbers 6:21]]

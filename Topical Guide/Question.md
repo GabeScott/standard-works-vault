@@ -1,6 +1,6 @@
 # Question
 
-[Question](https://www.churchofjesuschrist.org/study/scriptures/tg/Question?lang=eng)
+[Question](https://churchofjesuschrist.org/study/scriptures/tg/question?lang=eng)
 
 ### References
 - [[1 Kings 10.1|1 Kings 10:1]]

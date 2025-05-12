@@ -1,6 +1,6 @@
 # Marriage, Fatherhood
 
-[Marriage, Fatherhood](https://www.churchofjesuschrist.org/study/scriptures/tg/Marriage-Fatherhood?lang=eng)
+[Marriage, Fatherhood](https://churchofjesuschrist.org/study/scriptures/tg/marriage-fatherhood?lang=eng)
 
 ### References
 - [[Genesis 1.28|Genesis 1:28]]

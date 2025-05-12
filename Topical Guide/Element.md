@@ -1,6 +1,6 @@
 # Element
 
-[Element](https://www.churchofjesuschrist.org/study/scriptures/tg/Element?lang=eng)
+[Element](https://churchofjesuschrist.org/study/scriptures/tg/element?lang=eng)
 
 ### References
 - [[Galatians 4.3|Galatians 4:3]]

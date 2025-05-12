@@ -1,6 +1,6 @@
 # Swell
 
-[Swell](https://www.churchofjesuschrist.org/study/scriptures/tg/Swell?lang=eng)
+[Swell](https://churchofjesuschrist.org/study/scriptures/tg/swell?lang=eng)
 
 ### References
 - [[Numbers 5.21|Numbers 5:21]]

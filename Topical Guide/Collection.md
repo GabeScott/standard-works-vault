@@ -1,6 +1,6 @@
 # Collection
 
-[Collection](https://www.churchofjesuschrist.org/study/scriptures/tg/Collection?lang=eng)
+[Collection](https://churchofjesuschrist.org/study/scriptures/tg/collection?lang=eng)
 
 ### References
 - [[2 Chronicles 24.6|2 Chronicles 24:6]]

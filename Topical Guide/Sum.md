@@ -1,6 +1,6 @@
 # Sum
 
-[Sum](https://www.churchofjesuschrist.org/study/scriptures/tg/Sum?lang=eng)
+[Sum](https://churchofjesuschrist.org/study/scriptures/tg/sum?lang=eng)
 
 ### References
 - [[Exodus 30.12|Exodus 30:12]]

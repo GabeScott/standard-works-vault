@@ -1,6 +1,6 @@
 # Weight
 
-[Weight](https://www.churchofjesuschrist.org/study/scriptures/tg/Weight?lang=eng)
+[Weight](https://churchofjesuschrist.org/study/scriptures/tg/weight?lang=eng)
 
 ### References
 - [[Leviticus 19.36|Leviticus 19:36]]

@@ -1,6 +1,6 @@
 # Lump
 
-[Lump](https://www.churchofjesuschrist.org/study/scriptures/tg/Lump?lang=eng)
+[Lump](https://churchofjesuschrist.org/study/scriptures/tg/lump?lang=eng)
 
 ### References
 - [[Romans 11.16|Romans 11:16]]

@@ -1,6 +1,6 @@
 # Bold
 
-[Bold](https://www.churchofjesuschrist.org/study/scriptures/tg/Bold?lang=eng)
+[Bold](https://churchofjesuschrist.org/study/scriptures/tg/bold?lang=eng)
 
 ### References
 - [[Proverbs 28.1|Proverbs 28:1]]

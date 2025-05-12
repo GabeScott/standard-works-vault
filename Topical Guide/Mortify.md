@@ -1,6 +1,6 @@
 # Mortify
 
-[Mortify](https://www.churchofjesuschrist.org/study/scriptures/tg/Mortify?lang=eng)
+[Mortify](https://churchofjesuschrist.org/study/scriptures/tg/mortify?lang=eng)
 
 ### References
 - [[Romans 8.13|Romans 8:13]]

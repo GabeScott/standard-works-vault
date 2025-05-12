@@ -1,6 +1,6 @@
 # Mantle
 
-[Mantle](https://www.churchofjesuschrist.org/study/scriptures/tg/Mantle?lang=eng)
+[Mantle](https://churchofjesuschrist.org/study/scriptures/tg/mantle?lang=eng)
 
 ### References
 - [[Judges 4.18|Judges 4:18]]

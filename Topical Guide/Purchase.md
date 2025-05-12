@@ -1,6 +1,6 @@
 # Purchase
 
-[Purchase](https://www.churchofjesuschrist.org/study/scriptures/tg/Purchase?lang=eng)
+[Purchase](https://churchofjesuschrist.org/study/scriptures/tg/purchase?lang=eng)
 
 ### References
 - [[Genesis 25.10|Genesis 25:10]]

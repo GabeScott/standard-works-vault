@@ -1,6 +1,6 @@
 # Variableness
 
-[Variableness](https://www.churchofjesuschrist.org/study/scriptures/tg/Variableness?lang=eng)
+[Variableness](https://churchofjesuschrist.org/study/scriptures/tg/variableness?lang=eng)
 
 ### References
 - [[James 1.17|James 1:17]]

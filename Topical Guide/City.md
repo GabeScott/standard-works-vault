@@ -1,6 +1,6 @@
 # City
 
-[City](https://www.churchofjesuschrist.org/study/scriptures/tg/City?lang=eng)
+[City](https://churchofjesuschrist.org/study/scriptures/tg/city?lang=eng)
 
 ### References
 - [[Numbers 35.11|Numbers 35:11]]

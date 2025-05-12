@@ -1,6 +1,6 @@
 # Illuminate
 
-[Illuminate](https://www.churchofjesuschrist.org/study/scriptures/tg/Illuminate?lang=eng)
+[Illuminate](https://churchofjesuschrist.org/study/scriptures/tg/illuminate?lang=eng)
 
 ### References
 - [[Hebrews 10.32|Hebrews 10:32]]

@@ -1,6 +1,6 @@
 # Emblems
 
-[Emblems](https://www.churchofjesuschrist.org/study/scriptures/tg/Emblems?lang=eng)
+[Emblems](https://churchofjesuschrist.org/study/scriptures/tg/emblems?lang=eng)
 
 ### References
 - [[D&C 20.40|D&C 20:40]]

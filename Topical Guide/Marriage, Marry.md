@@ -1,6 +1,6 @@
 # Marriage, Marry
 
-[Marriage, Marry](https://www.churchofjesuschrist.org/study/scriptures/tg/Marriage-Marry?lang=eng)
+[Marriage, Marry](https://churchofjesuschrist.org/study/scriptures/tg/marriage-marry?lang=eng)
 
 ### References
 - [[Genesis 2.24|Genesis 2:24]]

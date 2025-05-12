@@ -1,6 +1,6 @@
 # Strange
 
-[Strange](https://www.churchofjesuschrist.org/study/scriptures/tg/Strange?lang=eng)
+[Strange](https://churchofjesuschrist.org/study/scriptures/tg/strange?lang=eng)
 
 ### References
 - [[Genesis 42.7|Genesis 42:7]]

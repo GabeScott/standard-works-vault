@@ -1,6 +1,6 @@
 # Release
 
-[Release](https://www.churchofjesuschrist.org/study/scriptures/tg/Release?lang=eng)
+[Release](https://churchofjesuschrist.org/study/scriptures/tg/release?lang=eng)
 
 ### References
 - [[Deuteronomy 15.1|Deuteronomy 15:1]]

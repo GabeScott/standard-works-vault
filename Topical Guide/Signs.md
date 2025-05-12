@@ -1,6 +1,6 @@
 # Signs
 
-[Signs](https://www.churchofjesuschrist.org/study/scriptures/tg/Signs?lang=eng)
+[Signs](https://churchofjesuschrist.org/study/scriptures/tg/signs?lang=eng)
 
 ### References
 - [[Genesis 1.14|Genesis 1:14]]

@@ -1,6 +1,6 @@
 # Children of Light
 
-[Children of Light](https://www.churchofjesuschrist.org/study/scriptures/tg/Children-of-Light?lang=eng)
+[Children of Light](https://churchofjesuschrist.org/study/scriptures/tg/children-of-light?lang=eng)
 
 ### References
 - [[Psalms 112.1|Psalms 112:1]]

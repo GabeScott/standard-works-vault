@@ -1,6 +1,6 @@
 # Pleasing
 
-[Pleasing](https://www.churchofjesuschrist.org/study/scriptures/tg/Pleasing?lang=eng)
+[Pleasing](https://churchofjesuschrist.org/study/scriptures/tg/pleasing?lang=eng)
 
 ### References
 - [[Colossians 1.10|Colossians 1:10]]

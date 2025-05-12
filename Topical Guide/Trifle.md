@@ -1,6 +1,6 @@
 # Trifle
 
-[Trifle](https://www.churchofjesuschrist.org/study/scriptures/tg/Trifle?lang=eng)
+[Trifle](https://churchofjesuschrist.org/study/scriptures/tg/trifle?lang=eng)
 
 ### References
 - [[Mosiah 2.9|Mosiah 2:9]]

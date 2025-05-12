@@ -1,6 +1,6 @@
 # Hard, Harder
 
-[Hard, Harder](https://www.churchofjesuschrist.org/study/scriptures/tg/Hard-Harder?lang=eng)
+[Hard, Harder](https://churchofjesuschrist.org/study/scriptures/tg/hard?lang=eng)
 
 ### References
 - [[Genesis 18.14|Genesis 18:14]]

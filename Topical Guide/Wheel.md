@@ -1,6 +1,6 @@
 # Wheel
 
-[Wheel](https://www.churchofjesuschrist.org/study/scriptures/tg/Wheel?lang=eng)
+[Wheel](https://churchofjesuschrist.org/study/scriptures/tg/wheel?lang=eng)
 
 ### References
 - [[Exodus 14.25|Exodus 14:25]]

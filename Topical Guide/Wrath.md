@@ -1,6 +1,6 @@
 # Wrath
 
-[Wrath](https://www.churchofjesuschrist.org/study/scriptures/tg/Wrath?lang=eng)
+[Wrath](https://churchofjesuschrist.org/study/scriptures/tg/wrath?lang=eng)
 
 ### References
 - [[Genesis 49.7|Genesis 49:7]]

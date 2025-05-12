@@ -1,6 +1,6 @@
 # Empty
 
-[Empty](https://www.churchofjesuschrist.org/study/scriptures/tg/Empty?lang=eng)
+[Empty](https://churchofjesuschrist.org/study/scriptures/tg/empty?lang=eng)
 
 ### References
 - [[Exodus 3.21|Exodus 3:21]]

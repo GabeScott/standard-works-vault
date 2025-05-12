@@ -1,6 +1,6 @@
 # Division
 
-[Division](https://www.churchofjesuschrist.org/study/scriptures/tg/Division?lang=eng)
+[Division](https://churchofjesuschrist.org/study/scriptures/tg/division?lang=eng)
 
 ### References
 - [[Exodus 8.23|Exodus 8:23]]

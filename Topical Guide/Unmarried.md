@@ -1,6 +1,6 @@
 # Unmarried
 
-[Unmarried](https://www.churchofjesuschrist.org/study/scriptures/tg/Unmarried?lang=eng)
+[Unmarried](https://churchofjesuschrist.org/study/scriptures/tg/unmarried?lang=eng)
 
 ### References
 - [[1 Corinthians 7.34|1 Corinthians 7:34]]

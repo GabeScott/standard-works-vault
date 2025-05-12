@@ -1,6 +1,6 @@
 # Pastor
 
-[Pastor](https://www.churchofjesuschrist.org/study/scriptures/tg/Pastor?lang=eng)
+[Pastor](https://churchofjesuschrist.org/study/scriptures/tg/pastor?lang=eng)
 
 ### References
 - [[Jeremiah 10.21|Jeremiah 10:21]]

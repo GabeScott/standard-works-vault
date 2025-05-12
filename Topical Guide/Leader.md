@@ -1,6 +1,6 @@
 # Leader
 
-[Leader](https://www.churchofjesuschrist.org/study/scriptures/tg/Leader?lang=eng)
+[Leader](https://churchofjesuschrist.org/study/scriptures/tg/leader?lang=eng)
 
 ### References
 - [[Isaiah 9.16|Isaiah 9:16]]

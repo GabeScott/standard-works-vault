@@ -1,6 +1,6 @@
 # Endless
 
-[Endless](https://www.churchofjesuschrist.org/study/scriptures/tg/Endless?lang=eng)
+[Endless](https://churchofjesuschrist.org/study/scriptures/tg/endless?lang=eng)
 
 ### References
 - [[1 Timothy 1.4|1 Timothy 1:4]]

@@ -1,6 +1,6 @@
 # Assembly for Worship
 
-[Assembly for Worship](https://www.churchofjesuschrist.org/study/scriptures/tg/Assembly-for-Worship?lang=eng)
+[Assembly for Worship](https://churchofjesuschrist.org/study/scriptures/tg/assembly-for-worship?lang=eng)
 
 ### References
 - [[1 Chronicles 29.20|1 Chronicles 29:20]]

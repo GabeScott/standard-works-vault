@@ -1,6 +1,6 @@
 # Errand
 
-[Errand](https://www.churchofjesuschrist.org/study/scriptures/tg/Errand?lang=eng)
+[Errand](https://churchofjesuschrist.org/study/scriptures/tg/errand?lang=eng)
 
 ### References
 - [[Genesis 24.33|Genesis 24:33]]

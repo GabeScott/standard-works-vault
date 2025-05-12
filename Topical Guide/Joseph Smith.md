@@ -1,6 +1,6 @@
 # Joseph Smith
 
-[Joseph Smith](https://www.churchofjesuschrist.org/study/scriptures/tg/Joseph-Smith?lang=eng)
+[Joseph Smith](https://churchofjesuschrist.org/study/scriptures/tg/joseph-smith?lang=eng)
 
 ### References
 - [[Isaiah 11.1|Isaiah 11:1]]

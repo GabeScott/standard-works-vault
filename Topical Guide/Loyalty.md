@@ -1,6 +1,6 @@
 # Loyalty
 
-[Loyalty](https://www.churchofjesuschrist.org/study/scriptures/tg/Loyalty?lang=eng)
+[Loyalty](https://churchofjesuschrist.org/study/scriptures/tg/loyalty?lang=eng)
 
 ### References
 - [[Genesis 18.19|Genesis 18:19]]

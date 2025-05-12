@@ -1,6 +1,6 @@
 # Edification, Edify
 
-[Edification, Edify](https://www.churchofjesuschrist.org/study/scriptures/tg/Edification-Edify?lang=eng)
+[Edification, Edify](https://churchofjesuschrist.org/study/scriptures/tg/edification?lang=eng)
 
 ### References
 - [[Deuteronomy 4.36|Deuteronomy 4:36]]

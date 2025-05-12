@@ -1,6 +1,6 @@
 # Captive
 
-[Captive](https://www.churchofjesuschrist.org/study/scriptures/tg/Captive?lang=eng)
+[Captive](https://churchofjesuschrist.org/study/scriptures/tg/captive?lang=eng)
 
 ### References
 - [[Genesis 14.14|Genesis 14:14]]

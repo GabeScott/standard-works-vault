@@ -1,6 +1,6 @@
 # Whole
 
-[Whole](https://www.churchofjesuschrist.org/study/scriptures/tg/Whole?lang=eng)
+[Whole](https://churchofjesuschrist.org/study/scriptures/tg/whole?lang=eng)
 
 ### References
 - [[Genesis 2.6|Genesis 2:6]]

@@ -1,6 +1,6 @@
 # Physician
 
-[Physician](https://www.churchofjesuschrist.org/study/scriptures/tg/Physician?lang=eng)
+[Physician](https://churchofjesuschrist.org/study/scriptures/tg/physician?lang=eng)
 
 ### References
 - [[Genesis 50.2|Genesis 50:2]]

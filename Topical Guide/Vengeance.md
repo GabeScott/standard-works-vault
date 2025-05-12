@@ -1,6 +1,6 @@
 # Vengeance
 
-[Vengeance](https://www.churchofjesuschrist.org/study/scriptures/tg/Vengeance?lang=eng)
+[Vengeance](https://churchofjesuschrist.org/study/scriptures/tg/vengeance?lang=eng)
 
 ### References
 - [[Genesis 4.15|Genesis 4:15]]

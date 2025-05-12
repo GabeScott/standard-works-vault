@@ -1,6 +1,6 @@
 # Thanks
 
-[Thanks](https://www.churchofjesuschrist.org/study/scriptures/tg/Thanks?lang=eng)
+[Thanks](https://churchofjesuschrist.org/study/scriptures/tg/thanks?lang=eng)
 
 ### References
 - [[2 Samuel 22.50|2 Samuel 22:50]]

@@ -1,6 +1,6 @@
 # Renounce
 
-[Renounce](https://www.churchofjesuschrist.org/study/scriptures/tg/Renounce?lang=eng)
+[Renounce](https://churchofjesuschrist.org/study/scriptures/tg/renounce?lang=eng)
 
 ### References
 - [[2 Corinthians 4.2|2 Corinthians 4:2]]

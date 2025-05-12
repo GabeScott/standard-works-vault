@@ -1,6 +1,6 @@
 # Jesus Christ, Prophecies about
 
-[Jesus Christ, Prophecies about](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Prophecies-about?lang=eng)
+[Jesus Christ, Prophecies about](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-prophecies-about?lang=eng)
 
 ### References
 - [[Genesis 3.15|Genesis 3:15]]

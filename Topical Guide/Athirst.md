@@ -1,6 +1,6 @@
 # Athirst
 
-[Athirst](https://www.churchofjesuschrist.org/study/scriptures/tg/Athirst?lang=eng)
+[Athirst](https://churchofjesuschrist.org/study/scriptures/tg/athirst?lang=eng)
 
 ### References
 - [[Judges 15.18|Judges 15:18]]

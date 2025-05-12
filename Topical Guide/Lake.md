@@ -1,6 +1,6 @@
 # Lake
 
-[Lake](https://www.churchofjesuschrist.org/study/scriptures/tg/Lake?lang=eng)
+[Lake](https://churchofjesuschrist.org/study/scriptures/tg/lake?lang=eng)
 
 ### References
 - [[Luke 8.23|Luke 8:23]]

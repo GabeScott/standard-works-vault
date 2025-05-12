@@ -1,6 +1,6 @@
 # Seem
 
-[Seem](https://www.churchofjesuschrist.org/study/scriptures/tg/Seem?lang=eng)
+[Seem](https://churchofjesuschrist.org/study/scriptures/tg/seem?lang=eng)
 
 ### References
 - [[Genesis 29.20|Genesis 29:20]]

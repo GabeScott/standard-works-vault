@@ -1,6 +1,6 @@
 # Way
 
-[Way](https://www.churchofjesuschrist.org/study/scriptures/tg/Way?lang=eng)
+[Way](https://churchofjesuschrist.org/study/scriptures/tg/way?lang=eng)
 
 ### References
 - [[Genesis 18.19|Genesis 18:19]]

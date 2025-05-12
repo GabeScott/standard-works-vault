@@ -1,6 +1,6 @@
 # Bear, Bare, Born, Borne
 
-[Bear, Bare, Born, Borne](https://www.churchofjesuschrist.org/study/scriptures/tg/Bear-Bare-Born-Borne?lang=eng)
+[Bear, Bare, Born, Borne](https://churchofjesuschrist.org/study/scriptures/tg/bear-verb?lang=eng)
 
 ### References
 - [[Genesis 13.6|Genesis 13:6]]

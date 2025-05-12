@@ -1,6 +1,6 @@
 # Slumber
 
-[Slumber](https://www.churchofjesuschrist.org/study/scriptures/tg/Slumber?lang=eng)
+[Slumber](https://churchofjesuschrist.org/study/scriptures/tg/slumber?lang=eng)
 
 ### References
 - [[Psalms 121.3|Psalms 121:3]]

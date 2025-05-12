@@ -1,6 +1,6 @@
 # Devour
 
-[Devour](https://www.churchofjesuschrist.org/study/scriptures/tg/Devour?lang=eng)
+[Devour](https://churchofjesuschrist.org/study/scriptures/tg/devour?lang=eng)
 
 ### References
 - [[Genesis 37.20|Genesis 37:20]]

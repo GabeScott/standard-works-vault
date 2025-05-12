@@ -1,6 +1,6 @@
 # Officer
 
-[Officer](https://www.churchofjesuschrist.org/study/scriptures/tg/Officer?lang=eng)
+[Officer](https://churchofjesuschrist.org/study/scriptures/tg/officer?lang=eng)
 
 ### References
 - [[Genesis 37.36|Genesis 37:36]]

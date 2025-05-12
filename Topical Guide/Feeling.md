@@ -1,6 +1,6 @@
 # Feeling
 
-[Feeling](https://www.churchofjesuschrist.org/study/scriptures/tg/Feeling?lang=eng)
+[Feeling](https://churchofjesuschrist.org/study/scriptures/tg/feeling?lang=eng)
 
 ### References
 - [[Ephesians 4.19|Ephesians 4:19]]

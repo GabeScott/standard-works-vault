@@ -1,6 +1,6 @@
 # Lament
 
-[Lament](https://www.churchofjesuschrist.org/study/scriptures/tg/Lament?lang=eng)
+[Lament](https://churchofjesuschrist.org/study/scriptures/tg/lament?lang=eng)
 
 ### References
 - [[Judges 11.40|Judges 11:40]]

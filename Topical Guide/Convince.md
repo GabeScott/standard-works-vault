@@ -1,6 +1,6 @@
 # Convince
 
-[Convince](https://www.churchofjesuschrist.org/study/scriptures/tg/Convince?lang=eng)
+[Convince](https://churchofjesuschrist.org/study/scriptures/tg/convince?lang=eng)
 
 ### References
 - [[John 8.46|John 8:46]]

@@ -1,6 +1,6 @@
 # Intent
 
-[Intent](https://www.churchofjesuschrist.org/study/scriptures/tg/Intent?lang=eng)
+[Intent](https://churchofjesuschrist.org/study/scriptures/tg/intent?lang=eng)
 
 ### References
 - [[Hebrews 4.12|Hebrews 4:12]]

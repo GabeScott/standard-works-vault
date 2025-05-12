@@ -1,6 +1,6 @@
 # Value
 
-[Value](https://www.churchofjesuschrist.org/study/scriptures/tg/Value?lang=eng)
+[Value](https://churchofjesuschrist.org/study/scriptures/tg/value?lang=eng)
 
 ### References
 - [[Job 13.4|Job 13:4]]

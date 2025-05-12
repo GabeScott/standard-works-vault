@@ -1,6 +1,6 @@
 # Damsel
 
-[Damsel](https://www.churchofjesuschrist.org/study/scriptures/tg/Damsel?lang=eng)
+[Damsel](https://churchofjesuschrist.org/study/scriptures/tg/damsel?lang=eng)
 
 ### References
 - [[Mark 5.39|Mark 5:39]]

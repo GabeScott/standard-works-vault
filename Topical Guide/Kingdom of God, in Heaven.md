@@ -1,6 +1,6 @@
 # Kingdom of God, in Heaven
 
-[Kingdom of God, in Heaven](https://www.churchofjesuschrist.org/study/scriptures/tg/Kingdom-of-God-in-Heaven?lang=eng)
+[Kingdom of God, in Heaven](https://churchofjesuschrist.org/study/scriptures/tg/kingdom-of-god-in-heaven?lang=eng)
 
 ### References
 - [[Psalms 10.16|Psalms 10:16]]

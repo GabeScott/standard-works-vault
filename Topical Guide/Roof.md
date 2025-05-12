@@ -1,6 +1,6 @@
 # Roof
 
-[Roof](https://www.churchofjesuschrist.org/study/scriptures/tg/Roof?lang=eng)
+[Roof](https://churchofjesuschrist.org/study/scriptures/tg/roof?lang=eng)
 
 ### References
 - [[Genesis 19.8|Genesis 19:8]]

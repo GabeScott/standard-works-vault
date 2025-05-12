@@ -1,6 +1,6 @@
 # Desert
 
-[Desert](https://www.churchofjesuschrist.org/study/scriptures/tg/Desert?lang=eng)
+[Desert](https://churchofjesuschrist.org/study/scriptures/tg/desert?lang=eng)
 
 ### References
 - [[Exodus 19.2|Exodus 19:2]]

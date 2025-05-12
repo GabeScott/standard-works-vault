@@ -1,6 +1,6 @@
 # Pot
 
-[Pot](https://www.churchofjesuschrist.org/study/scriptures/tg/Pot?lang=eng)
+[Pot](https://churchofjesuschrist.org/study/scriptures/tg/pot?lang=eng)
 
 ### References
 - [[Exodus 16.33|Exodus 16:33]]

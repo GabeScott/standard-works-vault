@@ -1,6 +1,6 @@
 # Remove
 
-[Remove](https://www.churchofjesuschrist.org/study/scriptures/tg/Remove?lang=eng)
+[Remove](https://churchofjesuschrist.org/study/scriptures/tg/remove?lang=eng)
 
 ### References
 - [[Deuteronomy 19.14|Deuteronomy 19:14]]

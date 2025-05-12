@@ -1,6 +1,6 @@
 # God, Law of
 
-[God, Law of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Law-of?lang=eng)
+[God, Law of](https://churchofjesuschrist.org/study/scriptures/tg/god-law-of?lang=eng)
 
 ### References
 - [[Ezra 7.25|Ezra 7:25]]

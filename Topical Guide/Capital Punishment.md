@@ -1,6 +1,6 @@
 # Capital Punishment
 
-[Capital Punishment](https://www.churchofjesuschrist.org/study/scriptures/tg/Capital-Punishment?lang=eng)
+[Capital Punishment](https://churchofjesuschrist.org/study/scriptures/tg/capital-punishment?lang=eng)
 
 ### References
 - [[Genesis 42.22|Genesis 42:22]]

@@ -1,6 +1,6 @@
 # Stand, Stood
 
-[Stand, Stood](https://www.churchofjesuschrist.org/study/scriptures/tg/Stand-Stood?lang=eng)
+[Stand, Stood](https://churchofjesuschrist.org/study/scriptures/tg/stand?lang=eng)
 
 ### References
 - [[Exodus 14.13|Exodus 14:13]]

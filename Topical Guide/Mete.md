@@ -1,6 +1,6 @@
 # Mete
 
-[Mete](https://www.churchofjesuschrist.org/study/scriptures/tg/Mete?lang=eng)
+[Mete](https://churchofjesuschrist.org/study/scriptures/tg/mete?lang=eng)
 
 ### References
 - [[Matthew 7.2|Matthew 7:2]]

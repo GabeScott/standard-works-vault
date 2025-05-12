@@ -1,6 +1,6 @@
 # Holy Ghost, Dove, Sign of
 
-[Holy Ghost, Dove, Sign of](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Ghost-Dove-Sign-of?lang=eng)
+[Holy Ghost, Dove, Sign of](https://churchofjesuschrist.org/study/scriptures/tg/holy-ghost-dove-sign-of?lang=eng)
 
 ### References
 - [[Matthew 3.16|Matthew 3:16]]

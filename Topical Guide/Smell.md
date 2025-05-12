@@ -1,6 +1,6 @@
 # Smell
 
-[Smell](https://www.churchofjesuschrist.org/study/scriptures/tg/Smell?lang=eng)
+[Smell](https://churchofjesuschrist.org/study/scriptures/tg/smell?lang=eng)
 
 ### References
 - [[Genesis 27.27|Genesis 27:27]]

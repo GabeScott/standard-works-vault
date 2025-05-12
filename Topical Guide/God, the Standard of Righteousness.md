@@ -1,6 +1,6 @@
 # God, the Standard of Righteousness
 
-[God, the Standard of Righteousness](https://www.churchofjesuschrist.org/study/scriptures/tg/God-the-Standard-of-Righteousness?lang=eng)
+[God, the Standard of Righteousness](https://churchofjesuschrist.org/study/scriptures/tg/god-the-standard-of-righteousness?lang=eng)
 
 ### References
 - [[Leviticus 19.2|Leviticus 19:2]]

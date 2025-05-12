@@ -1,6 +1,6 @@
 # Priesthood, Qualifying for
 
-[Priesthood, Qualifying for](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood-Qualifying-for?lang=eng)
+[Priesthood, Qualifying for](https://churchofjesuschrist.org/study/scriptures/tg/priesthood-qualifying-for?lang=eng)
 
 ### References
 - [[1 Samuel 13.12|1 Samuel 13:12]]

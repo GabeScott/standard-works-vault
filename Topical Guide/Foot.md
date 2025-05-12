@@ -1,6 +1,6 @@
 # Foot
 
-[Foot](https://www.churchofjesuschrist.org/study/scriptures/tg/Foot?lang=eng)
+[Foot](https://churchofjesuschrist.org/study/scriptures/tg/foot?lang=eng)
 
 ### References
 - [[Exodus 21.24|Exodus 21:24]]

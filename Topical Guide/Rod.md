@@ -1,6 +1,6 @@
 # Rod
 
-[Rod](https://www.churchofjesuschrist.org/study/scriptures/tg/Rod?lang=eng)
+[Rod](https://churchofjesuschrist.org/study/scriptures/tg/rod?lang=eng)
 
 ### References
 - [[Genesis 30.37|Genesis 30:37]]

@@ -1,6 +1,6 @@
 # Common
 
-[Common](https://www.churchofjesuschrist.org/study/scriptures/tg/Common?lang=eng)
+[Common](https://churchofjesuschrist.org/study/scriptures/tg/common?lang=eng)
 
 ### References
 - [[Mark 12.37|Mark 12:37]]

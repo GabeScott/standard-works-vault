@@ -1,6 +1,6 @@
 # Groan, Groaning
 
-[Groan, Groaning](https://www.churchofjesuschrist.org/study/scriptures/tg/Groan-Groaning?lang=eng)
+[Groan, Groaning](https://churchofjesuschrist.org/study/scriptures/tg/groan?lang=eng)
 
 ### References
 - [[Exodus 2.24|Exodus 2:24]]

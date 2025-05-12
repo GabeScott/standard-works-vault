@@ -1,6 +1,6 @@
 # Show, Shew
 
-[Show, Shew](https://www.churchofjesuschrist.org/study/scriptures/tg/Show-Shew?lang=eng)
+[Show, Shew](https://churchofjesuschrist.org/study/scriptures/tg/show?lang=eng)
 
 ### References
 - [[Exodus 33.18|Exodus 33:18]]

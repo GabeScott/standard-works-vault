@@ -1,6 +1,6 @@
 # Ear
 
-[Ear](https://www.churchofjesuschrist.org/study/scriptures/tg/Ear?lang=eng)
+[Ear](https://churchofjesuschrist.org/study/scriptures/tg/ear?lang=eng)
 
 ### References
 - [[Genesis 41.5|Genesis 41:5]]

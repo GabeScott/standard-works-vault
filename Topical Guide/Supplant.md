@@ -1,6 +1,6 @@
 # Supplant
 
-[Supplant](https://www.churchofjesuschrist.org/study/scriptures/tg/Supplant?lang=eng)
+[Supplant](https://churchofjesuschrist.org/study/scriptures/tg/supplant?lang=eng)
 
 ### References
 - [[Genesis 27.36|Genesis 27:36]]

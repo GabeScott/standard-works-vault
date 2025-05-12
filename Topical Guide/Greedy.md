@@ -1,6 +1,6 @@
 # Greedy
 
-[Greedy](https://www.churchofjesuschrist.org/study/scriptures/tg/Greedy?lang=eng)
+[Greedy](https://churchofjesuschrist.org/study/scriptures/tg/greedy?lang=eng)
 
 ### References
 - [[Psalms 17.12|Psalms 17:12]]

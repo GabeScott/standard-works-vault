@@ -1,6 +1,6 @@
 # Fall, Fallen, Fell
 
-[Fall, Fallen, Fell](https://www.churchofjesuschrist.org/study/scriptures/tg/Fall-Fallen-Fell?lang=eng)
+[Fall, Fallen, Fell](https://churchofjesuschrist.org/study/scriptures/tg/fall?lang=eng)
 
 ### References
 - [[Exodus 21.33|Exodus 21:33]]

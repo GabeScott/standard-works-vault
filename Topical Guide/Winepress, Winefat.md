@@ -1,6 +1,6 @@
 # Winepress, Winefat
 
-[Winepress, Winefat](https://www.churchofjesuschrist.org/study/scriptures/tg/Winepress-Winefat?lang=eng)
+[Winepress, Winefat](https://churchofjesuschrist.org/study/scriptures/tg/winepress?lang=eng)
 
 ### References
 - [[Isaiah 63.2|Isaiah 63:2]]

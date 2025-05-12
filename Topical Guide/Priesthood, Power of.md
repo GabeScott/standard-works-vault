@@ -1,6 +1,6 @@
 # Priesthood, Power of
 
-[Priesthood, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood-Power-of?lang=eng)
+[Priesthood, Power of](https://churchofjesuschrist.org/study/scriptures/tg/priesthood-power-of?lang=eng)
 
 ### References
 - [[Genesis 32.28|Genesis 32:28]]

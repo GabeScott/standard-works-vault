@@ -1,6 +1,6 @@
 # Consumption
 
-[Consumption](https://www.churchofjesuschrist.org/study/scriptures/tg/Consumption?lang=eng)
+[Consumption](https://churchofjesuschrist.org/study/scriptures/tg/consumption?lang=eng)
 
 ### References
 - [[Leviticus 26.16|Leviticus 26:16]]

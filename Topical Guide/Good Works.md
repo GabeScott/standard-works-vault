@@ -1,6 +1,6 @@
 # Good Works
 
-[Good Works](https://www.churchofjesuschrist.org/study/scriptures/tg/Good-Works?lang=eng)
+[Good Works](https://churchofjesuschrist.org/study/scriptures/tg/good-works?lang=eng)
 
 ### References
 - [[2 Chronicles 15.7|2 Chronicles 15:7]]

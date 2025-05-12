@@ -1,6 +1,6 @@
 # Mustard
 
-[Mustard](https://www.churchofjesuschrist.org/study/scriptures/tg/Mustard?lang=eng)
+[Mustard](https://churchofjesuschrist.org/study/scriptures/tg/mustard?lang=eng)
 
 ### References
 - [[Matthew 13.31|Matthew 13:31]]

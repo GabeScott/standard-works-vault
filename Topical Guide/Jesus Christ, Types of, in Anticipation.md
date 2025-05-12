@@ -1,6 +1,6 @@
 # Jesus Christ, Types of, in Anticipation
 
-[Jesus Christ, Types of, in Anticipation](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Types-of-in-Anticipation?lang=eng)
+[Jesus Christ, Types of, in Anticipation](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-anticipation?lang=eng)
 
 ### References
 - [[Genesis 22.8|Genesis 22:8]]

@@ -1,6 +1,6 @@
 # Mixture
 
-[Mixture](https://www.churchofjesuschrist.org/study/scriptures/tg/Mixture?lang=eng)
+[Mixture](https://churchofjesuschrist.org/study/scriptures/tg/mixture?lang=eng)
 
 ### References
 - [[1 Nephi 13.30|1 Nephi 13:30]]

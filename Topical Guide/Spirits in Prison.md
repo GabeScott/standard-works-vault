@@ -1,6 +1,6 @@
 # Spirits in Prison
 
-[Spirits in Prison](https://www.churchofjesuschrist.org/study/scriptures/tg/Spirits-in-Prison?lang=eng)
+[Spirits in Prison](https://churchofjesuschrist.org/study/scriptures/tg/spirits-in-prison?lang=eng)
 
 ### References
 - [[Isaiah 24.22|Isaiah 24:22]]

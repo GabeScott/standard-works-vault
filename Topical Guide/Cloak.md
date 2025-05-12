@@ -1,6 +1,6 @@
 # Cloak
 
-[Cloak](https://www.churchofjesuschrist.org/study/scriptures/tg/Cloak?lang=eng)
+[Cloak](https://churchofjesuschrist.org/study/scriptures/tg/cloak?lang=eng)
 
 ### References
 - [[Matthew 5.40|Matthew 5:40]]

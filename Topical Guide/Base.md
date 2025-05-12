@@ -1,6 +1,6 @@
 # Base
 
-[Base](https://www.churchofjesuschrist.org/study/scriptures/tg/Base?lang=eng)
+[Base](https://churchofjesuschrist.org/study/scriptures/tg/base?lang=eng)
 
 ### References
 - [[Isaiah 3.5|Isaiah 3:5]]

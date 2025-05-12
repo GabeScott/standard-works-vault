@@ -1,6 +1,6 @@
 # Workmanship
 
-[Workmanship](https://www.churchofjesuschrist.org/study/scriptures/tg/Workmanship?lang=eng)
+[Workmanship](https://churchofjesuschrist.org/study/scriptures/tg/workmanship?lang=eng)
 
 ### References
 - [[Exodus 31.3|Exodus 31:3]]

@@ -1,6 +1,6 @@
 # Press
 
-[Press](https://www.churchofjesuschrist.org/study/scriptures/tg/Press?lang=eng)
+[Press](https://churchofjesuschrist.org/study/scriptures/tg/press?lang=eng)
 
 ### References
 - [[Joel 3.13|Joel 3:13]]

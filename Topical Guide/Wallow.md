@@ -1,6 +1,6 @@
 # Wallow
 
-[Wallow](https://www.churchofjesuschrist.org/study/scriptures/tg/Wallow?lang=eng)
+[Wallow](https://churchofjesuschrist.org/study/scriptures/tg/wallow?lang=eng)
 
 ### References
 - [[Jeremiah 6.26|Jeremiah 6:26]]

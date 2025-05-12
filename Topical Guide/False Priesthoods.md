@@ -1,6 +1,6 @@
 # False Priesthoods
 
-[False Priesthoods](https://www.churchofjesuschrist.org/study/scriptures/tg/False-Priesthoods?lang=eng)
+[False Priesthoods](https://churchofjesuschrist.org/study/scriptures/tg/false-priesthoods?lang=eng)
 
 ### References
 - [[Exodus 7.11|Exodus 7:11]]

@@ -1,6 +1,6 @@
 # Weather
 
-[Weather](https://www.churchofjesuschrist.org/study/scriptures/tg/Weather?lang=eng)
+[Weather](https://churchofjesuschrist.org/study/scriptures/tg/weather?lang=eng)
 
 ### References
 - [[Matthew 16.2|Matthew 16:2]]

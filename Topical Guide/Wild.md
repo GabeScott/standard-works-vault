@@ -1,6 +1,6 @@
 # Wild
 
-[Wild](https://www.churchofjesuschrist.org/study/scriptures/tg/Wild?lang=eng)
+[Wild](https://churchofjesuschrist.org/study/scriptures/tg/wild?lang=eng)
 
 ### References
 - [[Genesis 16.12|Genesis 16:12]]

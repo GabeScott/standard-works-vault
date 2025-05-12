@@ -1,6 +1,6 @@
 # Musical Instruments
 
-[Musical Instruments](https://www.churchofjesuschrist.org/study/scriptures/tg/Musical-Instruments?lang=eng)
+[Musical Instruments](https://churchofjesuschrist.org/study/scriptures/tg/musical-instruments?lang=eng)
 
 ### References
 - [[Genesis 4.21|Genesis 4:21]]

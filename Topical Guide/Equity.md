@@ -1,6 +1,6 @@
 # Equity
 
-[Equity](https://www.churchofjesuschrist.org/study/scriptures/tg/Equity?lang=eng)
+[Equity](https://churchofjesuschrist.org/study/scriptures/tg/equity?lang=eng)
 
 ### References
 - [[Psalms 98.9|Psalms 98:9]]

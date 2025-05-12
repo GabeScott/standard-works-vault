@@ -1,6 +1,6 @@
 # Jesus Christ, King
 
-[Jesus Christ, King](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-King?lang=eng)
+[Jesus Christ, King](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-king?lang=eng)
 
 ### References
 - [[1 Samuel 12.12|1 Samuel 12:12]]

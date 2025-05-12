@@ -1,6 +1,6 @@
 # Lust
 
-[Lust](https://www.churchofjesuschrist.org/study/scriptures/tg/Lust?lang=eng)
+[Lust](https://churchofjesuschrist.org/study/scriptures/tg/lust?lang=eng)
 
 ### References
 - [[Psalms 106.14|Psalms 106:14]]

@@ -1,6 +1,6 @@
 # Bitterly
 
-[Bitterly](https://www.churchofjesuschrist.org/study/scriptures/tg/Bitterly?lang=eng)
+[Bitterly](https://churchofjesuschrist.org/study/scriptures/tg/bitterly?lang=eng)
 
 ### References
 - [[Ruth 1.20|Ruth 1:20]]

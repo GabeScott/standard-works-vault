@@ -1,6 +1,6 @@
 # Benefit
 
-[Benefit](https://www.churchofjesuschrist.org/study/scriptures/tg/Benefit?lang=eng)
+[Benefit](https://churchofjesuschrist.org/study/scriptures/tg/benefit?lang=eng)
 
 ### References
 - [[Psalms 68.19|Psalms 68:19]]

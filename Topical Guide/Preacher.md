@@ -1,6 +1,6 @@
 # Preacher
 
-[Preacher](https://www.churchofjesuschrist.org/study/scriptures/tg/Preacher?lang=eng)
+[Preacher](https://churchofjesuschrist.org/study/scriptures/tg/preacher?lang=eng)
 
 ### References
 - [[Ecclesiastes 1.1|Ecclesiastes 1:1]]

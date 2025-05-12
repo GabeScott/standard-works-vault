@@ -1,6 +1,6 @@
 # Wander, Wanderer
 
-[Wander, Wanderer](https://www.churchofjesuschrist.org/study/scriptures/tg/Wander-Wanderer?lang=eng)
+[Wander, Wanderer](https://churchofjesuschrist.org/study/scriptures/tg/wander?lang=eng)
 
 ### References
 - [[Genesis 20.13|Genesis 20:13]]

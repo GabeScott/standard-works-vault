@@ -1,6 +1,6 @@
 # Rebellion, Rebel
 
-[Rebellion, Rebel](https://www.churchofjesuschrist.org/study/scriptures/tg/Rebellion-Rebel?lang=eng)
+[Rebellion, Rebel](https://churchofjesuschrist.org/study/scriptures/tg/rebellion?lang=eng)
 
 ### References
 - [[Exodus 16.2|Exodus 16:2]]

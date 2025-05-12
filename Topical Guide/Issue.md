@@ -1,6 +1,6 @@
 # Issue
 
-[Issue](https://www.churchofjesuschrist.org/study/scriptures/tg/Issue?lang=eng)
+[Issue](https://churchofjesuschrist.org/study/scriptures/tg/issue?lang=eng)
 
 ### References
 - [[Genesis 48.6|Genesis 48:6]]

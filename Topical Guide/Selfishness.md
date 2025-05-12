@@ -1,6 +1,6 @@
 # Selfishness
 
-[Selfishness](https://www.churchofjesuschrist.org/study/scriptures/tg/Selfishness?lang=eng)
+[Selfishness](https://churchofjesuschrist.org/study/scriptures/tg/selfishness?lang=eng)
 
 ### References
 - [[Numbers 22.7|Numbers 22:7]]

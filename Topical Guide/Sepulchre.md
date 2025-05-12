@@ -1,6 +1,6 @@
 # Sepulchre
 
-[Sepulchre](https://www.churchofjesuschrist.org/study/scriptures/tg/Sepulchre?lang=eng)
+[Sepulchre](https://churchofjesuschrist.org/study/scriptures/tg/sepulchre?lang=eng)
 
 ### References
 - [[Deuteronomy 34.6|Deuteronomy 34:6]]

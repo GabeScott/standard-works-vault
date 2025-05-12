@@ -1,6 +1,6 @@
 # Maid
 
-[Maid](https://www.churchofjesuschrist.org/study/scriptures/tg/Maid?lang=eng)
+[Maid](https://churchofjesuschrist.org/study/scriptures/tg/maid?lang=eng)
 
 ### References
 - [[Genesis 16.3|Genesis 16:3]]

@@ -1,6 +1,6 @@
 # Old
 
-[Old](https://www.churchofjesuschrist.org/study/scriptures/tg/Old?lang=eng)
+[Old](https://churchofjesuschrist.org/study/scriptures/tg/old?lang=eng)
 
 ### References
 - [[Deuteronomy 8.4|Deuteronomy 8:4]]

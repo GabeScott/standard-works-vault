@@ -1,6 +1,6 @@
 # Iniquity
 
-[Iniquity](https://www.churchofjesuschrist.org/study/scriptures/tg/Iniquity?lang=eng)
+[Iniquity](https://churchofjesuschrist.org/study/scriptures/tg/iniquity?lang=eng)
 
 ### References
 - [[Exodus 20.5|Exodus 20:5]]

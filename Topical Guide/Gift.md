@@ -1,6 +1,6 @@
 # Gift
 
-[Gift](https://www.churchofjesuschrist.org/study/scriptures/tg/Gift?lang=eng)
+[Gift](https://churchofjesuschrist.org/study/scriptures/tg/gift?lang=eng)
 
 ### References
 - [[Exodus 23.8|Exodus 23:8]]

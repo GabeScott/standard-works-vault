@@ -1,6 +1,6 @@
 # Babe
 
-[Babe](https://www.churchofjesuschrist.org/study/scriptures/tg/Babe?lang=eng)
+[Babe](https://churchofjesuschrist.org/study/scriptures/tg/babe?lang=eng)
 
 ### References
 - [[Psalms 8.2|Psalms 8:2]]

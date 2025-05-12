@@ -1,6 +1,6 @@
 # Submissiveness, Submit
 
-[Submissiveness, Submit](https://www.churchofjesuschrist.org/study/scriptures/tg/Submissiveness-Submit?lang=eng)
+[Submissiveness, Submit](https://churchofjesuschrist.org/study/scriptures/tg/submissiveness?lang=eng)
 
 ### References
 - [[Genesis 16.9|Genesis 16:9]]

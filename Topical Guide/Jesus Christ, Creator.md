@@ -1,6 +1,6 @@
 # Jesus Christ, Creator
 
-[Jesus Christ, Creator](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Creator?lang=eng)
+[Jesus Christ, Creator](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-creator?lang=eng)
 
 ### References
 - [[Genesis 1.26|Genesis 1:26]]

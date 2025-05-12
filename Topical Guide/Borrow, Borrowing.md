@@ -1,6 +1,6 @@
 # Borrow, Borrowing
 
-[Borrow, Borrowing](https://www.churchofjesuschrist.org/study/scriptures/tg/Borrow-Borrowing?lang=eng)
+[Borrow, Borrowing](https://churchofjesuschrist.org/study/scriptures/tg/borrow?lang=eng)
 
 ### References
 - [[Exodus 11.2|Exodus 11:2]]

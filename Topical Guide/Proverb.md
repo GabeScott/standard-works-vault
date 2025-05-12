@@ -1,6 +1,6 @@
 # Proverb
 
-[Proverb](https://www.churchofjesuschrist.org/study/scriptures/tg/Proverb?lang=eng)
+[Proverb](https://churchofjesuschrist.org/study/scriptures/tg/proverb?lang=eng)
 
 ### References
 - [[Numbers 21.27|Numbers 21:27]]

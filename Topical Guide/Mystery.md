@@ -1,6 +1,6 @@
 # Mystery
 
-[Mystery](https://www.churchofjesuschrist.org/study/scriptures/tg/Mystery?lang=eng)
+[Mystery](https://churchofjesuschrist.org/study/scriptures/tg/mystery?lang=eng)
 
 ### References
 - [[2 Thessalonians 2.7|2 Thessalonians 2:7]]

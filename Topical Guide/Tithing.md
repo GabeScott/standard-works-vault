@@ -1,6 +1,6 @@
 # Tithing
 
-[Tithing](https://www.churchofjesuschrist.org/study/scriptures/tg/Tithing?lang=eng)
+[Tithing](https://churchofjesuschrist.org/study/scriptures/tg/tithing?lang=eng)
 
 ### References
 - [[Genesis 14.20|Genesis 14:20]]

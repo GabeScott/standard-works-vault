@@ -1,6 +1,6 @@
 # Unalterable
 
-[Unalterable](https://www.churchofjesuschrist.org/study/scriptures/tg/Unalterable?lang=eng)
+[Unalterable](https://churchofjesuschrist.org/study/scriptures/tg/unalterable?lang=eng)
 
 ### References
 - [[Alma 41.8|Alma 41:8]]

@@ -1,6 +1,6 @@
 # Elijah
 
-[Elijah](https://www.churchofjesuschrist.org/study/scriptures/tg/Elijah?lang=eng)
+[Elijah](https://churchofjesuschrist.org/study/scriptures/tg/elijah?lang=eng)
 
 ### References
 - [[Malachi 4.5|Malachi 4:5]]

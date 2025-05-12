@@ -1,6 +1,6 @@
 # Lasciviousness
 
-[Lasciviousness](https://www.churchofjesuschrist.org/study/scriptures/tg/Lasciviousness?lang=eng)
+[Lasciviousness](https://churchofjesuschrist.org/study/scriptures/tg/lasciviousness?lang=eng)
 
 ### References
 - [[Mark 7.22|Mark 7:22]]

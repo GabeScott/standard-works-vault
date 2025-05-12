@@ -1,6 +1,6 @@
 # Terrible
 
-[Terrible](https://www.churchofjesuschrist.org/study/scriptures/tg/Terrible?lang=eng)
+[Terrible](https://churchofjesuschrist.org/study/scriptures/tg/terrible?lang=eng)
 
 ### References
 - [[Exodus 34.10|Exodus 34:10]]

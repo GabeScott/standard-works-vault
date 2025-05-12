@@ -1,6 +1,6 @@
 # Govern
 
-[Govern](https://www.churchofjesuschrist.org/study/scriptures/tg/Govern?lang=eng)
+[Govern](https://churchofjesuschrist.org/study/scriptures/tg/govern?lang=eng)
 
 ### References
 - [[1 Kings 21.7|1 Kings 21:7]]

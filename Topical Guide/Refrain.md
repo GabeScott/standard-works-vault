@@ -1,6 +1,6 @@
 # Refrain
 
-[Refrain](https://www.churchofjesuschrist.org/study/scriptures/tg/Refrain?lang=eng)
+[Refrain](https://churchofjesuschrist.org/study/scriptures/tg/refrain?lang=eng)
 
 ### References
 - [[Genesis 45.1|Genesis 45:1]]

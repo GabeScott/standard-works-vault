@@ -1,6 +1,6 @@
 # Lame
 
-[Lame](https://www.churchofjesuschrist.org/study/scriptures/tg/Lame?lang=eng)
+[Lame](https://churchofjesuschrist.org/study/scriptures/tg/lame?lang=eng)
 
 ### References
 - [[2 Samuel 4.4|2 Samuel 4:4]]

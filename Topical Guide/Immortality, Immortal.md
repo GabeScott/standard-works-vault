@@ -1,6 +1,6 @@
 # Immortality, Immortal
 
-[Immortality, Immortal](https://www.churchofjesuschrist.org/study/scriptures/tg/Immortality-Immortal?lang=eng)
+[Immortality, Immortal](https://churchofjesuschrist.org/study/scriptures/tg/immortality?lang=eng)
 
 ### References
 - [[Genesis 2.9|Genesis 2:9]]

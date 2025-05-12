@@ -1,6 +1,6 @@
 # Bribe, Bribery
 
-[Bribe, Bribery](https://www.churchofjesuschrist.org/study/scriptures/tg/Bribe-Bribery?lang=eng)
+[Bribe, Bribery](https://churchofjesuschrist.org/study/scriptures/tg/bribe?lang=eng)
 
 ### References
 - [[Exodus 23.8|Exodus 23:8]]

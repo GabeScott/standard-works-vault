@@ -1,6 +1,6 @@
 # Separation, Separate
 
-[Separation, Separate](https://www.churchofjesuschrist.org/study/scriptures/tg/Separation-Separate?lang=eng)
+[Separation, Separate](https://churchofjesuschrist.org/study/scriptures/tg/separation?lang=eng)
 
 ### References
 - [[Exodus 19.6|Exodus 19:6]]

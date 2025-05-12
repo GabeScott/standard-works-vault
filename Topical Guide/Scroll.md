@@ -1,6 +1,6 @@
 # Scroll
 
-[Scroll](https://www.churchofjesuschrist.org/study/scriptures/tg/Scroll?lang=eng)
+[Scroll](https://churchofjesuschrist.org/study/scriptures/tg/scroll?lang=eng)
 
 ### References
 - [[Isaiah 34.4|Isaiah 34:4]]

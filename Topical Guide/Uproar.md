@@ -1,6 +1,6 @@
 # Uproar
 
-[Uproar](https://www.churchofjesuschrist.org/study/scriptures/tg/Uproar?lang=eng)
+[Uproar](https://churchofjesuschrist.org/study/scriptures/tg/uproar?lang=eng)
 
 ### References
 - [[Matthew 26.5|Matthew 26:5]]

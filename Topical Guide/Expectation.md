@@ -1,6 +1,6 @@
 # Expectation
 
-[Expectation](https://www.churchofjesuschrist.org/study/scriptures/tg/Expectation?lang=eng)
+[Expectation](https://churchofjesuschrist.org/study/scriptures/tg/expectation?lang=eng)
 
 ### References
 - [[Psalms 9.18|Psalms 9:18]]

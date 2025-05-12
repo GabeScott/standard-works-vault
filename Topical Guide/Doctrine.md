@@ -1,6 +1,6 @@
 # Doctrine
 
-[Doctrine](https://www.churchofjesuschrist.org/study/scriptures/tg/Doctrine?lang=eng)
+[Doctrine](https://churchofjesuschrist.org/study/scriptures/tg/doctrine?lang=eng)
 
 ### References
 - [[Deuteronomy 32.2|Deuteronomy 32:2]]

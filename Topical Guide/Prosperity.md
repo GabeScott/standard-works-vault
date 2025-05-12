@@ -1,6 +1,6 @@
 # Prosperity
 
-[Prosperity](https://www.churchofjesuschrist.org/study/scriptures/tg/Prosperity?lang=eng)
+[Prosperity](https://churchofjesuschrist.org/study/scriptures/tg/prosperity?lang=eng)
 
 ### References
 - [[1 Kings 10.7|1 Kings 10:7]]

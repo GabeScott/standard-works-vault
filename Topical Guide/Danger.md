@@ -1,6 +1,6 @@
 # Danger
 
-[Danger](https://www.churchofjesuschrist.org/study/scriptures/tg/Danger?lang=eng)
+[Danger](https://churchofjesuschrist.org/study/scriptures/tg/danger?lang=eng)
 
 ### References
 - [[Matthew 5.21|Matthew 5:21]]

@@ -1,6 +1,6 @@
 # Handiwork
 
-[Handiwork](https://www.churchofjesuschrist.org/study/scriptures/tg/Handiwork?lang=eng)
+[Handiwork](https://churchofjesuschrist.org/study/scriptures/tg/handiwork?lang=eng)
 
 ### References
 - [[Psalms 19.1|Psalms 19:1]]

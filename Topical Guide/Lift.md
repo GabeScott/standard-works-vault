@@ -1,6 +1,6 @@
 # Lift
 
-[Lift](https://www.churchofjesuschrist.org/study/scriptures/tg/Lift?lang=eng)
+[Lift](https://churchofjesuschrist.org/study/scriptures/tg/lift?lang=eng)
 
 ### References
 - [[Exodus 14.16|Exodus 14:16]]

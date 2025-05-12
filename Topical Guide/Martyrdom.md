@@ -1,6 +1,6 @@
 # Martyrdom
 
-[Martyrdom](https://www.churchofjesuschrist.org/study/scriptures/tg/Martyrdom?lang=eng)
+[Martyrdom](https://churchofjesuschrist.org/study/scriptures/tg/martyrdom?lang=eng)
 
 ### References
 - [[Genesis 4.8|Genesis 4:8]]

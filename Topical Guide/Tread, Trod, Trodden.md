@@ -1,6 +1,6 @@
 # Tread, Trod, Trodden
 
-[Tread, Trod, Trodden](https://www.churchofjesuschrist.org/study/scriptures/tg/Tread-Trod-Trodden?lang=eng)
+[Tread, Trod, Trodden](https://churchofjesuschrist.org/study/scriptures/tg/tread?lang=eng)
 
 ### References
 - [[Deuteronomy 11.24|Deuteronomy 11:24]]

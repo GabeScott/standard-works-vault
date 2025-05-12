@@ -1,6 +1,6 @@
 # Parable
 
-[Parable](https://www.churchofjesuschrist.org/study/scriptures/tg/Parable?lang=eng)
+[Parable](https://churchofjesuschrist.org/study/scriptures/tg/parable?lang=eng)
 
 ### References
 - [[Numbers 23.7|Numbers 23:7]]

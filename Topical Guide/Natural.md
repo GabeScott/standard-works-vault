@@ -1,6 +1,6 @@
 # Natural
 
-[Natural](https://www.churchofjesuschrist.org/study/scriptures/tg/Natural?lang=eng)
+[Natural](https://churchofjesuschrist.org/study/scriptures/tg/natural?lang=eng)
 
 ### References
 - [[Romans 1.31|Romans 1:31]]

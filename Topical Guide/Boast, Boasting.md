@@ -1,6 +1,6 @@
 # Boast, Boasting
 
-[Boast, Boasting](https://www.churchofjesuschrist.org/study/scriptures/tg/Boast-Boasting?lang=eng)
+[Boast, Boasting](https://churchofjesuschrist.org/study/scriptures/tg/boast?lang=eng)
 
 ### References
 - [[1 Kings 20.11|1 Kings 20:11]]

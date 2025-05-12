@@ -1,6 +1,6 @@
 # Garment
 
-[Garment](https://www.churchofjesuschrist.org/study/scriptures/tg/Garment?lang=eng)
+[Garment](https://churchofjesuschrist.org/study/scriptures/tg/garment?lang=eng)
 
 ### References
 - [[Genesis 25.25|Genesis 25:25]]

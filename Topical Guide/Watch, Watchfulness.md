@@ -1,6 +1,6 @@
 # Watch, Watchfulness
 
-[Watch, Watchfulness](https://www.churchofjesuschrist.org/study/scriptures/tg/Watch-Watchfulness?lang=eng)
+[Watch, Watchfulness](https://churchofjesuschrist.org/study/scriptures/tg/watch?lang=eng)
 
 ### References
 - [[Genesis 31.49|Genesis 31:49]]

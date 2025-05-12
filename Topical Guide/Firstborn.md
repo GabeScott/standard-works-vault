@@ -1,6 +1,6 @@
 # Firstborn
 
-[Firstborn](https://www.churchofjesuschrist.org/study/scriptures/tg/Firstborn?lang=eng)
+[Firstborn](https://churchofjesuschrist.org/study/scriptures/tg/firstborn?lang=eng)
 
 ### References
 - [[Genesis 19.31|Genesis 19:31]]

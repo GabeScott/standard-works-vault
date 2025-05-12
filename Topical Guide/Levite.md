@@ -1,6 +1,6 @@
 # Levite
 
-[Levite](https://www.churchofjesuschrist.org/study/scriptures/tg/Levite?lang=eng)
+[Levite](https://churchofjesuschrist.org/study/scriptures/tg/levite?lang=eng)
 
 ### References
 - [[Numbers 1.47|Numbers 1:47]]

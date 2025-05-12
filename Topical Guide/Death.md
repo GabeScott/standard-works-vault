@@ -1,6 +1,6 @@
 # Death
 
-[Death](https://www.churchofjesuschrist.org/study/scriptures/tg/Death?lang=eng)
+[Death](https://churchofjesuschrist.org/study/scriptures/tg/death?lang=eng)
 
 ### References
 - [[Leviticus 20.2|Leviticus 20:2]]

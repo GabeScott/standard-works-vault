@@ -1,6 +1,6 @@
 # Tempt
 
-[Tempt](https://www.churchofjesuschrist.org/study/scriptures/tg/Tempt?lang=eng)
+[Tempt](https://churchofjesuschrist.org/study/scriptures/tg/tempt?lang=eng)
 
 ### References
 - [[Genesis 22.1|Genesis 22:1]]

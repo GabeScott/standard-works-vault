@@ -1,6 +1,6 @@
 # Holy Ghost, Source of Testimony
 
-[Holy Ghost, Source of Testimony](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Ghost-Source-of-Testimony?lang=eng)
+[Holy Ghost, Source of Testimony](https://churchofjesuschrist.org/study/scriptures/tg/holy-ghost-source-of-testimony?lang=eng)
 
 ### References
 - [[Nehemiah 9.20|Nehemiah 9:20]]

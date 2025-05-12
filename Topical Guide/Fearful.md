@@ -1,6 +1,6 @@
 # Fearful
 
-[Fearful](https://www.churchofjesuschrist.org/study/scriptures/tg/Fearful?lang=eng)
+[Fearful](https://churchofjesuschrist.org/study/scriptures/tg/fearful?lang=eng)
 
 ### References
 - [[Judges 7.3|Judges 7:3]]

@@ -1,6 +1,6 @@
 # State
 
-[State](https://www.churchofjesuschrist.org/study/scriptures/tg/State?lang=eng)
+[State](https://churchofjesuschrist.org/study/scriptures/tg/state?lang=eng)
 
 ### References
 - [[Matthew 12.45|Matthew 12:45]]

@@ -1,6 +1,6 @@
 # Weapon
 
-[Weapon](https://www.churchofjesuschrist.org/study/scriptures/tg/Weapon?lang=eng)
+[Weapon](https://churchofjesuschrist.org/study/scriptures/tg/weapon?lang=eng)
 
 ### References
 - [[2 Samuel 1.27|2 Samuel 1:27]]

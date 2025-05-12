@@ -1,6 +1,6 @@
 # Use
 
-[Use](https://www.churchofjesuschrist.org/study/scriptures/tg/Use?lang=eng)
+[Use](https://churchofjesuschrist.org/study/scriptures/tg/use?lang=eng)
 
 ### References
 - [[Matthew 5.44|Matthew 5:44]]

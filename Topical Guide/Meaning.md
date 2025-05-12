@@ -1,6 +1,6 @@
 # Meaning
 
-[Meaning](https://www.churchofjesuschrist.org/study/scriptures/tg/Meaning?lang=eng)
+[Meaning](https://churchofjesuschrist.org/study/scriptures/tg/meaning?lang=eng)
 
 ### References
 - [[Daniel 8.15|Daniel 8:15]]

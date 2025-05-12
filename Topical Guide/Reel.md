@@ -1,6 +1,6 @@
 # Reel
 
-[Reel](https://www.churchofjesuschrist.org/study/scriptures/tg/Reel?lang=eng)
+[Reel](https://churchofjesuschrist.org/study/scriptures/tg/reel?lang=eng)
 
 ### References
 - [[Psalms 107.27|Psalms 107:27]]

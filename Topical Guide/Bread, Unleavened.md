@@ -1,6 +1,6 @@
 # Bread, Unleavened
 
-[Bread, Unleavened](https://www.churchofjesuschrist.org/study/scriptures/tg/Bread-Unleavened?lang=eng)
+[Bread, Unleavened](https://churchofjesuschrist.org/study/scriptures/tg/bread-unleavened?lang=eng)
 
 ### References
 - [[Genesis 19.3|Genesis 19:3]]

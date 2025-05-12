@@ -1,6 +1,6 @@
 # Hope
 
-[Hope](https://www.churchofjesuschrist.org/study/scriptures/tg/Hope?lang=eng)
+[Hope](https://churchofjesuschrist.org/study/scriptures/tg/hope?lang=eng)
 
 ### References
 - [[Job 27.8|Job 27:8]]

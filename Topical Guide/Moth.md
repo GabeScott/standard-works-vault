@@ -1,6 +1,6 @@
 # Moth
 
-[Moth](https://www.churchofjesuschrist.org/study/scriptures/tg/Moth?lang=eng)
+[Moth](https://churchofjesuschrist.org/study/scriptures/tg/moth?lang=eng)
 
 ### References
 - [[Isaiah 50.9|Isaiah 50:9]]

@@ -1,6 +1,6 @@
 # Fall of Man
 
-[Fall of Man](https://www.churchofjesuschrist.org/study/scriptures/tg/Fall-of-Man?lang=eng)
+[Fall of Man](https://churchofjesuschrist.org/study/scriptures/tg/fall-of-man?lang=eng)
 
 ### References
 - [[Genesis 2.17|Genesis 2:17]]

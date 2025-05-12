@@ -1,6 +1,6 @@
 # Council
 
-[Council](https://www.churchofjesuschrist.org/study/scriptures/tg/Council?lang=eng)
+[Council](https://churchofjesuschrist.org/study/scriptures/tg/council?lang=eng)
 
 ### References
 - [[Matthew 10.17|Matthew 10:17]]

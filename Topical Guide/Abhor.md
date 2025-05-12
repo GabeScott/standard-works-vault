@@ -1,6 +1,6 @@
 # Abhor
 
-[Abhor](https://www.churchofjesuschrist.org/study/scriptures/tg/Abhor?lang=eng)
+[Abhor](https://churchofjesuschrist.org/study/scriptures/tg/abhor?lang=eng)
 
 ### References
 - [[Leviticus 26.11|Leviticus 26:11]]

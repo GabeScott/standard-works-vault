@@ -1,6 +1,6 @@
 # Law of Moses
 
-[Law of Moses](https://www.churchofjesuschrist.org/study/scriptures/tg/Law-of-Moses?lang=eng)
+[Law of Moses](https://churchofjesuschrist.org/study/scriptures/tg/law-of-moses?lang=eng)
 
 ### References
 - [[Exodus 18.20|Exodus 18:20]]

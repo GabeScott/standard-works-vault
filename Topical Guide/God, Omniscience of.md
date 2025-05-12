@@ -1,6 +1,6 @@
 # God, Omniscience of
 
-[God, Omniscience of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Omniscience-of?lang=eng)
+[God, Omniscience of](https://churchofjesuschrist.org/study/scriptures/tg/god-omniscience-of?lang=eng)
 
 ### References
 - [[Genesis 18.19|Genesis 18:19]]

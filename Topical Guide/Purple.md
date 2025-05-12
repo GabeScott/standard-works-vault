@@ -1,6 +1,6 @@
 # Purple
 
-[Purple](https://www.churchofjesuschrist.org/study/scriptures/tg/Purple?lang=eng)
+[Purple](https://churchofjesuschrist.org/study/scriptures/tg/purple?lang=eng)
 
 ### References
 - [[Exodus 25.4|Exodus 25:4]]

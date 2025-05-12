@@ -1,6 +1,6 @@
 # Jesus Christ, Head of the Church
 
-[Jesus Christ, Head of the Church](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Head-of-the-Church?lang=eng)
+[Jesus Christ, Head of the Church](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-head-of-the-church?lang=eng)
 
 ### References
 - [[Matthew 16.18|Matthew 16:18]]

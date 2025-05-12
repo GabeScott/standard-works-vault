@@ -1,6 +1,6 @@
 # Citizenship
 
-[Citizenship](https://www.churchofjesuschrist.org/study/scriptures/tg/Citizenship?lang=eng)
+[Citizenship](https://churchofjesuschrist.org/study/scriptures/tg/citizenship?lang=eng)
 
 ### References
 - [[Exodus 22.28|Exodus 22:28]]

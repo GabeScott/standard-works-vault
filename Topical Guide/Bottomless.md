@@ -1,6 +1,6 @@
 # Bottomless
 
-[Bottomless](https://www.churchofjesuschrist.org/study/scriptures/tg/Bottomless?lang=eng)
+[Bottomless](https://churchofjesuschrist.org/study/scriptures/tg/bottomless?lang=eng)
 
 ### References
 - [[Revelation 20.3|Revelation 20:3]]

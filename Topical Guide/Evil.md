@@ -1,6 +1,6 @@
 # Evil
 
-[Evil](https://www.churchofjesuschrist.org/study/scriptures/tg/Evil?lang=eng)
+[Evil](https://churchofjesuschrist.org/study/scriptures/tg/evil?lang=eng)
 
 ### References
 - [[Genesis 3.22|Genesis 3:22]]

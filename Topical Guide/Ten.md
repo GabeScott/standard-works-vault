@@ -1,6 +1,6 @@
 # Ten
 
-[Ten](https://www.churchofjesuschrist.org/study/scriptures/tg/Ten?lang=eng)
+[Ten](https://churchofjesuschrist.org/study/scriptures/tg/ten?lang=eng)
 
 ### References
 - [[Exodus 18.25|Exodus 18:25]]

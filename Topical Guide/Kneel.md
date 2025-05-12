@@ -1,6 +1,6 @@
 # Kneel
 
-[Kneel](https://www.churchofjesuschrist.org/study/scriptures/tg/Kneel?lang=eng)
+[Kneel](https://churchofjesuschrist.org/study/scriptures/tg/kneel?lang=eng)
 
 ### References
 - [[Psalms 95.6|Psalms 95:6]]

@@ -1,6 +1,6 @@
 # Yoke
 
-[Yoke](https://www.churchofjesuschrist.org/study/scriptures/tg/Yoke?lang=eng)
+[Yoke](https://churchofjesuschrist.org/study/scriptures/tg/yoke?lang=eng)
 
 ### References
 - [[Genesis 27.40|Genesis 27:40]]

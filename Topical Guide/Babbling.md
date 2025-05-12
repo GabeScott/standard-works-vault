@@ -1,6 +1,6 @@
 # Babbling
 
-[Babbling](https://www.churchofjesuschrist.org/study/scriptures/tg/Babbling?lang=eng)
+[Babbling](https://churchofjesuschrist.org/study/scriptures/tg/babbling?lang=eng)
 
 ### References
 - [[Proverbs 23.29|Proverbs 23:29]]

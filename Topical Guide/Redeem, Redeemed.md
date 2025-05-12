@@ -1,6 +1,6 @@
 # Redeem, Redeemed
 
-[Redeem, Redeemed](https://www.churchofjesuschrist.org/study/scriptures/tg/Redeem-Redeemed?lang=eng)
+[Redeem, Redeemed](https://churchofjesuschrist.org/study/scriptures/tg/redeem?lang=eng)
 
 ### References
 - [[Genesis 48.16|Genesis 48:16]]

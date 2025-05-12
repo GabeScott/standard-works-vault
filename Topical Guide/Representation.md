@@ -1,6 +1,6 @@
 # Representation
 
-[Representation](https://www.churchofjesuschrist.org/study/scriptures/tg/Representation?lang=eng)
+[Representation](https://churchofjesuschrist.org/study/scriptures/tg/representation?lang=eng)
 
 ### References
 - [[1 Nephi 11.25|1 Nephi 11:25]]

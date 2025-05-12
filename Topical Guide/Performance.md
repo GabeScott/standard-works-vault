@@ -1,6 +1,6 @@
 # Performance
 
-[Performance](https://www.churchofjesuschrist.org/study/scriptures/tg/Performance?lang=eng)
+[Performance](https://churchofjesuschrist.org/study/scriptures/tg/performance?lang=eng)
 
 ### References
 - [[2 Nephi 25.30|2 Nephi 25:30]]

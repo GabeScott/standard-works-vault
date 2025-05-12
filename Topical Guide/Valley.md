@@ -1,6 +1,6 @@
 # Valley
 
-[Valley](https://www.churchofjesuschrist.org/study/scriptures/tg/Valley?lang=eng)
+[Valley](https://churchofjesuschrist.org/study/scriptures/tg/valley?lang=eng)
 
 ### References
 - [[Deuteronomy 21.4|Deuteronomy 21:4]]

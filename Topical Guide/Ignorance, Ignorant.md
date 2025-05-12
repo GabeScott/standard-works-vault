@@ -1,6 +1,6 @@
 # Ignorance, Ignorant
 
-[Ignorance, Ignorant](https://www.churchofjesuschrist.org/study/scriptures/tg/Ignorance-Ignorant?lang=eng)
+[Ignorance, Ignorant](https://churchofjesuschrist.org/study/scriptures/tg/ignorance?lang=eng)
 
 ### References
 - [[Leviticus 4.2|Leviticus 4:2]]

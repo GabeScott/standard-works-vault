@@ -1,6 +1,6 @@
 # Grief
 
-[Grief](https://www.churchofjesuschrist.org/study/scriptures/tg/Grief?lang=eng)
+[Grief](https://churchofjesuschrist.org/study/scriptures/tg/grief?lang=eng)
 
 ### References
 - [[Genesis 26.35|Genesis 26:35]]

@@ -1,6 +1,6 @@
 # Partaker
 
-[Partaker](https://www.churchofjesuschrist.org/study/scriptures/tg/Partaker?lang=eng)
+[Partaker](https://churchofjesuschrist.org/study/scriptures/tg/partaker?lang=eng)
 
 ### References
 - [[Psalms 50.18|Psalms 50:18]]

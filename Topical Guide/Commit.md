@@ -1,6 +1,6 @@
 # Commit
 
-[Commit](https://www.churchofjesuschrist.org/study/scriptures/tg/Commit?lang=eng)
+[Commit](https://churchofjesuschrist.org/study/scriptures/tg/commit?lang=eng)
 
 ### References
 - [[Psalms 31.5|Psalms 31:5]]

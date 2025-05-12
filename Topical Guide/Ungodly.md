@@ -1,6 +1,6 @@
 # Ungodly
 
-[Ungodly](https://www.churchofjesuschrist.org/study/scriptures/tg/Ungodly?lang=eng)
+[Ungodly](https://churchofjesuschrist.org/study/scriptures/tg/ungodly?lang=eng)
 
 ### References
 - [[Psalms 1.4|Psalms 1:4]]

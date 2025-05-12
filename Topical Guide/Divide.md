@@ -1,6 +1,6 @@
 # Divide
 
-[Divide](https://www.churchofjesuschrist.org/study/scriptures/tg/Divide?lang=eng)
+[Divide](https://churchofjesuschrist.org/study/scriptures/tg/divide?lang=eng)
 
 ### References
 - [[Genesis 1.4|Genesis 1:4]]

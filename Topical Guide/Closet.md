@@ -1,6 +1,6 @@
 # Closet
 
-[Closet](https://www.churchofjesuschrist.org/study/scriptures/tg/Closet?lang=eng)
+[Closet](https://churchofjesuschrist.org/study/scriptures/tg/closet?lang=eng)
 
 ### References
 - [[Matthew 6.6|Matthew 6:6]]

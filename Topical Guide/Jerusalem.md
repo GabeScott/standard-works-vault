@@ -1,6 +1,6 @@
 # Jerusalem
 
-[Jerusalem](https://www.churchofjesuschrist.org/study/scriptures/tg/Jerusalem?lang=eng)
+[Jerusalem](https://churchofjesuschrist.org/study/scriptures/tg/jerusalem?lang=eng)
 
 ### References
 - [[Genesis 14.18|Genesis 14:18]]

@@ -1,6 +1,6 @@
 # Strive, Strove, Striven
 
-[Strive, Strove, Striven](https://www.churchofjesuschrist.org/study/scriptures/tg/Strive-Strove-Striven?lang=eng)
+[Strive, Strove, Striven](https://churchofjesuschrist.org/study/scriptures/tg/strive?lang=eng)
 
 ### References
 - [[Genesis 26.20|Genesis 26:20]]

@@ -1,6 +1,6 @@
 # Abominable
 
-[Abominable](https://www.churchofjesuschrist.org/study/scriptures/tg/Abominable?lang=eng)
+[Abominable](https://churchofjesuschrist.org/study/scriptures/tg/abominable?lang=eng)
 
 ### References
 - [[Leviticus 18.30|Leviticus 18:30]]

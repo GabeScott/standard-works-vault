@@ -1,6 +1,6 @@
 # Dove
 
-[Dove](https://www.churchofjesuschrist.org/study/scriptures/tg/Dove?lang=eng)
+[Dove](https://churchofjesuschrist.org/study/scriptures/tg/dove?lang=eng)
 
 ### References
 - [[Genesis 8.8|Genesis 8:8]]

@@ -1,6 +1,6 @@
 # Sower
 
-[Sower](https://www.churchofjesuschrist.org/study/scriptures/tg/Sower?lang=eng)
+[Sower](https://churchofjesuschrist.org/study/scriptures/tg/sower?lang=eng)
 
 ### References
 - [[Matthew 13.18|Matthew 13:18]]

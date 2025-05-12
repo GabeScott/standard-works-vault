@@ -1,6 +1,6 @@
 # Spirits, Disembodied
 
-[Spirits, Disembodied](https://www.churchofjesuschrist.org/study/scriptures/tg/Spirits-Disembodied?lang=eng)
+[Spirits, Disembodied](https://churchofjesuschrist.org/study/scriptures/tg/spirits-disembodied?lang=eng)
 
 ### References
 - [[Genesis 25.8|Genesis 25:8]]

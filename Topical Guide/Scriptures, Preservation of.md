@@ -1,6 +1,6 @@
 # Scriptures, Preservation of
 
-[Scriptures, Preservation of](https://www.churchofjesuschrist.org/study/scriptures/tg/Scriptures-Preservation-of?lang=eng)
+[Scriptures, Preservation of](https://churchofjesuschrist.org/study/scriptures/tg/scriptures-preservation-of?lang=eng)
 
 ### References
 - [[Exodus 25.16|Exodus 25:16]]

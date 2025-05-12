@@ -1,6 +1,6 @@
 # Mend
 
-[Mend](https://www.churchofjesuschrist.org/study/scriptures/tg/Mend?lang=eng)
+[Mend](https://churchofjesuschrist.org/study/scriptures/tg/mend?lang=eng)
 
 ### References
 - [[Matthew 4.21|Matthew 4:21]]

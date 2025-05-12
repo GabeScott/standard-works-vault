@@ -1,6 +1,6 @@
 # Beseech, Besought
 
-[Beseech, Besought](https://www.churchofjesuschrist.org/study/scriptures/tg/Beseech-Besought?lang=eng)
+[Beseech, Besought](https://churchofjesuschrist.org/study/scriptures/tg/beseech?lang=eng)
 
 ### References
 - [[Genesis 42.21|Genesis 42:21]]

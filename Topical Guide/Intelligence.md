@@ -1,6 +1,6 @@
 # Intelligence
 
-[Intelligence](https://www.churchofjesuschrist.org/study/scriptures/tg/Intelligence?lang=eng)
+[Intelligence](https://churchofjesuschrist.org/study/scriptures/tg/intelligence?lang=eng)
 
 ### References
 - [[Isaiah 55.8|Isaiah 55:8]]

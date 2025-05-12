@@ -1,6 +1,6 @@
 # Staff
 
-[Staff](https://www.churchofjesuschrist.org/study/scriptures/tg/Staff?lang=eng)
+[Staff](https://churchofjesuschrist.org/study/scriptures/tg/staff?lang=eng)
 
 ### References
 - [[Genesis 32.10|Genesis 32:10]]

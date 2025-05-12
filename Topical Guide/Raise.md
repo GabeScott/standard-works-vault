@@ -1,6 +1,6 @@
 # Raise
 
-[Raise](https://www.churchofjesuschrist.org/study/scriptures/tg/Raise?lang=eng)
+[Raise](https://churchofjesuschrist.org/study/scriptures/tg/raise?lang=eng)
 
 ### References
 - [[Exodus 9.16|Exodus 9:16]]

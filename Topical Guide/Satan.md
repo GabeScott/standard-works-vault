@@ -1,6 +1,6 @@
 # Satan
 
-[Satan](https://www.churchofjesuschrist.org/study/scriptures/tg/Satan?lang=eng)
+[Satan](https://churchofjesuschrist.org/study/scriptures/tg/satan?lang=eng)
 
 ### References
 - [[1 Chronicles 21.1|1 Chronicles 21:1]]

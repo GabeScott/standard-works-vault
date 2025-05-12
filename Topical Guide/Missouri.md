@@ -1,6 +1,6 @@
 # Missouri
 
-[Missouri](https://www.churchofjesuschrist.org/study/scriptures/tg/Missouri?lang=eng)
+[Missouri](https://churchofjesuschrist.org/study/scriptures/tg/missouri?lang=eng)
 
 ### References
 - [[D&C 121.33|D&C 121:33]]

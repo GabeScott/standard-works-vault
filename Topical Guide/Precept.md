@@ -1,6 +1,6 @@
 # Precept
 
-[Precept](https://www.churchofjesuschrist.org/study/scriptures/tg/Precept?lang=eng)
+[Precept](https://churchofjesuschrist.org/study/scriptures/tg/precept?lang=eng)
 
 ### References
 - [[Psalms 119.104|Psalms 119:104]]

@@ -1,6 +1,6 @@
 # Vine
 
-[Vine](https://www.churchofjesuschrist.org/study/scriptures/tg/Vine?lang=eng)
+[Vine](https://churchofjesuschrist.org/study/scriptures/tg/vine?lang=eng)
 
 ### References
 - [[Genesis 49.11|Genesis 49:11]]

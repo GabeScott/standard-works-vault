@@ -1,6 +1,6 @@
 # Israel, Blessings of
 
-[Israel, Blessings of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Blessings-of?lang=eng)
+[Israel, Blessings of](https://churchofjesuschrist.org/study/scriptures/tg/israel-blessings-of?lang=eng)
 
 ### References
 - [[Genesis 12.2|Genesis 12:2]]

@@ -1,6 +1,6 @@
 # Naught, Nought
 
-[Naught, Nought](https://www.churchofjesuschrist.org/study/scriptures/tg/Naught-Nought?lang=eng)
+[Naught, Nought](https://churchofjesuschrist.org/study/scriptures/tg/naught?lang=eng)
 
 ### References
 - [[Psalms 33.10|Psalms 33:10]]

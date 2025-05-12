@@ -1,6 +1,6 @@
 # Nigh
 
-[Nigh](https://www.churchofjesuschrist.org/study/scriptures/tg/Nigh?lang=eng)
+[Nigh](https://churchofjesuschrist.org/study/scriptures/tg/nigh?lang=eng)
 
 ### References
 - [[Numbers 18.3|Numbers 18:3]]

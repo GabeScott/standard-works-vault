@@ -1,6 +1,6 @@
 # Hoof
 
-[Hoof](https://www.churchofjesuschrist.org/study/scriptures/tg/Hoof?lang=eng)
+[Hoof](https://churchofjesuschrist.org/study/scriptures/tg/hoof?lang=eng)
 
 ### References
 - [[Leviticus 11.3|Leviticus 11:3]]

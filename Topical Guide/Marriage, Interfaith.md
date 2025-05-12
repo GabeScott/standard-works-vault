@@ -1,6 +1,6 @@
 # Marriage, Interfaith
 
-[Marriage, Interfaith](https://www.churchofjesuschrist.org/study/scriptures/tg/Marriage-Interfaith?lang=eng)
+[Marriage, Interfaith](https://churchofjesuschrist.org/study/scriptures/tg/marriage-interfaith?lang=eng)
 
 ### References
 - [[Genesis 21.21|Genesis 21:21]]

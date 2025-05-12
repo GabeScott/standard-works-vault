@@ -1,6 +1,6 @@
 # Run, Ran
 
-[Run, Ran](https://www.churchofjesuschrist.org/study/scriptures/tg/Run-Ran?lang=eng)
+[Run, Ran](https://churchofjesuschrist.org/study/scriptures/tg/run?lang=eng)
 
 ### References
 - [[Genesis 49.22|Genesis 49:22]]

@@ -1,6 +1,6 @@
 # Stir
 
-[Stir](https://www.churchofjesuschrist.org/study/scriptures/tg/Stir?lang=eng)
+[Stir](https://churchofjesuschrist.org/study/scriptures/tg/stir?lang=eng)
 
 ### References
 - [[Exodus 35.21|Exodus 35:21]]

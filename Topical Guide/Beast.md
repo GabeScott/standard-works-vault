@@ -1,6 +1,6 @@
 # Beast
 
-[Beast](https://www.churchofjesuschrist.org/study/scriptures/tg/Beast?lang=eng)
+[Beast](https://churchofjesuschrist.org/study/scriptures/tg/beast?lang=eng)
 
 ### References
 - [[Genesis 1.24|Genesis 1:24]]

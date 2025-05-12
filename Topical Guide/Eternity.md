@@ -1,6 +1,6 @@
 # Eternity
 
-[Eternity](https://www.churchofjesuschrist.org/study/scriptures/tg/Eternity?lang=eng)
+[Eternity](https://churchofjesuschrist.org/study/scriptures/tg/eternity?lang=eng)
 
 ### References
 - [[Psalms 102.27|Psalms 102:27]]

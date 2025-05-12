@@ -1,6 +1,6 @@
 # Nature, Earth
 
-[Nature, Earth](https://www.churchofjesuschrist.org/study/scriptures/tg/Nature-Earth?lang=eng)
+[Nature, Earth](https://churchofjesuschrist.org/study/scriptures/tg/nature-earth?lang=eng)
 
 ### References
 - [[Genesis 1.1|Genesis 1:1]]

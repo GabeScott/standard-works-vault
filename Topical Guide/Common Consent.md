@@ -1,6 +1,6 @@
 # Common Consent
 
-[Common Consent](https://www.churchofjesuschrist.org/study/scriptures/tg/Common-Consent?lang=eng)
+[Common Consent](https://churchofjesuschrist.org/study/scriptures/tg/common-consent?lang=eng)
 
 ### References
 - [[Exodus 24.3|Exodus 24:3]]

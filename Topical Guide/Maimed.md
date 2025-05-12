@@ -1,6 +1,6 @@
 # Maimed
 
-[Maimed](https://www.churchofjesuschrist.org/study/scriptures/tg/Maimed?lang=eng)
+[Maimed](https://churchofjesuschrist.org/study/scriptures/tg/maimed?lang=eng)
 
 ### References
 - [[Matthew 15.31|Matthew 15:31]]

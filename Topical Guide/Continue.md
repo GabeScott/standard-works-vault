@@ -1,6 +1,6 @@
 # Continue
 
-[Continue](https://www.churchofjesuschrist.org/study/scriptures/tg/Continue?lang=eng)
+[Continue](https://churchofjesuschrist.org/study/scriptures/tg/continue?lang=eng)
 
 ### References
 - [[Exodus 21.21|Exodus 21:21]]

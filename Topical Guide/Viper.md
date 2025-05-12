@@ -1,6 +1,6 @@
 # Viper
 
-[Viper](https://www.churchofjesuschrist.org/study/scriptures/tg/Viper?lang=eng)
+[Viper](https://churchofjesuschrist.org/study/scriptures/tg/viper?lang=eng)
 
 ### References
 - [[Matthew 12.34|Matthew 12:34]]

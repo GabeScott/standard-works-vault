@@ -1,6 +1,6 @@
 # Laughter, Laugh
 
-[Laughter, Laugh](https://www.churchofjesuschrist.org/study/scriptures/tg/Laughter-Laugh?lang=eng)
+[Laughter, Laugh](https://churchofjesuschrist.org/study/scriptures/tg/laughter?lang=eng)
 
 ### References
 - [[Genesis 17.17|Genesis 17:17]]

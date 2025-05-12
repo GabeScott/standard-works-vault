@@ -1,6 +1,6 @@
 # Weariness
 
-[Weariness](https://www.churchofjesuschrist.org/study/scriptures/tg/Weariness?lang=eng)
+[Weariness](https://churchofjesuschrist.org/study/scriptures/tg/weariness?lang=eng)
 
 ### References
 - [[Ecclesiastes 12.12|Ecclesiastes 12:12]]

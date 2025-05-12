@@ -1,6 +1,6 @@
 # Breathe
 
-[Breathe](https://www.churchofjesuschrist.org/study/scriptures/tg/Breathe?lang=eng)
+[Breathe](https://churchofjesuschrist.org/study/scriptures/tg/breathe?lang=eng)
 
 ### References
 - [[Genesis 2.7|Genesis 2:7]]

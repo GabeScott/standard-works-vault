@@ -1,6 +1,6 @@
 # Firm
 
-[Firm](https://www.churchofjesuschrist.org/study/scriptures/tg/Firm?lang=eng)
+[Firm](https://churchofjesuschrist.org/study/scriptures/tg/firm?lang=eng)
 
 ### References
 - [[Hebrews 3.6|Hebrews 3:6]]

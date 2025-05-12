@@ -1,6 +1,6 @@
 # Command
 
-[Command](https://www.churchofjesuschrist.org/study/scriptures/tg/Command?lang=eng)
+[Command](https://churchofjesuschrist.org/study/scriptures/tg/command?lang=eng)
 
 ### References
 - [[Exodus 7.2|Exodus 7:2]]

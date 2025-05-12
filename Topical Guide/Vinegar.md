@@ -1,6 +1,6 @@
 # Vinegar
 
-[Vinegar](https://www.churchofjesuschrist.org/study/scriptures/tg/Vinegar?lang=eng)
+[Vinegar](https://churchofjesuschrist.org/study/scriptures/tg/vinegar?lang=eng)
 
 ### References
 - [[Numbers 6.3|Numbers 6:3]]

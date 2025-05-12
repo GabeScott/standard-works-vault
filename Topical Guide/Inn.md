@@ -1,6 +1,6 @@
 # Inn
 
-[Inn](https://www.churchofjesuschrist.org/study/scriptures/tg/Inn?lang=eng)
+[Inn](https://churchofjesuschrist.org/study/scriptures/tg/inn?lang=eng)
 
 ### References
 - [[Genesis 42.27|Genesis 42:27]]

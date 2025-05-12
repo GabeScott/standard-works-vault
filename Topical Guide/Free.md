@@ -1,6 +1,6 @@
 # Free
 
-[Free](https://www.churchofjesuschrist.org/study/scriptures/tg/Free?lang=eng)
+[Free](https://churchofjesuschrist.org/study/scriptures/tg/free?lang=eng)
 
 ### References
 - [[Exodus 21.2|Exodus 21:2]]

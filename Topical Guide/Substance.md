@@ -1,6 +1,6 @@
 # Substance
 
-[Substance](https://www.churchofjesuschrist.org/study/scriptures/tg/Substance?lang=eng)
+[Substance](https://churchofjesuschrist.org/study/scriptures/tg/substance?lang=eng)
 
 ### References
 - [[Genesis 15.14|Genesis 15:14]]

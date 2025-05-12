@@ -1,6 +1,6 @@
 # Holiness
 
-[Holiness](https://www.churchofjesuschrist.org/study/scriptures/tg/Holiness?lang=eng)
+[Holiness](https://churchofjesuschrist.org/study/scriptures/tg/holiness?lang=eng)
 
 ### References
 - [[Exodus 15.11|Exodus 15:11]]

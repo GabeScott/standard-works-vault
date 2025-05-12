@@ -1,6 +1,6 @@
 # Conceit
 
-[Conceit](https://www.churchofjesuschrist.org/study/scriptures/tg/Conceit?lang=eng)
+[Conceit](https://churchofjesuschrist.org/study/scriptures/tg/conceit?lang=eng)
 
 ### References
 - [[Proverbs 26.16|Proverbs 26:16]]

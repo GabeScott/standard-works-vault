@@ -1,6 +1,6 @@
 # Mischief
 
-[Mischief](https://www.churchofjesuschrist.org/study/scriptures/tg/Mischief?lang=eng)
+[Mischief](https://churchofjesuschrist.org/study/scriptures/tg/mischief?lang=eng)
 
 ### References
 - [[Genesis 42.4|Genesis 42:4]]

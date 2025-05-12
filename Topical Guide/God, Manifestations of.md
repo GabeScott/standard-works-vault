@@ -1,6 +1,6 @@
 # God, Manifestations of
 
-[God, Manifestations of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Manifestations-of?lang=eng)
+[God, Manifestations of](https://churchofjesuschrist.org/study/scriptures/tg/god-manifestations-of?lang=eng)
 
 ### References
 - [[Genesis 32.30|Genesis 32:30]]

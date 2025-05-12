@@ -1,6 +1,6 @@
 # Effeminate
 
-[Effeminate](https://www.churchofjesuschrist.org/study/scriptures/tg/Effeminate?lang=eng)
+[Effeminate](https://churchofjesuschrist.org/study/scriptures/tg/effeminate?lang=eng)
 
 ### References
 - [[1 Corinthians 6.9|1 Corinthians 6:9]]

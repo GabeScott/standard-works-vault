@@ -1,6 +1,6 @@
 # Jesus Christ, Redeemer
 
-[Jesus Christ, Redeemer](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Redeemer?lang=eng)
+[Jesus Christ, Redeemer](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-redeemer?lang=eng)
 
 ### References
 - [[Job 19.25|Job 19:25]]

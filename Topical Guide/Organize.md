@@ -1,6 +1,6 @@
 # Organize
 
-[Organize](https://www.churchofjesuschrist.org/study/scriptures/tg/Organize?lang=eng)
+[Organize](https://churchofjesuschrist.org/study/scriptures/tg/organize?lang=eng)
 
 ### References
 - [[D&C 102.24|D&C 102:24]]

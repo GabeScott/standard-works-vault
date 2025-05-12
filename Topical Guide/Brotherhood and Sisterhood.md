@@ -1,6 +1,6 @@
 # Brotherhood and Sisterhood
 
-[Brotherhood and Sisterhood](https://www.churchofjesuschrist.org/study/scriptures/tg/Brotherhood-and-Sisterhood?lang=eng)
+[Brotherhood and Sisterhood](https://churchofjesuschrist.org/study/scriptures/tg/brotherhood-and-sisterhood?lang=eng)
 
 ### References
 - [[Genesis 4.9|Genesis 4:9]]

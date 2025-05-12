@@ -1,6 +1,6 @@
 # Straight
 
-[Straight](https://www.churchofjesuschrist.org/study/scriptures/tg/Straight?lang=eng)
+[Straight](https://churchofjesuschrist.org/study/scriptures/tg/straight?lang=eng)
 
 ### References
 - [[Ecclesiastes 1.15|Ecclesiastes 1:15]]

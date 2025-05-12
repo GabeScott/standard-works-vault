@@ -1,6 +1,6 @@
 # Priesthood
 
-[Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood?lang=eng)
+[Priesthood](https://churchofjesuschrist.org/study/scriptures/tg/aaronic-priesthood?lang=eng)
 
 ### References
 - [[Exodus 19.6|Exodus 19:6]]

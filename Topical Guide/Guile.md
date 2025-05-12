@@ -1,6 +1,6 @@
 # Guile
 
-[Guile](https://www.churchofjesuschrist.org/study/scriptures/tg/Guile?lang=eng)
+[Guile](https://churchofjesuschrist.org/study/scriptures/tg/guile?lang=eng)
 
 ### References
 - [[Exodus 21.14|Exodus 21:14]]

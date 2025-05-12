@@ -1,6 +1,6 @@
 # Darkness, Spiritual
 
-[Darkness, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/Darkness-Spiritual?lang=eng)
+[Darkness, Spiritual](https://churchofjesuschrist.org/study/scriptures/tg/darkness-spiritual?lang=eng)
 
 ### References
 - [[Deuteronomy 28.29|Deuteronomy 28:29]]

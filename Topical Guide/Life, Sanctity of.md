@@ -1,6 +1,6 @@
 # Life, Sanctity of
 
-[Life, Sanctity of](https://www.churchofjesuschrist.org/study/scriptures/tg/Life-Sanctity-of?lang=eng)
+[Life, Sanctity of](https://churchofjesuschrist.org/study/scriptures/tg/life-sanctity-of?lang=eng)
 
 ### References
 - [[Genesis 4.10|Genesis 4:10]]

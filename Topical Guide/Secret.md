@@ -1,6 +1,6 @@
 # Secret
 
-[Secret](https://www.churchofjesuschrist.org/study/scriptures/tg/Secret?lang=eng)
+[Secret](https://churchofjesuschrist.org/study/scriptures/tg/secret?lang=eng)
 
 ### References
 - [[Deuteronomy 29.29|Deuteronomy 29:29]]

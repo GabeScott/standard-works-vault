@@ -1,6 +1,6 @@
 # Lad
 
-[Lad](https://www.churchofjesuschrist.org/study/scriptures/tg/Lad?lang=eng)
+[Lad](https://churchofjesuschrist.org/study/scriptures/tg/lad?lang=eng)
 
 ### References
 - [[Genesis 21.12|Genesis 21:12]]

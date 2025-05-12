@@ -1,6 +1,6 @@
 # Behead
 
-[Behead](https://www.churchofjesuschrist.org/study/scriptures/tg/Behead?lang=eng)
+[Behead](https://churchofjesuschrist.org/study/scriptures/tg/behead?lang=eng)
 
 ### References
 - [[Matthew 14.10|Matthew 14:10]]

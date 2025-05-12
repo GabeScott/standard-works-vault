@@ -1,6 +1,6 @@
 # Dumb
 
-[Dumb](https://www.churchofjesuschrist.org/study/scriptures/tg/Dumb?lang=eng)
+[Dumb](https://churchofjesuschrist.org/study/scriptures/tg/dumb?lang=eng)
 
 ### References
 - [[Exodus 4.11|Exodus 4:11]]

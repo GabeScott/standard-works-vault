@@ -1,6 +1,6 @@
 # Handkerchief
 
-[Handkerchief](https://www.churchofjesuschrist.org/study/scriptures/tg/Handkerchief?lang=eng)
+[Handkerchief](https://churchofjesuschrist.org/study/scriptures/tg/handkerchief?lang=eng)
 
 ### References
 - [[Acts 19.12|Acts 19:12]]

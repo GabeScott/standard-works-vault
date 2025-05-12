@@ -1,6 +1,6 @@
 # Count
 
-[Count](https://www.churchofjesuschrist.org/study/scriptures/tg/Count?lang=eng)
+[Count](https://churchofjesuschrist.org/study/scriptures/tg/count?lang=eng)
 
 ### References
 - [[Genesis 15.6|Genesis 15:6]]

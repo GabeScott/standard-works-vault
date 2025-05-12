@@ -1,6 +1,6 @@
 # Booth
 
-[Booth](https://www.churchofjesuschrist.org/study/scriptures/tg/Booth?lang=eng)
+[Booth](https://churchofjesuschrist.org/study/scriptures/tg/booth?lang=eng)
 
 ### References
 - [[Genesis 33.17|Genesis 33:17]]

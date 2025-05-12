@@ -1,6 +1,6 @@
 # Abase
 
-[Abase](https://www.churchofjesuschrist.org/study/scriptures/tg/Abase?lang=eng)
+[Abase](https://churchofjesuschrist.org/study/scriptures/tg/abase?lang=eng)
 
 ### References
 - [[Ezekiel 21.26|Ezekiel 21:26]]

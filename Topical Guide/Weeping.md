@@ -1,6 +1,6 @@
 # Weeping
 
-[Weeping](https://www.churchofjesuschrist.org/study/scriptures/tg/Weeping?lang=eng)
+[Weeping](https://churchofjesuschrist.org/study/scriptures/tg/weeping?lang=eng)
 
 ### References
 - [[Psalms 30.5|Psalms 30:5]]

@@ -1,6 +1,6 @@
 # Ground
 
-[Ground](https://www.churchofjesuschrist.org/study/scriptures/tg/Ground?lang=eng)
+[Ground](https://churchofjesuschrist.org/study/scriptures/tg/ground?lang=eng)
 
 ### References
 - [[Genesis 2.5|Genesis 2:5]]

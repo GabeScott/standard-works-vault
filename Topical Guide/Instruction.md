@@ -1,6 +1,6 @@
 # Instruction
 
-[Instruction](https://www.churchofjesuschrist.org/study/scriptures/tg/Instruction?lang=eng)
+[Instruction](https://churchofjesuschrist.org/study/scriptures/tg/instruction?lang=eng)
 
 ### References
 - [[Proverbs 1.7|Proverbs 1:7]]

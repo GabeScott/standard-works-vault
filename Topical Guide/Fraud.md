@@ -1,6 +1,6 @@
 # Fraud
 
-[Fraud](https://www.churchofjesuschrist.org/study/scriptures/tg/Fraud?lang=eng)
+[Fraud](https://churchofjesuschrist.org/study/scriptures/tg/fraud?lang=eng)
 
 ### References
 - [[Leviticus 19.13|Leviticus 19:13]]

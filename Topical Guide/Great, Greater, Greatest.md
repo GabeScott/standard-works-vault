@@ -1,6 +1,6 @@
 # Great, Greater, Greatest
 
-[Great, Greater, Greatest](https://www.churchofjesuschrist.org/study/scriptures/tg/Great-Greater-Greatest?lang=eng)
+[Great, Greater, Greatest](https://churchofjesuschrist.org/study/scriptures/tg/great?lang=eng)
 
 ### References
 - [[Genesis 1.16|Genesis 1:16]]

@@ -1,6 +1,6 @@
 # Variance
 
-[Variance](https://www.churchofjesuschrist.org/study/scriptures/tg/Variance?lang=eng)
+[Variance](https://churchofjesuschrist.org/study/scriptures/tg/variance?lang=eng)
 
 ### References
 - [[Matthew 10.35|Matthew 10:35]]

@@ -1,6 +1,6 @@
 # Uttermost
 
-[Uttermost](https://www.churchofjesuschrist.org/study/scriptures/tg/Uttermost?lang=eng)
+[Uttermost](https://churchofjesuschrist.org/study/scriptures/tg/uttermost?lang=eng)
 
 ### References
 - [[Psalms 2.8|Psalms 2:8]]

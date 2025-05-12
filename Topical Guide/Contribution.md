@@ -1,6 +1,6 @@
 # Contribution
 
-[Contribution](https://www.churchofjesuschrist.org/study/scriptures/tg/Contribution?lang=eng)
+[Contribution](https://churchofjesuschrist.org/study/scriptures/tg/contribution?lang=eng)
 
 ### References
 - [[Romans 15.26|Romans 15:26]]

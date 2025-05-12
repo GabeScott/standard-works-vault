@@ -1,6 +1,6 @@
 # Slow
 
-[Slow](https://www.churchofjesuschrist.org/study/scriptures/tg/Slow?lang=eng)
+[Slow](https://churchofjesuschrist.org/study/scriptures/tg/slow?lang=eng)
 
 ### References
 - [[Exodus 4.10|Exodus 4:10]]

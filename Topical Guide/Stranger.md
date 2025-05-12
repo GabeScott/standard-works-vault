@@ -1,6 +1,6 @@
 # Stranger
 
-[Stranger](https://www.churchofjesuschrist.org/study/scriptures/tg/Stranger?lang=eng)
+[Stranger](https://churchofjesuschrist.org/study/scriptures/tg/stranger?lang=eng)
 
 ### References
 - [[Genesis 15.13|Genesis 15:13]]

@@ -1,6 +1,6 @@
 # Heat
 
-[Heat](https://www.churchofjesuschrist.org/study/scriptures/tg/Heat?lang=eng)
+[Heat](https://churchofjesuschrist.org/study/scriptures/tg/heat?lang=eng)
 
 ### References
 - [[Genesis 8.22|Genesis 8:22]]

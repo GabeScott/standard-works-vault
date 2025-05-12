@@ -1,6 +1,6 @@
 # Prosperous
 
-[Prosperous](https://www.churchofjesuschrist.org/study/scriptures/tg/Prosperous?lang=eng)
+[Prosperous](https://churchofjesuschrist.org/study/scriptures/tg/prosperous?lang=eng)
 
 ### References
 - [[Genesis 24.21|Genesis 24:21]]

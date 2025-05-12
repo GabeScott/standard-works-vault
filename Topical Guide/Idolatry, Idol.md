@@ -1,6 +1,6 @@
 # Idolatry, Idol
 
-[Idolatry, Idol](https://www.churchofjesuschrist.org/study/scriptures/tg/Idolatry-Idol?lang=eng)
+[Idolatry, Idol](https://churchofjesuschrist.org/study/scriptures/tg/idolatry?lang=eng)
 
 ### References
 - [[Genesis 31.19|Genesis 31:19]]

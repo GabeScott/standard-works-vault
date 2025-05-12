@@ -1,6 +1,6 @@
 # Worth
 
-[Worth](https://www.churchofjesuschrist.org/study/scriptures/tg/Worth?lang=eng)
+[Worth](https://churchofjesuschrist.org/study/scriptures/tg/worth?lang=eng)
 
 ### References
 - [[2 Samuel 18.3|2 Samuel 18:3]]

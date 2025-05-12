@@ -1,6 +1,6 @@
 # Minister
 
-[Minister](https://www.churchofjesuschrist.org/study/scriptures/tg/Minister?lang=eng)
+[Minister](https://churchofjesuschrist.org/study/scriptures/tg/minister?lang=eng)
 
 ### References
 - [[Exodus 28.1|Exodus 28:1]]

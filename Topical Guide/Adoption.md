@@ -1,6 +1,6 @@
 # Adoption
 
-[Adoption](https://www.churchofjesuschrist.org/study/scriptures/tg/Adoption?lang=eng)
+[Adoption](https://churchofjesuschrist.org/study/scriptures/tg/adoption?lang=eng)
 
 ### References
 - [[Romans 8.15|Romans 8:15]]

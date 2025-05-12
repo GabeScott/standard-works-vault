@@ -1,6 +1,6 @@
 # Deride
 
-[Deride](https://www.churchofjesuschrist.org/study/scriptures/tg/Deride?lang=eng)
+[Deride](https://churchofjesuschrist.org/study/scriptures/tg/deride?lang=eng)
 
 ### References
 - [[Luke 16.14|Luke 16:14]]

@@ -1,6 +1,6 @@
 # Walking in Darkness
 
-[Walking in Darkness](https://www.churchofjesuschrist.org/study/scriptures/tg/Walking-in-Darkness?lang=eng)
+[Walking in Darkness](https://churchofjesuschrist.org/study/scriptures/tg/walking-in-darkness?lang=eng)
 
 ### References
 - [[Leviticus 18.3|Leviticus 18:3]]

@@ -1,6 +1,6 @@
 # Seer
 
-[Seer](https://www.churchofjesuschrist.org/study/scriptures/tg/Seer?lang=eng)
+[Seer](https://churchofjesuschrist.org/study/scriptures/tg/seer?lang=eng)
 
 ### References
 - [[1 Samuel 9.19|1 Samuel 9:19]]

@@ -1,6 +1,6 @@
 # Ink
 
-[Ink](https://www.churchofjesuschrist.org/study/scriptures/tg/Ink?lang=eng)
+[Ink](https://churchofjesuschrist.org/study/scriptures/tg/ink?lang=eng)
 
 ### References
 - [[Jeremiah 36.18|Jeremiah 36:18]]

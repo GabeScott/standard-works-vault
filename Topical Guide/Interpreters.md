@@ -1,6 +1,6 @@
 # Interpreters
 
-[Interpreters](https://www.churchofjesuschrist.org/study/scriptures/tg/Interpreters?lang=eng)
+[Interpreters](https://churchofjesuschrist.org/study/scriptures/tg/interpreters?lang=eng)
 
 ### References
 - [[Mosiah 28.20|Mosiah 28:20]]

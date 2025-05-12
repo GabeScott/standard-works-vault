@@ -1,6 +1,6 @@
 # Olivet, Olives, Mount of
 
-[Olivet, Olives, Mount of](https://www.churchofjesuschrist.org/study/scriptures/tg/Olivet-Olives-Mount-of?lang=eng)
+[Olivet, Olives, Mount of](https://churchofjesuschrist.org/study/scriptures/tg/olivet?lang=eng)
 
 ### References
 - [[2 Samuel 15.30|2 Samuel 15:30]]

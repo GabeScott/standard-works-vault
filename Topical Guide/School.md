@@ -1,6 +1,6 @@
 # School
 
-[School](https://www.churchofjesuschrist.org/study/scriptures/tg/School?lang=eng)
+[School](https://churchofjesuschrist.org/study/scriptures/tg/school?lang=eng)
 
 ### References
 - [[Acts 19.9|Acts 19:9]]

@@ -1,6 +1,6 @@
 # Strengthen
 
-[Strengthen](https://www.churchofjesuschrist.org/study/scriptures/tg/Strengthen?lang=eng)
+[Strengthen](https://churchofjesuschrist.org/study/scriptures/tg/strengthen?lang=eng)
 
 ### References
 - [[Judges 16.28|Judges 16:28]]

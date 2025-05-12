@@ -1,6 +1,6 @@
 # Island
 
-[Island](https://www.churchofjesuschrist.org/study/scriptures/tg/Island?lang=eng)
+[Island](https://churchofjesuschrist.org/study/scriptures/tg/island?lang=eng)
 
 ### References
 - [[Isaiah 11.11|Isaiah 11:11]]

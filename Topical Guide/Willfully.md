@@ -1,6 +1,6 @@
 # Willfully
 
-[Willfully](https://www.churchofjesuschrist.org/study/scriptures/tg/Willfully?lang=eng)
+[Willfully](https://churchofjesuschrist.org/study/scriptures/tg/willfully?lang=eng)
 
 ### References
 - [[Hebrews 10.26|Hebrews 10:26]]

@@ -1,6 +1,6 @@
 # Hosanna
 
-[Hosanna](https://www.churchofjesuschrist.org/study/scriptures/tg/Hosanna?lang=eng)
+[Hosanna](https://churchofjesuschrist.org/study/scriptures/tg/hosanna?lang=eng)
 
 ### References
 - [[Matthew 21.9|Matthew 21:9]]

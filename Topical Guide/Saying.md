@@ -1,6 +1,6 @@
 # Saying
 
-[Saying](https://www.churchofjesuschrist.org/study/scriptures/tg/Saying?lang=eng)
+[Saying](https://churchofjesuschrist.org/study/scriptures/tg/saying?lang=eng)
 
 ### References
 - [[2 Chronicles 33.19|2 Chronicles 33:19]]

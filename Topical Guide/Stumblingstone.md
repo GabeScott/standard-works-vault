@@ -1,6 +1,6 @@
 # Stumblingstone
 
-[Stumblingstone](https://www.churchofjesuschrist.org/study/scriptures/tg/Stumblingstone?lang=eng)
+[Stumblingstone](https://churchofjesuschrist.org/study/scriptures/tg/stumblingstone?lang=eng)
 
 ### References
 - [[Isaiah 8.14|Isaiah 8:14]]

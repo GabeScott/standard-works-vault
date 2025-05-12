@@ -1,6 +1,6 @@
 # Grudgingly
 
-[Grudgingly](https://www.churchofjesuschrist.org/study/scriptures/tg/Grudgingly?lang=eng)
+[Grudgingly](https://churchofjesuschrist.org/study/scriptures/tg/grudgingly?lang=eng)
 
 ### References
 - [[2 Corinthians 9.7|2 Corinthians 9:7]]

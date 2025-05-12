@@ -1,6 +1,6 @@
 # Mote
 
-[Mote](https://www.churchofjesuschrist.org/study/scriptures/tg/Mote?lang=eng)
+[Mote](https://churchofjesuschrist.org/study/scriptures/tg/mote?lang=eng)
 
 ### References
 - [[Matthew 7.3|Matthew 7:3]]

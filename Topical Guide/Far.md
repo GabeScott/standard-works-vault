@@ -1,6 +1,6 @@
 # Far
 
-[Far](https://www.churchofjesuschrist.org/study/scriptures/tg/Far?lang=eng)
+[Far](https://churchofjesuschrist.org/study/scriptures/tg/far?lang=eng)
 
 ### References
 - [[Psalms 73.27|Psalms 73:27]]

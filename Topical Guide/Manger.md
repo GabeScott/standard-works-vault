@@ -1,6 +1,6 @@
 # Manger
 
-[Manger](https://www.churchofjesuschrist.org/study/scriptures/tg/Manger?lang=eng)
+[Manger](https://churchofjesuschrist.org/study/scriptures/tg/manger?lang=eng)
 
 ### References
 - [[Luke 2.7|Luke 2:7]]

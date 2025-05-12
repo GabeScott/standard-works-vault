@@ -1,6 +1,6 @@
 # Morning
 
-[Morning](https://www.churchofjesuschrist.org/study/scriptures/tg/Morning?lang=eng)
+[Morning](https://churchofjesuschrist.org/study/scriptures/tg/morning?lang=eng)
 
 ### References
 - [[Genesis 19.15|Genesis 19:15]]

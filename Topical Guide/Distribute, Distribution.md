@@ -1,6 +1,6 @@
 # Distribute, Distribution
 
-[Distribute, Distribution](https://www.churchofjesuschrist.org/study/scriptures/tg/Distribute-Distribution?lang=eng)
+[Distribute, Distribution](https://churchofjesuschrist.org/study/scriptures/tg/distribute?lang=eng)
 
 ### References
 - [[Joshua 13.32|Joshua 13:32]]

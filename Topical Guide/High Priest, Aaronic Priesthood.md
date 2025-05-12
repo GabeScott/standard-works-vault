@@ -1,6 +1,6 @@
 # High Priest, Aaronic Priesthood
 
-[High Priest, Aaronic Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/High-Priest-Aaronic-Priesthood?lang=eng)
+[High Priest, Aaronic Priesthood](https://churchofjesuschrist.org/study/scriptures/tg/high-priest-aaronic-priesthood?lang=eng)
 
 ### References
 - [[Exodus 30.10|Exodus 30:10]]

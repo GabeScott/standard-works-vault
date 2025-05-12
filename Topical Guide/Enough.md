@@ -1,6 +1,6 @@
 # Enough
 
-[Enough](https://www.churchofjesuschrist.org/study/scriptures/tg/Enough?lang=eng)
+[Enough](https://churchofjesuschrist.org/study/scriptures/tg/enough?lang=eng)
 
 ### References
 - [[Isaiah 56.11|Isaiah 56:11]]

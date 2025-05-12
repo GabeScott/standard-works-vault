@@ -1,6 +1,6 @@
 # Asleep
 
-[Asleep](https://www.churchofjesuschrist.org/study/scriptures/tg/Asleep?lang=eng)
+[Asleep](https://churchofjesuschrist.org/study/scriptures/tg/asleep?lang=eng)
 
 ### References
 - [[Judges 4.21|Judges 4:21]]

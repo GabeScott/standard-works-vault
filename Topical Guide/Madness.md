@@ -1,6 +1,6 @@
 # Madness
 
-[Madness](https://www.churchofjesuschrist.org/study/scriptures/tg/Madness?lang=eng)
+[Madness](https://churchofjesuschrist.org/study/scriptures/tg/madness?lang=eng)
 
 ### References
 - [[Zechariah 12.4|Zechariah 12:4]]

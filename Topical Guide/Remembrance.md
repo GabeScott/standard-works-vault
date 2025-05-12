@@ -1,6 +1,6 @@
 # Remembrance
 
-[Remembrance](https://www.churchofjesuschrist.org/study/scriptures/tg/Remembrance?lang=eng)
+[Remembrance](https://churchofjesuschrist.org/study/scriptures/tg/book-of-remembrance?lang=eng)
 
 ### References
 - [[Numbers 5.15|Numbers 5:15]]

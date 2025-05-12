@@ -1,6 +1,6 @@
 # Holy Ghost
 
-[Holy Ghost](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Ghost?lang=eng)
+[Holy Ghost](https://churchofjesuschrist.org/study/scriptures/tg/holy-ghost?lang=eng)
 
 ### References
 - [[Matthew 1.18|Matthew 1:18]]

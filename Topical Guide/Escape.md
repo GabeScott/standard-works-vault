@@ -1,6 +1,6 @@
 # Escape
 
-[Escape](https://www.churchofjesuschrist.org/study/scriptures/tg/Escape?lang=eng)
+[Escape](https://churchofjesuschrist.org/study/scriptures/tg/escape?lang=eng)
 
 ### References
 - [[Genesis 19.17|Genesis 19:17]]

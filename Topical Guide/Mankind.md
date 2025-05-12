@@ -1,6 +1,6 @@
 # Mankind
 
-[Mankind](https://www.churchofjesuschrist.org/study/scriptures/tg/Mankind?lang=eng)
+[Mankind](https://churchofjesuschrist.org/study/scriptures/tg/mankind?lang=eng)
 
 ### References
 - [[Leviticus 18.22|Leviticus 18:22]]

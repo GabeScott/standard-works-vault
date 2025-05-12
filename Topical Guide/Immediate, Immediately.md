@@ -1,6 +1,6 @@
 # Immediate, Immediately
 
-[Immediate, Immediately](https://www.churchofjesuschrist.org/study/scriptures/tg/Immediate-Immediately?lang=eng)
+[Immediate, Immediately](https://churchofjesuschrist.org/study/scriptures/tg/immediate?lang=eng)
 
 ### References
 - [[Matthew 24.29|Matthew 24:29]]

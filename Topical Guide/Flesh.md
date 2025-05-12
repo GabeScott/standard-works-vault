@@ -1,6 +1,6 @@
 # Flesh
 
-[Flesh](https://www.churchofjesuschrist.org/study/scriptures/tg/Flesh?lang=eng)
+[Flesh](https://churchofjesuschrist.org/study/scriptures/tg/flesh?lang=eng)
 
 ### References
 - [[Genesis 2.23|Genesis 2:23]]

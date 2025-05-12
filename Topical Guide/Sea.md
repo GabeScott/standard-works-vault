@@ -1,6 +1,6 @@
 # Sea
 
-[Sea](https://www.churchofjesuschrist.org/study/scriptures/tg/Sea?lang=eng)
+[Sea](https://churchofjesuschrist.org/study/scriptures/tg/sea?lang=eng)
 
 ### References
 - [[Genesis 1.10|Genesis 1:10]]

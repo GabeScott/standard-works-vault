@@ -1,6 +1,6 @@
 # Tender
 
-[Tender](https://www.churchofjesuschrist.org/study/scriptures/tg/Tender?lang=eng)
+[Tender](https://churchofjesuschrist.org/study/scriptures/tg/tender?lang=eng)
 
 ### References
 - [[Genesis 29.17|Genesis 29:17]]

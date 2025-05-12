@@ -1,6 +1,6 @@
 # Outer Darkness
 
-[Outer Darkness](https://www.churchofjesuschrist.org/study/scriptures/tg/Outer-Darkness?lang=eng)
+[Outer Darkness](https://churchofjesuschrist.org/study/scriptures/tg/outer-darkness?lang=eng)
 
 ### References
 - [[Matthew 22.13|Matthew 22:13]]

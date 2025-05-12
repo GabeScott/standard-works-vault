@@ -1,6 +1,6 @@
 # Circle
 
-[Circle](https://www.churchofjesuschrist.org/study/scriptures/tg/Circle?lang=eng)
+[Circle](https://churchofjesuschrist.org/study/scriptures/tg/circle?lang=eng)
 
 ### References
 - [[Isaiah 40.22|Isaiah 40:22]]

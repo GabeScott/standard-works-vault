@@ -1,6 +1,6 @@
 # Bald
 
-[Bald](https://www.churchofjesuschrist.org/study/scriptures/tg/Bald?lang=eng)
+[Bald](https://churchofjesuschrist.org/study/scriptures/tg/bald?lang=eng)
 
 ### References
 - [[Leviticus 13.40|Leviticus 13:40]]

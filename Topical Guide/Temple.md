@@ -1,6 +1,6 @@
 # Temple
 
-[Temple](https://www.churchofjesuschrist.org/study/scriptures/tg/Temple?lang=eng)
+[Temple](https://churchofjesuschrist.org/study/scriptures/tg/temple?lang=eng)
 
 ### References
 - [[Matthew 27.40|Matthew 27:40]]

@@ -1,6 +1,6 @@
 # Grant
 
-[Grant](https://www.churchofjesuschrist.org/study/scriptures/tg/Grant?lang=eng)
+[Grant](https://churchofjesuschrist.org/study/scriptures/tg/grant?lang=eng)
 
 ### References
 - [[Psalms 20.4|Psalms 20:4]]

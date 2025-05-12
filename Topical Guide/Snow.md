@@ -1,6 +1,6 @@
 # Snow
 
-[Snow](https://www.churchofjesuschrist.org/study/scriptures/tg/Snow?lang=eng)
+[Snow](https://churchofjesuschrist.org/study/scriptures/tg/snow?lang=eng)
 
 ### References
 - [[2 Samuel 23.20|2 Samuel 23:20]]

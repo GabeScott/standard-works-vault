@@ -1,6 +1,6 @@
 # Tool
 
-[Tool](https://www.churchofjesuschrist.org/study/scriptures/tg/Tool?lang=eng)
+[Tool](https://churchofjesuschrist.org/study/scriptures/tg/tool?lang=eng)
 
 ### References
 - [[Exodus 20.25|Exodus 20:25]]

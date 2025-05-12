@@ -1,6 +1,6 @@
 # Hew, Hewn
 
-[Hew, Hewn](https://www.churchofjesuschrist.org/study/scriptures/tg/Hew-Hewn?lang=eng)
+[Hew, Hewn](https://churchofjesuschrist.org/study/scriptures/tg/hew?lang=eng)
 
 ### References
 - [[Exodus 34.1|Exodus 34:1]]

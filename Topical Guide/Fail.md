@@ -1,6 +1,6 @@
 # Fail
 
-[Fail](https://www.churchofjesuschrist.org/study/scriptures/tg/Fail?lang=eng)
+[Fail](https://churchofjesuschrist.org/study/scriptures/tg/fail?lang=eng)
 
 ### References
 - [[Genesis 47.16|Genesis 47:16]]

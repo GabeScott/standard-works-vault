@@ -1,6 +1,6 @@
 # Scale
 
-[Scale](https://www.churchofjesuschrist.org/study/scriptures/tg/Scale?lang=eng)
+[Scale](https://churchofjesuschrist.org/study/scriptures/tg/scale?lang=eng)
 
 ### References
 - [[Leviticus 11.9|Leviticus 11:9]]

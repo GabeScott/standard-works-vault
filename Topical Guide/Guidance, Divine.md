@@ -1,6 +1,6 @@
 # Guidance, Divine
 
-[Guidance, Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/Guidance-Divine?lang=eng)
+[Guidance, Divine](https://churchofjesuschrist.org/study/scriptures/tg/guidance-divine?lang=eng)
 
 ### References
 - [[Genesis 24.27|Genesis 24:27]]

@@ -1,6 +1,6 @@
 # Multiply
 
-[Multiply](https://www.churchofjesuschrist.org/study/scriptures/tg/Multiply?lang=eng)
+[Multiply](https://churchofjesuschrist.org/study/scriptures/tg/multiply?lang=eng)
 
 ### References
 - [[Genesis 1.22|Genesis 1:22]]

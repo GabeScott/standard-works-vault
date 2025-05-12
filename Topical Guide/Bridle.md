@@ -1,6 +1,6 @@
 # Bridle
 
-[Bridle](https://www.churchofjesuschrist.org/study/scriptures/tg/Bridle?lang=eng)
+[Bridle](https://churchofjesuschrist.org/study/scriptures/tg/bridle?lang=eng)
 
 ### References
 - [[2 Kings 19.28|2 Kings 19:28]]

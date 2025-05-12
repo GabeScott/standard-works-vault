@@ -1,6 +1,6 @@
 # Feed, Fed
 
-[Feed, Fed](https://www.churchofjesuschrist.org/study/scriptures/tg/Feed-Fed?lang=eng)
+[Feed, Fed](https://churchofjesuschrist.org/study/scriptures/tg/feed?lang=eng)
 
 ### References
 - [[Genesis 25.30|Genesis 25:30]]

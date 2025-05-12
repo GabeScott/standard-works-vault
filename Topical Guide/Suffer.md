@@ -1,6 +1,6 @@
 # Suffer
 
-[Suffer](https://www.churchofjesuschrist.org/study/scriptures/tg/Suffer?lang=eng)
+[Suffer](https://churchofjesuschrist.org/study/scriptures/tg/suffer?lang=eng)
 
 ### References
 - [[Exodus 12.23|Exodus 12:23]]

@@ -1,6 +1,6 @@
 # Sun
 
-[Sun](https://www.churchofjesuschrist.org/study/scriptures/tg/Sun?lang=eng)
+[Sun](https://churchofjesuschrist.org/study/scriptures/tg/sun?lang=eng)
 
 ### References
 - [[Joshua 10.12|Joshua 10:12]]

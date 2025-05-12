@@ -1,6 +1,6 @@
 # Account
 
-[Account](https://www.churchofjesuschrist.org/study/scriptures/tg/Account?lang=eng)
+[Account](https://churchofjesuschrist.org/study/scriptures/tg/account?lang=eng)
 
 ### References
 - [[Psalms 144.3|Psalms 144:3]]

@@ -1,6 +1,6 @@
 # Clay
 
-[Clay](https://www.churchofjesuschrist.org/study/scriptures/tg/Clay?lang=eng)
+[Clay](https://churchofjesuschrist.org/study/scriptures/tg/clay?lang=eng)
 
 ### References
 - [[Isaiah 29.16|Isaiah 29:16]]

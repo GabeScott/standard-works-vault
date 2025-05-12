@@ -1,6 +1,6 @@
 # Sport
 
-[Sport](https://www.churchofjesuschrist.org/study/scriptures/tg/Sport?lang=eng)
+[Sport](https://churchofjesuschrist.org/study/scriptures/tg/sport?lang=eng)
 
 ### References
 - [[Genesis 26.8|Genesis 26:8]]

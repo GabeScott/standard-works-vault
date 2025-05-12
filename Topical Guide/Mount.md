@@ -1,6 +1,6 @@
 # Mount
 
-[Mount](https://www.churchofjesuschrist.org/study/scriptures/tg/Mount?lang=eng)
+[Mount](https://churchofjesuschrist.org/study/scriptures/tg/mount-noun?lang=eng)
 
 ### References
 - [[Genesis 22.14|Genesis 22:14]]

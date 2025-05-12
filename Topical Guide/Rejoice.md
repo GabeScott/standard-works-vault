@@ -1,6 +1,6 @@
 # Rejoice
 
-[Rejoice](https://www.churchofjesuschrist.org/study/scriptures/tg/Rejoice?lang=eng)
+[Rejoice](https://churchofjesuschrist.org/study/scriptures/tg/rejoice?lang=eng)
 
 ### References
 - [[Leviticus 23.40|Leviticus 23:40]]

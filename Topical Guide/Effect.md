@@ -1,6 +1,6 @@
 # Effect
 
-[Effect](https://www.churchofjesuschrist.org/study/scriptures/tg/Effect?lang=eng)
+[Effect](https://churchofjesuschrist.org/study/scriptures/tg/effect?lang=eng)
 
 ### References
 - [[Ezekiel 12.23|Ezekiel 12:23]]

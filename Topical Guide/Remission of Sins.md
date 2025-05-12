@@ -1,6 +1,6 @@
 # Remission of Sins
 
-[Remission of Sins](https://www.churchofjesuschrist.org/study/scriptures/tg/Remission-of-Sins?lang=eng)
+[Remission of Sins](https://churchofjesuschrist.org/study/scriptures/tg/remission-of-sins?lang=eng)
 
 ### References
 - [[Isaiah 1.18|Isaiah 1:18]]

@@ -1,6 +1,6 @@
 # Sever
 
-[Sever](https://www.churchofjesuschrist.org/study/scriptures/tg/Sever?lang=eng)
+[Sever](https://churchofjesuschrist.org/study/scriptures/tg/sever?lang=eng)
 
 ### References
 - [[Exodus 8.22|Exodus 8:22]]

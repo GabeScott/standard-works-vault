@@ -1,6 +1,6 @@
 # Rely
 
-[Rely](https://www.churchofjesuschrist.org/study/scriptures/tg/Rely?lang=eng)
+[Rely](https://churchofjesuschrist.org/study/scriptures/tg/rely?lang=eng)
 
 ### References
 - [[2 Chronicles 13.18|2 Chronicles 13:18]]

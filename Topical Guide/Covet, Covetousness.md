@@ -1,6 +1,6 @@
 # Covet, Covetousness
 
-[Covet, Covetousness](https://www.churchofjesuschrist.org/study/scriptures/tg/Covet-Covetousness?lang=eng)
+[Covet, Covetousness](https://churchofjesuschrist.org/study/scriptures/tg/covet?lang=eng)
 
 ### References
 - [[Genesis 12.14|Genesis 12:14]]

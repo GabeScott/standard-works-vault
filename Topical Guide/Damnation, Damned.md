@@ -1,6 +1,6 @@
 # Damnation, Damned
 
-[Damnation, Damned](https://www.churchofjesuschrist.org/study/scriptures/tg/Damnation-Damned?lang=eng)
+[Damnation, Damned](https://churchofjesuschrist.org/study/scriptures/tg/damnation?lang=eng)
 
 ### References
 - [[Daniel 12.2|Daniel 12:2]]

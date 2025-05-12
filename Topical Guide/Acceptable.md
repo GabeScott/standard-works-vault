@@ -1,6 +1,6 @@
 # Acceptable
 
-[Acceptable](https://www.churchofjesuschrist.org/study/scriptures/tg/Acceptable?lang=eng)
+[Acceptable](https://churchofjesuschrist.org/study/scriptures/tg/acceptable?lang=eng)
 
 ### References
 - [[Leviticus 22.20|Leviticus 22:20]]

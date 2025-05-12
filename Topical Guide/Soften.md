@@ -1,6 +1,6 @@
 # Soften
 
-[Soften](https://www.churchofjesuschrist.org/study/scriptures/tg/Soften?lang=eng)
+[Soften](https://churchofjesuschrist.org/study/scriptures/tg/soften?lang=eng)
 
 ### References
 - [[1 Nephi 18.20|1 Nephi 18:20]]

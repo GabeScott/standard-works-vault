@@ -1,6 +1,6 @@
 # Joint
 
-[Joint](https://www.churchofjesuschrist.org/study/scriptures/tg/Joint?lang=eng)
+[Joint](https://churchofjesuschrist.org/study/scriptures/tg/joint?lang=eng)
 
 ### References
 - [[Genesis 32.25|Genesis 32:25]]

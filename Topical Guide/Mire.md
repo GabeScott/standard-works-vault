@@ -1,6 +1,6 @@
 # Mire
 
-[Mire](https://www.churchofjesuschrist.org/study/scriptures/tg/Mire?lang=eng)
+[Mire](https://churchofjesuschrist.org/study/scriptures/tg/mire?lang=eng)
 
 ### References
 - [[2 Peter 2.22|2 Peter 2:22]]

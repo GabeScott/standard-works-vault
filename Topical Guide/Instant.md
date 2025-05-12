@@ -1,6 +1,6 @@
 # Instant
 
-[Instant](https://www.churchofjesuschrist.org/study/scriptures/tg/Instant?lang=eng)
+[Instant](https://churchofjesuschrist.org/study/scriptures/tg/instant?lang=eng)
 
 ### References
 - [[Isaiah 29.5|Isaiah 29:5]]

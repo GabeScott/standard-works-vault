@@ -1,6 +1,6 @@
 # Trimmed
 
-[Trimmed](https://www.churchofjesuschrist.org/study/scriptures/tg/Trimmed?lang=eng)
+[Trimmed](https://churchofjesuschrist.org/study/scriptures/tg/trimmed?lang=eng)
 
 ### References
 - [[Matthew 25.7|Matthew 25:7]]

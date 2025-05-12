@@ -1,6 +1,6 @@
 # Silence, Silent
 
-[Silence, Silent](https://www.churchofjesuschrist.org/study/scriptures/tg/Silence-Silent?lang=eng)
+[Silence, Silent](https://churchofjesuschrist.org/study/scriptures/tg/silence?lang=eng)
 
 ### References
 - [[1 Samuel 2.9|1 Samuel 2:9]]

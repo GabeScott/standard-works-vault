@@ -1,6 +1,6 @@
 # Girdle
 
-[Girdle](https://www.churchofjesuschrist.org/study/scriptures/tg/Girdle?lang=eng)
+[Girdle](https://churchofjesuschrist.org/study/scriptures/tg/girdle?lang=eng)
 
 ### References
 - [[Exodus 28.4|Exodus 28:4]]

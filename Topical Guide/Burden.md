@@ -1,6 +1,6 @@
 # Burden
 
-[Burden](https://www.churchofjesuschrist.org/study/scriptures/tg/Burden?lang=eng)
+[Burden](https://churchofjesuschrist.org/study/scriptures/tg/burden?lang=eng)
 
 ### References
 - [[Exodus 1.11|Exodus 1:11]]

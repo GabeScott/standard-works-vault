@@ -1,6 +1,6 @@
 # Grieve
 
-[Grieve](https://www.churchofjesuschrist.org/study/scriptures/tg/Grieve?lang=eng)
+[Grieve](https://churchofjesuschrist.org/study/scriptures/tg/grieve?lang=eng)
 
 ### References
 - [[Genesis 6.6|Genesis 6:6]]

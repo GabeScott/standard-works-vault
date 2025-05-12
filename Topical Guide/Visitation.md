@@ -1,6 +1,6 @@
 # Visitation
 
-[Visitation](https://www.churchofjesuschrist.org/study/scriptures/tg/Visitation?lang=eng)
+[Visitation](https://churchofjesuschrist.org/study/scriptures/tg/visitation?lang=eng)
 
 ### References
 - [[Job 10.12|Job 10:12]]

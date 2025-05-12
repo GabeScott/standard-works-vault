@@ -1,6 +1,6 @@
 # Utter
 
-[Utter](https://www.churchofjesuschrist.org/study/scriptures/tg/Utter?lang=eng)
+[Utter](https://churchofjesuschrist.org/study/scriptures/tg/utter?lang=eng)
 
 ### References
 - [[Psalms 78.2|Psalms 78:2]]

@@ -1,6 +1,6 @@
 # Likeness
 
-[Likeness](https://www.churchofjesuschrist.org/study/scriptures/tg/Likeness?lang=eng)
+[Likeness](https://churchofjesuschrist.org/study/scriptures/tg/likeness?lang=eng)
 
 ### References
 - [[Genesis 1.26|Genesis 1:26]]

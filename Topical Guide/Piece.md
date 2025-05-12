@@ -1,6 +1,6 @@
 # Piece
 
-[Piece](https://www.churchofjesuschrist.org/study/scriptures/tg/Piece?lang=eng)
+[Piece](https://churchofjesuschrist.org/study/scriptures/tg/piece?lang=eng)
 
 ### References
 - [[Genesis 44.28|Genesis 44:28]]

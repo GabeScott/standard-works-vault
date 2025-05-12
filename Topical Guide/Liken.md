@@ -1,6 +1,6 @@
 # Liken
 
-[Liken](https://www.churchofjesuschrist.org/study/scriptures/tg/Liken?lang=eng)
+[Liken](https://churchofjesuschrist.org/study/scriptures/tg/liken?lang=eng)
 
 ### References
 - [[Isaiah 40.18|Isaiah 40:18]]

@@ -1,6 +1,6 @@
 # Heel
 
-[Heel](https://www.churchofjesuschrist.org/study/scriptures/tg/Heel?lang=eng)
+[Heel](https://churchofjesuschrist.org/study/scriptures/tg/heel?lang=eng)
 
 ### References
 - [[Genesis 25.26|Genesis 25:26]]

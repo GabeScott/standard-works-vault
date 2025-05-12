@@ -1,6 +1,6 @@
 # Weighty, Weightier
 
-[Weighty, Weightier](https://www.churchofjesuschrist.org/study/scriptures/tg/Weighty-Weightier?lang=eng)
+[Weighty, Weightier](https://churchofjesuschrist.org/study/scriptures/tg/weighty?lang=eng)
 
 ### References
 - [[Proverbs 27.3|Proverbs 27:3]]

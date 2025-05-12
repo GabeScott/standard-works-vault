@@ -1,6 +1,6 @@
 # Raven
 
-[Raven](https://www.churchofjesuschrist.org/study/scriptures/tg/Raven?lang=eng)
+[Raven](https://churchofjesuschrist.org/study/scriptures/tg/raven?lang=eng)
 
 ### References
 - [[Genesis 8.7|Genesis 8:7]]

@@ -1,6 +1,6 @@
 # Comprehend
 
-[Comprehend](https://www.churchofjesuschrist.org/study/scriptures/tg/Comprehend?lang=eng)
+[Comprehend](https://churchofjesuschrist.org/study/scriptures/tg/comprehend?lang=eng)
 
 ### References
 - [[John 1.5|John 1:5]]

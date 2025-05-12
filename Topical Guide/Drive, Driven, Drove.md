@@ -1,6 +1,6 @@
 # Drive, Driven, Drove
 
-[Drive, Driven, Drove](https://www.churchofjesuschrist.org/study/scriptures/tg/Drive-Driven-Drove?lang=eng)
+[Drive, Driven, Drove](https://churchofjesuschrist.org/study/scriptures/tg/drive?lang=eng)
 
 ### References
 - [[Genesis 3.24|Genesis 3:24]]

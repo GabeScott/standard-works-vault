@@ -1,6 +1,6 @@
 # Beauty
 
-[Beauty](https://www.churchofjesuschrist.org/study/scriptures/tg/Beauty?lang=eng)
+[Beauty](https://churchofjesuschrist.org/study/scriptures/tg/beauty?lang=eng)
 
 ### References
 - [[Genesis 29.17|Genesis 29:17]]

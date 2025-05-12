@@ -1,6 +1,6 @@
 # Well
 
-[Well](https://www.churchofjesuschrist.org/study/scriptures/tg/Well?lang=eng)
+[Well](https://churchofjesuschrist.org/study/scriptures/tg/well-adjective-adverb?lang=eng)
 
 ### References
 - [[Genesis 12.13|Genesis 12:13]]

@@ -1,6 +1,6 @@
 # Cheer
 
-[Cheer](https://www.churchofjesuschrist.org/study/scriptures/tg/Cheer?lang=eng)
+[Cheer](https://churchofjesuschrist.org/study/scriptures/tg/cheer?lang=eng)
 
 ### References
 - [[Deuteronomy 24.5|Deuteronomy 24:5]]

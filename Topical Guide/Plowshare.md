@@ -1,6 +1,6 @@
 # Plowshare
 
-[Plowshare](https://www.churchofjesuschrist.org/study/scriptures/tg/Plowshare?lang=eng)
+[Plowshare](https://churchofjesuschrist.org/study/scriptures/tg/plowshare?lang=eng)
 
 ### References
 - [[Isaiah 2.4|Isaiah 2:4]]

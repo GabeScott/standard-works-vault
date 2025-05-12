@@ -1,6 +1,6 @@
 # Prudence, Prudent
 
-[Prudence, Prudent](https://www.churchofjesuschrist.org/study/scriptures/tg/Prudence-Prudent?lang=eng)
+[Prudence, Prudent](https://churchofjesuschrist.org/study/scriptures/tg/prudence?lang=eng)
 
 ### References
 - [[1 Samuel 16.18|1 Samuel 16:18]]

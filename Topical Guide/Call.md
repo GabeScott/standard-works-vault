@@ -1,6 +1,6 @@
 # Call
 
-[Call](https://www.churchofjesuschrist.org/study/scriptures/tg/Call?lang=eng)
+[Call](https://churchofjesuschrist.org/study/scriptures/tg/call?lang=eng)
 
 ### References
 - [[Genesis 12.8|Genesis 12:8]]

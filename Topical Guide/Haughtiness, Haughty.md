@@ -1,6 +1,6 @@
 # Haughtiness, Haughty
 
-[Haughtiness, Haughty](https://www.churchofjesuschrist.org/study/scriptures/tg/Haughtiness-Haughty?lang=eng)
+[Haughtiness, Haughty](https://churchofjesuschrist.org/study/scriptures/tg/haughtiness?lang=eng)
 
 ### References
 - [[2 Samuel 22.28|2 Samuel 22:28]]

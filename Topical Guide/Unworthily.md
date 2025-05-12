@@ -1,6 +1,6 @@
 # Unworthily
 
-[Unworthily](https://www.churchofjesuschrist.org/study/scriptures/tg/Unworthily?lang=eng)
+[Unworthily](https://churchofjesuschrist.org/study/scriptures/tg/unworthily?lang=eng)
 
 ### References
 - [[1 Corinthians 11.27|1 Corinthians 11:27]]

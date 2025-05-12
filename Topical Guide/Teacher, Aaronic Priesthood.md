@@ -1,6 +1,6 @@
 # Teacher, Aaronic Priesthood
 
-[Teacher, Aaronic Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/Teacher-Aaronic-Priesthood?lang=eng)
+[Teacher, Aaronic Priesthood](https://churchofjesuschrist.org/study/scriptures/tg/teacher-aaronic-priesthood?lang=eng)
 
 ### References
 - [[1 Corinthians 12.28|1 Corinthians 12:28]]

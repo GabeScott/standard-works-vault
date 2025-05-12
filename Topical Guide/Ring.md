@@ -1,6 +1,6 @@
 # Ring
 
-[Ring](https://www.churchofjesuschrist.org/study/scriptures/tg/Ring?lang=eng)
+[Ring](https://churchofjesuschrist.org/study/scriptures/tg/ring?lang=eng)
 
 ### References
 - [[Genesis 41.42|Genesis 41:42]]

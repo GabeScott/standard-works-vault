@@ -1,6 +1,6 @@
 # Threaten, Threatening
 
-[Threaten, Threatening](https://www.churchofjesuschrist.org/study/scriptures/tg/Threaten-Threatening?lang=eng)
+[Threaten, Threatening](https://churchofjesuschrist.org/study/scriptures/tg/threaten?lang=eng)
 
 ### References
 - [[Acts 4.17|Acts 4:17]]

@@ -1,6 +1,6 @@
 # Divorce, Divorcement
 
-[Divorce, Divorcement](https://www.churchofjesuschrist.org/study/scriptures/tg/Divorce-Divorcement?lang=eng)
+[Divorce, Divorcement](https://churchofjesuschrist.org/study/scriptures/tg/divorce?lang=eng)
 
 ### References
 - [[Genesis 2.24|Genesis 2:24]]

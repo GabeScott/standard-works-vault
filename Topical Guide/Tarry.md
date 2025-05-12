@@ -1,6 +1,6 @@
 # Tarry
 
-[Tarry](https://www.churchofjesuschrist.org/study/scriptures/tg/Tarry?lang=eng)
+[Tarry](https://churchofjesuschrist.org/study/scriptures/tg/tarry?lang=eng)
 
 ### References
 - [[Psalms 101.7|Psalms 101:7]]

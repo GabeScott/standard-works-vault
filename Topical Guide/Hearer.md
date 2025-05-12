@@ -1,6 +1,6 @@
 # Hearer
 
-[Hearer](https://www.churchofjesuschrist.org/study/scriptures/tg/Hearer?lang=eng)
+[Hearer](https://churchofjesuschrist.org/study/scriptures/tg/hearer?lang=eng)
 
 ### References
 - [[Romans 2.13|Romans 2:13]]

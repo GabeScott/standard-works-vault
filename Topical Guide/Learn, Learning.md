@@ -1,6 +1,6 @@
 # Learn, Learning
 
-[Learn, Learning](https://www.churchofjesuschrist.org/study/scriptures/tg/Learn-Learning?lang=eng)
+[Learn, Learning](https://churchofjesuschrist.org/study/scriptures/tg/learn?lang=eng)
 
 ### References
 - [[Genesis 30.27|Genesis 30:27]]

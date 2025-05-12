@@ -1,6 +1,6 @@
 # Read
 
-[Read](https://www.churchofjesuschrist.org/study/scriptures/tg/Read?lang=eng)
+[Read](https://churchofjesuschrist.org/study/scriptures/tg/read?lang=eng)
 
 ### References
 - [[Exodus 24.7|Exodus 24:7]]

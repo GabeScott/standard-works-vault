@@ -1,6 +1,6 @@
 # Thread
 
-[Thread](https://www.churchofjesuschrist.org/study/scriptures/tg/Thread?lang=eng)
+[Thread](https://churchofjesuschrist.org/study/scriptures/tg/thread?lang=eng)
 
 ### References
 - [[Genesis 14.23|Genesis 14:23]]

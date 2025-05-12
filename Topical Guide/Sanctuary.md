@@ -1,6 +1,6 @@
 # Sanctuary
 
-[Sanctuary](https://www.churchofjesuschrist.org/study/scriptures/tg/Sanctuary?lang=eng)
+[Sanctuary](https://churchofjesuschrist.org/study/scriptures/tg/sanctuary?lang=eng)
 
 ### References
 - [[Exodus 15.17|Exodus 15:17]]

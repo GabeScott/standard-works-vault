@@ -1,6 +1,6 @@
 # Rising
 
-[Rising](https://www.churchofjesuschrist.org/study/scriptures/tg/Rising?lang=eng)
+[Rising](https://churchofjesuschrist.org/study/scriptures/tg/rising?lang=eng)
 
 ### References
 - [[Isaiah 45.6|Isaiah 45:6]]

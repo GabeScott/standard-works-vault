@@ -1,6 +1,6 @@
 # Babylon
 
-[Babylon](https://www.churchofjesuschrist.org/study/scriptures/tg/Babylon?lang=eng)
+[Babylon](https://churchofjesuschrist.org/study/scriptures/tg/babylon?lang=eng)
 
 ### References
 - [[Isaiah 13.19|Isaiah 13:19]]

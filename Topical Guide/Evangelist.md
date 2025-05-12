@@ -1,6 +1,6 @@
 # Evangelist
 
-[Evangelist](https://www.churchofjesuschrist.org/study/scriptures/tg/Evangelist?lang=eng)
+[Evangelist](https://churchofjesuschrist.org/study/scriptures/tg/evangelist?lang=eng)
 
 ### References
 - [[Acts 21.8|Acts 21:8]]

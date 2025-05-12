@@ -1,6 +1,6 @@
 # Jesus Christ, Advocate
 
-[Jesus Christ, Advocate](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Advocate?lang=eng)
+[Jesus Christ, Advocate](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-advocate?lang=eng)
 
 ### References
 - [[Hebrews 7.25|Hebrews 7:25]]

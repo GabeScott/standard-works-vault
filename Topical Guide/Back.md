@@ -1,6 +1,6 @@
 # Back
 
-[Back](https://www.churchofjesuschrist.org/study/scriptures/tg/Back?lang=eng)
+[Back](https://churchofjesuschrist.org/study/scriptures/tg/back?lang=eng)
 
 ### References
 - [[Genesis 19.26|Genesis 19:26]]

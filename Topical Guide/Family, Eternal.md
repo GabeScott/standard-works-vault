@@ -1,6 +1,6 @@
 # Family, Eternal
 
-[Family, Eternal](https://www.churchofjesuschrist.org/study/scriptures/tg/Family-Eternal?lang=eng)
+[Family, Eternal](https://churchofjesuschrist.org/study/scriptures/tg/family-eternal?lang=eng)
 
 ### References
 - [[Genesis 2.24|Genesis 2:24]]

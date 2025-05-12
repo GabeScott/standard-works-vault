@@ -1,6 +1,6 @@
 # Memory
 
-[Memory](https://www.churchofjesuschrist.org/study/scriptures/tg/Memory?lang=eng)
+[Memory](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-types-of-in-memory?lang=eng)
 
 ### References
 - [[Proverbs 10.7|Proverbs 10:7]]

@@ -1,6 +1,6 @@
 # Bride
 
-[Bride](https://www.churchofjesuschrist.org/study/scriptures/tg/Bride?lang=eng)
+[Bride](https://churchofjesuschrist.org/study/scriptures/tg/bride?lang=eng)
 
 ### References
 - [[Isaiah 61.10|Isaiah 61:10]]

@@ -1,6 +1,6 @@
 # Hedge
 
-[Hedge](https://www.churchofjesuschrist.org/study/scriptures/tg/Hedge?lang=eng)
+[Hedge](https://churchofjesuschrist.org/study/scriptures/tg/hedge?lang=eng)
 
 ### References
 - [[Proverbs 15.19|Proverbs 15:19]]

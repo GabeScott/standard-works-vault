@@ -1,6 +1,6 @@
 # Husband
 
-[Husband](https://www.churchofjesuschrist.org/study/scriptures/tg/Husband?lang=eng)
+[Husband](https://churchofjesuschrist.org/study/scriptures/tg/husband?lang=eng)
 
 ### References
 - [[Genesis 3.16|Genesis 3:16]]

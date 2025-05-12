@@ -1,6 +1,6 @@
 # Restrain
 
-[Restrain](https://www.churchofjesuschrist.org/study/scriptures/tg/Restrain?lang=eng)
+[Restrain](https://churchofjesuschrist.org/study/scriptures/tg/restrain?lang=eng)
 
 ### References
 - [[1 Samuel 3.13|1 Samuel 3:13]]

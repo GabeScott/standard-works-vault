@@ -1,6 +1,6 @@
 # Possessor
 
-[Possessor](https://www.churchofjesuschrist.org/study/scriptures/tg/Possessor?lang=eng)
+[Possessor](https://churchofjesuschrist.org/study/scriptures/tg/possessor?lang=eng)
 
 ### References
 - [[Genesis 14.19|Genesis 14:19]]

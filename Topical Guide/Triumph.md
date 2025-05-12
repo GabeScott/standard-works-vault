@@ -1,6 +1,6 @@
 # Triumph
 
-[Triumph](https://www.churchofjesuschrist.org/study/scriptures/tg/Triumph?lang=eng)
+[Triumph](https://churchofjesuschrist.org/study/scriptures/tg/triumph?lang=eng)
 
 ### References
 - [[Exodus 15.1|Exodus 15:1]]

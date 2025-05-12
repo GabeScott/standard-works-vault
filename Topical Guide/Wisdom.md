@@ -1,6 +1,6 @@
 # Wisdom
 
-[Wisdom](https://www.churchofjesuschrist.org/study/scriptures/tg/Wisdom?lang=eng)
+[Wisdom](https://churchofjesuschrist.org/study/scriptures/tg/wisdom?lang=eng)
 
 ### References
 - [[Exodus 28.3|Exodus 28:3]]

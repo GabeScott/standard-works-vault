@@ -1,6 +1,6 @@
 # Spend, Spent
 
-[Spend, Spent](https://www.churchofjesuschrist.org/study/scriptures/tg/Spend-Spent?lang=eng)
+[Spend, Spent](https://churchofjesuschrist.org/study/scriptures/tg/spend?lang=eng)
 
 ### References
 - [[Genesis 47.18|Genesis 47:18]]

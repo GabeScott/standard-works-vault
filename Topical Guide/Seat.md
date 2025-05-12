@@ -1,6 +1,6 @@
 # Seat
 
-[Seat](https://www.churchofjesuschrist.org/study/scriptures/tg/Seat?lang=eng)
+[Seat](https://churchofjesuschrist.org/study/scriptures/tg/mercy-seat?lang=eng)
 
 ### References
 - [[Matthew 21.12|Matthew 21:12]]

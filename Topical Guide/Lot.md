@@ -1,6 +1,6 @@
 # Lot
 
-[Lot](https://www.churchofjesuschrist.org/study/scriptures/tg/Lot?lang=eng)
+[Lot](https://churchofjesuschrist.org/study/scriptures/tg/lot?lang=eng)
 
 ### References
 - [[Leviticus 16.8|Leviticus 16:8]]

@@ -1,6 +1,6 @@
 # Jesus Christ, Authority of
 
-[Jesus Christ, Authority of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Authority-of?lang=eng)
+[Jesus Christ, Authority of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-authority-of?lang=eng)
 
 ### References
 - [[Isaiah 9.6|Isaiah 9:6]]

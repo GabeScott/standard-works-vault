@@ -1,6 +1,6 @@
 # Mourning, Mourn
 
-[Mourning, Mourn](https://www.churchofjesuschrist.org/study/scriptures/tg/Mourning-Mourn?lang=eng)
+[Mourning, Mourn](https://churchofjesuschrist.org/study/scriptures/tg/mourning?lang=eng)
 
 ### References
 - [[Genesis 37.35|Genesis 37:35]]

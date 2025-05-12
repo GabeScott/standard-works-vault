@@ -1,6 +1,6 @@
 # Drink Offering
 
-[Drink Offering](https://www.churchofjesuschrist.org/study/scriptures/tg/Drink-Offering?lang=eng)
+[Drink Offering](https://churchofjesuschrist.org/study/scriptures/tg/drink-offering?lang=eng)
 
 ### References
 - [[Genesis 35.14|Genesis 35:14]]

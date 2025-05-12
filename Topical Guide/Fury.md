@@ -1,6 +1,6 @@
 # Fury
 
-[Fury](https://www.churchofjesuschrist.org/study/scriptures/tg/Fury?lang=eng)
+[Fury](https://churchofjesuschrist.org/study/scriptures/tg/fury?lang=eng)
 
 ### References
 - [[Genesis 27.44|Genesis 27:44]]

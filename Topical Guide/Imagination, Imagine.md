@@ -1,6 +1,6 @@
 # Imagination, Imagine
 
-[Imagination, Imagine](https://www.churchofjesuschrist.org/study/scriptures/tg/Imagination-Imagine?lang=eng)
+[Imagination, Imagine](https://churchofjesuschrist.org/study/scriptures/tg/imagination?lang=eng)
 
 ### References
 - [[Genesis 8.21|Genesis 8:21]]

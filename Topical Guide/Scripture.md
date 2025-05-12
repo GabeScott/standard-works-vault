@@ -1,6 +1,6 @@
 # Scripture
 
-[Scripture](https://www.churchofjesuschrist.org/study/scriptures/tg/Scripture?lang=eng)
+[Scripture](https://churchofjesuschrist.org/study/scriptures/tg/scripture?lang=eng)
 
 ### References
 - [[Daniel 10.21|Daniel 10:21]]

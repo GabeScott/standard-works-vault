@@ -1,6 +1,6 @@
 # Unwashen
 
-[Unwashen](https://www.churchofjesuschrist.org/study/scriptures/tg/Unwashen?lang=eng)
+[Unwashen](https://churchofjesuschrist.org/study/scriptures/tg/unwashen?lang=eng)
 
 ### References
 - [[Matthew 15.20|Matthew 15:20]]

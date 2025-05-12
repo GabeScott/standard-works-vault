@@ -1,6 +1,6 @@
 # Walk
 
-[Walk](https://www.churchofjesuschrist.org/study/scriptures/tg/Walk?lang=eng)
+[Walk](https://churchofjesuschrist.org/study/scriptures/tg/walk?lang=eng)
 
 ### References
 - [[Genesis 3.8|Genesis 3:8]]

@@ -1,6 +1,6 @@
 # Camp
 
-[Camp](https://www.churchofjesuschrist.org/study/scriptures/tg/Camp?lang=eng)
+[Camp](https://churchofjesuschrist.org/study/scriptures/tg/camp?lang=eng)
 
 ### References
 - [[Exodus 14.19|Exodus 14:19]]

@@ -1,6 +1,6 @@
 # Fig
 
-[Fig](https://www.churchofjesuschrist.org/study/scriptures/tg/Fig?lang=eng)
+[Fig](https://churchofjesuschrist.org/study/scriptures/tg/fig?lang=eng)
 
 ### References
 - [[Genesis 3.7|Genesis 3:7]]

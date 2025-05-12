@@ -1,6 +1,6 @@
 # Skin
 
-[Skin](https://www.churchofjesuschrist.org/study/scriptures/tg/Skin?lang=eng)
+[Skin](https://churchofjesuschrist.org/study/scriptures/tg/skin?lang=eng)
 
 ### References
 - [[Genesis 27.16|Genesis 27:16]]

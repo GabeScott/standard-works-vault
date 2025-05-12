@@ -1,6 +1,6 @@
 # Sin
 
-[Sin](https://www.churchofjesuschrist.org/study/scriptures/tg/Sin?lang=eng)
+[Sin](https://churchofjesuschrist.org/study/scriptures/tg/conceived-in-sin?lang=eng)
 
 ### References
 - [[Genesis 18.20|Genesis 18:20]]

@@ -1,6 +1,6 @@
 # Ashamed
 
-[Ashamed](https://www.churchofjesuschrist.org/study/scriptures/tg/Ashamed?lang=eng)
+[Ashamed](https://churchofjesuschrist.org/study/scriptures/tg/ashamed?lang=eng)
 
 ### References
 - [[Genesis 2.25|Genesis 2:25]]

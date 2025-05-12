@@ -1,6 +1,6 @@
 # Meet, Met
 
-[Meet, Met](https://www.churchofjesuschrist.org/study/scriptures/tg/Meet-Met?lang=eng)
+[Meet, Met](https://churchofjesuschrist.org/study/scriptures/tg/meet-verb?lang=eng)
 
 ### References
 - [[Genesis 19.1|Genesis 19:1]]

@@ -1,6 +1,6 @@
 # Abomination
 
-[Abomination](https://www.churchofjesuschrist.org/study/scriptures/tg/Abomination?lang=eng)
+[Abomination](https://churchofjesuschrist.org/study/scriptures/tg/abomination?lang=eng)
 
 ### References
 - [[Genesis 46.34|Genesis 46:34]]

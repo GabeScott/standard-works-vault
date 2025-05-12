@@ -1,6 +1,6 @@
 # Grove
 
-[Grove](https://www.churchofjesuschrist.org/study/scriptures/tg/Grove?lang=eng)
+[Grove](https://churchofjesuschrist.org/study/scriptures/tg/grove?lang=eng)
 
 ### References
 - [[Genesis 21.33|Genesis 21:33]]

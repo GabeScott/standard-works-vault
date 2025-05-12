@@ -1,6 +1,6 @@
 # Behave
 
-[Behave](https://www.churchofjesuschrist.org/study/scriptures/tg/Behave?lang=eng)
+[Behave](https://churchofjesuschrist.org/study/scriptures/tg/behave?lang=eng)
 
 ### References
 - [[Isaiah 3.5|Isaiah 3:5]]

@@ -1,6 +1,6 @@
 # Virgin
 
-[Virgin](https://www.churchofjesuschrist.org/study/scriptures/tg/Virgin?lang=eng)
+[Virgin](https://churchofjesuschrist.org/study/scriptures/tg/virgin?lang=eng)
 
 ### References
 - [[Exodus 22.17|Exodus 22:17]]

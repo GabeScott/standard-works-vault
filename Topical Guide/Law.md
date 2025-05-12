@@ -1,6 +1,6 @@
 # Law
 
-[Law](https://www.churchofjesuschrist.org/study/scriptures/tg/Law?lang=eng)
+[Law](https://churchofjesuschrist.org/study/scriptures/tg/law?lang=eng)
 
 ### References
 - [[Genesis 47.26|Genesis 47:26]]

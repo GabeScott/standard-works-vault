@@ -1,6 +1,6 @@
 # Usury
 
-[Usury](https://www.churchofjesuschrist.org/study/scriptures/tg/Usury?lang=eng)
+[Usury](https://churchofjesuschrist.org/study/scriptures/tg/usury?lang=eng)
 
 ### References
 - [[Exodus 22.25|Exodus 22:25]]

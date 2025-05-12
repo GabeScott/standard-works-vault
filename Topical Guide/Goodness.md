@@ -1,6 +1,6 @@
 # Goodness
 
-[Goodness](https://www.churchofjesuschrist.org/study/scriptures/tg/Goodness?lang=eng)
+[Goodness](https://churchofjesuschrist.org/study/scriptures/tg/goodness?lang=eng)
 
 ### References
 - [[Exodus 33.19|Exodus 33:19]]

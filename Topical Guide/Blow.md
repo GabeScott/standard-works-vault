@@ -1,6 +1,6 @@
 # Blow
 
-[Blow](https://www.churchofjesuschrist.org/study/scriptures/tg/Blow?lang=eng)
+[Blow](https://churchofjesuschrist.org/study/scriptures/tg/blow?lang=eng)
 
 ### References
 - [[Exodus 15.10|Exodus 15:10]]

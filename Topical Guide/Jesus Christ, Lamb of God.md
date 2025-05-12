@@ -1,6 +1,6 @@
 # Jesus Christ, Lamb of God
 
-[Jesus Christ, Lamb of God](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Lamb-of-God?lang=eng)
+[Jesus Christ, Lamb of God](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-lamb-of-god?lang=eng)
 
 ### References
 - [[Isaiah 53.7|Isaiah 53:7]]

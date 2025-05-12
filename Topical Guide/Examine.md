@@ -1,6 +1,6 @@
 # Examine
 
-[Examine](https://www.churchofjesuschrist.org/study/scriptures/tg/Examine?lang=eng)
+[Examine](https://churchofjesuschrist.org/study/scriptures/tg/examine?lang=eng)
 
 ### References
 - [[Psalms 26.2|Psalms 26:2]]

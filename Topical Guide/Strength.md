@@ -1,6 +1,6 @@
 # Strength
 
-[Strength](https://www.churchofjesuschrist.org/study/scriptures/tg/Strength?lang=eng)
+[Strength](https://churchofjesuschrist.org/study/scriptures/tg/strength?lang=eng)
 
 ### References
 - [[Exodus 15.2|Exodus 15:2]]

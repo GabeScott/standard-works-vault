@@ -1,6 +1,6 @@
 # Boldness
 
-[Boldness](https://www.churchofjesuschrist.org/study/scriptures/tg/Boldness?lang=eng)
+[Boldness](https://churchofjesuschrist.org/study/scriptures/tg/boldness?lang=eng)
 
 ### References
 - [[Acts 4.31|Acts 4:31]]

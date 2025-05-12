@@ -1,6 +1,6 @@
 # Right Hand
 
-[Right Hand](https://www.churchofjesuschrist.org/study/scriptures/tg/Right-Hand?lang=eng)
+[Right Hand](https://churchofjesuschrist.org/study/scriptures/tg/right-hand?lang=eng)
 
 ### References
 - [[Genesis 13.9|Genesis 13:9]]

@@ -1,6 +1,6 @@
 # Look
 
-[Look](https://www.churchofjesuschrist.org/study/scriptures/tg/Look?lang=eng)
+[Look](https://churchofjesuschrist.org/study/scriptures/tg/look?lang=eng)
 
 ### References
 - [[Genesis 19.17|Genesis 19:17]]

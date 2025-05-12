@@ -1,6 +1,6 @@
 # Faith
 
-[Faith](https://www.churchofjesuschrist.org/study/scriptures/tg/Faith?lang=eng)
+[Faith](https://churchofjesuschrist.org/study/scriptures/tg/faith?lang=eng)
 
 ### References
 - [[Deuteronomy 32.20|Deuteronomy 32:20]]

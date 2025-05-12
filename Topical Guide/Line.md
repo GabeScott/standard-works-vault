@@ -1,6 +1,6 @@
 # Line
 
-[Line](https://www.churchofjesuschrist.org/study/scriptures/tg/Line?lang=eng)
+[Line](https://churchofjesuschrist.org/study/scriptures/tg/line?lang=eng)
 
 ### References
 - [[Job 38.5|Job 38:5]]

@@ -1,6 +1,6 @@
 # Traditions of Men
 
-[Traditions of Men](https://www.churchofjesuschrist.org/study/scriptures/tg/Traditions-of-Men?lang=eng)
+[Traditions of Men](https://churchofjesuschrist.org/study/scriptures/tg/traditions-of-men?lang=eng)
 
 ### References
 - [[Leviticus 18.30|Leviticus 18:30]]

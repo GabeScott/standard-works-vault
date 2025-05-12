@@ -1,6 +1,6 @@
 # Rioting and Reveling
 
-[Rioting and Reveling](https://www.churchofjesuschrist.org/study/scriptures/tg/Rioting-and-Reveling?lang=eng)
+[Rioting and Reveling](https://churchofjesuschrist.org/study/scriptures/tg/rioting-and-reveling?lang=eng)
 
 ### References
 - [[Exodus 32.17|Exodus 32:17]]

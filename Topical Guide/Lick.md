@@ -1,6 +1,6 @@
 # Lick
 
-[Lick](https://www.churchofjesuschrist.org/study/scriptures/tg/Lick?lang=eng)
+[Lick](https://churchofjesuschrist.org/study/scriptures/tg/lick?lang=eng)
 
 ### References
 - [[1 Kings 21.19|1 Kings 21:19]]

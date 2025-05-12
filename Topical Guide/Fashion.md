@@ -1,6 +1,6 @@
 # Fashion
 
-[Fashion](https://www.churchofjesuschrist.org/study/scriptures/tg/Fashion?lang=eng)
+[Fashion](https://churchofjesuschrist.org/study/scriptures/tg/fashion?lang=eng)
 
 ### References
 - [[Genesis 6.15|Genesis 6:15]]

@@ -1,6 +1,6 @@
 # Ungodliness
 
-[Ungodliness](https://www.churchofjesuschrist.org/study/scriptures/tg/Ungodliness?lang=eng)
+[Ungodliness](https://churchofjesuschrist.org/study/scriptures/tg/ungodliness?lang=eng)
 
 ### References
 - [[Romans 1.18|Romans 1:18]]

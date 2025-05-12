@@ -1,6 +1,6 @@
 # Beard
 
-[Beard](https://www.churchofjesuschrist.org/study/scriptures/tg/Beard?lang=eng)
+[Beard](https://churchofjesuschrist.org/study/scriptures/tg/beard?lang=eng)
 
 ### References
 - [[Leviticus 19.27|Leviticus 19:27]]

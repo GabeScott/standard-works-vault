@@ -1,6 +1,6 @@
 # Twice
 
-[Twice](https://www.churchofjesuschrist.org/study/scriptures/tg/Twice?lang=eng)
+[Twice](https://churchofjesuschrist.org/study/scriptures/tg/twice?lang=eng)
 
 ### References
 - [[Mark 14.30|Mark 14:30]]

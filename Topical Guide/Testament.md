@@ -1,6 +1,6 @@
 # Testament
 
-[Testament](https://www.churchofjesuschrist.org/study/scriptures/tg/Testament?lang=eng)
+[Testament](https://churchofjesuschrist.org/study/scriptures/tg/new-testament?lang=eng)
 
 ### References
 - [[Matthew 26.28|Matthew 26:28]]

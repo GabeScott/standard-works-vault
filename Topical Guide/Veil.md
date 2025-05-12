@@ -1,6 +1,6 @@
 # Veil
 
-[Veil](https://www.churchofjesuschrist.org/study/scriptures/tg/Veil?lang=eng)
+[Veil](https://churchofjesuschrist.org/study/scriptures/tg/veil?lang=eng)
 
 ### References
 - [[Genesis 24.65|Genesis 24:65]]

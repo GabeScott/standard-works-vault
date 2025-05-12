@@ -1,6 +1,6 @@
 # Degree
 
-[Degree](https://www.churchofjesuschrist.org/study/scriptures/tg/Degree?lang=eng)
+[Degree](https://churchofjesuschrist.org/study/scriptures/tg/degree?lang=eng)
 
 ### References
 - [[2 Kings 20.10|2 Kings 20:10]]

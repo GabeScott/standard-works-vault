@@ -1,6 +1,6 @@
 # Buy, Bought
 
-[Buy, Bought](https://www.churchofjesuschrist.org/study/scriptures/tg/Buy-Bought?lang=eng)
+[Buy, Bought](https://churchofjesuschrist.org/study/scriptures/tg/buy?lang=eng)
 
 ### References
 - [[Genesis 42.2|Genesis 42:2]]

@@ -1,6 +1,6 @@
 # Vomit
 
-[Vomit](https://www.churchofjesuschrist.org/study/scriptures/tg/Vomit?lang=eng)
+[Vomit](https://churchofjesuschrist.org/study/scriptures/tg/vomit?lang=eng)
 
 ### References
 - [[Leviticus 18.25|Leviticus 18:25]]

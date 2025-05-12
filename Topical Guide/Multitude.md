@@ -1,6 +1,6 @@
 # Multitude
 
-[Multitude](https://www.churchofjesuschrist.org/study/scriptures/tg/Multitude?lang=eng)
+[Multitude](https://churchofjesuschrist.org/study/scriptures/tg/multitude?lang=eng)
 
 ### References
 - [[Genesis 28.3|Genesis 28:3]]

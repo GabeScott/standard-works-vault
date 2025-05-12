@@ -1,6 +1,6 @@
 # Blessed
 
-[Blessed](https://www.churchofjesuschrist.org/study/scriptures/tg/Blessed?lang=eng)
+[Blessed](https://churchofjesuschrist.org/study/scriptures/tg/blessed-adjective?lang=eng)
 
 ### References
 - [[Genesis 14.19|Genesis 14:19]]

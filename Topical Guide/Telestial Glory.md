@@ -1,6 +1,6 @@
 # Telestial Glory
 
-[Telestial Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/Telestial-Glory?lang=eng)
+[Telestial Glory](https://churchofjesuschrist.org/study/scriptures/tg/telestial-glory?lang=eng)
 
 ### References
 - [[John 14.2|John 14:2]]

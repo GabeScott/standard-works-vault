@@ -1,6 +1,6 @@
 # Stature
 
-[Stature](https://www.churchofjesuschrist.org/study/scriptures/tg/Stature?lang=eng)
+[Stature](https://churchofjesuschrist.org/study/scriptures/tg/stature?lang=eng)
 
 ### References
 - [[Numbers 13.32|Numbers 13:32]]

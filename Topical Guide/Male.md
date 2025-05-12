@@ -1,6 +1,6 @@
 # Male
 
-[Male](https://www.churchofjesuschrist.org/study/scriptures/tg/Male?lang=eng)
+[Male](https://churchofjesuschrist.org/study/scriptures/tg/male?lang=eng)
 
 ### References
 - [[Genesis 1.27|Genesis 1:27]]

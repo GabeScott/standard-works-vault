@@ -1,6 +1,6 @@
 # Testimony, Tables of
 
-[Testimony, Tables of](https://www.churchofjesuschrist.org/study/scriptures/tg/Testimony-Tables-of?lang=eng)
+[Testimony, Tables of](https://churchofjesuschrist.org/study/scriptures/tg/testimony-tables-of?lang=eng)
 
 ### References
 - [[Exodus 16.34|Exodus 16:34]]

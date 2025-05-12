@@ -1,6 +1,6 @@
 # Sky
 
-[Sky](https://www.churchofjesuschrist.org/study/scriptures/tg/Sky?lang=eng)
+[Sky](https://churchofjesuschrist.org/study/scriptures/tg/sky?lang=eng)
 
 ### References
 - [[Isaiah 45.8|Isaiah 45:8]]

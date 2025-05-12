@@ -1,6 +1,6 @@
 # Captain
 
-[Captain](https://www.churchofjesuschrist.org/study/scriptures/tg/Captain?lang=eng)
+[Captain](https://churchofjesuschrist.org/study/scriptures/tg/captain?lang=eng)
 
 ### References
 - [[Genesis 37.36|Genesis 37:36]]

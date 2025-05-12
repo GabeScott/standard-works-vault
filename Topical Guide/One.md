@@ -1,6 +1,6 @@
 # One
 
-[One](https://www.churchofjesuschrist.org/study/scriptures/tg/One?lang=eng)
+[One](https://churchofjesuschrist.org/study/scriptures/tg/anointed-one?lang=eng)
 
 ### References
 - [[Genesis 1.9|Genesis 1:9]]

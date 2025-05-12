@@ -1,6 +1,6 @@
 # New
 
-[New](https://www.churchofjesuschrist.org/study/scriptures/tg/New?lang=eng)
+[New](https://churchofjesuschrist.org/study/scriptures/tg/jerusalem-new?lang=eng)
 
 ### References
 - [[Exodus 1.8|Exodus 1:8]]

@@ -1,6 +1,6 @@
 # Condescend, Condescension
 
-[Condescend, Condescension](https://www.churchofjesuschrist.org/study/scriptures/tg/Condescend-Condescension?lang=eng)
+[Condescend, Condescension](https://churchofjesuschrist.org/study/scriptures/tg/condescend?lang=eng)
 
 ### References
 - [[Romans 12.16|Romans 12:16]]

@@ -1,6 +1,6 @@
 # Watchman, Watchmen
 
-[Watchman, Watchmen](https://www.churchofjesuschrist.org/study/scriptures/tg/Watchman-Watchmen?lang=eng)
+[Watchman, Watchmen](https://churchofjesuschrist.org/study/scriptures/tg/watchman?lang=eng)
 
 ### References
 - [[2 Samuel 18.25|2 Samuel 18:25]]

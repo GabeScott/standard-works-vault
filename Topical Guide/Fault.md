@@ -1,6 +1,6 @@
 # Fault
 
-[Fault](https://www.churchofjesuschrist.org/study/scriptures/tg/Fault?lang=eng)
+[Fault](https://churchofjesuschrist.org/study/scriptures/tg/fault?lang=eng)
 
 ### References
 - [[Daniel 6.4|Daniel 6:4]]

@@ -1,6 +1,6 @@
 # Err
 
-[Err](https://www.churchofjesuschrist.org/study/scriptures/tg/Err?lang=eng)
+[Err](https://churchofjesuschrist.org/study/scriptures/tg/err?lang=eng)
 
 ### References
 - [[Leviticus 5.18|Leviticus 5:18]]

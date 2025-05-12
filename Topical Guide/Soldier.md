@@ -1,6 +1,6 @@
 # Soldier
 
-[Soldier](https://www.churchofjesuschrist.org/study/scriptures/tg/Soldier?lang=eng)
+[Soldier](https://churchofjesuschrist.org/study/scriptures/tg/soldier?lang=eng)
 
 ### References
 - [[Matthew 27.27|Matthew 27:27]]

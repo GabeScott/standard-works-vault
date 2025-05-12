@@ -1,6 +1,6 @@
 # Tongue
 
-[Tongue](https://www.churchofjesuschrist.org/study/scriptures/tg/Tongue?lang=eng)
+[Tongue](https://churchofjesuschrist.org/study/scriptures/tg/tongue?lang=eng)
 
 ### References
 - [[Deuteronomy 28.49|Deuteronomy 28:49]]

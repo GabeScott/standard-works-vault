@@ -1,6 +1,6 @@
 # Vesture
 
-[Vesture](https://www.churchofjesuschrist.org/study/scriptures/tg/Vesture?lang=eng)
+[Vesture](https://churchofjesuschrist.org/study/scriptures/tg/vesture?lang=eng)
 
 ### References
 - [[Psalms 102.26|Psalms 102:26]]

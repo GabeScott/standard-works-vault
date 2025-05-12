@@ -1,6 +1,6 @@
 # Bound
 
-[Bound](https://www.churchofjesuschrist.org/study/scriptures/tg/Bound?lang=eng)
+[Bound](https://churchofjesuschrist.org/study/scriptures/tg/bind?lang=eng)
 
 ### References
 - [[Exodus 23.31|Exodus 23:31]]

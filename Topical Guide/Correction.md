@@ -1,6 +1,6 @@
 # Correction
 
-[Correction](https://www.churchofjesuschrist.org/study/scriptures/tg/Correction?lang=eng)
+[Correction](https://churchofjesuschrist.org/study/scriptures/tg/correction?lang=eng)
 
 ### References
 - [[Proverbs 15.10|Proverbs 15:10]]

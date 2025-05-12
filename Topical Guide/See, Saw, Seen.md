@@ -1,6 +1,6 @@
 # See, Saw, Seen
 
-[See, Saw, Seen](https://www.churchofjesuschrist.org/study/scriptures/tg/See-Saw-Seen?lang=eng)
+[See, Saw, Seen](https://churchofjesuschrist.org/study/scriptures/tg/see?lang=eng)
 
 ### References
 - [[Genesis 32.30|Genesis 32:30]]

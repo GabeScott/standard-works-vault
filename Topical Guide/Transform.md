@@ -1,6 +1,6 @@
 # Transform
 
-[Transform](https://www.churchofjesuschrist.org/study/scriptures/tg/Transform?lang=eng)
+[Transform](https://churchofjesuschrist.org/study/scriptures/tg/transform?lang=eng)
 
 ### References
 - [[Romans 12.2|Romans 12:2]]

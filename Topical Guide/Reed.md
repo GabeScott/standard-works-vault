@@ -1,6 +1,6 @@
 # Reed
 
-[Reed](https://www.churchofjesuschrist.org/study/scriptures/tg/Reed?lang=eng)
+[Reed](https://churchofjesuschrist.org/study/scriptures/tg/reed?lang=eng)
 
 ### References
 - [[1 Kings 14.15|1 Kings 14:15]]

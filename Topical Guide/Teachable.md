@@ -1,6 +1,6 @@
 # Teachable
 
-[Teachable](https://www.churchofjesuschrist.org/study/scriptures/tg/Teachable?lang=eng)
+[Teachable](https://churchofjesuschrist.org/study/scriptures/tg/teachable?lang=eng)
 
 ### References
 - [[1 Samuel 12.7|1 Samuel 12:7]]

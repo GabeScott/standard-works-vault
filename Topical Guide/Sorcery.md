@@ -1,6 +1,6 @@
 # Sorcery
 
-[Sorcery](https://www.churchofjesuschrist.org/study/scriptures/tg/Sorcery?lang=eng)
+[Sorcery](https://churchofjesuschrist.org/study/scriptures/tg/sorcery?lang=eng)
 
 ### References
 - [[Genesis 41.8|Genesis 41:8]]

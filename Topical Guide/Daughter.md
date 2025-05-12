@@ -1,6 +1,6 @@
 # Daughter
 
-[Daughter](https://www.churchofjesuschrist.org/study/scriptures/tg/Daughter?lang=eng)
+[Daughter](https://churchofjesuschrist.org/study/scriptures/tg/daughter?lang=eng)
 
 ### References
 - [[Genesis 20.12|Genesis 20:12]]

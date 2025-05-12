@@ -1,6 +1,6 @@
 # Consent
 
-[Consent](https://www.churchofjesuschrist.org/study/scriptures/tg/Consent?lang=eng)
+[Consent](https://churchofjesuschrist.org/study/scriptures/tg/common-consent?lang=eng)
 
 ### References
 - [[1 Samuel 11.7|1 Samuel 11:7]]

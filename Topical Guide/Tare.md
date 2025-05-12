@@ -1,6 +1,6 @@
 # Tare
 
-[Tare](https://www.churchofjesuschrist.org/study/scriptures/tg/Tare?lang=eng)
+[Tare](https://churchofjesuschrist.org/study/scriptures/tg/tare-noun?lang=eng)
 
 ### References
 - [[Matthew 13.25|Matthew 13:25]]

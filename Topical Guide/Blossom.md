@@ -1,6 +1,6 @@
 # Blossom
 
-[Blossom](https://www.churchofjesuschrist.org/study/scriptures/tg/Blossom?lang=eng)
+[Blossom](https://churchofjesuschrist.org/study/scriptures/tg/blossom?lang=eng)
 
 ### References
 - [[Isaiah 27.6|Isaiah 27:6]]

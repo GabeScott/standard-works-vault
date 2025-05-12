@@ -1,6 +1,6 @@
 # Throw, Thrown
 
-[Throw, Thrown](https://www.churchofjesuschrist.org/study/scriptures/tg/Throw-Thrown?lang=eng)
+[Throw, Thrown](https://churchofjesuschrist.org/study/scriptures/tg/throw?lang=eng)
 
 ### References
 - [[Jeremiah 1.10|Jeremiah 1:10]]

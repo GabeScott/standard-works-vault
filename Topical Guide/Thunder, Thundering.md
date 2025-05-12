@@ -1,6 +1,6 @@
 # Thunder, Thundering
 
-[Thunder, Thundering](https://www.churchofjesuschrist.org/study/scriptures/tg/Thunder-Thundering?lang=eng)
+[Thunder, Thundering](https://churchofjesuschrist.org/study/scriptures/tg/thunder?lang=eng)
 
 ### References
 - [[Exodus 20.18|Exodus 20:18]]

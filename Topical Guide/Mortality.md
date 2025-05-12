@@ -1,6 +1,6 @@
 # Mortality
 
-[Mortality](https://www.churchofjesuschrist.org/study/scriptures/tg/Mortality?lang=eng)
+[Mortality](https://churchofjesuschrist.org/study/scriptures/tg/mortality?lang=eng)
 
 ### References
 - [[Genesis 2.17|Genesis 2:17]]

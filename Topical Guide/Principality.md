@@ -1,6 +1,6 @@
 # Principality
 
-[Principality](https://www.churchofjesuschrist.org/study/scriptures/tg/Principality?lang=eng)
+[Principality](https://churchofjesuschrist.org/study/scriptures/tg/principality?lang=eng)
 
 ### References
 - [[Jeremiah 13.18|Jeremiah 13:18]]

@@ -1,6 +1,6 @@
 # Simplicity
 
-[Simplicity](https://www.churchofjesuschrist.org/study/scriptures/tg/Simplicity?lang=eng)
+[Simplicity](https://churchofjesuschrist.org/study/scriptures/tg/simplicity?lang=eng)
 
 ### References
 - [[Proverbs 1.22|Proverbs 1:22]]

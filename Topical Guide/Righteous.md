@@ -1,6 +1,6 @@
 # Righteous
 
-[Righteous](https://www.churchofjesuschrist.org/study/scriptures/tg/Righteous?lang=eng)
+[Righteous](https://churchofjesuschrist.org/study/scriptures/tg/righteous?lang=eng)
 
 ### References
 - [[Genesis 18.26|Genesis 18:26]]

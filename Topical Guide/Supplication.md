@@ -1,6 +1,6 @@
 # Supplication
 
-[Supplication](https://www.churchofjesuschrist.org/study/scriptures/tg/Supplication?lang=eng)
+[Supplication](https://churchofjesuschrist.org/study/scriptures/tg/supplication?lang=eng)
 
 ### References
 - [[Daniel 9.18|Daniel 9:18]]

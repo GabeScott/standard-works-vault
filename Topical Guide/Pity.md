@@ -1,6 +1,6 @@
 # Pity
 
-[Pity](https://www.churchofjesuschrist.org/study/scriptures/tg/Pity?lang=eng)
+[Pity](https://churchofjesuschrist.org/study/scriptures/tg/pity?lang=eng)
 
 ### References
 - [[Job 6.14|Job 6:14]]

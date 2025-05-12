@@ -1,6 +1,6 @@
 # Jesus Christ, Exemplar
 
-[Jesus Christ, Exemplar](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Exemplar?lang=eng)
+[Jesus Christ, Exemplar](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-exemplar?lang=eng)
 
 ### References
 - [[Matthew 4.19|Matthew 4:19]]

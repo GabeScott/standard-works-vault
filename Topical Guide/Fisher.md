@@ -1,6 +1,6 @@
 # Fisher
 
-[Fisher](https://www.churchofjesuschrist.org/study/scriptures/tg/Fisher?lang=eng)
+[Fisher](https://churchofjesuschrist.org/study/scriptures/tg/fisher?lang=eng)
 
 ### References
 - [[Jeremiah 16.16|Jeremiah 16:16]]

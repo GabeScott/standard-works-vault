@@ -1,6 +1,6 @@
 # Mind, Minded
 
-[Mind, Minded](https://www.churchofjesuschrist.org/study/scriptures/tg/Mind-Minded?lang=eng)
+[Mind, Minded](https://churchofjesuschrist.org/study/scriptures/tg/mind?lang=eng)
 
 ### References
 - [[Leviticus 24.12|Leviticus 24:12]]

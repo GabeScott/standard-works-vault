@@ -1,6 +1,6 @@
 # Subtle, Subtile
 
-[Subtle, Subtile](https://www.churchofjesuschrist.org/study/scriptures/tg/Subtle-Subtile?lang=eng)
+[Subtle, Subtile](https://churchofjesuschrist.org/study/scriptures/tg/subtle?lang=eng)
 
 ### References
 - [[Genesis 3.1|Genesis 3:1]]

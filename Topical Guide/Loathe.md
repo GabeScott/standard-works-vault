@@ -1,6 +1,6 @@
 # Loathe
 
-[Loathe](https://www.churchofjesuschrist.org/study/scriptures/tg/Loathe?lang=eng)
+[Loathe](https://churchofjesuschrist.org/study/scriptures/tg/loathe?lang=eng)
 
 ### References
 - [[Numbers 21.5|Numbers 21:5]]

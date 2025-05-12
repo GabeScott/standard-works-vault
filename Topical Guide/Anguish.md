@@ -1,6 +1,6 @@
 # Anguish
 
-[Anguish](https://www.churchofjesuschrist.org/study/scriptures/tg/Anguish?lang=eng)
+[Anguish](https://churchofjesuschrist.org/study/scriptures/tg/anguish?lang=eng)
 
 ### References
 - [[Exodus 6.9|Exodus 6:9]]

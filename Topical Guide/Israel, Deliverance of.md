@@ -1,6 +1,6 @@
 # Israel, Deliverance of
 
-[Israel, Deliverance of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Deliverance-of?lang=eng)
+[Israel, Deliverance of](https://churchofjesuschrist.org/study/scriptures/tg/israel-deliverance-of?lang=eng)
 
 ### References
 - [[Exodus 14.30|Exodus 14:30]]

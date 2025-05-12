@@ -1,6 +1,6 @@
 # Jesus Christ, Savior
 
-[Jesus Christ, Savior](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Savior?lang=eng)
+[Jesus Christ, Savior](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-savior?lang=eng)
 
 ### References
 - [[Exodus 15.2|Exodus 15:2]]

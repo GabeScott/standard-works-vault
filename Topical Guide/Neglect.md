@@ -1,6 +1,6 @@
 # Neglect
 
-[Neglect](https://www.churchofjesuschrist.org/study/scriptures/tg/Neglect?lang=eng)
+[Neglect](https://churchofjesuschrist.org/study/scriptures/tg/neglect?lang=eng)
 
 ### References
 - [[Matthew 18.17|Matthew 18:17]]

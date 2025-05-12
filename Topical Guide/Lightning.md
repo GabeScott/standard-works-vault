@@ -1,6 +1,6 @@
 # Lightning
 
-[Lightning](https://www.churchofjesuschrist.org/study/scriptures/tg/Lightning?lang=eng)
+[Lightning](https://churchofjesuschrist.org/study/scriptures/tg/lightning?lang=eng)
 
 ### References
 - [[Exodus 19.16|Exodus 19:16]]

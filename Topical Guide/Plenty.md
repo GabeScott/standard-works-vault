@@ -1,6 +1,6 @@
 # Plenty
 
-[Plenty](https://www.churchofjesuschrist.org/study/scriptures/tg/Plenty?lang=eng)
+[Plenty](https://churchofjesuschrist.org/study/scriptures/tg/plenty?lang=eng)
 
 ### References
 - [[Genesis 27.28|Genesis 27:28]]

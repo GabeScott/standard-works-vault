@@ -1,6 +1,6 @@
 # Shoulder
 
-[Shoulder](https://www.churchofjesuschrist.org/study/scriptures/tg/Shoulder?lang=eng)
+[Shoulder](https://churchofjesuschrist.org/study/scriptures/tg/shoulder?lang=eng)
 
 ### References
 - [[Exodus 29.22|Exodus 29:22]]

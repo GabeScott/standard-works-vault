@@ -1,6 +1,6 @@
 # Compel
 
-[Compel](https://www.churchofjesuschrist.org/study/scriptures/tg/Compel?lang=eng)
+[Compel](https://churchofjesuschrist.org/study/scriptures/tg/compel?lang=eng)
 
 ### References
 - [[Leviticus 25.39|Leviticus 25:39]]

@@ -1,6 +1,6 @@
 # Long-Suffering
 
-[Long-Suffering](https://www.churchofjesuschrist.org/study/scriptures/tg/Long-Suffering?lang=eng)
+[Long-Suffering](https://churchofjesuschrist.org/study/scriptures/tg/long-suffering?lang=eng)
 
 ### References
 - [[Exodus 34.6|Exodus 34:6]]

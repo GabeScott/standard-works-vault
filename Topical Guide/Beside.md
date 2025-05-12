@@ -1,6 +1,6 @@
 # Beside
 
-[Beside](https://www.churchofjesuschrist.org/study/scriptures/tg/Beside?lang=eng)
+[Beside](https://churchofjesuschrist.org/study/scriptures/tg/beside?lang=eng)
 
 ### References
 - [[Isaiah 43.11|Isaiah 43:11]]

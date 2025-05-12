@@ -1,6 +1,6 @@
 # Earth, Cleansing of
 
-[Earth, Cleansing of](https://www.churchofjesuschrist.org/study/scriptures/tg/Earth-Cleansing-of?lang=eng)
+[Earth, Cleansing of](https://churchofjesuschrist.org/study/scriptures/tg/earth-cleansing-of?lang=eng)
 
 ### References
 - [[Genesis 6.17|Genesis 6:17]]

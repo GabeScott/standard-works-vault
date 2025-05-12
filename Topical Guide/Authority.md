@@ -1,6 +1,6 @@
 # Authority
 
-[Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/Authority?lang=eng)
+[Authority](https://churchofjesuschrist.org/study/scriptures/tg/authority?lang=eng)
 
 ### References
 - [[Exodus 3.12|Exodus 3:12]]

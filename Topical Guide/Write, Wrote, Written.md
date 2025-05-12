@@ -1,6 +1,6 @@
 # Write, Wrote, Written
 
-[Write, Wrote, Written](https://www.churchofjesuschrist.org/study/scriptures/tg/Write-Wrote-Written?lang=eng)
+[Write, Wrote, Written](https://churchofjesuschrist.org/study/scriptures/tg/write?lang=eng)
 
 ### References
 - [[Exodus 24.4|Exodus 24:4]]

@@ -1,6 +1,6 @@
 # Prove
 
-[Prove](https://www.churchofjesuschrist.org/study/scriptures/tg/Prove?lang=eng)
+[Prove](https://churchofjesuschrist.org/study/scriptures/tg/prove?lang=eng)
 
 ### References
 - [[Genesis 42.15|Genesis 42:15]]

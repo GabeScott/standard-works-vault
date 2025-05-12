@@ -1,6 +1,6 @@
 # Revoke
 
-[Revoke](https://www.churchofjesuschrist.org/study/scriptures/tg/Revoke?lang=eng)
+[Revoke](https://churchofjesuschrist.org/study/scriptures/tg/revoke?lang=eng)
 
 ### References
 - [[D&C 19.5|D&C 19:5]]

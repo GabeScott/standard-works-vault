@@ -1,6 +1,6 @@
 # Priesthood, Magnifying Callings within
 
-[Priesthood, Magnifying Callings within](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood-Magnifying-Callings-within?lang=eng)
+[Priesthood, Magnifying Callings within](https://churchofjesuschrist.org/study/scriptures/tg/priesthood-magnifying-callings-within?lang=eng)
 
 ### References
 - [[1 Samuel 2.30|1 Samuel 2:30]]

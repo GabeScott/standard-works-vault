@@ -1,6 +1,6 @@
 # Sorrow
 
-[Sorrow](https://www.churchofjesuschrist.org/study/scriptures/tg/Sorrow?lang=eng)
+[Sorrow](https://churchofjesuschrist.org/study/scriptures/tg/sorrow?lang=eng)
 
 ### References
 - [[Genesis 3.16|Genesis 3:16]]

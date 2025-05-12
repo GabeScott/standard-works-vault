@@ -1,6 +1,6 @@
 # Spiritual Blindness
 
-[Spiritual Blindness](https://www.churchofjesuschrist.org/study/scriptures/tg/Spiritual-Blindness?lang=eng)
+[Spiritual Blindness](https://churchofjesuschrist.org/study/scriptures/tg/spiritual-blindness?lang=eng)
 
 ### References
 - [[Deuteronomy 16.19|Deuteronomy 16:19]]

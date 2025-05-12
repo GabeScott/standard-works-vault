@@ -1,6 +1,6 @@
 # Profit
 
-[Profit](https://www.churchofjesuschrist.org/study/scriptures/tg/Profit?lang=eng)
+[Profit](https://churchofjesuschrist.org/study/scriptures/tg/profit?lang=eng)
 
 ### References
 - [[Genesis 25.32|Genesis 25:32]]

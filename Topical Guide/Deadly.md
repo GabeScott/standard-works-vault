@@ -1,6 +1,6 @@
 # Deadly
 
-[Deadly](https://www.churchofjesuschrist.org/study/scriptures/tg/Deadly?lang=eng)
+[Deadly](https://churchofjesuschrist.org/study/scriptures/tg/deadly?lang=eng)
 
 ### References
 - [[Mark 16.18|Mark 16:18]]

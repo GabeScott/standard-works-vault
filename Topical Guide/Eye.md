@@ -1,6 +1,6 @@
 # Eye
 
-[Eye](https://www.churchofjesuschrist.org/study/scriptures/tg/Eye?lang=eng)
+[Eye](https://churchofjesuschrist.org/study/scriptures/tg/eye?lang=eng)
 
 ### References
 - [[Genesis 3.5|Genesis 3:5]]

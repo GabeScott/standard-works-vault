@@ -1,6 +1,6 @@
 # Marriage, Husbands
 
-[Marriage, Husbands](https://www.churchofjesuschrist.org/study/scriptures/tg/Marriage-Husbands?lang=eng)
+[Marriage, Husbands](https://churchofjesuschrist.org/study/scriptures/tg/marriage-husbands?lang=eng)
 
 ### References
 - [[Genesis 2.24|Genesis 2:24]]

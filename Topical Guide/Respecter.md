@@ -1,6 +1,6 @@
 # Respecter
 
-[Respecter](https://www.churchofjesuschrist.org/study/scriptures/tg/Respecter?lang=eng)
+[Respecter](https://churchofjesuschrist.org/study/scriptures/tg/respecter?lang=eng)
 
 ### References
 - [[Acts 10.34|Acts 10:34]]

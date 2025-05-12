@@ -1,6 +1,6 @@
 # Buckler
 
-[Buckler](https://www.churchofjesuschrist.org/study/scriptures/tg/Buckler?lang=eng)
+[Buckler](https://churchofjesuschrist.org/study/scriptures/tg/buckler?lang=eng)
 
 ### References
 - [[2 Samuel 22.31|2 Samuel 22:31]]

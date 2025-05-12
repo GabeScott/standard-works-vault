@@ -1,6 +1,6 @@
 # Priesthood, Aaronic
 
-[Priesthood, Aaronic](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood-Aaronic?lang=eng)
+[Priesthood, Aaronic](https://churchofjesuschrist.org/study/scriptures/tg/priesthood-aaronic?lang=eng)
 
 ### References
 - [[Numbers 16.9|Numbers 16:9]]

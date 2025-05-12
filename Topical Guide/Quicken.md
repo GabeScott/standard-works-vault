@@ -1,6 +1,6 @@
 # Quicken
 
-[Quicken](https://www.churchofjesuschrist.org/study/scriptures/tg/Quicken?lang=eng)
+[Quicken](https://churchofjesuschrist.org/study/scriptures/tg/quicken?lang=eng)
 
 ### References
 - [[John 5.21|John 5:21]]

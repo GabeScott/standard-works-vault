@@ -1,6 +1,6 @@
 # Better
 
-[Better](https://www.churchofjesuschrist.org/study/scriptures/tg/Better?lang=eng)
+[Better](https://churchofjesuschrist.org/study/scriptures/tg/better?lang=eng)
 
 ### References
 - [[Genesis 29.19|Genesis 29:19]]

@@ -1,6 +1,6 @@
 # Fitly
 
-[Fitly](https://www.churchofjesuschrist.org/study/scriptures/tg/Fitly?lang=eng)
+[Fitly](https://churchofjesuschrist.org/study/scriptures/tg/fitly?lang=eng)
 
 ### References
 - [[Proverbs 25.11|Proverbs 25:11]]

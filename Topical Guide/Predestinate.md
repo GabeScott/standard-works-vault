@@ -1,6 +1,6 @@
 # Predestinate
 
-[Predestinate](https://www.churchofjesuschrist.org/study/scriptures/tg/Predestinate?lang=eng)
+[Predestinate](https://churchofjesuschrist.org/study/scriptures/tg/predestinate?lang=eng)
 
 ### References
 - [[Romans 8.29|Romans 8:29]]

@@ -1,6 +1,6 @@
 # Thanksgiving
 
-[Thanksgiving](https://www.churchofjesuschrist.org/study/scriptures/tg/Thanksgiving?lang=eng)
+[Thanksgiving](https://churchofjesuschrist.org/study/scriptures/tg/thanksgiving?lang=eng)
 
 ### References
 - [[Leviticus 22.29|Leviticus 22:29]]

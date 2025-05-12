@@ -1,6 +1,6 @@
 # Figure
 
-[Figure](https://www.churchofjesuschrist.org/study/scriptures/tg/Figure?lang=eng)
+[Figure](https://churchofjesuschrist.org/study/scriptures/tg/figure?lang=eng)
 
 ### References
 - [[Isaiah 44.13|Isaiah 44:13]]

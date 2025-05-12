@@ -1,6 +1,6 @@
 # Darken
 
-[Darken](https://www.churchofjesuschrist.org/study/scriptures/tg/Darken?lang=eng)
+[Darken](https://churchofjesuschrist.org/study/scriptures/tg/darken?lang=eng)
 
 ### References
 - [[Exodus 10.15|Exodus 10:15]]

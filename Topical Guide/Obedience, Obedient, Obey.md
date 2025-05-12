@@ -1,6 +1,6 @@
 # Obedience, Obedient, Obey
 
-[Obedience, Obedient, Obey](https://www.churchofjesuschrist.org/study/scriptures/tg/Obedience-Obedient-Obey?lang=eng)
+[Obedience, Obedient, Obey](https://churchofjesuschrist.org/study/scriptures/tg/obedience?lang=eng)
 
 ### References
 - [[Genesis 22.18|Genesis 22:18]]

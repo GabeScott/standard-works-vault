@@ -1,6 +1,6 @@
 # Due
 
-[Due](https://www.churchofjesuschrist.org/study/scriptures/tg/Due?lang=eng)
+[Due](https://churchofjesuschrist.org/study/scriptures/tg/due?lang=eng)
 
 ### References
 - [[1 Timothy 2.6|1 Timothy 2:6]]

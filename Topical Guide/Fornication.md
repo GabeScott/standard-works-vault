@@ -1,6 +1,6 @@
 # Fornication
 
-[Fornication](https://www.churchofjesuschrist.org/study/scriptures/tg/Fornication?lang=eng)
+[Fornication](https://churchofjesuschrist.org/study/scriptures/tg/fornication?lang=eng)
 
 ### References
 - [[Proverbs 22.14|Proverbs 22:14]]

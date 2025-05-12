@@ -1,6 +1,6 @@
 # High, Higher, Highest
 
-[High, Higher, Highest](https://www.churchofjesuschrist.org/study/scriptures/tg/High-Higher-Highest?lang=eng)
+[High, Higher, Highest](https://churchofjesuschrist.org/study/scriptures/tg/high?lang=eng)
 
 ### References
 - [[Exodus 14.8|Exodus 14:8]]

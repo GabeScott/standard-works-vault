@@ -1,6 +1,6 @@
 # Camel
 
-[Camel](https://www.churchofjesuschrist.org/study/scriptures/tg/Camel?lang=eng)
+[Camel](https://churchofjesuschrist.org/study/scriptures/tg/camel?lang=eng)
 
 ### References
 - [[Genesis 24.19|Genesis 24:19]]

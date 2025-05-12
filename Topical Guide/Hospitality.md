@@ -1,6 +1,6 @@
 # Hospitality
 
-[Hospitality](https://www.churchofjesuschrist.org/study/scriptures/tg/Hospitality?lang=eng)
+[Hospitality](https://churchofjesuschrist.org/study/scriptures/tg/hospitality?lang=eng)
 
 ### References
 - [[Genesis 18.4|Genesis 18:4]]

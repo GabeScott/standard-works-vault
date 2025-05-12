@@ -1,6 +1,6 @@
 # Stop
 
-[Stop](https://www.churchofjesuschrist.org/study/scriptures/tg/Stop?lang=eng)
+[Stop](https://churchofjesuschrist.org/study/scriptures/tg/stop?lang=eng)
 
 ### References
 - [[Genesis 8.2|Genesis 8:2]]

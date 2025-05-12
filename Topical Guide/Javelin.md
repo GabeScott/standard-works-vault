@@ -1,6 +1,6 @@
 # Javelin
 
-[Javelin](https://www.churchofjesuschrist.org/study/scriptures/tg/Javelin?lang=eng)
+[Javelin](https://churchofjesuschrist.org/study/scriptures/tg/javelin?lang=eng)
 
 ### References
 - [[Numbers 25.7|Numbers 25:7]]

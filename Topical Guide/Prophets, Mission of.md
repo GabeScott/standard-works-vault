@@ -1,6 +1,6 @@
 # Prophets, Mission of
 
-[Prophets, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/Prophets-Mission-of?lang=eng)
+[Prophets, Mission of](https://churchofjesuschrist.org/study/scriptures/tg/prophets-mission-of?lang=eng)
 
 ### References
 - [[Genesis 20.7|Genesis 20:7]]

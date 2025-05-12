@@ -1,6 +1,6 @@
 # Church before Christ
 
-[Church before Christ](https://www.churchofjesuschrist.org/study/scriptures/tg/Church-before-Christ?lang=eng)
+[Church before Christ](https://churchofjesuschrist.org/study/scriptures/tg/church-before-christ?lang=eng)
 
 ### References
 - [[Exodus 16.2|Exodus 16:2]]

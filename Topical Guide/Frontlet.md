@@ -1,6 +1,6 @@
 # Frontlet
 
-[Frontlet](https://www.churchofjesuschrist.org/study/scriptures/tg/Frontlet?lang=eng)
+[Frontlet](https://churchofjesuschrist.org/study/scriptures/tg/frontlet?lang=eng)
 
 ### References
 - [[Exodus 13.16|Exodus 13:16]]

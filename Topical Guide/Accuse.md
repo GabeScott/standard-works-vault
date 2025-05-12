@@ -1,6 +1,6 @@
 # Accuse
 
-[Accuse](https://www.churchofjesuschrist.org/study/scriptures/tg/Accuse?lang=eng)
+[Accuse](https://churchofjesuschrist.org/study/scriptures/tg/accuse?lang=eng)
 
 ### References
 - [[Matthew 12.10|Matthew 12:10]]

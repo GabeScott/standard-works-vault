@@ -1,6 +1,6 @@
 # Summer
 
-[Summer](https://www.churchofjesuschrist.org/study/scriptures/tg/Summer?lang=eng)
+[Summer](https://churchofjesuschrist.org/study/scriptures/tg/summer?lang=eng)
 
 ### References
 - [[Genesis 8.22|Genesis 8:22]]

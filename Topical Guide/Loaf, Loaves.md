@@ -1,6 +1,6 @@
 # Loaf, Loaves
 
-[Loaf, Loaves](https://www.churchofjesuschrist.org/study/scriptures/tg/Loaf-Loaves?lang=eng)
+[Loaf, Loaves](https://churchofjesuschrist.org/study/scriptures/tg/loaf?lang=eng)
 
 ### References
 - [[Matthew 14.17|Matthew 14:17]]

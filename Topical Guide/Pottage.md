@@ -1,6 +1,6 @@
 # Pottage
 
-[Pottage](https://www.churchofjesuschrist.org/study/scriptures/tg/Pottage?lang=eng)
+[Pottage](https://churchofjesuschrist.org/study/scriptures/tg/pottage?lang=eng)
 
 ### References
 - [[Genesis 25.29|Genesis 25:29]]

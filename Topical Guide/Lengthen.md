@@ -1,6 +1,6 @@
 # Lengthen
 
-[Lengthen](https://www.churchofjesuschrist.org/study/scriptures/tg/Lengthen?lang=eng)
+[Lengthen](https://churchofjesuschrist.org/study/scriptures/tg/lengthen?lang=eng)
 
 ### References
 - [[Deuteronomy 25.15|Deuteronomy 25:15]]

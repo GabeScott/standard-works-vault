@@ -1,6 +1,6 @@
 # Chastity, Chaste
 
-[Chastity, Chaste](https://www.churchofjesuschrist.org/study/scriptures/tg/Chastity-Chaste?lang=eng)
+[Chastity, Chaste](https://churchofjesuschrist.org/study/scriptures/tg/chastity?lang=eng)
 
 ### References
 - [[Genesis 2.24|Genesis 2:24]]

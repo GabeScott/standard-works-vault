@@ -1,6 +1,6 @@
 # Wickedness, Wicked
 
-[Wickedness, Wicked](https://www.churchofjesuschrist.org/study/scriptures/tg/Wickedness-Wicked?lang=eng)
+[Wickedness, Wicked](https://churchofjesuschrist.org/study/scriptures/tg/wickedness?lang=eng)
 
 ### References
 - [[Genesis 13.13|Genesis 13:13]]

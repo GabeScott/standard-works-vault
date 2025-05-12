@@ -1,6 +1,6 @@
 # Hem
 
-[Hem](https://www.churchofjesuschrist.org/study/scriptures/tg/Hem?lang=eng)
+[Hem](https://churchofjesuschrist.org/study/scriptures/tg/hem?lang=eng)
 
 ### References
 - [[Matthew 14.36|Matthew 14:36]]

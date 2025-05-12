@@ -1,6 +1,6 @@
 # Prize
 
-[Prize](https://www.churchofjesuschrist.org/study/scriptures/tg/Prize?lang=eng)
+[Prize](https://churchofjesuschrist.org/study/scriptures/tg/prize?lang=eng)
 
 ### References
 - [[1 Corinthians 9.24|1 Corinthians 9:24]]

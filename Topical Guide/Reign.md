@@ -1,6 +1,6 @@
 # Reign
 
-[Reign](https://www.churchofjesuschrist.org/study/scriptures/tg/Reign?lang=eng)
+[Reign](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-millennial-reign?lang=eng)
 
 ### References
 - [[Genesis 37.8|Genesis 37:8]]

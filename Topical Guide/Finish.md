@@ -1,6 +1,6 @@
 # Finish
 
-[Finish](https://www.churchofjesuschrist.org/study/scriptures/tg/Finish?lang=eng)
+[Finish](https://churchofjesuschrist.org/study/scriptures/tg/finish?lang=eng)
 
 ### References
 - [[Genesis 2.1|Genesis 2:1]]

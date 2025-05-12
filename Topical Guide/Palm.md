@@ -1,6 +1,6 @@
 # Palm
 
-[Palm](https://www.churchofjesuschrist.org/study/scriptures/tg/Palm?lang=eng)
+[Palm](https://churchofjesuschrist.org/study/scriptures/tg/palm?lang=eng)
 
 ### References
 - [[Deuteronomy 34.3|Deuteronomy 34:3]]

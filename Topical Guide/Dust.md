@@ -1,6 +1,6 @@
 # Dust
 
-[Dust](https://www.churchofjesuschrist.org/study/scriptures/tg/Dust?lang=eng)
+[Dust](https://churchofjesuschrist.org/study/scriptures/tg/dust?lang=eng)
 
 ### References
 - [[Genesis 13.16|Genesis 13:16]]

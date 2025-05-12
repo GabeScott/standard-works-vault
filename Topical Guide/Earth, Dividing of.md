@@ -1,6 +1,6 @@
 # Earth, Dividing of
 
-[Earth, Dividing of](https://www.churchofjesuschrist.org/study/scriptures/tg/Earth-Dividing-of?lang=eng)
+[Earth, Dividing of](https://churchofjesuschrist.org/study/scriptures/tg/earth-dividing-of?lang=eng)
 
 ### References
 - [[Genesis 1.9|Genesis 1:9]]

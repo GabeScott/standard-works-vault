@@ -1,6 +1,6 @@
 # Wayside
 
-[Wayside](https://www.churchofjesuschrist.org/study/scriptures/tg/Wayside?lang=eng)
+[Wayside](https://churchofjesuschrist.org/study/scriptures/tg/wayside?lang=eng)
 
 ### References
 - [[Matthew 13.4|Matthew 13:4]]

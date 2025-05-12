@@ -1,6 +1,6 @@
 # Acquaint
 
-[Acquaint](https://www.churchofjesuschrist.org/study/scriptures/tg/Acquaint?lang=eng)
+[Acquaint](https://churchofjesuschrist.org/study/scriptures/tg/acquaint?lang=eng)
 
 ### References
 - [[Job 22.21|Job 22:21]]

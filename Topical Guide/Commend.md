@@ -1,6 +1,6 @@
 # Commend
 
-[Commend](https://www.churchofjesuschrist.org/study/scriptures/tg/Commend?lang=eng)
+[Commend](https://churchofjesuschrist.org/study/scriptures/tg/commend?lang=eng)
 
 ### References
 - [[Luke 16.8|Luke 16:8]]

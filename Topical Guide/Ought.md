@@ -1,6 +1,6 @@
 # Ought
 
-[Ought](https://www.churchofjesuschrist.org/study/scriptures/tg/Ought?lang=eng)
+[Ought](https://churchofjesuschrist.org/study/scriptures/tg/ought?lang=eng)
 
 ### References
 - [[Matthew 23.23|Matthew 23:23]]

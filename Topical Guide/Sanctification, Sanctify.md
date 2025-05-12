@@ -1,6 +1,6 @@
 # Sanctification, Sanctify
 
-[Sanctification, Sanctify](https://www.churchofjesuschrist.org/study/scriptures/tg/Sanctification-Sanctify?lang=eng)
+[Sanctification, Sanctify](https://churchofjesuschrist.org/study/scriptures/tg/sanctification?lang=eng)
 
 ### References
 - [[Genesis 2.3|Genesis 2:3]]

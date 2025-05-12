@@ -1,6 +1,6 @@
 # Bottle
 
-[Bottle](https://www.churchofjesuschrist.org/study/scriptures/tg/Bottle?lang=eng)
+[Bottle](https://churchofjesuschrist.org/study/scriptures/tg/bottle?lang=eng)
 
 ### References
 - [[Joshua 9.4|Joshua 9:4]]

@@ -1,6 +1,6 @@
 # Last Days
 
-[Last Days](https://www.churchofjesuschrist.org/study/scriptures/tg/Last-Days?lang=eng)
+[Last Days](https://churchofjesuschrist.org/study/scriptures/tg/last-days?lang=eng)
 
 ### References
 - [[Genesis 49.1|Genesis 49:1]]

@@ -1,6 +1,6 @@
 # Possible
 
-[Possible](https://www.churchofjesuschrist.org/study/scriptures/tg/Possible?lang=eng)
+[Possible](https://churchofjesuschrist.org/study/scriptures/tg/possible?lang=eng)
 
 ### References
 - [[Matthew 19.26|Matthew 19:26]]

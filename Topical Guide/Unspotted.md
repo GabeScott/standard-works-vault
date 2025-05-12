@@ -1,6 +1,6 @@
 # Unspotted
 
-[Unspotted](https://www.churchofjesuschrist.org/study/scriptures/tg/Unspotted?lang=eng)
+[Unspotted](https://churchofjesuschrist.org/study/scriptures/tg/unspotted?lang=eng)
 
 ### References
 - [[James 1.27|James 1:27]]

@@ -1,6 +1,6 @@
 # Confess
 
-[Confess](https://www.churchofjesuschrist.org/study/scriptures/tg/Confess?lang=eng)
+[Confess](https://churchofjesuschrist.org/study/scriptures/tg/confess?lang=eng)
 
 ### References
 - [[Isaiah 45.23|Isaiah 45:23]]

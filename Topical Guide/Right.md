@@ -1,6 +1,6 @@
 # Right
 
-[Right](https://www.churchofjesuschrist.org/study/scriptures/tg/Right?lang=eng)
+[Right](https://churchofjesuschrist.org/study/scriptures/tg/right?lang=eng)
 
 ### References
 - [[Genesis 18.25|Genesis 18:25]]

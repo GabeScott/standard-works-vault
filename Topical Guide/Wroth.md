@@ -1,6 +1,6 @@
 # Wroth
 
-[Wroth](https://www.churchofjesuschrist.org/study/scriptures/tg/Wroth?lang=eng)
+[Wroth](https://churchofjesuschrist.org/study/scriptures/tg/wroth?lang=eng)
 
 ### References
 - [[Genesis 4.5|Genesis 4:5]]

@@ -1,6 +1,6 @@
 # Uncertain
 
-[Uncertain](https://www.churchofjesuschrist.org/study/scriptures/tg/Uncertain?lang=eng)
+[Uncertain](https://churchofjesuschrist.org/study/scriptures/tg/uncertain?lang=eng)
 
 ### References
 - [[1 Corinthians 14.8|1 Corinthians 14:8]]

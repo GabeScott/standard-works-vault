@@ -1,6 +1,6 @@
 # Ark of the Covenant
 
-[Ark of the Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/Ark-of-the-Covenant?lang=eng)
+[Ark of the Covenant](https://churchofjesuschrist.org/study/scriptures/tg/ark-of-the-covenant?lang=eng)
 
 ### References
 - [[Exodus 25.22|Exodus 25:22]]

@@ -1,6 +1,6 @@
 # Diminish
 
-[Diminish](https://www.churchofjesuschrist.org/study/scriptures/tg/Diminish?lang=eng)
+[Diminish](https://churchofjesuschrist.org/study/scriptures/tg/diminish?lang=eng)
 
 ### References
 - [[Exodus 5.8|Exodus 5:8]]

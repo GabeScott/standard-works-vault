@@ -1,6 +1,6 @@
 # Wafer
 
-[Wafer](https://www.churchofjesuschrist.org/study/scriptures/tg/Wafer?lang=eng)
+[Wafer](https://churchofjesuschrist.org/study/scriptures/tg/wafer?lang=eng)
 
 ### References
 - [[Exodus 16.31|Exodus 16:31]]

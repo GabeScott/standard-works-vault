@@ -1,6 +1,6 @@
 # Birth
 
-[Birth](https://www.churchofjesuschrist.org/study/scriptures/tg/Birth?lang=eng)
+[Birth](https://churchofjesuschrist.org/study/scriptures/tg/birth?lang=eng)
 
 ### References
 - [[Isaiah 37.3|Isaiah 37:3]]

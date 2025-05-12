@@ -1,6 +1,6 @@
 # Book of Life
 
-[Book of Life](https://www.churchofjesuschrist.org/study/scriptures/tg/Book-of-Life?lang=eng)
+[Book of Life](https://churchofjesuschrist.org/study/scriptures/tg/book-of-life?lang=eng)
 
 ### References
 - [[Exodus 32.33|Exodus 32:33]]

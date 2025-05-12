@@ -1,6 +1,6 @@
 # Decrease
 
-[Decrease](https://www.churchofjesuschrist.org/study/scriptures/tg/Decrease?lang=eng)
+[Decrease](https://churchofjesuschrist.org/study/scriptures/tg/decrease?lang=eng)
 
 ### References
 - [[Genesis 8.5|Genesis 8:5]]

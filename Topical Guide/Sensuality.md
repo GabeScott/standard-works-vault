@@ -1,6 +1,6 @@
 # Sensuality
 
-[Sensuality](https://www.churchofjesuschrist.org/study/scriptures/tg/Sensuality?lang=eng)
+[Sensuality](https://churchofjesuschrist.org/study/scriptures/tg/sensuality?lang=eng)
 
 ### References
 - [[Genesis 39.7|Genesis 39:7]]

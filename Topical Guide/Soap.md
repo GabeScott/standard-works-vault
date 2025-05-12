@@ -1,6 +1,6 @@
 # Soap
 
-[Soap](https://www.churchofjesuschrist.org/study/scriptures/tg/Soap?lang=eng)
+[Soap](https://churchofjesuschrist.org/study/scriptures/tg/soap?lang=eng)
 
 ### References
 - [[Malachi 3.2|Malachi 3:2]]

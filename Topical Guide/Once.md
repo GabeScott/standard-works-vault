@@ -1,6 +1,6 @@
 # Once
 
-[Once](https://www.churchofjesuschrist.org/study/scriptures/tg/Once?lang=eng)
+[Once](https://churchofjesuschrist.org/study/scriptures/tg/once?lang=eng)
 
 ### References
 - [[Romans 6.10|Romans 6:10]]

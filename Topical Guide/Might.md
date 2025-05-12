@@ -1,6 +1,6 @@
 # Might
 
-[Might](https://www.churchofjesuschrist.org/study/scriptures/tg/Might?lang=eng)
+[Might](https://churchofjesuschrist.org/study/scriptures/tg/might?lang=eng)
 
 ### References
 - [[Genesis 49.3|Genesis 49:3]]

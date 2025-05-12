@@ -1,6 +1,6 @@
 # Street
 
-[Street](https://www.churchofjesuschrist.org/study/scriptures/tg/Street?lang=eng)
+[Street](https://churchofjesuschrist.org/study/scriptures/tg/street?lang=eng)
 
 ### References
 - [[1 Kings 20.34|1 Kings 20:34]]

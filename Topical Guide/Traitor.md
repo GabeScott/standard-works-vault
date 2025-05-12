@@ -1,6 +1,6 @@
 # Traitor
 
-[Traitor](https://www.churchofjesuschrist.org/study/scriptures/tg/Traitor?lang=eng)
+[Traitor](https://churchofjesuschrist.org/study/scriptures/tg/traitor?lang=eng)
 
 ### References
 - [[Luke 6.16|Luke 6:16]]

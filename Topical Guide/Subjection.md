@@ -1,6 +1,6 @@
 # Subjection
 
-[Subjection](https://www.churchofjesuschrist.org/study/scriptures/tg/Subjection?lang=eng)
+[Subjection](https://churchofjesuschrist.org/study/scriptures/tg/subjection?lang=eng)
 
 ### References
 - [[Psalms 106.42|Psalms 106:42]]

@@ -1,6 +1,6 @@
 # Heritage
 
-[Heritage](https://www.churchofjesuschrist.org/study/scriptures/tg/Heritage?lang=eng)
+[Heritage](https://churchofjesuschrist.org/study/scriptures/tg/heritage?lang=eng)
 
 ### References
 - [[Exodus 6.8|Exodus 6:8]]

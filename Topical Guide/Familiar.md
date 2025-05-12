@@ -1,6 +1,6 @@
 # Familiar
 
-[Familiar](https://www.churchofjesuschrist.org/study/scriptures/tg/Familiar?lang=eng)
+[Familiar](https://churchofjesuschrist.org/study/scriptures/tg/familiar?lang=eng)
 
 ### References
 - [[Leviticus 19.31|Leviticus 19:31]]

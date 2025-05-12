@@ -1,6 +1,6 @@
 # Comfortless
 
-[Comfortless](https://www.churchofjesuschrist.org/study/scriptures/tg/Comfortless?lang=eng)
+[Comfortless](https://churchofjesuschrist.org/study/scriptures/tg/comfortless?lang=eng)
 
 ### References
 - [[John 14.18|John 14:18]]

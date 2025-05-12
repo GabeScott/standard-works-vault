@@ -1,6 +1,6 @@
 # Upper
 
-[Upper](https://www.churchofjesuschrist.org/study/scriptures/tg/Upper?lang=eng)
+[Upper](https://churchofjesuschrist.org/study/scriptures/tg/upper?lang=eng)
 
 ### References
 - [[Mark 14.15|Mark 14:15]]

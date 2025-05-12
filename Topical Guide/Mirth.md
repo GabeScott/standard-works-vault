@@ -1,6 +1,6 @@
 # Mirth
 
-[Mirth](https://www.churchofjesuschrist.org/study/scriptures/tg/Mirth?lang=eng)
+[Mirth](https://churchofjesuschrist.org/study/scriptures/tg/mirth?lang=eng)
 
 ### References
 - [[Nehemiah 8.12|Nehemiah 8:12]]

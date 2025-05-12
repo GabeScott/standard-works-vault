@@ -1,6 +1,6 @@
 # Preparation
 
-[Preparation](https://www.churchofjesuschrist.org/study/scriptures/tg/Preparation?lang=eng)
+[Preparation](https://churchofjesuschrist.org/study/scriptures/tg/preparation?lang=eng)
 
 ### References
 - [[Proverbs 16.1|Proverbs 16:1]]

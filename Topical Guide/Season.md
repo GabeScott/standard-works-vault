@@ -1,6 +1,6 @@
 # Season
 
-[Season](https://www.churchofjesuschrist.org/study/scriptures/tg/Season?lang=eng)
+[Season](https://churchofjesuschrist.org/study/scriptures/tg/season-noun?lang=eng)
 
 ### References
 - [[Genesis 1.14|Genesis 1:14]]

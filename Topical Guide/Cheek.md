@@ -1,6 +1,6 @@
 # Cheek
 
-[Cheek](https://www.churchofjesuschrist.org/study/scriptures/tg/Cheek?lang=eng)
+[Cheek](https://churchofjesuschrist.org/study/scriptures/tg/cheek?lang=eng)
 
 ### References
 - [[Psalms 3.7|Psalms 3:7]]

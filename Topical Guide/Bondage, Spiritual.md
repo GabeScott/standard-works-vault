@@ -1,6 +1,6 @@
 # Bondage, Spiritual
 
-[Bondage, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/Bondage-Spiritual?lang=eng)
+[Bondage, Spiritual](https://churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
 
 ### References
 - [[Isaiah 5.13|Isaiah 5:13]]

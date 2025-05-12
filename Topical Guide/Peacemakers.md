@@ -1,6 +1,6 @@
 # Peacemakers
 
-[Peacemakers](https://www.churchofjesuschrist.org/study/scriptures/tg/Peacemakers?lang=eng)
+[Peacemakers](https://churchofjesuschrist.org/study/scriptures/tg/peacemakers?lang=eng)
 
 ### References
 - [[Genesis 26.29|Genesis 26:29]]

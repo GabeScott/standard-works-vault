@@ -1,6 +1,6 @@
 # Stem
 
-[Stem](https://www.churchofjesuschrist.org/study/scriptures/tg/Stem?lang=eng)
+[Stem](https://churchofjesuschrist.org/study/scriptures/tg/stem?lang=eng)
 
 ### References
 - [[Isaiah 11.1|Isaiah 11:1]]

@@ -1,6 +1,6 @@
 # Earth
 
-[Earth](https://www.churchofjesuschrist.org/study/scriptures/tg/Earth?lang=eng)
+[Earth](https://churchofjesuschrist.org/study/scriptures/tg/curse-of-earth?lang=eng)
 
 ### References
 - [[Genesis 1.10|Genesis 1:10]]

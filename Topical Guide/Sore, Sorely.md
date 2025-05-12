@@ -1,6 +1,6 @@
 # Sore, Sorely
 
-[Sore, Sorely](https://www.churchofjesuschrist.org/study/scriptures/tg/Sore-Sorely?lang=eng)
+[Sore, Sorely](https://churchofjesuschrist.org/study/scriptures/tg/sore?lang=eng)
 
 ### References
 - [[2 Chronicles 6.28|2 Chronicles 6:28]]

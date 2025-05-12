@@ -1,6 +1,6 @@
 # Thick, Thicker
 
-[Thick, Thicker](https://www.churchofjesuschrist.org/study/scriptures/tg/Thick-Thicker?lang=eng)
+[Thick, Thicker](https://churchofjesuschrist.org/study/scriptures/tg/thick?lang=eng)
 
 ### References
 - [[Exodus 10.22|Exodus 10:22]]

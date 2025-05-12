@@ -1,6 +1,6 @@
 # Prophetess
 
-[Prophetess](https://www.churchofjesuschrist.org/study/scriptures/tg/Prophetess?lang=eng)
+[Prophetess](https://churchofjesuschrist.org/study/scriptures/tg/prophetess?lang=eng)
 
 ### References
 - [[Exodus 15.20|Exodus 15:20]]

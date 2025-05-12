@@ -1,6 +1,6 @@
 # Spread
 
-[Spread](https://www.churchofjesuschrist.org/study/scriptures/tg/Spread?lang=eng)
+[Spread](https://churchofjesuschrist.org/study/scriptures/tg/spread?lang=eng)
 
 ### References
 - [[Deuteronomy 32.11|Deuteronomy 32:11]]

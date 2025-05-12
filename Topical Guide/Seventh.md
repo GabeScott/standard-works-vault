@@ -1,6 +1,6 @@
 # Seventh
 
-[Seventh](https://www.churchofjesuschrist.org/study/scriptures/tg/Seventh?lang=eng)
+[Seventh](https://churchofjesuschrist.org/study/scriptures/tg/seventh?lang=eng)
 
 ### References
 - [[Genesis 2.2|Genesis 2:2]]

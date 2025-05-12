@@ -1,6 +1,6 @@
 # Spiritual
 
-[Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/Spiritual?lang=eng)
+[Spiritual](https://churchofjesuschrist.org/study/scriptures/tg/bondage-spiritual?lang=eng)
 
 ### References
 - [[Romans 15.27|Romans 15:27]]

@@ -1,6 +1,6 @@
 # God, Presence of
 
-[God, Presence of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Presence-of?lang=eng)
+[God, Presence of](https://churchofjesuschrist.org/study/scriptures/tg/god-presence-of?lang=eng)
 
 ### References
 - [[Genesis 21.22|Genesis 21:22]]

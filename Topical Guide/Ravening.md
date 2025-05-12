@@ -1,6 +1,6 @@
 # Ravening
 
-[Ravening](https://www.churchofjesuschrist.org/study/scriptures/tg/Ravening?lang=eng)
+[Ravening](https://churchofjesuschrist.org/study/scriptures/tg/ravening?lang=eng)
 
 ### References
 - [[Luke 11.39|Luke 11:39]]

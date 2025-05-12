@@ -1,6 +1,6 @@
 # Covenants
 
-[Covenants](https://www.churchofjesuschrist.org/study/scriptures/tg/Covenants?lang=eng)
+[Covenants](https://churchofjesuschrist.org/study/scriptures/tg/covenants?lang=eng)
 
 ### References
 - [[Genesis 15.18|Genesis 15:18]]

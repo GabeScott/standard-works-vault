@@ -1,6 +1,6 @@
 # Book of Mormon
 
-[Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/tg/Book-of-Mormon?lang=eng)
+[Book of Mormon](https://churchofjesuschrist.org/study/scriptures/tg/book-of-mormon?lang=eng)
 
 ### References
 - [[Genesis 11.9|Genesis 11:9]]

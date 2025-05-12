@@ -1,6 +1,6 @@
 # Supper
 
-[Supper](https://www.churchofjesuschrist.org/study/scriptures/tg/Supper?lang=eng)
+[Supper](https://churchofjesuschrist.org/study/scriptures/tg/lords-supper?lang=eng)
 
 ### References
 - [[Luke 14.16|Luke 14:16]]

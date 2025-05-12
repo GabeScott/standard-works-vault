@@ -1,6 +1,6 @@
 # Understanding
 
-[Understanding](https://www.churchofjesuschrist.org/study/scriptures/tg/Understanding?lang=eng)
+[Understanding](https://churchofjesuschrist.org/study/scriptures/tg/understanding?lang=eng)
 
 ### References
 - [[Deuteronomy 32.28|Deuteronomy 32:28]]

@@ -1,6 +1,6 @@
 # Seed of Abraham
 
-[Seed of Abraham](https://www.churchofjesuschrist.org/study/scriptures/tg/Seed-of-Abraham?lang=eng)
+[Seed of Abraham](https://churchofjesuschrist.org/study/scriptures/tg/seed-of-abraham?lang=eng)
 
 ### References
 - [[Genesis 12.3|Genesis 12:3]]

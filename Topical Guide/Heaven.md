@@ -1,6 +1,6 @@
 # Heaven
 
-[Heaven](https://www.churchofjesuschrist.org/study/scriptures/tg/Heaven?lang=eng)
+[Heaven](https://churchofjesuschrist.org/study/scriptures/tg/council-in-heaven?lang=eng)
 
 ### References
 - [[Genesis 1.1|Genesis 1:1]]

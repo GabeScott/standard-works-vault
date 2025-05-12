@@ -1,6 +1,6 @@
 # Beat
 
-[Beat](https://www.churchofjesuschrist.org/study/scriptures/tg/Beat?lang=eng)
+[Beat](https://churchofjesuschrist.org/study/scriptures/tg/beat?lang=eng)
 
 ### References
 - [[Proverbs 23.14|Proverbs 23:14]]

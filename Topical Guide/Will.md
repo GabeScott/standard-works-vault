@@ -1,6 +1,6 @@
 # Will
 
-[Will](https://www.churchofjesuschrist.org/study/scriptures/tg/Will?lang=eng)
+[Will](https://churchofjesuschrist.org/study/scriptures/tg/will?lang=eng)
 
 ### References
 - [[Leviticus 19.5|Leviticus 19:5]]

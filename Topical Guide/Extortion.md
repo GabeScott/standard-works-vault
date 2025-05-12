@@ -1,6 +1,6 @@
 # Extortion
 
-[Extortion](https://www.churchofjesuschrist.org/study/scriptures/tg/Extortion?lang=eng)
+[Extortion](https://churchofjesuschrist.org/study/scriptures/tg/extortion?lang=eng)
 
 ### References
 - [[Ezekiel 22.12|Ezekiel 22:12]]

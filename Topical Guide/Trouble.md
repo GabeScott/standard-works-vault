@@ -1,6 +1,6 @@
 # Trouble
 
-[Trouble](https://www.churchofjesuschrist.org/study/scriptures/tg/Trouble?lang=eng)
+[Trouble](https://churchofjesuschrist.org/study/scriptures/tg/trouble?lang=eng)
 
 ### References
 - [[Genesis 41.8|Genesis 41:8]]

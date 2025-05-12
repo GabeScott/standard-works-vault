@@ -1,6 +1,6 @@
 # Root
 
-[Root](https://www.churchofjesuschrist.org/study/scriptures/tg/Root?lang=eng)
+[Root](https://churchofjesuschrist.org/study/scriptures/tg/root?lang=eng)
 
 ### References
 - [[Deuteronomy 29.18|Deuteronomy 29:18]]

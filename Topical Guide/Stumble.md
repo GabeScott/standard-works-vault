@@ -1,6 +1,6 @@
 # Stumble
 
-[Stumble](https://www.churchofjesuschrist.org/study/scriptures/tg/Stumble?lang=eng)
+[Stumble](https://churchofjesuschrist.org/study/scriptures/tg/stumble?lang=eng)
 
 ### References
 - [[Proverbs 4.19|Proverbs 4:19]]

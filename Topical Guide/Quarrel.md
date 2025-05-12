@@ -1,6 +1,6 @@
 # Quarrel
 
-[Quarrel](https://www.churchofjesuschrist.org/study/scriptures/tg/Quarrel?lang=eng)
+[Quarrel](https://churchofjesuschrist.org/study/scriptures/tg/quarrel?lang=eng)
 
 ### References
 - [[Mark 6.19|Mark 6:19]]

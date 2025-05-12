@@ -1,6 +1,6 @@
 # Freeman
 
-[Freeman](https://www.churchofjesuschrist.org/study/scriptures/tg/Freeman?lang=eng)
+[Freeman](https://churchofjesuschrist.org/study/scriptures/tg/freeman?lang=eng)
 
 ### References
 - [[1 Corinthians 7.22|1 Corinthians 7:22]]

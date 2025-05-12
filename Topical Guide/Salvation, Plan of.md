@@ -1,6 +1,6 @@
 # Salvation, Plan of
 
-[Salvation, Plan of](https://www.churchofjesuschrist.org/study/scriptures/tg/Salvation-Plan-of?lang=eng)
+[Salvation, Plan of](https://churchofjesuschrist.org/study/scriptures/tg/salvation-plan-of?lang=eng)
 
 ### References
 - [[Isaiah 53.5|Isaiah 53:5]]

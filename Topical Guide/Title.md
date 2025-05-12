@@ -1,6 +1,6 @@
 # Title
 
-[Title](https://www.churchofjesuschrist.org/study/scriptures/tg/Title?lang=eng)
+[Title](https://churchofjesuschrist.org/study/scriptures/tg/title?lang=eng)
 
 ### References
 - [[John 19.19|John 19:19]]

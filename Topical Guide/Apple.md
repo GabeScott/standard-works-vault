@@ -1,6 +1,6 @@
 # Apple
 
-[Apple](https://www.churchofjesuschrist.org/study/scriptures/tg/Apple?lang=eng)
+[Apple](https://churchofjesuschrist.org/study/scriptures/tg/apple?lang=eng)
 
 ### References
 - [[Deuteronomy 32.10|Deuteronomy 32:10]]

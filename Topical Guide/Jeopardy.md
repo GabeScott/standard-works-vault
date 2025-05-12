@@ -1,6 +1,6 @@
 # Jeopardy
 
-[Jeopardy](https://www.churchofjesuschrist.org/study/scriptures/tg/Jeopardy?lang=eng)
+[Jeopardy](https://churchofjesuschrist.org/study/scriptures/tg/jeopardy?lang=eng)
 
 ### References
 - [[Luke 8.23|Luke 8:23]]

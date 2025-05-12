@@ -1,6 +1,6 @@
 # Sluggard
 
-[Sluggard](https://www.churchofjesuschrist.org/study/scriptures/tg/Sluggard?lang=eng)
+[Sluggard](https://churchofjesuschrist.org/study/scriptures/tg/sluggard?lang=eng)
 
 ### References
 - [[Proverbs 10.26|Proverbs 10:26]]

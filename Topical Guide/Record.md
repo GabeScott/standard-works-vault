@@ -1,6 +1,6 @@
 # Record
 
-[Record](https://www.churchofjesuschrist.org/study/scriptures/tg/Record?lang=eng)
+[Record](https://churchofjesuschrist.org/study/scriptures/tg/record?lang=eng)
 
 ### References
 - [[Exodus 20.24|Exodus 20:24]]

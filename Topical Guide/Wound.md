@@ -1,6 +1,6 @@
 # Wound
 
-[Wound](https://www.churchofjesuschrist.org/study/scriptures/tg/Wound?lang=eng)
+[Wound](https://churchofjesuschrist.org/study/scriptures/tg/wound?lang=eng)
 
 ### References
 - [[Exodus 21.25|Exodus 21:25]]

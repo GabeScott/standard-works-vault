@@ -1,6 +1,6 @@
 # Baptism for the Dead
 
-[Baptism for the Dead](https://www.churchofjesuschrist.org/study/scriptures/tg/Baptism-for-the-Dead?lang=eng)
+[Baptism for the Dead](https://churchofjesuschrist.org/study/scriptures/tg/baptism-for-the-dead?lang=eng)
 
 ### References
 - [[John 3.1|John 3:1]]

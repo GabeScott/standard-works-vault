@@ -1,6 +1,6 @@
 # Search
 
-[Search](https://www.churchofjesuschrist.org/study/scriptures/tg/Search?lang=eng)
+[Search](https://churchofjesuschrist.org/study/scriptures/tg/search?lang=eng)
 
 ### References
 - [[Genesis 31.34|Genesis 31:34]]

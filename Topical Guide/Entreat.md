@@ -1,6 +1,6 @@
 # Entreat
 
-[Entreat](https://www.churchofjesuschrist.org/study/scriptures/tg/Entreat?lang=eng)
+[Entreat](https://churchofjesuschrist.org/study/scriptures/tg/entreat?lang=eng)
 
 ### References
 - [[Genesis 25.21|Genesis 25:21]]

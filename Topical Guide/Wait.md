@@ -1,6 +1,6 @@
 # Wait
 
-[Wait](https://www.churchofjesuschrist.org/study/scriptures/tg/Wait?lang=eng)
+[Wait](https://churchofjesuschrist.org/study/scriptures/tg/wait?lang=eng)
 
 ### References
 - [[Genesis 49.18|Genesis 49:18]]

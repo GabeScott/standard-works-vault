@@ -1,6 +1,6 @@
 # Lend, Lent
 
-[Lend, Lent](https://www.churchofjesuschrist.org/study/scriptures/tg/Lend-Lent?lang=eng)
+[Lend, Lent](https://churchofjesuschrist.org/study/scriptures/tg/lend?lang=eng)
 
 ### References
 - [[Exodus 12.36|Exodus 12:36]]

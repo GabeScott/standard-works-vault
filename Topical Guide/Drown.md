@@ -1,6 +1,6 @@
 # Drown
 
-[Drown](https://www.churchofjesuschrist.org/study/scriptures/tg/Drown?lang=eng)
+[Drown](https://churchofjesuschrist.org/study/scriptures/tg/drown?lang=eng)
 
 ### References
 - [[Exodus 15.4|Exodus 15:4]]

@@ -1,6 +1,6 @@
 # Loins
 
-[Loins](https://www.churchofjesuschrist.org/study/scriptures/tg/Loins?lang=eng)
+[Loins](https://churchofjesuschrist.org/study/scriptures/tg/loins?lang=eng)
 
 ### References
 - [[Isaiah 11.5|Isaiah 11:5]]

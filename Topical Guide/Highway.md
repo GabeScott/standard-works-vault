@@ -1,6 +1,6 @@
 # Highway
 
-[Highway](https://www.churchofjesuschrist.org/study/scriptures/tg/Highway?lang=eng)
+[Highway](https://churchofjesuschrist.org/study/scriptures/tg/highway?lang=eng)
 
 ### References
 - [[Leviticus 26.22|Leviticus 26:22]]

@@ -1,6 +1,6 @@
 # Pollution, Pollute
 
-[Pollution, Pollute](https://www.churchofjesuschrist.org/study/scriptures/tg/Pollution-Pollute?lang=eng)
+[Pollution, Pollute](https://churchofjesuschrist.org/study/scriptures/tg/pollution?lang=eng)
 
 ### References
 - [[Numbers 18.32|Numbers 18:32]]

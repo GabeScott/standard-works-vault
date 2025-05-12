@@ -1,6 +1,6 @@
 # Uphold, Upheld, Upholden
 
-[Uphold, Upheld, Upholden](https://www.churchofjesuschrist.org/study/scriptures/tg/Uphold-Upheld-Upholden?lang=eng)
+[Uphold, Upheld, Upholden](https://churchofjesuschrist.org/study/scriptures/tg/uphold?lang=eng)
 
 ### References
 - [[Psalms 145.14|Psalms 145:14]]

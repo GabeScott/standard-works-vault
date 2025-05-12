@@ -1,6 +1,6 @@
 # Fervent
 
-[Fervent](https://www.churchofjesuschrist.org/study/scriptures/tg/Fervent?lang=eng)
+[Fervent](https://churchofjesuschrist.org/study/scriptures/tg/fervent?lang=eng)
 
 ### References
 - [[Acts 18.25|Acts 18:25]]

@@ -1,6 +1,6 @@
 # Tenet
 
-[Tenet](https://www.churchofjesuschrist.org/study/scriptures/tg/Tenet?lang=eng)
+[Tenet](https://churchofjesuschrist.org/study/scriptures/tg/tenet?lang=eng)
 
 ### References
 - [[D&C 19.31|D&C 19:31]]

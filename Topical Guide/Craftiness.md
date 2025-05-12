@@ -1,6 +1,6 @@
 # Craftiness
 
-[Craftiness](https://www.churchofjesuschrist.org/study/scriptures/tg/Craftiness?lang=eng)
+[Craftiness](https://churchofjesuschrist.org/study/scriptures/tg/craftiness?lang=eng)
 
 ### References
 - [[Job 5.13|Job 5:13]]

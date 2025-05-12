@@ -1,6 +1,6 @@
 # Roar
 
-[Roar](https://www.churchofjesuschrist.org/study/scriptures/tg/Roar?lang=eng)
+[Roar](https://churchofjesuschrist.org/study/scriptures/tg/roar?lang=eng)
 
 ### References
 - [[1 Chronicles 16.32|1 Chronicles 16:32]]

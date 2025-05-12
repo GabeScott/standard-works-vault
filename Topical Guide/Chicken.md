@@ -1,6 +1,6 @@
 # Chicken
 
-[Chicken](https://www.churchofjesuschrist.org/study/scriptures/tg/Chicken?lang=eng)
+[Chicken](https://churchofjesuschrist.org/study/scriptures/tg/chicken?lang=eng)
 
 ### References
 - [[Matthew 23.37|Matthew 23:37]]

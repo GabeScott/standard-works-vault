@@ -1,6 +1,6 @@
 # Threshingfloor
 
-[Threshingfloor](https://www.churchofjesuschrist.org/study/scriptures/tg/Threshingfloor?lang=eng)
+[Threshingfloor](https://churchofjesuschrist.org/study/scriptures/tg/threshingfloor?lang=eng)
 
 ### References
 - [[Ruth 3.2|Ruth 3:2]]

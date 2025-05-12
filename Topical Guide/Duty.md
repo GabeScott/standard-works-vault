@@ -1,6 +1,6 @@
 # Duty
 
-[Duty](https://www.churchofjesuschrist.org/study/scriptures/tg/Duty?lang=eng)
+[Duty](https://churchofjesuschrist.org/study/scriptures/tg/duty?lang=eng)
 
 ### References
 - [[Deuteronomy 10.12|Deuteronomy 10:12]]

@@ -1,6 +1,6 @@
 # Sacred
 
-[Sacred](https://www.churchofjesuschrist.org/study/scriptures/tg/Sacred?lang=eng)
+[Sacred](https://churchofjesuschrist.org/study/scriptures/tg/sacred?lang=eng)
 
 ### References
 - [[Ezekiel 44.23|Ezekiel 44:23]]

@@ -1,6 +1,6 @@
 # Wither
 
-[Wither](https://www.churchofjesuschrist.org/study/scriptures/tg/Wither?lang=eng)
+[Wither](https://churchofjesuschrist.org/study/scriptures/tg/wither?lang=eng)
 
 ### References
 - [[Isaiah 40.7|Isaiah 40:7]]

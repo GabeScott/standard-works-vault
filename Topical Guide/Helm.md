@@ -1,6 +1,6 @@
 # Helm
 
-[Helm](https://www.churchofjesuschrist.org/study/scriptures/tg/Helm?lang=eng)
+[Helm](https://churchofjesuschrist.org/study/scriptures/tg/helm?lang=eng)
 
 ### References
 - [[James 3.4|James 3:4]]

@@ -1,6 +1,6 @@
 # Willing
 
-[Willing](https://www.churchofjesuschrist.org/study/scriptures/tg/Willing?lang=eng)
+[Willing](https://churchofjesuschrist.org/study/scriptures/tg/willing?lang=eng)
 
 ### References
 - [[Exodus 35.5|Exodus 35:5]]

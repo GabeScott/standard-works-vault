@@ -1,6 +1,6 @@
 # Trance
 
-[Trance](https://www.churchofjesuschrist.org/study/scriptures/tg/Trance?lang=eng)
+[Trance](https://churchofjesuschrist.org/study/scriptures/tg/trance?lang=eng)
 
 ### References
 - [[Numbers 24.4|Numbers 24:4]]

@@ -1,6 +1,6 @@
 # Cleanliness
 
-[Cleanliness](https://www.churchofjesuschrist.org/study/scriptures/tg/Cleanliness?lang=eng)
+[Cleanliness](https://churchofjesuschrist.org/study/scriptures/tg/cleanliness?lang=eng)
 
 ### References
 - [[Exodus 19.10|Exodus 19:10]]

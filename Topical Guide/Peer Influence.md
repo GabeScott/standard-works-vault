@@ -1,6 +1,6 @@
 # Peer Influence
 
-[Peer Influence](https://www.churchofjesuschrist.org/study/scriptures/tg/Peer-Influence?lang=eng)
+[Peer Influence](https://churchofjesuschrist.org/study/scriptures/tg/peer-influence?lang=eng)
 
 ### References
 - [[Exodus 23.2|Exodus 23:2]]

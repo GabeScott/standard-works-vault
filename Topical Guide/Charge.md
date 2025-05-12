@@ -1,6 +1,6 @@
 # Charge
 
-[Charge](https://www.churchofjesuschrist.org/study/scriptures/tg/Charge?lang=eng)
+[Charge](https://churchofjesuschrist.org/study/scriptures/tg/charge?lang=eng)
 
 ### References
 - [[Exodus 6.13|Exodus 6:13]]

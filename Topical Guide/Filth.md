@@ -1,6 +1,6 @@
 # Filth
 
-[Filth](https://www.churchofjesuschrist.org/study/scriptures/tg/Filth?lang=eng)
+[Filth](https://churchofjesuschrist.org/study/scriptures/tg/filth?lang=eng)
 
 ### References
 - [[Isaiah 4.4|Isaiah 4:4]]

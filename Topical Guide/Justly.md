@@ -1,6 +1,6 @@
 # Justly
 
-[Justly](https://www.churchofjesuschrist.org/study/scriptures/tg/Justly?lang=eng)
+[Justly](https://churchofjesuschrist.org/study/scriptures/tg/justly?lang=eng)
 
 ### References
 - [[Micah 6.8|Micah 6:8]]

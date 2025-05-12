@@ -1,6 +1,6 @@
 # Low, Lower, Lowest
 
-[Low, Lower, Lowest](https://www.churchofjesuschrist.org/study/scriptures/tg/Low-Lower-Lowest?lang=eng)
+[Low, Lower, Lowest](https://churchofjesuschrist.org/study/scriptures/tg/low?lang=eng)
 
 ### References
 - [[Deuteronomy 28.43|Deuteronomy 28:43]]

@@ -1,6 +1,6 @@
 # Foundation
 
-[Foundation](https://www.churchofjesuschrist.org/study/scriptures/tg/Foundation?lang=eng)
+[Foundation](https://churchofjesuschrist.org/study/scriptures/tg/foundation?lang=eng)
 
 ### References
 - [[Joshua 6.26|Joshua 6:26]]

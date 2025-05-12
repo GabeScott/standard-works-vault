@@ -1,6 +1,6 @@
 # Deep, Deeper
 
-[Deep, Deeper](https://www.churchofjesuschrist.org/study/scriptures/tg/Deep-Deeper?lang=eng)
+[Deep, Deeper](https://churchofjesuschrist.org/study/scriptures/tg/deep?lang=eng)
 
 ### References
 - [[Genesis 1.2|Genesis 1:2]]

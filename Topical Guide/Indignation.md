@@ -1,6 +1,6 @@
 # Indignation
 
-[Indignation](https://www.churchofjesuschrist.org/study/scriptures/tg/Indignation?lang=eng)
+[Indignation](https://churchofjesuschrist.org/study/scriptures/tg/indignation?lang=eng)
 
 ### References
 - [[Deuteronomy 29.28|Deuteronomy 29:28]]

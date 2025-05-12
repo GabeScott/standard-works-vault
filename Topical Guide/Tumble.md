@@ -1,6 +1,6 @@
 # Tumble
 
-[Tumble](https://www.churchofjesuschrist.org/study/scriptures/tg/Tumble?lang=eng)
+[Tumble](https://churchofjesuschrist.org/study/scriptures/tg/tumble?lang=eng)
 
 ### References
 - [[1 Nephi 12.4|1 Nephi 12:4]]

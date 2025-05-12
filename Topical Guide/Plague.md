@@ -1,6 +1,6 @@
 # Plague
 
-[Plague](https://www.churchofjesuschrist.org/study/scriptures/tg/Plague?lang=eng)
+[Plague](https://churchofjesuschrist.org/study/scriptures/tg/plague?lang=eng)
 
 ### References
 - [[Genesis 12.17|Genesis 12:17]]

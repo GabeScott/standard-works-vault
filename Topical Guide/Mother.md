@@ -1,6 +1,6 @@
 # Mother
 
-[Mother](https://www.churchofjesuschrist.org/study/scriptures/tg/Mother?lang=eng)
+[Mother](https://churchofjesuschrist.org/study/scriptures/tg/honoring-father-and-mother?lang=eng)
 
 ### References
 - [[Genesis 17.16|Genesis 17:16]]

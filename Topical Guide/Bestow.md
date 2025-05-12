@@ -1,6 +1,6 @@
 # Bestow
 
-[Bestow](https://www.churchofjesuschrist.org/study/scriptures/tg/Bestow?lang=eng)
+[Bestow](https://churchofjesuschrist.org/study/scriptures/tg/bestow?lang=eng)
 
 ### References
 - [[Exodus 32.29|Exodus 32:29]]

@@ -1,6 +1,6 @@
 # Enlighten
 
-[Enlighten](https://www.churchofjesuschrist.org/study/scriptures/tg/Enlighten?lang=eng)
+[Enlighten](https://churchofjesuschrist.org/study/scriptures/tg/enlighten?lang=eng)
 
 ### References
 - [[1 Samuel 14.27|1 Samuel 14:27]]

@@ -1,6 +1,6 @@
 # Vain
 
-[Vain](https://www.churchofjesuschrist.org/study/scriptures/tg/Vain?lang=eng)
+[Vain](https://churchofjesuschrist.org/study/scriptures/tg/vain?lang=eng)
 
 ### References
 - [[Exodus 20.7|Exodus 20:7]]

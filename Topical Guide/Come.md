@@ -1,6 +1,6 @@
 # Come
 
-[Come](https://www.churchofjesuschrist.org/study/scriptures/tg/Come?lang=eng)
+[Come](https://churchofjesuschrist.org/study/scriptures/tg/come?lang=eng)
 
 ### References
 - [[Genesis 15.14|Genesis 15:14]]

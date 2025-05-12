@@ -1,6 +1,6 @@
 # Marriage, Celestial
 
-[Marriage, Celestial](https://www.churchofjesuschrist.org/study/scriptures/tg/Marriage-Celestial?lang=eng)
+[Marriage, Celestial](https://churchofjesuschrist.org/study/scriptures/tg/marriage-celestial?lang=eng)
 
 ### References
 - [[Genesis 2.18|Genesis 2:18]]

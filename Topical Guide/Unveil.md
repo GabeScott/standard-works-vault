@@ -1,6 +1,6 @@
 # Unveil
 
-[Unveil](https://www.churchofjesuschrist.org/study/scriptures/tg/Unveil?lang=eng)
+[Unveil](https://churchofjesuschrist.org/study/scriptures/tg/unveil?lang=eng)
 
 ### References
 - [[D&C 109.74|D&C 109:74]]

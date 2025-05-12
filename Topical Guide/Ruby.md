@@ -1,6 +1,6 @@
 # Ruby
 
-[Ruby](https://www.churchofjesuschrist.org/study/scriptures/tg/Ruby?lang=eng)
+[Ruby](https://churchofjesuschrist.org/study/scriptures/tg/ruby?lang=eng)
 
 ### References
 - [[Job 28.18|Job 28:18]]

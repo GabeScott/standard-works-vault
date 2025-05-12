@@ -1,6 +1,6 @@
 # Dull
 
-[Dull](https://www.churchofjesuschrist.org/study/scriptures/tg/Dull?lang=eng)
+[Dull](https://churchofjesuschrist.org/study/scriptures/tg/dull?lang=eng)
 
 ### References
 - [[Matthew 13.15|Matthew 13:15]]

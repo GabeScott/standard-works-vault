@@ -1,6 +1,6 @@
 # Redemption
 
-[Redemption](https://www.churchofjesuschrist.org/study/scriptures/tg/Redemption?lang=eng)
+[Redemption](https://churchofjesuschrist.org/study/scriptures/tg/redemption?lang=eng)
 
 ### References
 - [[Genesis 3.15|Genesis 3:15]]

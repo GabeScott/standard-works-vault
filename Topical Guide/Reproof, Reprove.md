@@ -1,6 +1,6 @@
 # Reproof, Reprove
 
-[Reproof, Reprove](https://www.churchofjesuschrist.org/study/scriptures/tg/Reproof-Reprove?lang=eng)
+[Reproof, Reprove](https://churchofjesuschrist.org/study/scriptures/tg/reproof?lang=eng)
 
 ### References
 - [[Psalms 141.5|Psalms 141:5]]

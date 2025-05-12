@@ -1,6 +1,6 @@
 # Pit
 
-[Pit](https://www.churchofjesuschrist.org/study/scriptures/tg/Pit?lang=eng)
+[Pit](https://churchofjesuschrist.org/study/scriptures/tg/pit?lang=eng)
 
 ### References
 - [[Genesis 37.20|Genesis 37:20]]

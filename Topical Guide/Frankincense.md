@@ -1,6 +1,6 @@
 # Frankincense
 
-[Frankincense](https://www.churchofjesuschrist.org/study/scriptures/tg/Frankincense?lang=eng)
+[Frankincense](https://churchofjesuschrist.org/study/scriptures/tg/frankincense?lang=eng)
 
 ### References
 - [[Exodus 30.34|Exodus 30:34]]

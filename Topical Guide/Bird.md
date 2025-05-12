@@ -1,6 +1,6 @@
 # Bird
 
-[Bird](https://www.churchofjesuschrist.org/study/scriptures/tg/Bird?lang=eng)
+[Bird](https://churchofjesuschrist.org/study/scriptures/tg/bird?lang=eng)
 
 ### References
 - [[Genesis 7.14|Genesis 7:14]]

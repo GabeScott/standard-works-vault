@@ -1,6 +1,6 @@
 # Grace
 
-[Grace](https://www.churchofjesuschrist.org/study/scriptures/tg/Grace?lang=eng)
+[Grace](https://churchofjesuschrist.org/study/scriptures/tg/grace?lang=eng)
 
 ### References
 - [[Genesis 19.19|Genesis 19:19]]

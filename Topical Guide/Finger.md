@@ -1,6 +1,6 @@
 # Finger
 
-[Finger](https://www.churchofjesuschrist.org/study/scriptures/tg/Finger?lang=eng)
+[Finger](https://churchofjesuschrist.org/study/scriptures/tg/finger?lang=eng)
 
 ### References
 - [[Exodus 31.18|Exodus 31:18]]

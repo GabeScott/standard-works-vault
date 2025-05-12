@@ -1,6 +1,6 @@
 # Marriage, Temporal
 
-[Marriage, Temporal](https://www.churchofjesuschrist.org/study/scriptures/tg/Marriage-Temporal?lang=eng)
+[Marriage, Temporal](https://churchofjesuschrist.org/study/scriptures/tg/marriage-temporal?lang=eng)
 
 ### References
 - [[Genesis 6.2|Genesis 6:2]]

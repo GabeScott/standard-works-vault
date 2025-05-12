@@ -1,6 +1,6 @@
 # Fugitive
 
-[Fugitive](https://www.churchofjesuschrist.org/study/scriptures/tg/Fugitive?lang=eng)
+[Fugitive](https://churchofjesuschrist.org/study/scriptures/tg/fugitive?lang=eng)
 
 ### References
 - [[Genesis 4.12|Genesis 4:12]]

@@ -1,6 +1,6 @@
 # Governor
 
-[Governor](https://www.churchofjesuschrist.org/study/scriptures/tg/Governor?lang=eng)
+[Governor](https://churchofjesuschrist.org/study/scriptures/tg/governor?lang=eng)
 
 ### References
 - [[Genesis 42.6|Genesis 42:6]]

@@ -1,6 +1,6 @@
 # Interpret
 
-[Interpret](https://www.churchofjesuschrist.org/study/scriptures/tg/Interpret?lang=eng)
+[Interpret](https://churchofjesuschrist.org/study/scriptures/tg/interpret?lang=eng)
 
 ### References
 - [[Genesis 41.8|Genesis 41:8]]

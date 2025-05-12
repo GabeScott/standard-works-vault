@@ -1,6 +1,6 @@
 # Miserable
 
-[Miserable](https://www.churchofjesuschrist.org/study/scriptures/tg/Miserable?lang=eng)
+[Miserable](https://churchofjesuschrist.org/study/scriptures/tg/miserable?lang=eng)
 
 ### References
 - [[1 Corinthians 15.19|1 Corinthians 15:19]]

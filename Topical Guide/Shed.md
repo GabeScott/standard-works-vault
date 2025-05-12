@@ -1,6 +1,6 @@
 # Shed
 
-[Shed](https://www.churchofjesuschrist.org/study/scriptures/tg/Shed?lang=eng)
+[Shed](https://churchofjesuschrist.org/study/scriptures/tg/shed?lang=eng)
 
 ### References
 - [[Genesis 9.6|Genesis 9:6]]

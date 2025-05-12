@@ -1,6 +1,6 @@
 # Determine
 
-[Determine](https://www.churchofjesuschrist.org/study/scriptures/tg/Determine?lang=eng)
+[Determine](https://churchofjesuschrist.org/study/scriptures/tg/determine?lang=eng)
 
 ### References
 - [[Deuteronomy 32.8|Deuteronomy 32:8]]

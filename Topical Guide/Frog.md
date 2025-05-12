@@ -1,6 +1,6 @@
 # Frog
 
-[Frog](https://www.churchofjesuschrist.org/study/scriptures/tg/Frog?lang=eng)
+[Frog](https://churchofjesuschrist.org/study/scriptures/tg/frog?lang=eng)
 
 ### References
 - [[Exodus 8.2|Exodus 8:2]]

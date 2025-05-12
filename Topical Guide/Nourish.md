@@ -1,6 +1,6 @@
 # Nourish
 
-[Nourish](https://www.churchofjesuschrist.org/study/scriptures/tg/Nourish?lang=eng)
+[Nourish](https://churchofjesuschrist.org/study/scriptures/tg/nourish?lang=eng)
 
 ### References
 - [[Genesis 45.11|Genesis 45:11]]

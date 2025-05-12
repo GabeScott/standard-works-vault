@@ -1,6 +1,6 @@
 # Heal, Healing
 
-[Heal, Healing](https://www.churchofjesuschrist.org/study/scriptures/tg/Heal-Healing?lang=eng)
+[Heal, Healing](https://churchofjesuschrist.org/study/scriptures/tg/heal?lang=eng)
 
 ### References
 - [[Exodus 15.26|Exodus 15:26]]

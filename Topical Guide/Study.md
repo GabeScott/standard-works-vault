@@ -1,6 +1,6 @@
 # Study
 
-[Study](https://www.churchofjesuschrist.org/study/scriptures/tg/Study?lang=eng)
+[Study](https://churchofjesuschrist.org/study/scriptures/tg/study?lang=eng)
 
 ### References
 - [[Proverbs 15.28|Proverbs 15:28]]

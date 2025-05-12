@@ -1,6 +1,6 @@
 # Doer
 
-[Doer](https://www.churchofjesuschrist.org/study/scriptures/tg/Doer?lang=eng)
+[Doer](https://churchofjesuschrist.org/study/scriptures/tg/doer?lang=eng)
 
 ### References
 - [[Genesis 39.22|Genesis 39:22]]

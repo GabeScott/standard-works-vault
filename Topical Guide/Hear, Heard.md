@@ -1,6 +1,6 @@
 # Hear, Heard
 
-[Hear, Heard](https://www.churchofjesuschrist.org/study/scriptures/tg/Hear-Heard?lang=eng)
+[Hear, Heard](https://churchofjesuschrist.org/study/scriptures/tg/hear?lang=eng)
 
 ### References
 - [[Genesis 21.17|Genesis 21:17]]

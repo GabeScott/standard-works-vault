@@ -1,6 +1,6 @@
 # Communicate
 
-[Communicate](https://www.churchofjesuschrist.org/study/scriptures/tg/Communicate?lang=eng)
+[Communicate](https://churchofjesuschrist.org/study/scriptures/tg/communicate?lang=eng)
 
 ### References
 - [[Galatians 2.2|Galatians 2:2]]

@@ -1,6 +1,6 @@
 # Snare
 
-[Snare](https://www.churchofjesuschrist.org/study/scriptures/tg/Snare?lang=eng)
+[Snare](https://churchofjesuschrist.org/study/scriptures/tg/snare?lang=eng)
 
 ### References
 - [[Exodus 10.7|Exodus 10:7]]

@@ -1,6 +1,6 @@
 # Salvation for the Dead
 
-[Salvation for the Dead](https://www.churchofjesuschrist.org/study/scriptures/tg/Salvation-for-the-Dead?lang=eng)
+[Salvation for the Dead](https://churchofjesuschrist.org/study/scriptures/tg/salvation-for-the-dead?lang=eng)
 
 ### References
 - [[Isaiah 24.22|Isaiah 24:22]]

@@ -1,6 +1,6 @@
 # Resist
 
-[Resist](https://www.churchofjesuschrist.org/study/scriptures/tg/Resist?lang=eng)
+[Resist](https://churchofjesuschrist.org/study/scriptures/tg/resist?lang=eng)
 
 ### References
 - [[Zechariah 3.1|Zechariah 3:1]]

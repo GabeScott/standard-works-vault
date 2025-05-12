@@ -1,6 +1,6 @@
 # Reins
 
-[Reins](https://www.churchofjesuschrist.org/study/scriptures/tg/Reins?lang=eng)
+[Reins](https://churchofjesuschrist.org/study/scriptures/tg/reins?lang=eng)
 
 ### References
 - [[Psalms 16.7|Psalms 16:7]]

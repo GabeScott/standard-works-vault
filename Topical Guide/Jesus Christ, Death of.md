@@ -1,6 +1,6 @@
 # Jesus Christ, Death of
 
-[Jesus Christ, Death of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Death-of?lang=eng)
+[Jesus Christ, Death of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-death-of?lang=eng)
 
 ### References
 - [[Proverbs 14.32|Proverbs 14:32]]

@@ -1,6 +1,6 @@
 # Thirst
 
-[Thirst](https://www.churchofjesuschrist.org/study/scriptures/tg/Thirst?lang=eng)
+[Thirst](https://churchofjesuschrist.org/study/scriptures/tg/thirst?lang=eng)
 
 ### References
 - [[Exodus 17.3|Exodus 17:3]]

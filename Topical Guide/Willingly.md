@@ -1,6 +1,6 @@
 # Willingly
 
-[Willingly](https://www.churchofjesuschrist.org/study/scriptures/tg/Willingly?lang=eng)
+[Willingly](https://churchofjesuschrist.org/study/scriptures/tg/willingly?lang=eng)
 
 ### References
 - [[Exodus 25.2|Exodus 25:2]]

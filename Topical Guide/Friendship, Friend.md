@@ -1,6 +1,6 @@
 # Friendship, Friend
 
-[Friendship, Friend](https://www.churchofjesuschrist.org/study/scriptures/tg/Friendship-Friend?lang=eng)
+[Friendship, Friend](https://churchofjesuschrist.org/study/scriptures/tg/friendship?lang=eng)
 
 ### References
 - [[Exodus 33.11|Exodus 33:11]]

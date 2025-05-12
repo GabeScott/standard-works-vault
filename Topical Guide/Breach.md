@@ -1,6 +1,6 @@
 # Breach
 
-[Breach](https://www.churchofjesuschrist.org/study/scriptures/tg/Breach?lang=eng)
+[Breach](https://churchofjesuschrist.org/study/scriptures/tg/breach?lang=eng)
 
 ### References
 - [[Nehemiah 6.1|Nehemiah 6:1]]

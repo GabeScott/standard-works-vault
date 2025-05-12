@@ -1,6 +1,6 @@
 # Protection, Divine
 
-[Protection, Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/Protection-Divine?lang=eng)
+[Protection, Divine](https://churchofjesuschrist.org/study/scriptures/tg/protection-divine?lang=eng)
 
 ### References
 - [[Genesis 15.1|Genesis 15:1]]

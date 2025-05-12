@@ -1,6 +1,6 @@
 # Body
 
-[Body](https://www.churchofjesuschrist.org/study/scriptures/tg/Body?lang=eng)
+[Body](https://churchofjesuschrist.org/study/scriptures/tg/body?lang=eng)
 
 ### References
 - [[Deuteronomy 21.23|Deuteronomy 21:23]]

@@ -1,6 +1,6 @@
 # Key
 
-[Key](https://www.churchofjesuschrist.org/study/scriptures/tg/Key?lang=eng)
+[Key](https://churchofjesuschrist.org/study/scriptures/tg/key?lang=eng)
 
 ### References
 - [[Isaiah 22.22|Isaiah 22:22]]

@@ -1,6 +1,6 @@
 # Error
 
-[Error](https://www.churchofjesuschrist.org/study/scriptures/tg/Error?lang=eng)
+[Error](https://churchofjesuschrist.org/study/scriptures/tg/error?lang=eng)
 
 ### References
 - [[Jeremiah 10.15|Jeremiah 10:15]]

@@ -1,6 +1,6 @@
 # Regulate
 
-[Regulate](https://www.churchofjesuschrist.org/study/scriptures/tg/Regulate?lang=eng)
+[Regulate](https://churchofjesuschrist.org/study/scriptures/tg/regulate?lang=eng)
 
 ### References
 - [[Mosiah 26.37|Mosiah 26:37]]

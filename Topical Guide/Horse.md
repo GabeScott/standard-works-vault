@@ -1,6 +1,6 @@
 # Horse
 
-[Horse](https://www.churchofjesuschrist.org/study/scriptures/tg/Horse?lang=eng)
+[Horse](https://churchofjesuschrist.org/study/scriptures/tg/horse?lang=eng)
 
 ### References
 - [[Genesis 47.17|Genesis 47:17]]

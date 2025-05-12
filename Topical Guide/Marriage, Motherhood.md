@@ -1,6 +1,6 @@
 # Marriage, Motherhood
 
-[Marriage, Motherhood](https://www.churchofjesuschrist.org/study/scriptures/tg/Marriage-Motherhood?lang=eng)
+[Marriage, Motherhood](https://churchofjesuschrist.org/study/scriptures/tg/marriage-motherhood?lang=eng)
 
 ### References
 - [[Genesis 1.28|Genesis 1:28]]

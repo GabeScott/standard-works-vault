@@ -1,6 +1,6 @@
 # Death, Power over
 
-[Death, Power over](https://www.churchofjesuschrist.org/study/scriptures/tg/Death-Power-over?lang=eng)
+[Death, Power over](https://churchofjesuschrist.org/study/scriptures/tg/death-power-over?lang=eng)
 
 ### References
 - [[1 Kings 17.22|1 Kings 17:22]]

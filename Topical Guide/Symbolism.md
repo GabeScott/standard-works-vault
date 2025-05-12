@@ -1,6 +1,6 @@
 # Symbolism
 
-[Symbolism](https://www.churchofjesuschrist.org/study/scriptures/tg/Symbolism?lang=eng)
+[Symbolism](https://churchofjesuschrist.org/study/scriptures/tg/symbolism?lang=eng)
 
 ### References
 - [[Genesis 1.14|Genesis 1:14]]

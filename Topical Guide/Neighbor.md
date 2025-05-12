@@ -1,6 +1,6 @@
 # Neighbor
 
-[Neighbor](https://www.churchofjesuschrist.org/study/scriptures/tg/Neighbor?lang=eng)
+[Neighbor](https://churchofjesuschrist.org/study/scriptures/tg/neighbor?lang=eng)
 
 ### References
 - [[Exodus 20.16|Exodus 20:16]]

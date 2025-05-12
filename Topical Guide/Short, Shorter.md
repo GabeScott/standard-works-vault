@@ -1,6 +1,6 @@
 # Short, Shorter
 
-[Short, Shorter](https://www.churchofjesuschrist.org/study/scriptures/tg/Short-Shorter?lang=eng)
+[Short, Shorter](https://churchofjesuschrist.org/study/scriptures/tg/short?lang=eng)
 
 ### References
 - [[Numbers 11.23|Numbers 11:23]]

@@ -1,6 +1,6 @@
 # Buffet, Buffeting
 
-[Buffet, Buffeting](https://www.churchofjesuschrist.org/study/scriptures/tg/Buffet-Buffeting?lang=eng)
+[Buffet, Buffeting](https://churchofjesuschrist.org/study/scriptures/tg/buffet?lang=eng)
 
 ### References
 - [[Matthew 26.67|Matthew 26:67]]

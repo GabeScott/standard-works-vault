@@ -1,6 +1,6 @@
 # Four
 
-[Four](https://www.churchofjesuschrist.org/study/scriptures/tg/Four?lang=eng)
+[Four](https://churchofjesuschrist.org/study/scriptures/tg/four?lang=eng)
 
 ### References
 - [[Ezekiel 1.5|Ezekiel 1:5]]

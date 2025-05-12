@@ -1,6 +1,6 @@
 # Brightness
 
-[Brightness](https://www.churchofjesuschrist.org/study/scriptures/tg/Brightness?lang=eng)
+[Brightness](https://churchofjesuschrist.org/study/scriptures/tg/brightness?lang=eng)
 
 ### References
 - [[Isaiah 59.9|Isaiah 59:9]]

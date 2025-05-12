@@ -1,6 +1,6 @@
 # Blind
 
-[Blind](https://www.churchofjesuschrist.org/study/scriptures/tg/Blind?lang=eng)
+[Blind](https://churchofjesuschrist.org/study/scriptures/tg/blind?lang=eng)
 
 ### References
 - [[Exodus 23.8|Exodus 23:8]]

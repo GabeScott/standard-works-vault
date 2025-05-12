@@ -1,6 +1,6 @@
 # Bud
 
-[Bud](https://www.churchofjesuschrist.org/study/scriptures/tg/Bud?lang=eng)
+[Bud](https://churchofjesuschrist.org/study/scriptures/tg/bud?lang=eng)
 
 ### References
 - [[Numbers 17.8|Numbers 17:8]]

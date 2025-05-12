@@ -1,6 +1,6 @@
 # Stablish
 
-[Stablish](https://www.churchofjesuschrist.org/study/scriptures/tg/Stablish?lang=eng)
+[Stablish](https://churchofjesuschrist.org/study/scriptures/tg/stablish?lang=eng)
 
 ### References
 - [[2 Samuel 7.13|2 Samuel 7:13]]

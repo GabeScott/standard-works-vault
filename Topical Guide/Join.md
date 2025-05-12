@@ -1,6 +1,6 @@
 # Join
 
-[Join](https://www.churchofjesuschrist.org/study/scriptures/tg/Join?lang=eng)
+[Join](https://churchofjesuschrist.org/study/scriptures/tg/join?lang=eng)
 
 ### References
 - [[Genesis 14.3|Genesis 14:3]]

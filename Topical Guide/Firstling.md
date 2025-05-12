@@ -1,6 +1,6 @@
 # Firstling
 
-[Firstling](https://www.churchofjesuschrist.org/study/scriptures/tg/Firstling?lang=eng)
+[Firstling](https://churchofjesuschrist.org/study/scriptures/tg/firstling?lang=eng)
 
 ### References
 - [[Genesis 4.4|Genesis 4:4]]

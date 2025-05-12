@@ -1,6 +1,6 @@
 # Second
 
-[Second](https://www.churchofjesuschrist.org/study/scriptures/tg/Second?lang=eng)
+[Second](https://churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng)
 
 ### References
 - [[Isaiah 11.11|Isaiah 11:11]]

@@ -1,6 +1,6 @@
 # Tree
 
-[Tree](https://www.churchofjesuschrist.org/study/scriptures/tg/Tree?lang=eng)
+[Tree](https://churchofjesuschrist.org/study/scriptures/tg/tree?lang=eng)
 
 ### References
 - [[Genesis 1.11|Genesis 1:11]]

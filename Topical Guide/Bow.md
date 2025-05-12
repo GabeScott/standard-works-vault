@@ -1,6 +1,6 @@
 # Bow
 
-[Bow](https://www.churchofjesuschrist.org/study/scriptures/tg/Bow?lang=eng)
+[Bow](https://churchofjesuschrist.org/study/scriptures/tg/bow-noun?lang=eng)
 
 ### References
 - [[Genesis 27.29|Genesis 27:29]]

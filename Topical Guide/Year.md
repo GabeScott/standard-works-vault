@@ -1,6 +1,6 @@
 # Year
 
-[Year](https://www.churchofjesuschrist.org/study/scriptures/tg/Year?lang=eng)
+[Year](https://churchofjesuschrist.org/study/scriptures/tg/sabbatical-year?lang=eng)
 
 ### References
 - [[Genesis 1.14|Genesis 1:14]]

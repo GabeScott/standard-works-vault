@@ -1,6 +1,6 @@
 # Derision
 
-[Derision](https://www.churchofjesuschrist.org/study/scriptures/tg/Derision?lang=eng)
+[Derision](https://churchofjesuschrist.org/study/scriptures/tg/derision?lang=eng)
 
 ### References
 - [[Psalms 2.4|Psalms 2:4]]

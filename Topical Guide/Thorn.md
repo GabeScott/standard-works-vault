@@ -1,6 +1,6 @@
 # Thorn
 
-[Thorn](https://www.churchofjesuschrist.org/study/scriptures/tg/Thorn?lang=eng)
+[Thorn](https://churchofjesuschrist.org/study/scriptures/tg/thorn?lang=eng)
 
 ### References
 - [[Genesis 3.18|Genesis 3:18]]

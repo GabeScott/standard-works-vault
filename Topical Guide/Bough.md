@@ -1,6 +1,6 @@
 # Bough
 
-[Bough](https://www.churchofjesuschrist.org/study/scriptures/tg/Bough?lang=eng)
+[Bough](https://churchofjesuschrist.org/study/scriptures/tg/bough?lang=eng)
 
 ### References
 - [[Genesis 49.22|Genesis 49:22]]

@@ -1,6 +1,6 @@
 # Ability
 
-[Ability](https://www.churchofjesuschrist.org/study/scriptures/tg/Ability?lang=eng)
+[Ability](https://churchofjesuschrist.org/study/scriptures/tg/ability?lang=eng)
 
 ### References
 - [[Ezra 2.69|Ezra 2:69]]

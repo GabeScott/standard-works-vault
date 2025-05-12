@@ -1,6 +1,6 @@
 # Needful
 
-[Needful](https://www.churchofjesuschrist.org/study/scriptures/tg/Needful?lang=eng)
+[Needful](https://churchofjesuschrist.org/study/scriptures/tg/needful?lang=eng)
 
 ### References
 - [[James 2.16|James 2:16]]

@@ -1,6 +1,6 @@
 # Clothing
 
-[Clothing](https://www.churchofjesuschrist.org/study/scriptures/tg/Clothing?lang=eng)
+[Clothing](https://churchofjesuschrist.org/study/scriptures/tg/clothing?lang=eng)
 
 ### References
 - [[Genesis 3.21|Genesis 3:21]]

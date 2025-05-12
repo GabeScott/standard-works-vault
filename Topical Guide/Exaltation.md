@@ -1,6 +1,6 @@
 # Exaltation
 
-[Exaltation](https://www.churchofjesuschrist.org/study/scriptures/tg/Exaltation?lang=eng)
+[Exaltation](https://churchofjesuschrist.org/study/scriptures/tg/exaltation?lang=eng)
 
 ### References
 - [[Psalms 16.11|Psalms 16:11]]

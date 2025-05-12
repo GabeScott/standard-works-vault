@@ -1,6 +1,6 @@
 # Education
 
-[Education](https://www.churchofjesuschrist.org/study/scriptures/tg/Education?lang=eng)
+[Education](https://churchofjesuschrist.org/study/scriptures/tg/education?lang=eng)
 
 ### References
 - [[Proverbs 1.5|Proverbs 1:5]]

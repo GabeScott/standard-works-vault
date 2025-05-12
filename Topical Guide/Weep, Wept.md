@@ -1,6 +1,6 @@
 # Weep, Wept
 
-[Weep, Wept](https://www.churchofjesuschrist.org/study/scriptures/tg/Weep-Wept?lang=eng)
+[Weep, Wept](https://churchofjesuschrist.org/study/scriptures/tg/weep?lang=eng)
 
 ### References
 - [[Genesis 33.4|Genesis 33:4]]

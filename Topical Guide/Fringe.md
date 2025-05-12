@@ -1,6 +1,6 @@
 # Fringe
 
-[Fringe](https://www.churchofjesuschrist.org/study/scriptures/tg/Fringe?lang=eng)
+[Fringe](https://churchofjesuschrist.org/study/scriptures/tg/fringe?lang=eng)
 
 ### References
 - [[Numbers 15.38|Numbers 15:38]]

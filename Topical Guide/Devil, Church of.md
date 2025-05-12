@@ -1,6 +1,6 @@
 # Devil, Church of
 
-[Devil, Church of](https://www.churchofjesuschrist.org/study/scriptures/tg/Devil-Church-of?lang=eng)
+[Devil, Church of](https://churchofjesuschrist.org/study/scriptures/tg/devil-church-of?lang=eng)
 
 ### References
 - [[Matthew 13.38|Matthew 13:38]]

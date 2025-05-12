@@ -1,6 +1,6 @@
 # Bountifully
 
-[Bountifully](https://www.churchofjesuschrist.org/study/scriptures/tg/Bountifully?lang=eng)
+[Bountifully](https://churchofjesuschrist.org/study/scriptures/tg/bountifully?lang=eng)
 
 ### References
 - [[Psalms 116.7|Psalms 116:7]]

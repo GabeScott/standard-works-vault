@@ -1,6 +1,6 @@
 # Kill
 
-[Kill](https://www.churchofjesuschrist.org/study/scriptures/tg/Kill?lang=eng)
+[Kill](https://churchofjesuschrist.org/study/scriptures/tg/kill?lang=eng)
 
 ### References
 - [[Genesis 37.21|Genesis 37:21]]

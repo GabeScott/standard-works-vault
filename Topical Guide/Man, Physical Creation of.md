@@ -1,6 +1,6 @@
 # Man, Physical Creation of
 
-[Man, Physical Creation of](https://www.churchofjesuschrist.org/study/scriptures/tg/Man-Physical-Creation-of?lang=eng)
+[Man, Physical Creation of](https://churchofjesuschrist.org/study/scriptures/tg/man-physical-creation-of?lang=eng)
 
 ### References
 - [[Genesis 1.26|Genesis 1:26]]

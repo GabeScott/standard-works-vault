@@ -1,6 +1,6 @@
 # Myrrh
 
-[Myrrh](https://www.churchofjesuschrist.org/study/scriptures/tg/Myrrh?lang=eng)
+[Myrrh](https://churchofjesuschrist.org/study/scriptures/tg/myrrh?lang=eng)
 
 ### References
 - [[Genesis 37.25|Genesis 37:25]]

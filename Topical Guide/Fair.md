@@ -1,6 +1,6 @@
 # Fair
 
-[Fair](https://www.churchofjesuschrist.org/study/scriptures/tg/Fair?lang=eng)
+[Fair](https://churchofjesuschrist.org/study/scriptures/tg/fair?lang=eng)
 
 ### References
 - [[Genesis 12.11|Genesis 12:11]]

@@ -1,6 +1,6 @@
 # New and Everlasting Covenant
 
-[New and Everlasting Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/New-and-Everlasting-Covenant?lang=eng)
+[New and Everlasting Covenant](https://churchofjesuschrist.org/study/scriptures/tg/new-and-everlasting-covenant?lang=eng)
 
 ### References
 - [[Genesis 17.7|Genesis 17:7]]

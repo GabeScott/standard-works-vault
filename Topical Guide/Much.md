@@ -1,6 +1,6 @@
 # Much
 
-[Much](https://www.churchofjesuschrist.org/study/scriptures/tg/Much?lang=eng)
+[Much](https://churchofjesuschrist.org/study/scriptures/tg/much?lang=eng)
 
 ### References
 - [[Exodus 16.18|Exodus 16:18]]

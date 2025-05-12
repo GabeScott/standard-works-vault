@@ -1,6 +1,6 @@
 # Esteem
 
-[Esteem](https://www.churchofjesuschrist.org/study/scriptures/tg/Esteem?lang=eng)
+[Esteem](https://churchofjesuschrist.org/study/scriptures/tg/esteem?lang=eng)
 
 ### References
 - [[Deuteronomy 32.15|Deuteronomy 32:15]]

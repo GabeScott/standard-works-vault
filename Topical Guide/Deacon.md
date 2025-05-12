@@ -1,6 +1,6 @@
 # Deacon
 
-[Deacon](https://www.churchofjesuschrist.org/study/scriptures/tg/Deacon?lang=eng)
+[Deacon](https://churchofjesuschrist.org/study/scriptures/tg/deacon?lang=eng)
 
 ### References
 - [[Philippians 1.1|Philippians 1:1]]

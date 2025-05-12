@@ -1,6 +1,6 @@
 # Heavy, Heavier
 
-[Heavy, Heavier](https://www.churchofjesuschrist.org/study/scriptures/tg/Heavy-Heavier?lang=eng)
+[Heavy, Heavier](https://churchofjesuschrist.org/study/scriptures/tg/heavy?lang=eng)
 
 ### References
 - [[Exodus 17.12|Exodus 17:12]]

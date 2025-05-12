@@ -1,6 +1,6 @@
 # Kid
 
-[Kid](https://www.churchofjesuschrist.org/study/scriptures/tg/Kid?lang=eng)
+[Kid](https://churchofjesuschrist.org/study/scriptures/tg/kid?lang=eng)
 
 ### References
 - [[Genesis 27.9|Genesis 27:9]]

@@ -1,6 +1,6 @@
 # Reaper
 
-[Reaper](https://www.churchofjesuschrist.org/study/scriptures/tg/Reaper?lang=eng)
+[Reaper](https://churchofjesuschrist.org/study/scriptures/tg/reaper?lang=eng)
 
 ### References
 - [[Ruth 2.3|Ruth 2:3]]

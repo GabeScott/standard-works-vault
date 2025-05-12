@@ -1,6 +1,6 @@
 # Colt
 
-[Colt](https://www.churchofjesuschrist.org/study/scriptures/tg/Colt?lang=eng)
+[Colt](https://churchofjesuschrist.org/study/scriptures/tg/colt?lang=eng)
 
 ### References
 - [[Zechariah 9.9|Zechariah 9:9]]

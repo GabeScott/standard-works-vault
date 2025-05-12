@@ -1,6 +1,6 @@
 # Rot
 
-[Rot](https://www.churchofjesuschrist.org/study/scriptures/tg/Rot?lang=eng)
+[Rot](https://churchofjesuschrist.org/study/scriptures/tg/rot?lang=eng)
 
 ### References
 - [[Numbers 5.21|Numbers 5:21]]

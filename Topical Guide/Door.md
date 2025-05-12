@@ -1,6 +1,6 @@
 # Door
 
-[Door](https://www.churchofjesuschrist.org/study/scriptures/tg/Door?lang=eng)
+[Door](https://churchofjesuschrist.org/study/scriptures/tg/door?lang=eng)
 
 ### References
 - [[Genesis 4.7|Genesis 4:7]]

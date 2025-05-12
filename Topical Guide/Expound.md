@@ -1,6 +1,6 @@
 # Expound
 
-[Expound](https://www.churchofjesuschrist.org/study/scriptures/tg/Expound?lang=eng)
+[Expound](https://churchofjesuschrist.org/study/scriptures/tg/expound?lang=eng)
 
 ### References
 - [[Mark 4.34|Mark 4:34]]

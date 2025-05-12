@@ -1,6 +1,6 @@
 # Obtain
 
-[Obtain](https://www.churchofjesuschrist.org/study/scriptures/tg/Obtain?lang=eng)
+[Obtain](https://churchofjesuschrist.org/study/scriptures/tg/obtain?lang=eng)
 
 ### References
 - [[Hebrews 11.2|Hebrews 11:2]]

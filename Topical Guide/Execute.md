@@ -1,6 +1,6 @@
 # Execute
 
-[Execute](https://www.churchofjesuschrist.org/study/scriptures/tg/Execute?lang=eng)
+[Execute](https://churchofjesuschrist.org/study/scriptures/tg/execute?lang=eng)
 
 ### References
 - [[Exodus 12.12|Exodus 12:12]]

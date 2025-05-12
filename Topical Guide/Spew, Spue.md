@@ -1,6 +1,6 @@
 # Spew, Spue
 
-[Spew, Spue](https://www.churchofjesuschrist.org/study/scriptures/tg/Spew-Spue?lang=eng)
+[Spew, Spue](https://churchofjesuschrist.org/study/scriptures/tg/spew?lang=eng)
 
 ### References
 - [[Leviticus 18.28|Leviticus 18:28]]

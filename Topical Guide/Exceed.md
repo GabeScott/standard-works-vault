@@ -1,6 +1,6 @@
 # Exceed
 
-[Exceed](https://www.churchofjesuschrist.org/study/scriptures/tg/Exceed?lang=eng)
+[Exceed](https://churchofjesuschrist.org/study/scriptures/tg/exceed?lang=eng)
 
 ### References
 - [[Matthew 5.20|Matthew 5:20]]

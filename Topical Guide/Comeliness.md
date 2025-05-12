@@ -1,6 +1,6 @@
 # Comeliness
 
-[Comeliness](https://www.churchofjesuschrist.org/study/scriptures/tg/Comeliness?lang=eng)
+[Comeliness](https://churchofjesuschrist.org/study/scriptures/tg/comeliness?lang=eng)
 
 ### References
 - [[Isaiah 53.2|Isaiah 53:2]]

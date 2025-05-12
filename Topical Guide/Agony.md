@@ -1,6 +1,6 @@
 # Agony
 
-[Agony](https://www.churchofjesuschrist.org/study/scriptures/tg/Agony?lang=eng)
+[Agony](https://churchofjesuschrist.org/study/scriptures/tg/agony?lang=eng)
 
 ### References
 - [[Luke 22.44|Luke 22:44]]

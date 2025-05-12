@@ -1,6 +1,6 @@
 # Desire
 
-[Desire](https://www.churchofjesuschrist.org/study/scriptures/tg/Desire?lang=eng)
+[Desire](https://churchofjesuschrist.org/study/scriptures/tg/desire?lang=eng)
 
 ### References
 - [[Genesis 3.6|Genesis 3:6]]

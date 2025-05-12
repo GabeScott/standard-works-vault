@@ -1,6 +1,6 @@
 # Council in Heaven
 
-[Council in Heaven](https://www.churchofjesuschrist.org/study/scriptures/tg/Council-in-Heaven?lang=eng)
+[Council in Heaven](https://churchofjesuschrist.org/study/scriptures/tg/council-in-heaven?lang=eng)
 
 ### References
 - [[Job 38.7|Job 38:7]]

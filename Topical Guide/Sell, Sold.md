@@ -1,6 +1,6 @@
 # Sell, Sold
 
-[Sell, Sold](https://www.churchofjesuschrist.org/study/scriptures/tg/Sell-Sold?lang=eng)
+[Sell, Sold](https://churchofjesuschrist.org/study/scriptures/tg/sell?lang=eng)
 
 ### References
 - [[Genesis 25.31|Genesis 25:31]]

@@ -1,6 +1,6 @@
 # Incorruption
 
-[Incorruption](https://www.churchofjesuschrist.org/study/scriptures/tg/Incorruption?lang=eng)
+[Incorruption](https://churchofjesuschrist.org/study/scriptures/tg/incorruption?lang=eng)
 
 ### References
 - [[1 Corinthians 15.42|1 Corinthians 15:42]]

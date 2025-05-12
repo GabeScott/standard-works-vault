@@ -1,6 +1,6 @@
 # Narrow
 
-[Narrow](https://www.churchofjesuschrist.org/study/scriptures/tg/Narrow?lang=eng)
+[Narrow](https://churchofjesuschrist.org/study/scriptures/tg/narrow?lang=eng)
 
 ### References
 - [[Numbers 22.26|Numbers 22:26]]

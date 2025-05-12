@@ -1,6 +1,6 @@
 # Breast
 
-[Breast](https://www.churchofjesuschrist.org/study/scriptures/tg/Breast?lang=eng)
+[Breast](https://churchofjesuschrist.org/study/scriptures/tg/breast?lang=eng)
 
 ### References
 - [[Luke 18.13|Luke 18:13]]

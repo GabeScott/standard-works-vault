@@ -1,6 +1,6 @@
 # Refiner
 
-[Refiner](https://www.churchofjesuschrist.org/study/scriptures/tg/Refiner?lang=eng)
+[Refiner](https://churchofjesuschrist.org/study/scriptures/tg/refiner?lang=eng)
 
 ### References
 - [[Malachi 3.2|Malachi 3:2]]

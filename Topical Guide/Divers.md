@@ -1,6 +1,6 @@
 # Divers
 
-[Divers](https://www.churchofjesuschrist.org/study/scriptures/tg/Divers?lang=eng)
+[Divers](https://churchofjesuschrist.org/study/scriptures/tg/divers?lang=eng)
 
 ### References
 - [[Deuteronomy 22.9|Deuteronomy 22:9]]

@@ -1,6 +1,6 @@
 # Discernment, Spiritual
 
-[Discernment, Spiritual](https://www.churchofjesuschrist.org/study/scriptures/tg/Discernment-Spiritual?lang=eng)
+[Discernment, Spiritual](https://churchofjesuschrist.org/study/scriptures/tg/discernment-spiritual?lang=eng)
 
 ### References
 - [[Genesis 3.22|Genesis 3:22]]

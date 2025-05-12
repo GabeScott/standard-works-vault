@@ -1,6 +1,6 @@
 # Bring, Brought
 
-[Bring, Brought](https://www.churchofjesuschrist.org/study/scriptures/tg/Bring-Brought?lang=eng)
+[Bring, Brought](https://churchofjesuschrist.org/study/scriptures/tg/bring?lang=eng)
 
 ### References
 - [[Genesis 1.12|Genesis 1:12]]

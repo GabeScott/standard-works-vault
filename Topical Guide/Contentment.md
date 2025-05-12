@@ -1,6 +1,6 @@
 # Contentment
 
-[Contentment](https://www.churchofjesuschrist.org/study/scriptures/tg/Contentment?lang=eng)
+[Contentment](https://churchofjesuschrist.org/study/scriptures/tg/contentment?lang=eng)
 
 ### References
 - [[Psalms 23.1|Psalms 23:1]]

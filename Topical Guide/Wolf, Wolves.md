@@ -1,6 +1,6 @@
 # Wolf, Wolves
 
-[Wolf, Wolves](https://www.churchofjesuschrist.org/study/scriptures/tg/Wolf-Wolves?lang=eng)
+[Wolf, Wolves](https://churchofjesuschrist.org/study/scriptures/tg/wolf?lang=eng)
 
 ### References
 - [[Genesis 49.27|Genesis 49:27]]

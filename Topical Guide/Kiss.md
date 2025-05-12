@@ -1,6 +1,6 @@
 # Kiss
 
-[Kiss](https://www.churchofjesuschrist.org/study/scriptures/tg/Kiss?lang=eng)
+[Kiss](https://churchofjesuschrist.org/study/scriptures/tg/kiss?lang=eng)
 
 ### References
 - [[Genesis 27.26|Genesis 27:26]]

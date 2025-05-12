@@ -1,6 +1,6 @@
 # Make, Made
 
-[Make, Made](https://www.churchofjesuschrist.org/study/scriptures/tg/Make-Made?lang=eng)
+[Make, Made](https://churchofjesuschrist.org/study/scriptures/tg/make?lang=eng)
 
 ### References
 - [[Genesis 1.26|Genesis 1:26]]

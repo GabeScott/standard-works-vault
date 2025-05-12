@@ -1,6 +1,6 @@
 # Passion
 
-[Passion](https://www.churchofjesuschrist.org/study/scriptures/tg/Passion?lang=eng)
+[Passion](https://churchofjesuschrist.org/study/scriptures/tg/passion?lang=eng)
 
 ### References
 - [[Acts 14.15|Acts 14:15]]

@@ -1,6 +1,6 @@
 # Vapor
 
-[Vapor](https://www.churchofjesuschrist.org/study/scriptures/tg/Vapor?lang=eng)
+[Vapor](https://churchofjesuschrist.org/study/scriptures/tg/vapor?lang=eng)
 
 ### References
 - [[Psalms 135.7|Psalms 135:7]]

@@ -1,6 +1,6 @@
 # Provocation
 
-[Provocation](https://www.churchofjesuschrist.org/study/scriptures/tg/Provocation?lang=eng)
+[Provocation](https://churchofjesuschrist.org/study/scriptures/tg/provocation?lang=eng)
 
 ### References
 - [[Psalms 95.8|Psalms 95:8]]

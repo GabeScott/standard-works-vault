@@ -1,6 +1,6 @@
 # Vanity
 
-[Vanity](https://www.churchofjesuschrist.org/study/scriptures/tg/Vanity?lang=eng)
+[Vanity](https://churchofjesuschrist.org/study/scriptures/tg/vanity?lang=eng)
 
 ### References
 - [[Deuteronomy 32.21|Deuteronomy 32:21]]

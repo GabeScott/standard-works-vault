@@ -1,6 +1,6 @@
 # Disobedience, Disobey
 
-[Disobedience, Disobey](https://www.churchofjesuschrist.org/study/scriptures/tg/Disobedience-Disobey?lang=eng)
+[Disobedience, Disobey](https://churchofjesuschrist.org/study/scriptures/tg/disobedience?lang=eng)
 
 ### References
 - [[Deuteronomy 11.28|Deuteronomy 11:28]]

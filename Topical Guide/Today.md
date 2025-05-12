@@ -1,6 +1,6 @@
 # Today
 
-[Today](https://www.churchofjesuschrist.org/study/scriptures/tg/Today?lang=eng)
+[Today](https://churchofjesuschrist.org/study/scriptures/tg/today?lang=eng)
 
 ### References
 - [[Psalms 95.7|Psalms 95:7]]

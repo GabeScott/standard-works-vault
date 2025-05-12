@@ -1,6 +1,6 @@
 # Maker
 
-[Maker](https://www.churchofjesuschrist.org/study/scriptures/tg/Maker?lang=eng)
+[Maker](https://churchofjesuschrist.org/study/scriptures/tg/maker?lang=eng)
 
 ### References
 - [[Job 4.17|Job 4:17]]

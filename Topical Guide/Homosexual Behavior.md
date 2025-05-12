@@ -1,6 +1,6 @@
 # Homosexual Behavior
 
-[Homosexual Behavior](https://www.churchofjesuschrist.org/study/scriptures/tg/Homosexual-Behavior?lang=eng)
+[Homosexual Behavior](https://churchofjesuschrist.org/study/scriptures/tg/homosexual-behavior?lang=eng)
 
 ### References
 - [[Genesis 13.13|Genesis 13:13]]

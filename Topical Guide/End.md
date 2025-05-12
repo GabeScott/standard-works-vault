@@ -1,6 +1,6 @@
 # End
 
-[End](https://www.churchofjesuschrist.org/study/scriptures/tg/End?lang=eng)
+[End](https://churchofjesuschrist.org/study/scriptures/tg/end?lang=eng)
 
 ### References
 - [[Genesis 2.2|Genesis 2:2]]

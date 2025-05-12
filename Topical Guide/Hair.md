@@ -1,6 +1,6 @@
 # Hair
 
-[Hair](https://www.churchofjesuschrist.org/study/scriptures/tg/Hair?lang=eng)
+[Hair](https://churchofjesuschrist.org/study/scriptures/tg/hair?lang=eng)
 
 ### References
 - [[Leviticus 13.3|Leviticus 13:3]]

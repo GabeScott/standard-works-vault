@@ -1,6 +1,6 @@
 # Difference
 
-[Difference](https://www.churchofjesuschrist.org/study/scriptures/tg/Difference?lang=eng)
+[Difference](https://churchofjesuschrist.org/study/scriptures/tg/difference?lang=eng)
 
 ### References
 - [[Exodus 11.7|Exodus 11:7]]

@@ -1,6 +1,6 @@
 # Moment
 
-[Moment](https://www.churchofjesuschrist.org/study/scriptures/tg/Moment?lang=eng)
+[Moment](https://churchofjesuschrist.org/study/scriptures/tg/moment?lang=eng)
 
 ### References
 - [[Proverbs 12.19|Proverbs 12:19]]

@@ -1,6 +1,6 @@
 # False Christs
 
-[False Christs](https://www.churchofjesuschrist.org/study/scriptures/tg/False-Christs?lang=eng)
+[False Christs](https://churchofjesuschrist.org/study/scriptures/tg/false-christs?lang=eng)
 
 ### References
 - [[Matthew 24.24|Matthew 24:24]]

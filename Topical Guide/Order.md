@@ -1,6 +1,6 @@
 # Order
 
-[Order](https://www.churchofjesuschrist.org/study/scriptures/tg/Order?lang=eng)
+[Order](https://churchofjesuschrist.org/study/scriptures/tg/order?lang=eng)
 
 ### References
 - [[Genesis 1.12|Genesis 1:12]]

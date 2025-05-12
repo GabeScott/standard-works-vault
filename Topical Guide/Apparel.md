@@ -1,6 +1,6 @@
 # Apparel
 
-[Apparel](https://www.churchofjesuschrist.org/study/scriptures/tg/Apparel?lang=eng)
+[Apparel](https://churchofjesuschrist.org/study/scriptures/tg/apparel?lang=eng)
 
 ### References
 - [[Genesis 3.21|Genesis 3:21]]

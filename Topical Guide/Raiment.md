@@ -1,6 +1,6 @@
 # Raiment
 
-[Raiment](https://www.churchofjesuschrist.org/study/scriptures/tg/Raiment?lang=eng)
+[Raiment](https://churchofjesuschrist.org/study/scriptures/tg/raiment?lang=eng)
 
 ### References
 - [[Exodus 12.35|Exodus 12:35]]

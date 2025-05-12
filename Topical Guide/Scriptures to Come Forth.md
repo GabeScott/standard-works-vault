@@ -1,6 +1,6 @@
 # Scriptures to Come Forth
 
-[Scriptures to Come Forth](https://www.churchofjesuschrist.org/study/scriptures/tg/Scriptures-to-Come-Forth?lang=eng)
+[Scriptures to Come Forth](https://churchofjesuschrist.org/study/scriptures/tg/scriptures-to-come-forth?lang=eng)
 
 ### References
 - [[Isaiah 29.11|Isaiah 29:11]]

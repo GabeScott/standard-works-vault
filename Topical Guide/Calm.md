@@ -1,6 +1,6 @@
 # Calm
 
-[Calm](https://www.churchofjesuschrist.org/study/scriptures/tg/Calm?lang=eng)
+[Calm](https://churchofjesuschrist.org/study/scriptures/tg/calm?lang=eng)
 
 ### References
 - [[Psalms 107.29|Psalms 107:29]]

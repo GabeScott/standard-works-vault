@@ -1,6 +1,6 @@
 # Unshaken
 
-[Unshaken](https://www.churchofjesuschrist.org/study/scriptures/tg/Unshaken?lang=eng)
+[Unshaken](https://churchofjesuschrist.org/study/scriptures/tg/unshaken?lang=eng)
 
 ### References
 - [[2 Nephi 31.19|2 Nephi 31:19]]

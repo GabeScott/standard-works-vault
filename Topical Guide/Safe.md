@@ -1,6 +1,6 @@
 # Safe
 
-[Safe](https://www.churchofjesuschrist.org/study/scriptures/tg/Safe?lang=eng)
+[Safe](https://churchofjesuschrist.org/study/scriptures/tg/safe?lang=eng)
 
 ### References
 - [[Proverbs 29.25|Proverbs 29:25]]

@@ -1,6 +1,6 @@
 # Carcass
 
-[Carcass](https://www.churchofjesuschrist.org/study/scriptures/tg/Carcass?lang=eng)
+[Carcass](https://churchofjesuschrist.org/study/scriptures/tg/carcass?lang=eng)
 
 ### References
 - [[Judges 14.8|Judges 14:8]]

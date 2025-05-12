@@ -1,6 +1,6 @@
 # Withdraw, Withdrew, Withdrawn
 
-[Withdraw, Withdrew, Withdrawn](https://www.churchofjesuschrist.org/study/scriptures/tg/Withdraw-Withdrew-Withdrawn?lang=eng)
+[Withdraw, Withdrew, Withdrawn](https://churchofjesuschrist.org/study/scriptures/tg/withdraw?lang=eng)
 
 ### References
 - [[Luke 5.16|Luke 5:16]]

@@ -1,6 +1,6 @@
 # Righteousness
 
-[Righteousness](https://www.churchofjesuschrist.org/study/scriptures/tg/Righteousness?lang=eng)
+[Righteousness](https://churchofjesuschrist.org/study/scriptures/tg/god-the-standard-of-righteousness?lang=eng)
 
 ### References
 - [[Genesis 15.6|Genesis 15:6]]

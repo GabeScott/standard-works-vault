@@ -1,6 +1,6 @@
 # Conceived in Sin
 
-[Conceived in Sin](https://www.churchofjesuschrist.org/study/scriptures/tg/Conceived-in-Sin?lang=eng)
+[Conceived in Sin](https://churchofjesuschrist.org/study/scriptures/tg/conceived-in-sin?lang=eng)
 
 ### References
 - [[Psalms 51.5|Psalms 51:5]]

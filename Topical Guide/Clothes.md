@@ -1,6 +1,6 @@
 # Clothes
 
-[Clothes](https://www.churchofjesuschrist.org/study/scriptures/tg/Clothes?lang=eng)
+[Clothes](https://churchofjesuschrist.org/study/scriptures/tg/clothes?lang=eng)
 
 ### References
 - [[Genesis 37.29|Genesis 37:29]]

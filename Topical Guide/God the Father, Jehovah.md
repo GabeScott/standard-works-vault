@@ -1,6 +1,6 @@
 # God the Father, Jehovah
 
-[God the Father, Jehovah](https://www.churchofjesuschrist.org/study/scriptures/tg/God-the-Father-Jehovah?lang=eng)
+[God the Father, Jehovah](https://churchofjesuschrist.org/study/scriptures/tg/god-the-father-jehovah?lang=eng)
 
 ### References
 - [[Exodus 15.2|Exodus 15:2]]

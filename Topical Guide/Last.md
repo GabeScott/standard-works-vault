@@ -1,6 +1,6 @@
 # Last
 
-[Last](https://www.churchofjesuschrist.org/study/scriptures/tg/Last?lang=eng)
+[Last](https://churchofjesuschrist.org/study/scriptures/tg/judgment-the-last?lang=eng)
 
 ### References
 - [[Isaiah 41.4|Isaiah 41:4]]

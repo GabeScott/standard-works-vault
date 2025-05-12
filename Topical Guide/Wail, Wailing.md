@@ -1,6 +1,6 @@
 # Wail, Wailing
 
-[Wail, Wailing](https://www.churchofjesuschrist.org/study/scriptures/tg/Wail-Wailing?lang=eng)
+[Wail, Wailing](https://churchofjesuschrist.org/study/scriptures/tg/wail?lang=eng)
 
 ### References
 - [[Jeremiah 9.19|Jeremiah 9:19]]

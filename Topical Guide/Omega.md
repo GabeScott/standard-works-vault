@@ -1,6 +1,6 @@
 # Omega
 
-[Omega](https://www.churchofjesuschrist.org/study/scriptures/tg/Omega?lang=eng)
+[Omega](https://churchofjesuschrist.org/study/scriptures/tg/omega?lang=eng)
 
 ### References
 - [[Revelation 1.8|Revelation 1:8]]

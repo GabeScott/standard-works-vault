@@ -1,6 +1,6 @@
 # Man, a Spirit Child of Heavenly Father
 
-[Man, a Spirit Child of Heavenly Father](https://www.churchofjesuschrist.org/study/scriptures/tg/Man-a-Spirit-Child-of-Heavenly-Father?lang=eng)
+[Man, a Spirit Child of Heavenly Father](https://churchofjesuschrist.org/study/scriptures/tg/man-a-spirit-child-of-heavenly-father?lang=eng)
 
 ### References
 - [[Numbers 16.22|Numbers 16:22]]

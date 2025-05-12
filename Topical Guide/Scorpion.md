@@ -1,6 +1,6 @@
 # Scorpion
 
-[Scorpion](https://www.churchofjesuschrist.org/study/scriptures/tg/Scorpion?lang=eng)
+[Scorpion](https://churchofjesuschrist.org/study/scriptures/tg/scorpion?lang=eng)
 
 ### References
 - [[Deuteronomy 8.15|Deuteronomy 8:15]]

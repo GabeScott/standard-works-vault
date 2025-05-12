@@ -1,6 +1,6 @@
 # Invisible
 
-[Invisible](https://www.churchofjesuschrist.org/study/scriptures/tg/Invisible?lang=eng)
+[Invisible](https://churchofjesuschrist.org/study/scriptures/tg/invisible?lang=eng)
 
 ### References
 - [[Romans 1.20|Romans 1:20]]

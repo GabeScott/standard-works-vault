@@ -1,6 +1,6 @@
 # Bury
 
-[Bury](https://www.churchofjesuschrist.org/study/scriptures/tg/Bury?lang=eng)
+[Bury](https://churchofjesuschrist.org/study/scriptures/tg/bury?lang=eng)
 
 ### References
 - [[Genesis 23.4|Genesis 23:4]]

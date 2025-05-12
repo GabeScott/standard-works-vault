@@ -1,6 +1,6 @@
 # Meetings
 
-[Meetings](https://www.churchofjesuschrist.org/study/scriptures/tg/Meetings?lang=eng)
+[Meetings](https://churchofjesuschrist.org/study/scriptures/tg/meetings?lang=eng)
 
 ### References
 - [[Exodus 12.16|Exodus 12:16]]

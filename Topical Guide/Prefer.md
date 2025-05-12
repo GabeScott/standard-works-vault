@@ -1,6 +1,6 @@
 # Prefer
 
-[Prefer](https://www.churchofjesuschrist.org/study/scriptures/tg/Prefer?lang=eng)
+[Prefer](https://churchofjesuschrist.org/study/scriptures/tg/prefer?lang=eng)
 
 ### References
 - [[Daniel 6.3|Daniel 6:3]]

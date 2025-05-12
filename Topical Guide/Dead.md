@@ -1,6 +1,6 @@
 # Dead
 
-[Dead](https://www.churchofjesuschrist.org/study/scriptures/tg/Dead?lang=eng)
+[Dead](https://churchofjesuschrist.org/study/scriptures/tg/baptism-for-the-dead?lang=eng)
 
 ### References
 - [[Genesis 23.4|Genesis 23:4]]

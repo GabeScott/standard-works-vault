@@ -1,6 +1,6 @@
 # Recompence, Recompense
 
-[Recompence, Recompense](https://www.churchofjesuschrist.org/study/scriptures/tg/Recompence-Recompense?lang=eng)
+[Recompence, Recompense](https://churchofjesuschrist.org/study/scriptures/tg/recompence?lang=eng)
 
 ### References
 - [[Numbers 5.7|Numbers 5:7]]

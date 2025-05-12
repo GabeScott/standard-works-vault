@@ -1,6 +1,6 @@
 # Peril, Perilous
 
-[Peril, Perilous](https://www.churchofjesuschrist.org/study/scriptures/tg/Peril-Perilous?lang=eng)
+[Peril, Perilous](https://churchofjesuschrist.org/study/scriptures/tg/peril?lang=eng)
 
 ### References
 - [[Lamentations 5.9|Lamentations 5:9]]

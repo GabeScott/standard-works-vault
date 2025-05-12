@@ -1,6 +1,6 @@
 # Compass
 
-[Compass](https://www.churchofjesuschrist.org/study/scriptures/tg/Compass?lang=eng)
+[Compass](https://churchofjesuschrist.org/study/scriptures/tg/compass?lang=eng)
 
 ### References
 - [[Deuteronomy 2.3|Deuteronomy 2:3]]

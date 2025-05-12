@@ -1,6 +1,6 @@
 # Unlearned
 
-[Unlearned](https://www.churchofjesuschrist.org/study/scriptures/tg/Unlearned?lang=eng)
+[Unlearned](https://churchofjesuschrist.org/study/scriptures/tg/unlearned?lang=eng)
 
 ### References
 - [[Acts 4.13|Acts 4:13]]

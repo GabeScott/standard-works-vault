@@ -1,6 +1,6 @@
 # Discerner
 
-[Discerner](https://www.churchofjesuschrist.org/study/scriptures/tg/Discerner?lang=eng)
+[Discerner](https://churchofjesuschrist.org/study/scriptures/tg/discerner?lang=eng)
 
 ### References
 - [[Hebrews 4.12|Hebrews 4:12]]

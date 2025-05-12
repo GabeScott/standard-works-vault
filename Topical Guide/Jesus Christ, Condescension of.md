@@ -1,6 +1,6 @@
 # Jesus Christ, Condescension of
 
-[Jesus Christ, Condescension of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Condescension-of?lang=eng)
+[Jesus Christ, Condescension of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-condescension-of?lang=eng)
 
 ### References
 - [[Psalms 113.6|Psalms 113:6]]

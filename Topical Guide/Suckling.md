@@ -1,6 +1,6 @@
 # Suckling
 
-[Suckling](https://www.churchofjesuschrist.org/study/scriptures/tg/Suckling?lang=eng)
+[Suckling](https://churchofjesuschrist.org/study/scriptures/tg/suckling?lang=eng)
 
 ### References
 - [[Psalms 8.2|Psalms 8:2]]

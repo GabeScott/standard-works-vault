@@ -1,6 +1,6 @@
 # Morrow
 
-[Morrow](https://www.churchofjesuschrist.org/study/scriptures/tg/Morrow?lang=eng)
+[Morrow](https://churchofjesuschrist.org/study/scriptures/tg/morrow?lang=eng)
 
 ### References
 - [[Proverbs 27.1|Proverbs 27:1]]

@@ -1,6 +1,6 @@
 # Store
 
-[Store](https://www.churchofjesuschrist.org/study/scriptures/tg/Store?lang=eng)
+[Store](https://churchofjesuschrist.org/study/scriptures/tg/store?lang=eng)
 
 ### References
 - [[Genesis 41.36|Genesis 41:36]]

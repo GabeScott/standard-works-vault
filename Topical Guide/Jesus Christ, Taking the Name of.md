@@ -1,6 +1,6 @@
 # Jesus Christ, Taking the Name of
 
-[Jesus Christ, Taking the Name of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Taking-the-Name-of?lang=eng)
+[Jesus Christ, Taking the Name of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-taking-the-name-of?lang=eng)
 
 ### References
 - [[Matthew 12.21|Matthew 12:21]]

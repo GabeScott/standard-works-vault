@@ -1,6 +1,6 @@
 # Sincere, Sincerity
 
-[Sincere, Sincerity](https://www.churchofjesuschrist.org/study/scriptures/tg/Sincere-Sincerity?lang=eng)
+[Sincere, Sincerity](https://churchofjesuschrist.org/study/scriptures/tg/sincere?lang=eng)
 
 ### References
 - [[Joshua 24.14|Joshua 24:14]]

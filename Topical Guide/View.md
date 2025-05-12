@@ -1,6 +1,6 @@
 # View
 
-[View](https://www.churchofjesuschrist.org/study/scriptures/tg/View?lang=eng)
+[View](https://churchofjesuschrist.org/study/scriptures/tg/view?lang=eng)
 
 ### References
 - [[Joshua 7.2|Joshua 7:2]]

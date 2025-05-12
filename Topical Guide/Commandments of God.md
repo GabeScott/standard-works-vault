@@ -1,6 +1,6 @@
 # Commandments of God
 
-[Commandments of God](https://www.churchofjesuschrist.org/study/scriptures/tg/Commandments-of-God?lang=eng)
+[Commandments of God](https://churchofjesuschrist.org/study/scriptures/tg/commandments-of-god?lang=eng)
 
 ### References
 - [[Genesis 2.16|Genesis 2:16]]

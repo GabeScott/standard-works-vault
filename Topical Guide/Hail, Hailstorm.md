@@ -1,6 +1,6 @@
 # Hail, Hailstorm
 
-[Hail, Hailstorm](https://www.churchofjesuschrist.org/study/scriptures/tg/Hail-Hailstorm?lang=eng)
+[Hail, Hailstorm](https://churchofjesuschrist.org/study/scriptures/tg/hail?lang=eng)
 
 ### References
 - [[Exodus 9.18|Exodus 9:18]]

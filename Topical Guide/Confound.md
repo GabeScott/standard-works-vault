@@ -1,6 +1,6 @@
 # Confound
 
-[Confound](https://www.churchofjesuschrist.org/study/scriptures/tg/Confound?lang=eng)
+[Confound](https://churchofjesuschrist.org/study/scriptures/tg/confound?lang=eng)
 
 ### References
 - [[Genesis 11.7|Genesis 11:7]]

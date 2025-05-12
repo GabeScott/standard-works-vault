@@ -1,6 +1,6 @@
 # Israel, Land of
 
-[Israel, Land of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Land-of?lang=eng)
+[Israel, Land of](https://churchofjesuschrist.org/study/scriptures/tg/israel-land-of?lang=eng)
 
 ### References
 - [[Genesis 12.7|Genesis 12:7]]

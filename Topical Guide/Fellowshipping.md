@@ -1,6 +1,6 @@
 # Fellowshipping
 
-[Fellowshipping](https://www.churchofjesuschrist.org/study/scriptures/tg/Fellowshipping?lang=eng)
+[Fellowshipping](https://churchofjesuschrist.org/study/scriptures/tg/fellowshipping?lang=eng)
 
 ### References
 - [[Leviticus 19.18|Leviticus 19:18]]

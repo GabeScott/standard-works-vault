@@ -1,6 +1,6 @@
 # Kinsman
 
-[Kinsman](https://www.churchofjesuschrist.org/study/scriptures/tg/Kinsman?lang=eng)
+[Kinsman](https://churchofjesuschrist.org/study/scriptures/tg/kinsman?lang=eng)
 
 ### References
 - [[Ruth 2.20|Ruth 2:20]]

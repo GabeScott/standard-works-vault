@@ -1,6 +1,6 @@
 # Baptism, Essential
 
-[Baptism, Essential](https://www.churchofjesuschrist.org/study/scriptures/tg/Baptism-Essential?lang=eng)
+[Baptism, Essential](https://churchofjesuschrist.org/study/scriptures/tg/baptism-essential?lang=eng)
 
 ### References
 - [[Matthew 28.19|Matthew 28:19]]

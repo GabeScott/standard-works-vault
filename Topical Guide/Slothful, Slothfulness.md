@@ -1,6 +1,6 @@
 # Slothful, Slothfulness
 
-[Slothful, Slothfulness](https://www.churchofjesuschrist.org/study/scriptures/tg/Slothful-Slothfulness?lang=eng)
+[Slothful, Slothfulness](https://churchofjesuschrist.org/study/scriptures/tg/slothful?lang=eng)
 
 ### References
 - [[Judges 18.9|Judges 18:9]]

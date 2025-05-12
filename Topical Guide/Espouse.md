@@ -1,6 +1,6 @@
 # Espouse
 
-[Espouse](https://www.churchofjesuschrist.org/study/scriptures/tg/Espouse?lang=eng)
+[Espouse](https://churchofjesuschrist.org/study/scriptures/tg/espouse?lang=eng)
 
 ### References
 - [[Matthew 1.18|Matthew 1:18]]

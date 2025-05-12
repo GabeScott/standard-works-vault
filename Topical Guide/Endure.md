@@ -1,6 +1,6 @@
 # Endure
 
-[Endure](https://www.churchofjesuschrist.org/study/scriptures/tg/Endure?lang=eng)
+[Endure](https://churchofjesuschrist.org/study/scriptures/tg/endure?lang=eng)
 
 ### References
 - [[Psalms 104.31|Psalms 104:31]]

@@ -1,6 +1,6 @@
 # Garnish
 
-[Garnish](https://www.churchofjesuschrist.org/study/scriptures/tg/Garnish?lang=eng)
+[Garnish](https://churchofjesuschrist.org/study/scriptures/tg/garnish?lang=eng)
 
 ### References
 - [[Job 26.13|Job 26:13]]

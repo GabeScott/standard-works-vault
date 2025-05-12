@@ -1,6 +1,6 @@
 # Thought
 
-[Thought](https://www.churchofjesuschrist.org/study/scriptures/tg/Thought?lang=eng)
+[Thought](https://churchofjesuschrist.org/study/scriptures/tg/think?lang=eng)
 
 ### References
 - [[Genesis 6.5|Genesis 6:5]]

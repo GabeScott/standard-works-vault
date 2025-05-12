@@ -1,6 +1,6 @@
 # Honorable
 
-[Honorable](https://www.churchofjesuschrist.org/study/scriptures/tg/Honorable?lang=eng)
+[Honorable](https://churchofjesuschrist.org/study/scriptures/tg/honorable?lang=eng)
 
 ### References
 - [[Psalms 111.3|Psalms 111:3]]

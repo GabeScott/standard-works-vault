@@ -1,6 +1,6 @@
 # Israel, Bondage of, in Other Lands
 
-[Israel, Bondage of, in Other Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Bondage-of-in-Other-Lands?lang=eng)
+[Israel, Bondage of, in Other Lands](https://churchofjesuschrist.org/study/scriptures/tg/israel-bondage-of-in-other-lands?lang=eng)
 
 ### References
 - [[2 Kings 15.29|2 Kings 15:29]]

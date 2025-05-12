@@ -1,6 +1,6 @@
 # Ax, Axe
 
-[Ax, Axe](https://www.churchofjesuschrist.org/study/scriptures/tg/Ax-Axe?lang=eng)
+[Ax, Axe](https://churchofjesuschrist.org/study/scriptures/tg/ax?lang=eng)
 
 ### References
 - [[2 Kings 6.5|2 Kings 6:5]]

@@ -1,6 +1,6 @@
 # Infidel
 
-[Infidel](https://www.churchofjesuschrist.org/study/scriptures/tg/Infidel?lang=eng)
+[Infidel](https://churchofjesuschrist.org/study/scriptures/tg/infidel?lang=eng)
 
 ### References
 - [[2 Corinthians 6.15|2 Corinthians 6:15]]

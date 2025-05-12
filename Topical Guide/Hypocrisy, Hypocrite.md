@@ -1,6 +1,6 @@
 # Hypocrisy, Hypocrite
 
-[Hypocrisy, Hypocrite](https://www.churchofjesuschrist.org/study/scriptures/tg/Hypocrisy-Hypocrite?lang=eng)
+[Hypocrisy, Hypocrite](https://churchofjesuschrist.org/study/scriptures/tg/hypocrisy?lang=eng)
 
 ### References
 - [[Job 13.16|Job 13:16]]

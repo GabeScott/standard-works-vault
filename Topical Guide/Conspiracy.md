@@ -1,6 +1,6 @@
 # Conspiracy
 
-[Conspiracy](https://www.churchofjesuschrist.org/study/scriptures/tg/Conspiracy?lang=eng)
+[Conspiracy](https://churchofjesuschrist.org/study/scriptures/tg/conspiracy?lang=eng)
 
 ### References
 - [[Genesis 37.18|Genesis 37:18]]

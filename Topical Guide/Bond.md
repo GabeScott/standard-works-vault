@@ -1,6 +1,6 @@
 # Bond
 
-[Bond](https://www.churchofjesuschrist.org/study/scriptures/tg/Bond?lang=eng)
+[Bond](https://churchofjesuschrist.org/study/scriptures/tg/bond?lang=eng)
 
 ### References
 - [[Ezekiel 20.37|Ezekiel 20:37]]

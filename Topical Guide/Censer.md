@@ -1,6 +1,6 @@
 # Censer
 
-[Censer](https://www.churchofjesuschrist.org/study/scriptures/tg/Censer?lang=eng)
+[Censer](https://churchofjesuschrist.org/study/scriptures/tg/censer?lang=eng)
 
 ### References
 - [[Leviticus 10.1|Leviticus 10:1]]

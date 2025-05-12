@@ -1,6 +1,6 @@
 # Clothe
 
-[Clothe](https://www.churchofjesuschrist.org/study/scriptures/tg/Clothe?lang=eng)
+[Clothe](https://churchofjesuschrist.org/study/scriptures/tg/clothe?lang=eng)
 
 ### References
 - [[Isaiah 61.10|Isaiah 61:10]]

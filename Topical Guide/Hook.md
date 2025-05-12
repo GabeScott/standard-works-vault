@@ -1,6 +1,6 @@
 # Hook
 
-[Hook](https://www.churchofjesuschrist.org/study/scriptures/tg/Hook?lang=eng)
+[Hook](https://churchofjesuschrist.org/study/scriptures/tg/hook?lang=eng)
 
 ### References
 - [[2 Kings 19.28|2 Kings 19:28]]

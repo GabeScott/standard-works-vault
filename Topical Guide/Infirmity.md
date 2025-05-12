@@ -1,6 +1,6 @@
 # Infirmity
 
-[Infirmity](https://www.churchofjesuschrist.org/study/scriptures/tg/Infirmity?lang=eng)
+[Infirmity](https://churchofjesuschrist.org/study/scriptures/tg/infirmity?lang=eng)
 
 ### References
 - [[Proverbs 18.14|Proverbs 18:14]]

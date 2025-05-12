@@ -1,6 +1,6 @@
 # Sinner
 
-[Sinner](https://www.churchofjesuschrist.org/study/scriptures/tg/Sinner?lang=eng)
+[Sinner](https://churchofjesuschrist.org/study/scriptures/tg/sinner?lang=eng)
 
 ### References
 - [[Genesis 13.13|Genesis 13:13]]

@@ -1,6 +1,6 @@
 # Kingdom
 
-[Kingdom](https://www.churchofjesuschrist.org/study/scriptures/tg/Kingdom?lang=eng)
+[Kingdom](https://churchofjesuschrist.org/study/scriptures/tg/celestial-kingdom?lang=eng)
 
 ### References
 - [[Genesis 10.10|Genesis 10:10]]

@@ -1,6 +1,6 @@
 # Levity
 
-[Levity](https://www.churchofjesuschrist.org/study/scriptures/tg/Levity?lang=eng)
+[Levity](https://churchofjesuschrist.org/study/scriptures/tg/levity?lang=eng)
 
 ### References
 - [[Ecclesiastes 7.6|Ecclesiastes 7:6]]

@@ -1,6 +1,6 @@
 # Self-Sacrifice
 
-[Self-Sacrifice](https://www.churchofjesuschrist.org/study/scriptures/tg/Self-Sacrifice?lang=eng)
+[Self-Sacrifice](https://churchofjesuschrist.org/study/scriptures/tg/self-sacrifice?lang=eng)
 
 ### References
 - [[Genesis 22.2|Genesis 22:2]]

@@ -1,6 +1,6 @@
 # World
 
-[World](https://www.churchofjesuschrist.org/study/scriptures/tg/World?lang=eng)
+[World](https://churchofjesuschrist.org/study/scriptures/tg/end-of-the-world?lang=eng)
 
 ### References
 - [[Psalms 19.4|Psalms 19:4]]

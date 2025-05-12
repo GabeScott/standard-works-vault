@@ -1,6 +1,6 @@
 # Jesus Christ, Second Comforter
 
-[Jesus Christ, Second Comforter](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Second-Comforter?lang=eng)
+[Jesus Christ, Second Comforter](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-comforter?lang=eng)
 
 ### References
 - [[John 14.18|John 14:18]]

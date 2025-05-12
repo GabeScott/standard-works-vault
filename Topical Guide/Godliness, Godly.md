@@ -1,6 +1,6 @@
 # Godliness, Godly
 
-[Godliness, Godly](https://www.churchofjesuschrist.org/study/scriptures/tg/Godliness-Godly?lang=eng)
+[Godliness, Godly](https://churchofjesuschrist.org/study/scriptures/tg/godliness?lang=eng)
 
 ### References
 - [[Psalms 1.6|Psalms 1:6]]

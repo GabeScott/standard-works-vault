@@ -1,6 +1,6 @@
 # Render
 
-[Render](https://www.churchofjesuschrist.org/study/scriptures/tg/Render?lang=eng)
+[Render](https://churchofjesuschrist.org/study/scriptures/tg/render?lang=eng)
 
 ### References
 - [[1 Samuel 26.23|1 Samuel 26:23]]

@@ -1,6 +1,6 @@
 # Publican
 
-[Publican](https://www.churchofjesuschrist.org/study/scriptures/tg/Publican?lang=eng)
+[Publican](https://churchofjesuschrist.org/study/scriptures/tg/publican?lang=eng)
 
 ### References
 - [[Matthew 10.3|Matthew 10:3]]

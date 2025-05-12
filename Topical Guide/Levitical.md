@@ -1,6 +1,6 @@
 # Levitical
 
-[Levitical](https://www.churchofjesuschrist.org/study/scriptures/tg/Levitical?lang=eng)
+[Levitical](https://churchofjesuschrist.org/study/scriptures/tg/levitical?lang=eng)
 
 ### References
 - [[Hebrews 7.11|Hebrews 7:11]]

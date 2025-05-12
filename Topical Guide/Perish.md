@@ -1,6 +1,6 @@
 # Perish
 
-[Perish](https://www.churchofjesuschrist.org/study/scriptures/tg/Perish?lang=eng)
+[Perish](https://churchofjesuschrist.org/study/scriptures/tg/perish?lang=eng)
 
 ### References
 - [[Genesis 41.36|Genesis 41:36]]

@@ -1,6 +1,6 @@
 # Stream
 
-[Stream](https://www.churchofjesuschrist.org/study/scriptures/tg/Stream?lang=eng)
+[Stream](https://churchofjesuschrist.org/study/scriptures/tg/stream?lang=eng)
 
 ### References
 - [[Isaiah 35.6|Isaiah 35:6]]

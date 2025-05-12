@@ -1,6 +1,6 @@
 # Candlestick
 
-[Candlestick](https://www.churchofjesuschrist.org/study/scriptures/tg/Candlestick?lang=eng)
+[Candlestick](https://churchofjesuschrist.org/study/scriptures/tg/candlestick?lang=eng)
 
 ### References
 - [[Exodus 25.31|Exodus 25:31]]

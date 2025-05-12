@@ -1,6 +1,6 @@
 # Jehoshaphat
 
-[Jehoshaphat](https://www.churchofjesuschrist.org/study/scriptures/tg/Jehoshaphat?lang=eng)
+[Jehoshaphat](https://churchofjesuschrist.org/study/scriptures/tg/jehoshaphat?lang=eng)
 
 ### References
 - [[1 Kings 22.10|1 Kings 22:10]]

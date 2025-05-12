@@ -1,6 +1,6 @@
 # Mark
 
-[Mark](https://www.churchofjesuschrist.org/study/scriptures/tg/Mark?lang=eng)
+[Mark](https://churchofjesuschrist.org/study/scriptures/tg/mark?lang=eng)
 
 ### References
 - [[Genesis 4.15|Genesis 4:15]]

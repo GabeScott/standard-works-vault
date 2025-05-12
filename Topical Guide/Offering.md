@@ -1,6 +1,6 @@
 # Offering
 
-[Offering](https://www.churchofjesuschrist.org/study/scriptures/tg/Offering?lang=eng)
+[Offering](https://churchofjesuschrist.org/study/scriptures/tg/burnt-offering?lang=eng)
 
 ### References
 - [[Genesis 4.4|Genesis 4:4]]

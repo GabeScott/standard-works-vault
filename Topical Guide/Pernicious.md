@@ -1,6 +1,6 @@
 # Pernicious
 
-[Pernicious](https://www.churchofjesuschrist.org/study/scriptures/tg/Pernicious?lang=eng)
+[Pernicious](https://churchofjesuschrist.org/study/scriptures/tg/pernicious?lang=eng)
 
 ### References
 - [[2 Peter 2.2|2 Peter 2:2]]

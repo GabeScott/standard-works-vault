@@ -1,6 +1,6 @@
 # Beam
 
-[Beam](https://www.churchofjesuschrist.org/study/scriptures/tg/Beam?lang=eng)
+[Beam](https://churchofjesuschrist.org/study/scriptures/tg/beam?lang=eng)
 
 ### References
 - [[Judges 16.14|Judges 16:14]]

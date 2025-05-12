@@ -1,6 +1,6 @@
 # Sacrament
 
-[Sacrament](https://www.churchofjesuschrist.org/study/scriptures/tg/Sacrament?lang=eng)
+[Sacrament](https://churchofjesuschrist.org/study/scriptures/tg/sacrament?lang=eng)
 
 ### References
 - [[Matthew 26.26|Matthew 26:26]]

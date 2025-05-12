@@ -1,6 +1,6 @@
 # Penny, Pence
 
-[Penny, Pence](https://www.churchofjesuschrist.org/study/scriptures/tg/Penny-Pence?lang=eng)
+[Penny, Pence](https://churchofjesuschrist.org/study/scriptures/tg/penny?lang=eng)
 
 ### References
 - [[Matthew 18.28|Matthew 18:28]]

@@ -1,6 +1,6 @@
 # Seal
 
-[Seal](https://www.churchofjesuschrist.org/study/scriptures/tg/Seal?lang=eng)
+[Seal](https://churchofjesuschrist.org/study/scriptures/tg/seal?lang=eng)
 
 ### References
 - [[1 Kings 21.8|1 Kings 21:8]]

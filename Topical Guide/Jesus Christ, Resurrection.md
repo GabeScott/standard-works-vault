@@ -1,6 +1,6 @@
 # Jesus Christ, Resurrection
 
-[Jesus Christ, Resurrection](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Resurrection?lang=eng)
+[Jesus Christ, Resurrection](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-resurrection?lang=eng)
 
 ### References
 - [[1 Samuel 2.6|1 Samuel 2:6]]

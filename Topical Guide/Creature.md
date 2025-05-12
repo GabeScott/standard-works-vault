@@ -1,6 +1,6 @@
 # Creature
 
-[Creature](https://www.churchofjesuschrist.org/study/scriptures/tg/Creature?lang=eng)
+[Creature](https://churchofjesuschrist.org/study/scriptures/tg/creature?lang=eng)
 
 ### References
 - [[Genesis 1.20|Genesis 1:20]]

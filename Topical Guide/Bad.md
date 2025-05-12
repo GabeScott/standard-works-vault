@@ -1,6 +1,6 @@
 # Bad
 
-[Bad](https://www.churchofjesuschrist.org/study/scriptures/tg/Bad?lang=eng)
+[Bad](https://churchofjesuschrist.org/study/scriptures/tg/bad?lang=eng)
 
 ### References
 - [[Genesis 24.50|Genesis 24:50]]

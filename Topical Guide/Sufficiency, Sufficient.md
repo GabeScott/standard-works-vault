@@ -1,6 +1,6 @@
 # Sufficiency, Sufficient
 
-[Sufficiency, Sufficient](https://www.churchofjesuschrist.org/study/scriptures/tg/Sufficiency-Sufficient?lang=eng)
+[Sufficiency, Sufficient](https://churchofjesuschrist.org/study/scriptures/tg/sufficiency?lang=eng)
 
 ### References
 - [[Deuteronomy 15.8|Deuteronomy 15:8]]

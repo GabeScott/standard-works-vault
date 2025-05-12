@@ -1,6 +1,6 @@
 # Wholly
 
-[Wholly](https://www.churchofjesuschrist.org/study/scriptures/tg/Wholly?lang=eng)
+[Wholly](https://churchofjesuschrist.org/study/scriptures/tg/wholly?lang=eng)
 
 ### References
 - [[Acts 17.16|Acts 17:16]]

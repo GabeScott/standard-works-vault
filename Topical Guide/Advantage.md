@@ -1,6 +1,6 @@
 # Advantage
 
-[Advantage](https://www.churchofjesuschrist.org/study/scriptures/tg/Advantage?lang=eng)
+[Advantage](https://churchofjesuschrist.org/study/scriptures/tg/advantage?lang=eng)
 
 ### References
 - [[Romans 3.1|Romans 3:1]]

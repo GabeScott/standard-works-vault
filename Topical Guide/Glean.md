@@ -1,6 +1,6 @@
 # Glean
 
-[Glean](https://www.churchofjesuschrist.org/study/scriptures/tg/Glean?lang=eng)
+[Glean](https://churchofjesuschrist.org/study/scriptures/tg/glean?lang=eng)
 
 ### References
 - [[Leviticus 19.10|Leviticus 19:10]]

@@ -1,6 +1,6 @@
 # Crumb
 
-[Crumb](https://www.churchofjesuschrist.org/study/scriptures/tg/Crumb?lang=eng)
+[Crumb](https://churchofjesuschrist.org/study/scriptures/tg/crumb?lang=eng)
 
 ### References
 - [[Matthew 15.27|Matthew 15:27]]

@@ -1,6 +1,6 @@
 # Eat, Eaten
 
-[Eat, Eaten](https://www.churchofjesuschrist.org/study/scriptures/tg/Eat-Eaten?lang=eng)
+[Eat, Eaten](https://churchofjesuschrist.org/study/scriptures/tg/eat?lang=eng)
 
 ### References
 - [[Genesis 2.17|Genesis 2:17]]

@@ -1,6 +1,6 @@
 # Supreme
 
-[Supreme](https://www.churchofjesuschrist.org/study/scriptures/tg/Supreme?lang=eng)
+[Supreme](https://churchofjesuschrist.org/study/scriptures/tg/supreme?lang=eng)
 
 ### References
 - [[1 Peter 2.13|1 Peter 2:13]]

@@ -1,6 +1,6 @@
 # Thing
 
-[Thing](https://www.churchofjesuschrist.org/study/scriptures/tg/Thing?lang=eng)
+[Thing](https://churchofjesuschrist.org/study/scriptures/tg/thing?lang=eng)
 
 ### References
 - [[Genesis 24.1|Genesis 24:1]]

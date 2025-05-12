@@ -1,6 +1,6 @@
 # Blood
 
-[Blood](https://www.churchofjesuschrist.org/study/scriptures/tg/Blood?lang=eng)
+[Blood](https://churchofjesuschrist.org/study/scriptures/tg/blood?lang=eng)
 
 ### References
 - [[Genesis 37.31|Genesis 37:31]]

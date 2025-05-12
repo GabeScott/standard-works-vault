@@ -1,6 +1,6 @@
 # Left
 
-[Left](https://www.churchofjesuschrist.org/study/scriptures/tg/Left?lang=eng)
+[Left](https://churchofjesuschrist.org/study/scriptures/tg/leave?lang=eng)
 
 ### References
 - [[Genesis 13.9|Genesis 13:9]]

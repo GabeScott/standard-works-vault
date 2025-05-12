@@ -1,6 +1,6 @@
 # Go, Gone
 
-[Go, Gone](https://www.churchofjesuschrist.org/study/scriptures/tg/Go-Gone?lang=eng)
+[Go, Gone](https://churchofjesuschrist.org/study/scriptures/tg/go?lang=eng)
 
 ### References
 - [[Genesis 28.15|Genesis 28:15]]

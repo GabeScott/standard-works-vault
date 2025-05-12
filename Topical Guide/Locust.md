@@ -1,6 +1,6 @@
 # Locust
 
-[Locust](https://www.churchofjesuschrist.org/study/scriptures/tg/Locust?lang=eng)
+[Locust](https://churchofjesuschrist.org/study/scriptures/tg/locust?lang=eng)
 
 ### References
 - [[Exodus 10.4|Exodus 10:4]]

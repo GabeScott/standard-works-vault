@@ -1,6 +1,6 @@
 # Shearer
 
-[Shearer](https://www.churchofjesuschrist.org/study/scriptures/tg/Shearer?lang=eng)
+[Shearer](https://churchofjesuschrist.org/study/scriptures/tg/shearer?lang=eng)
 
 ### References
 - [[Isaiah 53.7|Isaiah 53:7]]

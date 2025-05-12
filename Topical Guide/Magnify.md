@@ -1,6 +1,6 @@
 # Magnify
 
-[Magnify](https://www.churchofjesuschrist.org/study/scriptures/tg/Magnify?lang=eng)
+[Magnify](https://churchofjesuschrist.org/study/scriptures/tg/magnify?lang=eng)
 
 ### References
 - [[Joshua 3.7|Joshua 3:7]]

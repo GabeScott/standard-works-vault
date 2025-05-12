@@ -1,6 +1,6 @@
 # Greek
 
-[Greek](https://www.churchofjesuschrist.org/study/scriptures/tg/Greek?lang=eng)
+[Greek](https://churchofjesuschrist.org/study/scriptures/tg/greek?lang=eng)
 
 ### References
 - [[Luke 23.38|Luke 23:38]]

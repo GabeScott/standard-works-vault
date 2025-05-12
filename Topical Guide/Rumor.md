@@ -1,6 +1,6 @@
 # Rumor
 
-[Rumor](https://www.churchofjesuschrist.org/study/scriptures/tg/Rumor?lang=eng)
+[Rumor](https://churchofjesuschrist.org/study/scriptures/tg/rumor?lang=eng)
 
 ### References
 - [[2 Kings 19.7|2 Kings 19:7]]

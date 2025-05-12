@@ -1,6 +1,6 @@
 # Timber
 
-[Timber](https://www.churchofjesuschrist.org/study/scriptures/tg/Timber?lang=eng)
+[Timber](https://churchofjesuschrist.org/study/scriptures/tg/timber?lang=eng)
 
 ### References
 - [[1 Kings 5.18|1 Kings 5:18]]

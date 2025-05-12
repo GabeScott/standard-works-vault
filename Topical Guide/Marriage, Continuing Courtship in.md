@@ -1,6 +1,6 @@
 # Marriage, Continuing Courtship in
 
-[Marriage, Continuing Courtship in](https://www.churchofjesuschrist.org/study/scriptures/tg/Marriage-Continuing-Courtship-in?lang=eng)
+[Marriage, Continuing Courtship in](https://churchofjesuschrist.org/study/scriptures/tg/marriage-continuing-courtship-in?lang=eng)
 
 ### References
 - [[Matthew 7.12|Matthew 7:12]]

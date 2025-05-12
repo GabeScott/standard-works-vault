@@ -1,6 +1,6 @@
 # Swearing, Swear, Sware, Sworn
 
-[Swearing, Swear, Sware, Sworn](https://www.churchofjesuschrist.org/study/scriptures/tg/Swearing-Swear-Sware-Sworn?lang=eng)
+[Swearing, Swear, Sware, Sworn](https://churchofjesuschrist.org/study/scriptures/tg/swearing?lang=eng)
 
 ### References
 - [[Genesis 21.31|Genesis 21:31]]

@@ -1,6 +1,6 @@
 # Fly, Flew, Flying
 
-[Fly, Flew, Flying](https://www.churchofjesuschrist.org/study/scriptures/tg/Fly-Flew-Flying?lang=eng)
+[Fly, Flew, Flying](https://churchofjesuschrist.org/study/scriptures/tg/fly?lang=eng)
 
 ### References
 - [[2 Samuel 22.11|2 Samuel 22:11]]

@@ -1,6 +1,6 @@
 # Vessel
 
-[Vessel](https://www.churchofjesuschrist.org/study/scriptures/tg/Vessel?lang=eng)
+[Vessel](https://churchofjesuschrist.org/study/scriptures/tg/vessel?lang=eng)
 
 ### References
 - [[Exodus 37.16|Exodus 37:16]]

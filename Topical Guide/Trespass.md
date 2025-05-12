@@ -1,6 +1,6 @@
 # Trespass
 
-[Trespass](https://www.churchofjesuschrist.org/study/scriptures/tg/Trespass?lang=eng)
+[Trespass](https://churchofjesuschrist.org/study/scriptures/tg/trespass?lang=eng)
 
 ### References
 - [[Leviticus 26.40|Leviticus 26:40]]

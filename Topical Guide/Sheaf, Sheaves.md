@@ -1,6 +1,6 @@
 # Sheaf, Sheaves
 
-[Sheaf, Sheaves](https://www.churchofjesuschrist.org/study/scriptures/tg/Sheaf-Sheaves?lang=eng)
+[Sheaf, Sheaves](https://churchofjesuschrist.org/study/scriptures/tg/sheaf?lang=eng)
 
 ### References
 - [[Genesis 37.7|Genesis 37:7]]

@@ -1,6 +1,6 @@
 # Shield
 
-[Shield](https://www.churchofjesuschrist.org/study/scriptures/tg/Shield?lang=eng)
+[Shield](https://churchofjesuschrist.org/study/scriptures/tg/shield?lang=eng)
 
 ### References
 - [[Genesis 15.1|Genesis 15:1]]

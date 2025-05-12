@@ -1,6 +1,6 @@
 # Lineage
 
-[Lineage](https://www.churchofjesuschrist.org/study/scriptures/tg/Lineage?lang=eng)
+[Lineage](https://churchofjesuschrist.org/study/scriptures/tg/lineage?lang=eng)
 
 ### References
 - [[Luke 2.4|Luke 2:4]]

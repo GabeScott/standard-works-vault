@@ -1,6 +1,6 @@
 # Delight
 
-[Delight](https://www.churchofjesuschrist.org/study/scriptures/tg/Delight?lang=eng)
+[Delight](https://churchofjesuschrist.org/study/scriptures/tg/delight?lang=eng)
 
 ### References
 - [[Numbers 14.8|Numbers 14:8]]

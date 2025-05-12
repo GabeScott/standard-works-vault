@@ -1,6 +1,6 @@
 # Proselyte
 
-[Proselyte](https://www.churchofjesuschrist.org/study/scriptures/tg/Proselyte?lang=eng)
+[Proselyte](https://churchofjesuschrist.org/study/scriptures/tg/proselyte?lang=eng)
 
 ### References
 - [[Matthew 23.15|Matthew 23:15]]

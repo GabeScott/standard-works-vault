@@ -1,6 +1,6 @@
 # Prostitute
 
-[Prostitute](https://www.churchofjesuschrist.org/study/scriptures/tg/Prostitute?lang=eng)
+[Prostitute](https://churchofjesuschrist.org/study/scriptures/tg/prostitute?lang=eng)
 
 ### References
 - [[Leviticus 19.29|Leviticus 19:29]]

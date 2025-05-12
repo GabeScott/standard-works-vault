@@ -1,6 +1,6 @@
 # Bone
 
-[Bone](https://www.churchofjesuschrist.org/study/scriptures/tg/Bone?lang=eng)
+[Bone](https://churchofjesuschrist.org/study/scriptures/tg/bone?lang=eng)
 
 ### References
 - [[Genesis 2.23|Genesis 2:23]]

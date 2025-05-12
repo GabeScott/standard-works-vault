@@ -1,6 +1,6 @@
 # Gather
 
-[Gather](https://www.churchofjesuschrist.org/study/scriptures/tg/Gather?lang=eng)
+[Gather](https://churchofjesuschrist.org/study/scriptures/tg/gather?lang=eng)
 
 ### References
 - [[Genesis 41.49|Genesis 41:49]]

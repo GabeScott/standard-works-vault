@@ -1,6 +1,6 @@
 # Oil
 
-[Oil](https://www.churchofjesuschrist.org/study/scriptures/tg/Oil?lang=eng)
+[Oil](https://churchofjesuschrist.org/study/scriptures/tg/oil?lang=eng)
 
 ### References
 - [[Exodus 25.6|Exodus 25:6]]

@@ -1,6 +1,6 @@
 # Sand
 
-[Sand](https://www.churchofjesuschrist.org/study/scriptures/tg/Sand?lang=eng)
+[Sand](https://churchofjesuschrist.org/study/scriptures/tg/sand?lang=eng)
 
 ### References
 - [[Genesis 22.17|Genesis 22:17]]

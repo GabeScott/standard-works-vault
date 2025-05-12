@@ -1,6 +1,6 @@
 # Superstitions
 
-[Superstitions](https://www.churchofjesuschrist.org/study/scriptures/tg/Superstitions?lang=eng)
+[Superstitions](https://churchofjesuschrist.org/study/scriptures/tg/superstitions?lang=eng)
 
 ### References
 - [[Genesis 30.14|Genesis 30:14]]

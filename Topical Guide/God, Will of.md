@@ -1,6 +1,6 @@
 # God, Will of
 
-[God, Will of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Will-of?lang=eng)
+[God, Will of](https://churchofjesuschrist.org/study/scriptures/tg/god-will-of?lang=eng)
 
 ### References
 - [[Psalms 143.10|Psalms 143:10]]

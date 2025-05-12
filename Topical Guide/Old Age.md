@@ -1,6 +1,6 @@
 # Old Age
 
-[Old Age](https://www.churchofjesuschrist.org/study/scriptures/tg/Old-Age?lang=eng)
+[Old Age](https://churchofjesuschrist.org/study/scriptures/tg/old-age?lang=eng)
 
 ### References
 - [[Genesis 15.15|Genesis 15:15]]

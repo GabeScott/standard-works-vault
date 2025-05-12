@@ -1,6 +1,6 @@
 # Approve, Approved
 
-[Approve, Approved](https://www.churchofjesuschrist.org/study/scriptures/tg/Approve-Approved?lang=eng)
+[Approve, Approved](https://churchofjesuschrist.org/study/scriptures/tg/approve?lang=eng)
 
 ### References
 - [[Acts 2.22|Acts 2:22]]

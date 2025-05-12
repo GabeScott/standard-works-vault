@@ -1,6 +1,6 @@
 # Wide
 
-[Wide](https://www.churchofjesuschrist.org/study/scriptures/tg/Wide?lang=eng)
+[Wide](https://churchofjesuschrist.org/study/scriptures/tg/wide?lang=eng)
 
 ### References
 - [[Matthew 7.13|Matthew 7:13]]

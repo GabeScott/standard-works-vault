@@ -1,6 +1,6 @@
 # Counselor
 
-[Counselor](https://www.churchofjesuschrist.org/study/scriptures/tg/Counselor?lang=eng)
+[Counselor](https://churchofjesuschrist.org/study/scriptures/tg/counselor?lang=eng)
 
 ### References
 - [[1 Chronicles 27.32|1 Chronicles 27:32]]

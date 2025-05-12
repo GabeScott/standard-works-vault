@@ -1,6 +1,6 @@
 # Modesty
 
-[Modesty](https://www.churchofjesuschrist.org/study/scriptures/tg/Modesty?lang=eng)
+[Modesty](https://churchofjesuschrist.org/study/scriptures/tg/modesty?lang=eng)
 
 ### References
 - [[Genesis 3.21|Genesis 3:21]]

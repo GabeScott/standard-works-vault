@@ -1,6 +1,6 @@
 # Milk
 
-[Milk](https://www.churchofjesuschrist.org/study/scriptures/tg/Milk?lang=eng)
+[Milk](https://churchofjesuschrist.org/study/scriptures/tg/milk?lang=eng)
 
 ### References
 - [[Genesis 18.8|Genesis 18:8]]

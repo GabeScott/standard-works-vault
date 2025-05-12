@@ -1,6 +1,6 @@
 # Word of God
 
-[Word of God](https://www.churchofjesuschrist.org/study/scriptures/tg/Word-of-God?lang=eng)
+[Word of God](https://churchofjesuschrist.org/study/scriptures/tg/word-of-god?lang=eng)
 
 ### References
 - [[1 Kings 12.22|1 Kings 12:22]]

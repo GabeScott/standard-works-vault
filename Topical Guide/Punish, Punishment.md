@@ -1,6 +1,6 @@
 # Punish, Punishment
 
-[Punish, Punishment](https://www.churchofjesuschrist.org/study/scriptures/tg/Punish-Punishment?lang=eng)
+[Punish, Punishment](https://churchofjesuschrist.org/study/scriptures/tg/punish?lang=eng)
 
 ### References
 - [[Genesis 4.13|Genesis 4:13]]

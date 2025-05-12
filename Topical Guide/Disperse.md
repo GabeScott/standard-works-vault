@@ -1,6 +1,6 @@
 # Disperse
 
-[Disperse](https://www.churchofjesuschrist.org/study/scriptures/tg/Disperse?lang=eng)
+[Disperse](https://churchofjesuschrist.org/study/scriptures/tg/disperse?lang=eng)
 
 ### References
 - [[Esther 3.8|Esther 3:8]]

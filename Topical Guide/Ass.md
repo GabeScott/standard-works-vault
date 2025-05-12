@@ -1,6 +1,6 @@
 # Ass
 
-[Ass](https://www.churchofjesuschrist.org/study/scriptures/tg/Ass?lang=eng)
+[Ass](https://churchofjesuschrist.org/study/scriptures/tg/ass?lang=eng)
 
 ### References
 - [[Genesis 22.5|Genesis 22:5]]

@@ -1,6 +1,6 @@
 # Business
 
-[Business](https://www.churchofjesuschrist.org/study/scriptures/tg/Business?lang=eng)
+[Business](https://churchofjesuschrist.org/study/scriptures/tg/business?lang=eng)
 
 ### References
 - [[1 Chronicles 26.29|1 Chronicles 26:29]]

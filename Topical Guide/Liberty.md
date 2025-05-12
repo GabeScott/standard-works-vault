@@ -1,6 +1,6 @@
 # Liberty
 
-[Liberty](https://www.churchofjesuschrist.org/study/scriptures/tg/Liberty?lang=eng)
+[Liberty](https://churchofjesuschrist.org/study/scriptures/tg/liberty?lang=eng)
 
 ### References
 - [[Exodus 21.2|Exodus 21:2]]

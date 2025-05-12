@@ -1,6 +1,6 @@
 # Tear
 
-[Tear](https://www.churchofjesuschrist.org/study/scriptures/tg/Tear?lang=eng)
+[Tear](https://churchofjesuschrist.org/study/scriptures/tg/tear-noun?lang=eng)
 
 ### References
 - [[Psalms 126.5|Psalms 126:5]]

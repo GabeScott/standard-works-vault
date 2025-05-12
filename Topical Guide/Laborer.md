@@ -1,6 +1,6 @@
 # Laborer
 
-[Laborer](https://www.churchofjesuschrist.org/study/scriptures/tg/Laborer?lang=eng)
+[Laborer](https://churchofjesuschrist.org/study/scriptures/tg/laborer?lang=eng)
 
 ### References
 - [[Matthew 20.1|Matthew 20:1]]

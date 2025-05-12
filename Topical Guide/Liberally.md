@@ -1,6 +1,6 @@
 # Liberally
 
-[Liberally](https://www.churchofjesuschrist.org/study/scriptures/tg/Liberally?lang=eng)
+[Liberally](https://churchofjesuschrist.org/study/scriptures/tg/liberally?lang=eng)
 
 ### References
 - [[Deuteronomy 15.14|Deuteronomy 15:14]]

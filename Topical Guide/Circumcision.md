@@ -1,6 +1,6 @@
 # Circumcision
 
-[Circumcision](https://www.churchofjesuschrist.org/study/scriptures/tg/Circumcision?lang=eng)
+[Circumcision](https://churchofjesuschrist.org/study/scriptures/tg/circumcision?lang=eng)
 
 ### References
 - [[Genesis 17.10|Genesis 17:10]]

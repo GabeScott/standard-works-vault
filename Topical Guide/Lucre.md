@@ -1,6 +1,6 @@
 # Lucre
 
-[Lucre](https://www.churchofjesuschrist.org/study/scriptures/tg/Lucre?lang=eng)
+[Lucre](https://churchofjesuschrist.org/study/scriptures/tg/lucre?lang=eng)
 
 ### References
 - [[1 Samuel 8.3|1 Samuel 8:3]]

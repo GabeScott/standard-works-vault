@@ -1,6 +1,6 @@
 # Petition
 
-[Petition](https://www.churchofjesuschrist.org/study/scriptures/tg/Petition?lang=eng)
+[Petition](https://churchofjesuschrist.org/study/scriptures/tg/petition?lang=eng)
 
 ### References
 - [[1 Kings 2.20|1 Kings 2:20]]

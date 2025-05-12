@@ -1,6 +1,6 @@
 # Pasture
 
-[Pasture](https://www.churchofjesuschrist.org/study/scriptures/tg/Pasture?lang=eng)
+[Pasture](https://churchofjesuschrist.org/study/scriptures/tg/pasture?lang=eng)
 
 ### References
 - [[Genesis 47.4|Genesis 47:4]]

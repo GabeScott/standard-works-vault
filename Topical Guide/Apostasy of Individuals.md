@@ -1,6 +1,6 @@
 # Apostasy of Individuals
 
-[Apostasy of Individuals](https://www.churchofjesuschrist.org/study/scriptures/tg/Apostasy-of-Individuals?lang=eng)
+[Apostasy of Individuals](https://churchofjesuschrist.org/study/scriptures/tg/apostasy-of-individuals?lang=eng)
 
 ### References
 - [[Deuteronomy 29.18|Deuteronomy 29:18]]

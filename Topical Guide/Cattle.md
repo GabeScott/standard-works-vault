@@ -1,6 +1,6 @@
 # Cattle
 
-[Cattle](https://www.churchofjesuschrist.org/study/scriptures/tg/Cattle?lang=eng)
+[Cattle](https://churchofjesuschrist.org/study/scriptures/tg/cattle?lang=eng)
 
 ### References
 - [[Genesis 1.25|Genesis 1:25]]

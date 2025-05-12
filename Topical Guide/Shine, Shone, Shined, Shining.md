@@ -1,6 +1,6 @@
 # Shine, Shone, Shined, Shining
 
-[Shine, Shone, Shined, Shining](https://www.churchofjesuschrist.org/study/scriptures/tg/Shine-Shone-Shined-Shining?lang=eng)
+[Shine, Shone, Shined, Shining](https://churchofjesuschrist.org/study/scriptures/tg/shine?lang=eng)
 
 ### References
 - [[Exodus 34.29|Exodus 34:29]]

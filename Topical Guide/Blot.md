@@ -1,6 +1,6 @@
 # Blot
 
-[Blot](https://www.churchofjesuschrist.org/study/scriptures/tg/Blot?lang=eng)
+[Blot](https://churchofjesuschrist.org/study/scriptures/tg/blot?lang=eng)
 
 ### References
 - [[Exodus 32.32|Exodus 32:32]]

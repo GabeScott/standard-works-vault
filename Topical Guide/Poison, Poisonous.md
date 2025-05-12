@@ -1,6 +1,6 @@
 # Poison, Poisonous
 
-[Poison, Poisonous](https://www.churchofjesuschrist.org/study/scriptures/tg/Poison-Poisonous?lang=eng)
+[Poison, Poisonous](https://churchofjesuschrist.org/study/scriptures/tg/poison?lang=eng)
 
 ### References
 - [[Deuteronomy 32.24|Deuteronomy 32:24]]

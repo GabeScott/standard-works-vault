@@ -1,6 +1,6 @@
 # Moisture
 
-[Moisture](https://www.churchofjesuschrist.org/study/scriptures/tg/Moisture?lang=eng)
+[Moisture](https://churchofjesuschrist.org/study/scriptures/tg/moisture?lang=eng)
 
 ### References
 - [[Luke 8.6|Luke 8:6]]

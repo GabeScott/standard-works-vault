@@ -1,6 +1,6 @@
 # Inspiration, Inspire
 
-[Inspiration, Inspire](https://www.churchofjesuschrist.org/study/scriptures/tg/Inspiration-Inspire?lang=eng)
+[Inspiration, Inspire](https://churchofjesuschrist.org/study/scriptures/tg/inspiration?lang=eng)
 
 ### References
 - [[1 Kings 19.12|1 Kings 19:12]]

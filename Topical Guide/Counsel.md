@@ -1,6 +1,6 @@
 # Counsel
 
-[Counsel](https://www.churchofjesuschrist.org/study/scriptures/tg/Counsel?lang=eng)
+[Counsel](https://churchofjesuschrist.org/study/scriptures/tg/counsel?lang=eng)
 
 ### References
 - [[Exodus 18.19|Exodus 18:19]]

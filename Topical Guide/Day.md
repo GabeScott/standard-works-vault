@@ -1,6 +1,6 @@
 # Day
 
-[Day](https://www.churchofjesuschrist.org/study/scriptures/tg/Day?lang=eng)
+[Day](https://churchofjesuschrist.org/study/scriptures/tg/day?lang=eng)
 
 ### References
 - [[Genesis 1.5|Genesis 1:5]]

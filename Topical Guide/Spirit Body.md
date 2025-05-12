@@ -1,6 +1,6 @@
 # Spirit Body
 
-[Spirit Body](https://www.churchofjesuschrist.org/study/scriptures/tg/Spirit-Body?lang=eng)
+[Spirit Body](https://churchofjesuschrist.org/study/scriptures/tg/spirit-body?lang=eng)
 
 ### References
 - [[Numbers 16.22|Numbers 16:22]]

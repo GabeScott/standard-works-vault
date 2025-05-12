@@ -1,6 +1,6 @@
 # Heir
 
-[Heir](https://www.churchofjesuschrist.org/study/scriptures/tg/Heir?lang=eng)
+[Heir](https://churchofjesuschrist.org/study/scriptures/tg/heir?lang=eng)
 
 ### References
 - [[Genesis 15.3|Genesis 15:3]]

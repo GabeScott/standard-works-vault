@@ -1,6 +1,6 @@
 # God, Intelligence of
 
-[God, Intelligence of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Intelligence-of?lang=eng)
+[God, Intelligence of](https://churchofjesuschrist.org/study/scriptures/tg/god-intelligence-of?lang=eng)
 
 ### References
 - [[Isaiah 55.8|Isaiah 55:8]]

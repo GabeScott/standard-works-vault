@@ -1,6 +1,6 @@
 # Inward
 
-[Inward](https://www.churchofjesuschrist.org/study/scriptures/tg/Inward?lang=eng)
+[Inward](https://churchofjesuschrist.org/study/scriptures/tg/inward?lang=eng)
 
 ### References
 - [[Psalms 51.6|Psalms 51:6]]

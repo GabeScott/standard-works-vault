@@ -1,6 +1,6 @@
 # Priest, Aaronic Priesthood
 
-[Priest, Aaronic Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/Priest-Aaronic-Priesthood?lang=eng)
+[Priest, Aaronic Priesthood](https://churchofjesuschrist.org/study/scriptures/tg/high-priest-aaronic-priesthood?lang=eng)
 
 ### References
 - [[Exodus 19.6|Exodus 19:6]]

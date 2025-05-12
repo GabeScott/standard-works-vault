@@ -1,6 +1,6 @@
 # Man
 
-[Man](https://www.churchofjesuschrist.org/study/scriptures/tg/Man?lang=eng)
+[Man](https://churchofjesuschrist.org/study/scriptures/tg/creation-of-man?lang=eng)
 
 ### References
 - [[Genesis 2.24|Genesis 2:24]]

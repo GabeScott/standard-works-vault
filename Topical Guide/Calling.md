@@ -1,6 +1,6 @@
 # Calling
 
-[Calling](https://www.churchofjesuschrist.org/study/scriptures/tg/Calling?lang=eng)
+[Calling](https://churchofjesuschrist.org/study/scriptures/tg/calling?lang=eng)
 
 ### References
 - [[Romans 11.29|Romans 11:29]]

@@ -1,6 +1,6 @@
 # Point
 
-[Point](https://www.churchofjesuschrist.org/study/scriptures/tg/Point?lang=eng)
+[Point](https://churchofjesuschrist.org/study/scriptures/tg/point?lang=eng)
 
 ### References
 - [[Jeremiah 17.1|Jeremiah 17:1]]

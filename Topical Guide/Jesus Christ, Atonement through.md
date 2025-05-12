@@ -1,6 +1,6 @@
 # Jesus Christ, Atonement through
 
-[Jesus Christ, Atonement through](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Atonement-through?lang=eng)
+[Jesus Christ, Atonement through](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-atonement-through?lang=eng)
 
 ### References
 - [[Leviticus 17.11|Leviticus 17:11]]

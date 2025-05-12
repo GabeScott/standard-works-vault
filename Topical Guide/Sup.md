@@ -1,6 +1,6 @@
 # Sup
 
-[Sup](https://www.churchofjesuschrist.org/study/scriptures/tg/Sup?lang=eng)
+[Sup](https://churchofjesuschrist.org/study/scriptures/tg/sup?lang=eng)
 
 ### References
 - [[Luke 17.8|Luke 17:8]]

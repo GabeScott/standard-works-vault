@@ -1,6 +1,6 @@
 # Every
 
-[Every](https://www.churchofjesuschrist.org/study/scriptures/tg/Every?lang=eng)
+[Every](https://churchofjesuschrist.org/study/scriptures/tg/every?lang=eng)
 
 ### References
 - [[Isaiah 45.23|Isaiah 45:23]]

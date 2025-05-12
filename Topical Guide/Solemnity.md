@@ -1,6 +1,6 @@
 # Solemnity
 
-[Solemnity](https://www.churchofjesuschrist.org/study/scriptures/tg/Solemnity?lang=eng)
+[Solemnity](https://churchofjesuschrist.org/study/scriptures/tg/solemnity?lang=eng)
 
 ### References
 - [[Isaiah 33.20|Isaiah 33:20]]

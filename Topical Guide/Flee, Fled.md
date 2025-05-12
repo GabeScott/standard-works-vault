@@ -1,6 +1,6 @@
 # Flee, Fled
 
-[Flee, Fled](https://www.churchofjesuschrist.org/study/scriptures/tg/Flee-Fled?lang=eng)
+[Flee, Fled](https://churchofjesuschrist.org/study/scriptures/tg/flee?lang=eng)
 
 ### References
 - [[Genesis 16.6|Genesis 16:6]]

@@ -1,6 +1,6 @@
 # Everlasting
 
-[Everlasting](https://www.churchofjesuschrist.org/study/scriptures/tg/Everlasting?lang=eng)
+[Everlasting](https://churchofjesuschrist.org/study/scriptures/tg/covenant-everlasting?lang=eng)
 
 ### References
 - [[Genesis 17.7|Genesis 17:7]]

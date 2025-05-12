@@ -1,6 +1,6 @@
 # Sinew
 
-[Sinew](https://www.churchofjesuschrist.org/study/scriptures/tg/Sinew?lang=eng)
+[Sinew](https://churchofjesuschrist.org/study/scriptures/tg/sinew?lang=eng)
 
 ### References
 - [[Genesis 32.32|Genesis 32:32]]

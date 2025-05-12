@@ -1,6 +1,6 @@
 # Loose
 
-[Loose](https://www.churchofjesuschrist.org/study/scriptures/tg/Loose?lang=eng)
+[Loose](https://churchofjesuschrist.org/study/scriptures/tg/loose?lang=eng)
 
 ### References
 - [[Joshua 5.15|Joshua 5:15]]

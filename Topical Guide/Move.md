@@ -1,6 +1,6 @@
 # Move
 
-[Move](https://www.churchofjesuschrist.org/study/scriptures/tg/Move?lang=eng)
+[Move](https://churchofjesuschrist.org/study/scriptures/tg/move?lang=eng)
 
 ### References
 - [[Genesis 1.2|Genesis 1:2]]

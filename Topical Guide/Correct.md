@@ -1,6 +1,6 @@
 # Correct
 
-[Correct](https://www.churchofjesuschrist.org/study/scriptures/tg/Correct?lang=eng)
+[Correct](https://churchofjesuschrist.org/study/scriptures/tg/correct?lang=eng)
 
 ### References
 - [[Job 5.17|Job 5:17]]

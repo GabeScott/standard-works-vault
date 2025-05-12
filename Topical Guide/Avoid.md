@@ -1,6 +1,6 @@
 # Avoid
 
-[Avoid](https://www.churchofjesuschrist.org/study/scriptures/tg/Avoid?lang=eng)
+[Avoid](https://churchofjesuschrist.org/study/scriptures/tg/avoid?lang=eng)
 
 ### References
 - [[Proverbs 4.15|Proverbs 4:15]]

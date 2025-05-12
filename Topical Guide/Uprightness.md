@@ -1,6 +1,6 @@
 # Uprightness
 
-[Uprightness](https://www.churchofjesuschrist.org/study/scriptures/tg/Uprightness?lang=eng)
+[Uprightness](https://churchofjesuschrist.org/study/scriptures/tg/uprightness?lang=eng)
 
 ### References
 - [[1 Chronicles 29.17|1 Chronicles 29:17]]

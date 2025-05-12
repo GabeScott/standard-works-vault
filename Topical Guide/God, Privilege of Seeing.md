@@ -1,6 +1,6 @@
 # God, Privilege of Seeing
 
-[God, Privilege of Seeing](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Privilege-of-Seeing?lang=eng)
+[God, Privilege of Seeing](https://churchofjesuschrist.org/study/scriptures/tg/god-privilege-of-seeing?lang=eng)
 
 ### References
 - [[Genesis 32.30|Genesis 32:30]]

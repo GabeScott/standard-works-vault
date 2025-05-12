@@ -1,6 +1,6 @@
 # Burning
 
-[Burning](https://www.churchofjesuschrist.org/study/scriptures/tg/Burning?lang=eng)
+[Burning](https://churchofjesuschrist.org/study/scriptures/tg/burning?lang=eng)
 
 ### References
 - [[Exodus 21.25|Exodus 21:25]]

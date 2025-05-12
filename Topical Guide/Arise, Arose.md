@@ -1,6 +1,6 @@
 # Arise, Arose
 
-[Arise, Arose](https://www.churchofjesuschrist.org/study/scriptures/tg/Arise-Arose?lang=eng)
+[Arise, Arose](https://churchofjesuschrist.org/study/scriptures/tg/arise?lang=eng)
 
 ### References
 - [[Isaiah 26.19|Isaiah 26:19]]

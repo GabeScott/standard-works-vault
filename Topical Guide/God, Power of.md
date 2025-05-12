@@ -1,6 +1,6 @@
 # God, Power of
 
-[God, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Power-of?lang=eng)
+[God, Power of](https://churchofjesuschrist.org/study/scriptures/tg/god-power-of?lang=eng)
 
 ### References
 - [[Genesis 17.1|Genesis 17:1]]

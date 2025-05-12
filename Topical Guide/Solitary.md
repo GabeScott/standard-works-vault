@@ -1,6 +1,6 @@
 # Solitary
 
-[Solitary](https://www.churchofjesuschrist.org/study/scriptures/tg/Solitary?lang=eng)
+[Solitary](https://churchofjesuschrist.org/study/scriptures/tg/solitary?lang=eng)
 
 ### References
 - [[Psalms 107.4|Psalms 107:4]]

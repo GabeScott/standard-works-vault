@@ -1,6 +1,6 @@
 # Spy
 
-[Spy](https://www.churchofjesuschrist.org/study/scriptures/tg/Spy?lang=eng)
+[Spy](https://churchofjesuschrist.org/study/scriptures/tg/spy?lang=eng)
 
 ### References
 - [[Genesis 42.9|Genesis 42:9]]

@@ -1,6 +1,6 @@
 # Man of God
 
-[Man of God](https://www.churchofjesuschrist.org/study/scriptures/tg/Man-of-God?lang=eng)
+[Man of God](https://churchofjesuschrist.org/study/scriptures/tg/man-of-god?lang=eng)
 
 ### References
 - [[Deuteronomy 33.1|Deuteronomy 33:1]]

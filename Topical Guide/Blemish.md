@@ -1,6 +1,6 @@
 # Blemish
 
-[Blemish](https://www.churchofjesuschrist.org/study/scriptures/tg/Blemish?lang=eng)
+[Blemish](https://churchofjesuschrist.org/study/scriptures/tg/blemish?lang=eng)
 
 ### References
 - [[Exodus 12.5|Exodus 12:5]]

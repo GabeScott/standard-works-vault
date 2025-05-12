@@ -1,6 +1,6 @@
 # Destroy
 
-[Destroy](https://www.churchofjesuschrist.org/study/scriptures/tg/Destroy?lang=eng)
+[Destroy](https://churchofjesuschrist.org/study/scriptures/tg/destroy?lang=eng)
 
 ### References
 - [[Genesis 18.23|Genesis 18:23]]

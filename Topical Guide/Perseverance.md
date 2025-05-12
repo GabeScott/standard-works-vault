@@ -1,6 +1,6 @@
 # Perseverance
 
-[Perseverance](https://www.churchofjesuschrist.org/study/scriptures/tg/Perseverance?lang=eng)
+[Perseverance](https://churchofjesuschrist.org/study/scriptures/tg/perseverance?lang=eng)
 
 ### References
 - [[Job 2.3|Job 2:3]]

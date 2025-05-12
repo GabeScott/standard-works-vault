@@ -1,6 +1,6 @@
 # Grave, Graven
 
-[Grave, Graven](https://www.churchofjesuschrist.org/study/scriptures/tg/Grave-Graven?lang=eng)
+[Grave, Graven](https://churchofjesuschrist.org/study/scriptures/tg/grave-verb?lang=eng)
 
 ### References
 - [[Exodus 20.4|Exodus 20:4]]

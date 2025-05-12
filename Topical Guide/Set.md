@@ -1,6 +1,6 @@
 # Set
 
-[Set](https://www.churchofjesuschrist.org/study/scriptures/tg/Set?lang=eng)
+[Set](https://churchofjesuschrist.org/study/scriptures/tg/set?lang=eng)
 
 ### References
 - [[Genesis 41.41|Genesis 41:41]]

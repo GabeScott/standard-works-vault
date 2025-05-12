@@ -1,6 +1,6 @@
 # Plan
 
-[Plan](https://www.churchofjesuschrist.org/study/scriptures/tg/Plan?lang=eng)
+[Plan](https://churchofjesuschrist.org/study/scriptures/tg/plan?lang=eng)
 
 ### References
 - [[2 Nephi 9.13|2 Nephi 9:13]]

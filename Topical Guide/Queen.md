@@ -1,6 +1,6 @@
 # Queen
 
-[Queen](https://www.churchofjesuschrist.org/study/scriptures/tg/Queen?lang=eng)
+[Queen](https://churchofjesuschrist.org/study/scriptures/tg/queen?lang=eng)
 
 ### References
 - [[1 Kings 10.1|1 Kings 10:1]]

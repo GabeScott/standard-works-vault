@@ -1,6 +1,6 @@
 # Repent, Repentance
 
-[Repent, Repentance](https://www.churchofjesuschrist.org/study/scriptures/tg/Repent-Repentance?lang=eng)
+[Repent, Repentance](https://churchofjesuschrist.org/study/scriptures/tg/repent?lang=eng)
 
 ### References
 - [[Genesis 6.6|Genesis 6:6]]

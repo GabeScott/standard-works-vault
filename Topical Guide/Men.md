@@ -1,6 +1,6 @@
 # Men
 
-[Men](https://www.churchofjesuschrist.org/study/scriptures/tg/Men?lang=eng)
+[Men](https://churchofjesuschrist.org/study/scriptures/tg/men?lang=eng)
 
 ### References
 - [[Genesis 18.2|Genesis 18:2]]

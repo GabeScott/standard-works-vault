@@ -1,6 +1,6 @@
 # Constrain
 
-[Constrain](https://www.churchofjesuschrist.org/study/scriptures/tg/Constrain?lang=eng)
+[Constrain](https://churchofjesuschrist.org/study/scriptures/tg/constrain?lang=eng)
 
 ### References
 - [[2 Kings 4.8|2 Kings 4:8]]

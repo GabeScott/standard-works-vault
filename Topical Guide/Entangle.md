@@ -1,6 +1,6 @@
 # Entangle
 
-[Entangle](https://www.churchofjesuschrist.org/study/scriptures/tg/Entangle?lang=eng)
+[Entangle](https://churchofjesuschrist.org/study/scriptures/tg/entangle?lang=eng)
 
 ### References
 - [[Matthew 22.15|Matthew 22:15]]

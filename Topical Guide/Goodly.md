@@ -1,6 +1,6 @@
 # Goodly
 
-[Goodly](https://www.churchofjesuschrist.org/study/scriptures/tg/Goodly?lang=eng)
+[Goodly](https://churchofjesuschrist.org/study/scriptures/tg/goodly?lang=eng)
 
 ### References
 - [[Genesis 39.6|Genesis 39:6]]

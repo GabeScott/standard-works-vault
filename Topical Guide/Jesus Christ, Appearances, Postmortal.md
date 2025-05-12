@@ -1,6 +1,6 @@
 # Jesus Christ, Appearances, Postmortal
 
-[Jesus Christ, Appearances, Postmortal](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Appearances-Postmortal?lang=eng)
+[Jesus Christ, Appearances, Postmortal](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-appearances-postmortal?lang=eng)
 
 ### References
 - [[Matthew 28.18|Matthew 28:18]]

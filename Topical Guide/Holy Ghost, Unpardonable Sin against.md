@@ -1,6 +1,6 @@
 # Holy Ghost, Unpardonable Sin against
 
-[Holy Ghost, Unpardonable Sin against](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Ghost-Unpardonable-Sin-against?lang=eng)
+[Holy Ghost, Unpardonable Sin against](https://churchofjesuschrist.org/study/scriptures/tg/holy-ghost-unpardonable-sin-against?lang=eng)
 
 ### References
 - [[Matthew 12.31|Matthew 12:31]]

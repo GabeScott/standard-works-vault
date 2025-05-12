@@ -1,6 +1,6 @@
 # Prevail
 
-[Prevail](https://www.churchofjesuschrist.org/study/scriptures/tg/Prevail?lang=eng)
+[Prevail](https://churchofjesuschrist.org/study/scriptures/tg/prevail?lang=eng)
 
 ### References
 - [[Genesis 32.28|Genesis 32:28]]

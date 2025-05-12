@@ -1,6 +1,6 @@
 # Unwise
 
-[Unwise](https://www.churchofjesuschrist.org/study/scriptures/tg/Unwise?lang=eng)
+[Unwise](https://churchofjesuschrist.org/study/scriptures/tg/unwise?lang=eng)
 
 ### References
 - [[Deuteronomy 32.6|Deuteronomy 32:6]]

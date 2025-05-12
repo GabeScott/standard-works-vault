@@ -1,6 +1,6 @@
 # Few
 
-[Few](https://www.churchofjesuschrist.org/study/scriptures/tg/Few?lang=eng)
+[Few](https://churchofjesuschrist.org/study/scriptures/tg/few?lang=eng)
 
 ### References
 - [[Deuteronomy 7.7|Deuteronomy 7:7]]

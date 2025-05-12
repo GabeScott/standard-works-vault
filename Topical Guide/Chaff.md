@@ -1,6 +1,6 @@
 # Chaff
 
-[Chaff](https://www.churchofjesuschrist.org/study/scriptures/tg/Chaff?lang=eng)
+[Chaff](https://churchofjesuschrist.org/study/scriptures/tg/chaff?lang=eng)
 
 ### References
 - [[Psalms 1.4|Psalms 1:4]]

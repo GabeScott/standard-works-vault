@@ -1,6 +1,6 @@
 # Mammon
 
-[Mammon](https://www.churchofjesuschrist.org/study/scriptures/tg/Mammon?lang=eng)
+[Mammon](https://churchofjesuschrist.org/study/scriptures/tg/mammon?lang=eng)
 
 ### References
 - [[Matthew 6.24|Matthew 6:24]]

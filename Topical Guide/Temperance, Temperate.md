@@ -1,6 +1,6 @@
 # Temperance, Temperate
 
-[Temperance, Temperate](https://www.churchofjesuschrist.org/study/scriptures/tg/Temperance-Temperate?lang=eng)
+[Temperance, Temperate](https://churchofjesuschrist.org/study/scriptures/tg/temperance?lang=eng)
 
 ### References
 - [[Proverbs 23.21|Proverbs 23:21]]

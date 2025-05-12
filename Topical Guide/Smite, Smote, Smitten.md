@@ -1,6 +1,6 @@
 # Smite, Smote, Smitten
 
-[Smite, Smote, Smitten](https://www.churchofjesuschrist.org/study/scriptures/tg/Smite-Smote-Smitten?lang=eng)
+[Smite, Smote, Smitten](https://churchofjesuschrist.org/study/scriptures/tg/smite?lang=eng)
 
 ### References
 - [[Genesis 8.21|Genesis 8:21]]

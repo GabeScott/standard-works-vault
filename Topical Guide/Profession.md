@@ -1,6 +1,6 @@
 # Profession
 
-[Profession](https://www.churchofjesuschrist.org/study/scriptures/tg/Profession?lang=eng)
+[Profession](https://churchofjesuschrist.org/study/scriptures/tg/profession?lang=eng)
 
 ### References
 - [[1 Timothy 6.12|1 Timothy 6:12]]

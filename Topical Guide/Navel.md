@@ -1,6 +1,6 @@
 # Navel
 
-[Navel](https://www.churchofjesuschrist.org/study/scriptures/tg/Navel?lang=eng)
+[Navel](https://churchofjesuschrist.org/study/scriptures/tg/navel?lang=eng)
 
 ### References
 - [[Proverbs 3.8|Proverbs 3:8]]

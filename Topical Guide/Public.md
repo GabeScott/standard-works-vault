@@ -1,6 +1,6 @@
 # Public
 
-[Public](https://www.churchofjesuschrist.org/study/scriptures/tg/Public?lang=eng)
+[Public](https://churchofjesuschrist.org/study/scriptures/tg/public?lang=eng)
 
 ### References
 - [[Matthew 1.19|Matthew 1:19]]

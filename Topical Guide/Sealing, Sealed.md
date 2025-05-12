@@ -1,6 +1,6 @@
 # Sealing, Sealed
 
-[Sealing, Sealed](https://www.churchofjesuschrist.org/study/scriptures/tg/Sealing-Sealed?lang=eng)
+[Sealing, Sealed](https://churchofjesuschrist.org/study/scriptures/tg/sealing?lang=eng)
 
 ### References
 - [[Isaiah 22.22|Isaiah 22:22]]

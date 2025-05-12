@@ -1,6 +1,6 @@
 # Mansion
 
-[Mansion](https://www.churchofjesuschrist.org/study/scriptures/tg/Mansion?lang=eng)
+[Mansion](https://churchofjesuschrist.org/study/scriptures/tg/mansion?lang=eng)
 
 ### References
 - [[John 14.2|John 14:2]]

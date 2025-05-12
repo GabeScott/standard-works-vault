@@ -1,6 +1,6 @@
 # Soft, Softer
 
-[Soft, Softer](https://www.churchofjesuschrist.org/study/scriptures/tg/Soft-Softer?lang=eng)
+[Soft, Softer](https://churchofjesuschrist.org/study/scriptures/tg/soft?lang=eng)
 
 ### References
 - [[Psalms 55.21|Psalms 55:21]]

@@ -1,6 +1,6 @@
 # Abode
 
-[Abode](https://www.churchofjesuschrist.org/study/scriptures/tg/Abode?lang=eng)
+[Abode](https://churchofjesuschrist.org/study/scriptures/tg/abode?lang=eng)
 
 ### References
 - [[2 Kings 19.27|2 Kings 19:27]]

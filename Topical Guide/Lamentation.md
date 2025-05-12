@@ -1,6 +1,6 @@
 # Lamentation
 
-[Lamentation](https://www.churchofjesuschrist.org/study/scriptures/tg/Lamentation?lang=eng)
+[Lamentation](https://churchofjesuschrist.org/study/scriptures/tg/lamentation?lang=eng)
 
 ### References
 - [[2 Samuel 1.17|2 Samuel 1:17]]

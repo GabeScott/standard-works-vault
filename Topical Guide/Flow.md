@@ -1,6 +1,6 @@
 # Flow
 
-[Flow](https://www.churchofjesuschrist.org/study/scriptures/tg/Flow?lang=eng)
+[Flow](https://churchofjesuschrist.org/study/scriptures/tg/flow?lang=eng)
 
 ### References
 - [[Exodus 13.5|Exodus 13:5]]

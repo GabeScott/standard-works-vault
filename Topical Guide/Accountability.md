@@ -1,6 +1,6 @@
 # Accountability
 
-[Accountability](https://www.churchofjesuschrist.org/study/scriptures/tg/Accountability?lang=eng)
+[Accountability](https://churchofjesuschrist.org/study/scriptures/tg/accountability?lang=eng)
 
 ### References
 - [[Exodus 20.5|Exodus 20:5]]

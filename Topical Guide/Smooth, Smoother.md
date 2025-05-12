@@ -1,6 +1,6 @@
 # Smooth, Smoother
 
-[Smooth, Smoother](https://www.churchofjesuschrist.org/study/scriptures/tg/Smooth-Smoother?lang=eng)
+[Smooth, Smoother](https://churchofjesuschrist.org/study/scriptures/tg/smooth?lang=eng)
 
 ### References
 - [[Genesis 27.11|Genesis 27:11]]

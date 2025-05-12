@@ -1,6 +1,6 @@
 # Scriptures, Writing of
 
-[Scriptures, Writing of](https://www.churchofjesuschrist.org/study/scriptures/tg/Scriptures-Writing-of?lang=eng)
+[Scriptures, Writing of](https://churchofjesuschrist.org/study/scriptures/tg/scriptures-writing-of?lang=eng)
 
 ### References
 - [[Genesis 5.1|Genesis 5:1]]

@@ -1,6 +1,6 @@
 # Eden
 
-[Eden](https://www.churchofjesuschrist.org/study/scriptures/tg/Eden?lang=eng)
+[Eden](https://churchofjesuschrist.org/study/scriptures/tg/eden?lang=eng)
 
 ### References
 - [[Genesis 2.10|Genesis 2:10]]

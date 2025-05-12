@@ -1,6 +1,6 @@
 # Best
 
-[Best](https://www.churchofjesuschrist.org/study/scriptures/tg/Best?lang=eng)
+[Best](https://churchofjesuschrist.org/study/scriptures/tg/best?lang=eng)
 
 ### References
 - [[1 Corinthians 12.31|1 Corinthians 12:31]]

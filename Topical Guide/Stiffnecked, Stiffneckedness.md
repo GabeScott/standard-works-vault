@@ -1,6 +1,6 @@
 # Stiffnecked, Stiffneckedness
 
-[Stiffnecked, Stiffneckedness](https://www.churchofjesuschrist.org/study/scriptures/tg/Stiffnecked-Stiffneckedness?lang=eng)
+[Stiffnecked, Stiffneckedness](https://churchofjesuschrist.org/study/scriptures/tg/stiffnecked?lang=eng)
 
 ### References
 - [[Exodus 32.9|Exodus 32:9]]

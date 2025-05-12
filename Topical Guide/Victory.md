@@ -1,6 +1,6 @@
 # Victory
 
-[Victory](https://www.churchofjesuschrist.org/study/scriptures/tg/Victory?lang=eng)
+[Victory](https://churchofjesuschrist.org/study/scriptures/tg/victory?lang=eng)
 
 ### References
 - [[2 Samuel 23.10|2 Samuel 23:10]]

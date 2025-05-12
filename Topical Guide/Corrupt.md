@@ -1,6 +1,6 @@
 # Corrupt
 
-[Corrupt](https://www.churchofjesuschrist.org/study/scriptures/tg/Corrupt?lang=eng)
+[Corrupt](https://churchofjesuschrist.org/study/scriptures/tg/corrupt?lang=eng)
 
 ### References
 - [[Genesis 6.11|Genesis 6:11]]

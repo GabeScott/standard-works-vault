@@ -1,6 +1,6 @@
 # Israel, Judah, People of
 
-[Israel, Judah, People of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Judah-People-of?lang=eng)
+[Israel, Judah, People of](https://churchofjesuschrist.org/study/scriptures/tg/israel-judah-people-of?lang=eng)
 
 ### References
 - [[Genesis 29.35|Genesis 29:35]]

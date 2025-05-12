@@ -1,6 +1,6 @@
 # Controversy
 
-[Controversy](https://www.churchofjesuschrist.org/study/scriptures/tg/Controversy?lang=eng)
+[Controversy](https://churchofjesuschrist.org/study/scriptures/tg/controversy?lang=eng)
 
 ### References
 - [[Deuteronomy 17.8|Deuteronomy 17:8]]

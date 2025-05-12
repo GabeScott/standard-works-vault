@@ -1,6 +1,6 @@
 # Lightly
 
-[Lightly](https://www.churchofjesuschrist.org/study/scriptures/tg/Lightly?lang=eng)
+[Lightly](https://churchofjesuschrist.org/study/scriptures/tg/lightly?lang=eng)
 
 ### References
 - [[Deuteronomy 32.15|Deuteronomy 32:15]]

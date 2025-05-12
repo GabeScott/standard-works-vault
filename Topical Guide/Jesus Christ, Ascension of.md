@@ -1,6 +1,6 @@
 # Jesus Christ, Ascension of
 
-[Jesus Christ, Ascension of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Ascension-of?lang=eng)
+[Jesus Christ, Ascension of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-ascension-of?lang=eng)
 
 ### References
 - [[Luke 24.51|Luke 24:51]]

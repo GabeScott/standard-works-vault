@@ -1,6 +1,6 @@
 # Wilderness
 
-[Wilderness](https://www.churchofjesuschrist.org/study/scriptures/tg/Wilderness?lang=eng)
+[Wilderness](https://churchofjesuschrist.org/study/scriptures/tg/wilderness?lang=eng)
 
 ### References
 - [[Exodus 19.1|Exodus 19:1]]

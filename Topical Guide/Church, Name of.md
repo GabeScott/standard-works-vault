@@ -1,6 +1,6 @@
 # Church, Name of
 
-[Church, Name of](https://www.churchofjesuschrist.org/study/scriptures/tg/Church-Name-of?lang=eng)
+[Church, Name of](https://churchofjesuschrist.org/study/scriptures/tg/church-name-of?lang=eng)
 
 ### References
 - [[1 Corinthians 1.12|1 Corinthians 1:12]]

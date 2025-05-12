@@ -1,6 +1,6 @@
 # God, Gifts of
 
-[God, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Gifts-of?lang=eng)
+[God, Gifts of](https://churchofjesuschrist.org/study/scriptures/tg/god-gifts-of?lang=eng)
 
 ### References
 - [[Genesis 17.16|Genesis 17:16]]

@@ -1,6 +1,6 @@
 # Swallow
 
-[Swallow](https://www.churchofjesuschrist.org/study/scriptures/tg/Swallow?lang=eng)
+[Swallow](https://churchofjesuschrist.org/study/scriptures/tg/swallow?lang=eng)
 
 ### References
 - [[Exodus 7.12|Exodus 7:12]]

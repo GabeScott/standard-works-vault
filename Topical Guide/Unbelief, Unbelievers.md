@@ -1,6 +1,6 @@
 # Unbelief, Unbelievers
 
-[Unbelief, Unbelievers](https://www.churchofjesuschrist.org/study/scriptures/tg/Unbelief-Unbelievers?lang=eng)
+[Unbelief, Unbelievers](https://churchofjesuschrist.org/study/scriptures/tg/unbelief?lang=eng)
 
 ### References
 - [[Exodus 4.1|Exodus 4:1]]

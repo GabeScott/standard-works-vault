@@ -1,6 +1,6 @@
 # Pen
 
-[Pen](https://www.churchofjesuschrist.org/study/scriptures/tg/Pen?lang=eng)
+[Pen](https://churchofjesuschrist.org/study/scriptures/tg/pen?lang=eng)
 
 ### References
 - [[Judges 5.14|Judges 5:14]]

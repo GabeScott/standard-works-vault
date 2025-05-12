@@ -1,6 +1,6 @@
 # Winebibber
 
-[Winebibber](https://www.churchofjesuschrist.org/study/scriptures/tg/Winebibber?lang=eng)
+[Winebibber](https://churchofjesuschrist.org/study/scriptures/tg/winebibber?lang=eng)
 
 ### References
 - [[Proverbs 23.20|Proverbs 23:20]]

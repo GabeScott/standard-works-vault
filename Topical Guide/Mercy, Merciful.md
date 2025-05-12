@@ -1,6 +1,6 @@
 # Mercy, Merciful
 
-[Mercy, Merciful](https://www.churchofjesuschrist.org/study/scriptures/tg/Mercy-Merciful?lang=eng)
+[Mercy, Merciful](https://churchofjesuschrist.org/study/scriptures/tg/mercy?lang=eng)
 
 ### References
 - [[Exodus 20.6|Exodus 20:6]]

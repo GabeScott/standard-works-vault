@@ -1,6 +1,6 @@
 # Sweep, Swept
 
-[Sweep, Swept](https://www.churchofjesuschrist.org/study/scriptures/tg/Sweep-Swept?lang=eng)
+[Sweep, Swept](https://churchofjesuschrist.org/study/scriptures/tg/sweep?lang=eng)
 
 ### References
 - [[Isaiah 28.17|Isaiah 28:17]]

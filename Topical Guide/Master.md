@@ -1,6 +1,6 @@
 # Master
 
-[Master](https://www.churchofjesuschrist.org/study/scriptures/tg/Master?lang=eng)
+[Master](https://churchofjesuschrist.org/study/scriptures/tg/master?lang=eng)
 
 ### References
 - [[Genesis 39.3|Genesis 39:3]]

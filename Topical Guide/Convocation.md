@@ -1,6 +1,6 @@
 # Convocation
 
-[Convocation](https://www.churchofjesuschrist.org/study/scriptures/tg/Convocation?lang=eng)
+[Convocation](https://churchofjesuschrist.org/study/scriptures/tg/convocation?lang=eng)
 
 ### References
 - [[Exodus 12.16|Exodus 12:16]]

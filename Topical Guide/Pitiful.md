@@ -1,6 +1,6 @@
 # Pitiful
 
-[Pitiful](https://www.churchofjesuschrist.org/study/scriptures/tg/Pitiful?lang=eng)
+[Pitiful](https://churchofjesuschrist.org/study/scriptures/tg/pitiful?lang=eng)
 
 ### References
 - [[Lamentations 4.10|Lamentations 4:10]]

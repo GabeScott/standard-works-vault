@@ -1,6 +1,6 @@
 # Statute
 
-[Statute](https://www.churchofjesuschrist.org/study/scriptures/tg/Statute?lang=eng)
+[Statute](https://churchofjesuschrist.org/study/scriptures/tg/statute?lang=eng)
 
 ### References
 - [[Exodus 27.21|Exodus 27:21]]

@@ -1,6 +1,6 @@
 # Water
 
-[Water](https://www.churchofjesuschrist.org/study/scriptures/tg/Water?lang=eng)
+[Water](https://churchofjesuschrist.org/study/scriptures/tg/living-water?lang=eng)
 
 ### References
 - [[Genesis 1.2|Genesis 1:2]]

@@ -1,6 +1,6 @@
 # Violence
 
-[Violence](https://www.churchofjesuschrist.org/study/scriptures/tg/Violence?lang=eng)
+[Violence](https://churchofjesuschrist.org/study/scriptures/tg/violence?lang=eng)
 
 ### References
 - [[Genesis 6.11|Genesis 6:11]]

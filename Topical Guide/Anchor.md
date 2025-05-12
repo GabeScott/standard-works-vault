@@ -1,6 +1,6 @@
 # Anchor
 
-[Anchor](https://www.churchofjesuschrist.org/study/scriptures/tg/Anchor?lang=eng)
+[Anchor](https://churchofjesuschrist.org/study/scriptures/tg/anchor?lang=eng)
 
 ### References
 - [[Hebrews 6.19|Hebrews 6:19]]

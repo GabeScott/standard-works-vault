@@ -1,6 +1,6 @@
 # Unequal, Unequally
 
-[Unequal, Unequally](https://www.churchofjesuschrist.org/study/scriptures/tg/Unequal-Unequally?lang=eng)
+[Unequal, Unequally](https://churchofjesuschrist.org/study/scriptures/tg/unequal?lang=eng)
 
 ### References
 - [[Ezekiel 18.25|Ezekiel 18:25]]

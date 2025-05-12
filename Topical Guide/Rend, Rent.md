@@ -1,6 +1,6 @@
 # Rend, Rent
 
-[Rend, Rent](https://www.churchofjesuschrist.org/study/scriptures/tg/Rend-Rent?lang=eng)
+[Rend, Rent](https://churchofjesuschrist.org/study/scriptures/tg/rend?lang=eng)
 
 ### References
 - [[Genesis 37.33|Genesis 37:33]]

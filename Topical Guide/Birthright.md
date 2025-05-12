@@ -1,6 +1,6 @@
 # Birthright
 
-[Birthright](https://www.churchofjesuschrist.org/study/scriptures/tg/Birthright?lang=eng)
+[Birthright](https://churchofjesuschrist.org/study/scriptures/tg/birthright?lang=eng)
 
 ### References
 - [[Genesis 25.31|Genesis 25:31]]

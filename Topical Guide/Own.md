@@ -1,6 +1,6 @@
 # Own
 
-[Own](https://www.churchofjesuschrist.org/study/scriptures/tg/Own?lang=eng)
+[Own](https://churchofjesuschrist.org/study/scriptures/tg/own?lang=eng)
 
 ### References
 - [[Deuteronomy 24.16|Deuteronomy 24:16]]

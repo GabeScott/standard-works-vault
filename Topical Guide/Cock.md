@@ -1,6 +1,6 @@
 # Cock
 
-[Cock](https://www.churchofjesuschrist.org/study/scriptures/tg/Cock?lang=eng)
+[Cock](https://churchofjesuschrist.org/study/scriptures/tg/cock?lang=eng)
 
 ### References
 - [[Matthew 26.34|Matthew 26:34]]

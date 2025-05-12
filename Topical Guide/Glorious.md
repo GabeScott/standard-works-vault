@@ -1,6 +1,6 @@
 # Glorious
 
-[Glorious](https://www.churchofjesuschrist.org/study/scriptures/tg/Glorious?lang=eng)
+[Glorious](https://churchofjesuschrist.org/study/scriptures/tg/glorious?lang=eng)
 
 ### References
 - [[Deuteronomy 28.58|Deuteronomy 28:58]]

@@ -1,6 +1,6 @@
 # Doubt, Doubtful
 
-[Doubt, Doubtful](https://www.churchofjesuschrist.org/study/scriptures/tg/Doubt-Doubtful?lang=eng)
+[Doubt, Doubtful](https://churchofjesuschrist.org/study/scriptures/tg/doubt?lang=eng)
 
 ### References
 - [[Exodus 17.2|Exodus 17:2]]

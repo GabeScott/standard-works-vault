@@ -1,6 +1,6 @@
 # Chief
 
-[Chief](https://www.churchofjesuschrist.org/study/scriptures/tg/Chief?lang=eng)
+[Chief](https://churchofjesuschrist.org/study/scriptures/tg/chief?lang=eng)
 
 ### References
 - [[1 Kings 8.1|1 Kings 8:1]]

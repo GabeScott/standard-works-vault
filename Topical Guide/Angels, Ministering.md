@@ -1,6 +1,6 @@
 # Angels, Ministering
 
-[Angels, Ministering](https://www.churchofjesuschrist.org/study/scriptures/tg/Angels-Ministering?lang=eng)
+[Angels, Ministering](https://churchofjesuschrist.org/study/scriptures/tg/angels-ministering?lang=eng)
 
 ### References
 - [[Psalms 104.4|Psalms 104:4]]

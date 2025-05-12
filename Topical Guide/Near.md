@@ -1,6 +1,6 @@
 # Near
 
-[Near](https://www.churchofjesuschrist.org/study/scriptures/tg/Near?lang=eng)
+[Near](https://churchofjesuschrist.org/study/scriptures/tg/near?lang=eng)
 
 ### References
 - [[Proverbs 27.10|Proverbs 27:10]]

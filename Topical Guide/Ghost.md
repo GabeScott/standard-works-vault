@@ -1,6 +1,6 @@
 # Ghost
 
-[Ghost](https://www.churchofjesuschrist.org/study/scriptures/tg/Ghost?lang=eng)
+[Ghost](https://churchofjesuschrist.org/study/scriptures/tg/ghost?lang=eng)
 
 ### References
 - [[Genesis 49.33|Genesis 49:33]]

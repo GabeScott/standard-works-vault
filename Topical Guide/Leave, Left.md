@@ -1,6 +1,6 @@
 # Leave, Left
 
-[Leave, Left](https://www.churchofjesuschrist.org/study/scriptures/tg/Leave-Left?lang=eng)
+[Leave, Left](https://churchofjesuschrist.org/study/scriptures/tg/leave?lang=eng)
 
 ### References
 - [[Genesis 2.24|Genesis 2:24]]

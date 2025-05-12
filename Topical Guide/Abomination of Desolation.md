@@ -1,6 +1,6 @@
 # Abomination of Desolation
 
-[Abomination of Desolation](https://www.churchofjesuschrist.org/study/scriptures/tg/Abomination-of-Desolation?lang=eng)
+[Abomination of Desolation](https://churchofjesuschrist.org/study/scriptures/tg/abomination-of-desolation?lang=eng)
 
 ### References
 - [[Daniel 11.31|Daniel 11:31]]

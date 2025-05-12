@@ -1,6 +1,6 @@
 # Ride, Rode
 
-[Ride, Rode](https://www.churchofjesuschrist.org/study/scriptures/tg/Ride-Rode?lang=eng)
+[Ride, Rode](https://churchofjesuschrist.org/study/scriptures/tg/ride?lang=eng)
 
 ### References
 - [[Numbers 22.22|Numbers 22:22]]

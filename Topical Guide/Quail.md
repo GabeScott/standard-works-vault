@@ -1,6 +1,6 @@
 # Quail
 
-[Quail](https://www.churchofjesuschrist.org/study/scriptures/tg/Quail?lang=eng)
+[Quail](https://churchofjesuschrist.org/study/scriptures/tg/quail?lang=eng)
 
 ### References
 - [[Exodus 16.13|Exodus 16:13]]

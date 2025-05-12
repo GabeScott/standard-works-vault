@@ -1,6 +1,6 @@
 # Needle
 
-[Needle](https://www.churchofjesuschrist.org/study/scriptures/tg/Needle?lang=eng)
+[Needle](https://churchofjesuschrist.org/study/scriptures/tg/needle?lang=eng)
 
 ### References
 - [[Matthew 19.24|Matthew 19:24]]

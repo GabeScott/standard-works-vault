@@ -1,6 +1,6 @@
 # Forget, Forgat, Forgot, Forgotten
 
-[Forget, Forgat, Forgot, Forgotten](https://www.churchofjesuschrist.org/study/scriptures/tg/Forget-Forgat-Forgot-Forgotten?lang=eng)
+[Forget, Forgat, Forgot, Forgotten](https://churchofjesuschrist.org/study/scriptures/tg/forget?lang=eng)
 
 ### References
 - [[Genesis 40.23|Genesis 40:23]]

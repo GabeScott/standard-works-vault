@@ -1,6 +1,6 @@
 # Gnash, Gnashing
 
-[Gnash, Gnashing](https://www.churchofjesuschrist.org/study/scriptures/tg/Gnash-Gnashing?lang=eng)
+[Gnash, Gnashing](https://churchofjesuschrist.org/study/scriptures/tg/gnash?lang=eng)
 
 ### References
 - [[Psalms 112.10|Psalms 112:10]]

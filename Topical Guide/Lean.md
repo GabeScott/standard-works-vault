@@ -1,6 +1,6 @@
 # Lean
 
-[Lean](https://www.churchofjesuschrist.org/study/scriptures/tg/Lean?lang=eng)
+[Lean](https://churchofjesuschrist.org/study/scriptures/tg/lean?lang=eng)
 
 ### References
 - [[Judges 16.26|Judges 16:26]]

@@ -1,6 +1,6 @@
 # Speak, Spake, Spoken
 
-[Speak, Spake, Spoken](https://www.churchofjesuschrist.org/study/scriptures/tg/Speak-Spake-Spoken?lang=eng)
+[Speak, Spake, Spoken](https://churchofjesuschrist.org/study/scriptures/tg/speak?lang=eng)
 
 ### References
 - [[Genesis 24.50|Genesis 24:50]]

@@ -1,6 +1,6 @@
 # Trust
 
-[Trust](https://www.churchofjesuschrist.org/study/scriptures/tg/Trust?lang=eng)
+[Trust](https://churchofjesuschrist.org/study/scriptures/tg/trust?lang=eng)
 
 ### References
 - [[Psalms 49.6|Psalms 49:6]]

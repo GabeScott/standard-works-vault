@@ -1,6 +1,6 @@
 # Cloud
 
-[Cloud](https://www.churchofjesuschrist.org/study/scriptures/tg/Cloud?lang=eng)
+[Cloud](https://churchofjesuschrist.org/study/scriptures/tg/cloud?lang=eng)
 
 ### References
 - [[Genesis 9.13|Genesis 9:13]]

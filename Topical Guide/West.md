@@ -1,6 +1,6 @@
 # West
 
-[West](https://www.churchofjesuschrist.org/study/scriptures/tg/West?lang=eng)
+[West](https://churchofjesuschrist.org/study/scriptures/tg/west?lang=eng)
 
 ### References
 - [[Matthew 8.11|Matthew 8:11]]

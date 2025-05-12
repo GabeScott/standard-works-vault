@@ -1,6 +1,6 @@
 # Unrighteous Dominion
 
-[Unrighteous Dominion](https://www.churchofjesuschrist.org/study/scriptures/tg/Unrighteous-Dominion?lang=eng)
+[Unrighteous Dominion](https://churchofjesuschrist.org/study/scriptures/tg/unrighteous-dominion?lang=eng)
 
 ### References
 - [[1 Samuel 13.13|1 Samuel 13:13]]

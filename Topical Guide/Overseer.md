@@ -1,6 +1,6 @@
 # Overseer
 
-[Overseer](https://www.churchofjesuschrist.org/study/scriptures/tg/Overseer?lang=eng)
+[Overseer](https://churchofjesuschrist.org/study/scriptures/tg/overseer?lang=eng)
 
 ### References
 - [[Genesis 39.4|Genesis 39:4]]

@@ -1,6 +1,6 @@
 # Man, Potential to Become like Heavenly Father
 
-[Man, Potential to Become like Heavenly Father](https://www.churchofjesuschrist.org/study/scriptures/tg/Man-Potential-to-Become-like-Heavenly-Father?lang=eng)
+[Man, Potential to Become like Heavenly Father](https://churchofjesuschrist.org/study/scriptures/tg/man-potential-to-become-like-heavenly-father?lang=eng)
 
 ### References
 - [[Genesis 1.26|Genesis 1:26]]

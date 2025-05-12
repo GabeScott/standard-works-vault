@@ -1,6 +1,6 @@
 # Sharp, Sharper, Sharply, Sharpness
 
-[Sharp, Sharper, Sharply, Sharpness](https://www.churchofjesuschrist.org/study/scriptures/tg/Sharp-Sharper-Sharply-Sharpness?lang=eng)
+[Sharp, Sharper, Sharply, Sharpness](https://churchofjesuschrist.org/study/scriptures/tg/sharp?lang=eng)
 
 ### References
 - [[Exodus 4.25|Exodus 4:25]]

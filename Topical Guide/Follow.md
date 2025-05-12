@@ -1,6 +1,6 @@
 # Follow
 
-[Follow](https://www.churchofjesuschrist.org/study/scriptures/tg/Follow?lang=eng)
+[Follow](https://churchofjesuschrist.org/study/scriptures/tg/follow?lang=eng)
 
 ### References
 - [[Exodus 23.2|Exodus 23:2]]

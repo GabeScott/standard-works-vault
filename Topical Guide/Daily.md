@@ -1,6 +1,6 @@
 # Daily
 
-[Daily](https://www.churchofjesuschrist.org/study/scriptures/tg/Daily?lang=eng)
+[Daily](https://churchofjesuschrist.org/study/scriptures/tg/daily?lang=eng)
 
 ### References
 - [[Exodus 16.5|Exodus 16:5]]

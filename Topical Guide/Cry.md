@@ -1,6 +1,6 @@
 # Cry
 
-[Cry](https://www.churchofjesuschrist.org/study/scriptures/tg/Cry?lang=eng)
+[Cry](https://churchofjesuschrist.org/study/scriptures/tg/cry?lang=eng)
 
 ### References
 - [[Genesis 18.20|Genesis 18:20]]

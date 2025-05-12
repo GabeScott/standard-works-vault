@@ -1,6 +1,6 @@
 # Muzzle
 
-[Muzzle](https://www.churchofjesuschrist.org/study/scriptures/tg/Muzzle?lang=eng)
+[Muzzle](https://churchofjesuschrist.org/study/scriptures/tg/muzzle?lang=eng)
 
 ### References
 - [[Deuteronomy 25.4|Deuteronomy 25:4]]

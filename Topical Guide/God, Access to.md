@@ -1,6 +1,6 @@
 # God, Access to
 
-[God, Access to](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Access-to?lang=eng)
+[God, Access to](https://churchofjesuschrist.org/study/scriptures/tg/god-access-to?lang=eng)
 
 ### References
 - [[Genesis 18.22|Genesis 18:22]]

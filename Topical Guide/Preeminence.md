@@ -1,6 +1,6 @@
 # Preeminence
 
-[Preeminence](https://www.churchofjesuschrist.org/study/scriptures/tg/Preeminence?lang=eng)
+[Preeminence](https://churchofjesuschrist.org/study/scriptures/tg/preeminence?lang=eng)
 
 ### References
 - [[Ecclesiastes 3.19|Ecclesiastes 3:19]]

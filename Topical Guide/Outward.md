@@ -1,6 +1,6 @@
 # Outward
 
-[Outward](https://www.churchofjesuschrist.org/study/scriptures/tg/Outward?lang=eng)
+[Outward](https://churchofjesuschrist.org/study/scriptures/tg/outward?lang=eng)
 
 ### References
 - [[1 Samuel 16.7|1 Samuel 16:7]]

@@ -1,6 +1,6 @@
 # Jesus Christ, Birth of
 
-[Jesus Christ, Birth of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Birth-of?lang=eng)
+[Jesus Christ, Birth of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-birth-of?lang=eng)
 
 ### References
 - [[Isaiah 7.14|Isaiah 7:14]]

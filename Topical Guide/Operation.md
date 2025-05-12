@@ -1,6 +1,6 @@
 # Operation
 
-[Operation](https://www.churchofjesuschrist.org/study/scriptures/tg/Operation?lang=eng)
+[Operation](https://churchofjesuschrist.org/study/scriptures/tg/operation?lang=eng)
 
 ### References
 - [[Psalms 28.5|Psalms 28:5]]

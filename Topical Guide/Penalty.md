@@ -1,6 +1,6 @@
 # Penalty
 
-[Penalty](https://www.churchofjesuschrist.org/study/scriptures/tg/Penalty?lang=eng)
+[Penalty](https://churchofjesuschrist.org/study/scriptures/tg/penalty?lang=eng)
 
 ### References
 - [[Alma 12.32|Alma 12:32]]

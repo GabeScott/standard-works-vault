@@ -1,6 +1,6 @@
 # Elder
 
-[Elder](https://www.churchofjesuschrist.org/study/scriptures/tg/Elder?lang=eng)
+[Elder](https://churchofjesuschrist.org/study/scriptures/tg/elder?lang=eng)
 
 ### References
 - [[Genesis 25.23|Genesis 25:23]]

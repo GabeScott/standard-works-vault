@@ -1,6 +1,6 @@
 # Remember
 
-[Remember](https://www.churchofjesuschrist.org/study/scriptures/tg/Remember?lang=eng)
+[Remember](https://churchofjesuschrist.org/study/scriptures/tg/remember?lang=eng)
 
 ### References
 - [[Genesis 19.29|Genesis 19:29]]

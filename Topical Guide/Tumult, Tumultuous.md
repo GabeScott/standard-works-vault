@@ -1,6 +1,6 @@
 # Tumult, Tumultuous
 
-[Tumult, Tumultuous](https://www.churchofjesuschrist.org/study/scriptures/tg/Tumult-Tumultuous?lang=eng)
+[Tumult, Tumultuous](https://churchofjesuschrist.org/study/scriptures/tg/tumult?lang=eng)
 
 ### References
 - [[1 Samuel 4.14|1 Samuel 4:14]]

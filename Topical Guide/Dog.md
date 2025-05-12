@@ -1,6 +1,6 @@
 # Dog
 
-[Dog](https://www.churchofjesuschrist.org/study/scriptures/tg/Dog?lang=eng)
+[Dog](https://churchofjesuschrist.org/study/scriptures/tg/dog?lang=eng)
 
 ### References
 - [[Judges 7.5|Judges 7:5]]

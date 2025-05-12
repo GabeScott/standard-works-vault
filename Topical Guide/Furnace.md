@@ -1,6 +1,6 @@
 # Furnace
 
-[Furnace](https://www.churchofjesuschrist.org/study/scriptures/tg/Furnace?lang=eng)
+[Furnace](https://churchofjesuschrist.org/study/scriptures/tg/furnace?lang=eng)
 
 ### References
 - [[Deuteronomy 4.20|Deuteronomy 4:20]]

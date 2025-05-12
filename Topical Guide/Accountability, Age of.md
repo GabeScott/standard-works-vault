@@ -1,6 +1,6 @@
 # Accountability, Age of
 
-[Accountability, Age of](https://www.churchofjesuschrist.org/study/scriptures/tg/Accountability-Age-of?lang=eng)
+[Accountability, Age of](https://churchofjesuschrist.org/study/scriptures/tg/accountability-age-of?lang=eng)
 
 ### References
 - [[Moroni 8.10|Moroni 8:10]]

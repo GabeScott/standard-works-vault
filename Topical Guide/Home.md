@@ -1,6 +1,6 @@
 # Home
 
-[Home](https://www.churchofjesuschrist.org/study/scriptures/tg/Home?lang=eng)
+[Home](https://churchofjesuschrist.org/study/scriptures/tg/home?lang=eng)
 
 ### References
 - [[Deuteronomy 24.5|Deuteronomy 24:5]]

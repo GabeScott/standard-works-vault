@@ -1,6 +1,6 @@
 # Act
 
-[Act](https://www.churchofjesuschrist.org/study/scriptures/tg/Act?lang=eng)
+[Act](https://churchofjesuschrist.org/study/scriptures/tg/act?lang=eng)
 
 ### References
 - [[Isaiah 28.21|Isaiah 28:21]]

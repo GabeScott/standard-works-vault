@@ -1,6 +1,6 @@
 # Refuge
 
-[Refuge](https://www.churchofjesuschrist.org/study/scriptures/tg/Refuge?lang=eng)
+[Refuge](https://churchofjesuschrist.org/study/scriptures/tg/cities-of-refuge?lang=eng)
 
 ### References
 - [[Numbers 35.6|Numbers 35:6]]

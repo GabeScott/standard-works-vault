@@ -1,6 +1,6 @@
 # Spirit
 
-[Spirit](https://www.churchofjesuschrist.org/study/scriptures/tg/Spirit?lang=eng)
+[Spirit](https://churchofjesuschrist.org/study/scriptures/tg/birth-of-the-spirit?lang=eng)
 
 ### References
 - [[Genesis 1.2|Genesis 1:2]]

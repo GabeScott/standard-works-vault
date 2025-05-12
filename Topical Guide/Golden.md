@@ -1,6 +1,6 @@
 # Golden
 
-[Golden](https://www.churchofjesuschrist.org/study/scriptures/tg/Golden?lang=eng)
+[Golden](https://churchofjesuschrist.org/study/scriptures/tg/golden?lang=eng)
 
 ### References
 - [[Exodus 32.2|Exodus 32:2]]

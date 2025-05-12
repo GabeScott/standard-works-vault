@@ -1,6 +1,6 @@
 # Rest
 
-[Rest](https://www.churchofjesuschrist.org/study/scriptures/tg/Rest?lang=eng)
+[Rest](https://churchofjesuschrist.org/study/scriptures/tg/rest?lang=eng)
 
 ### References
 - [[Genesis 2.2|Genesis 2:2]]

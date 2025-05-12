@@ -1,6 +1,6 @@
 # Word
 
-[Word](https://www.churchofjesuschrist.org/study/scriptures/tg/Word?lang=eng)
+[Word](https://churchofjesuschrist.org/study/scriptures/tg/word?lang=eng)
 
 ### References
 - [[Exodus 20.1|Exodus 20:1]]

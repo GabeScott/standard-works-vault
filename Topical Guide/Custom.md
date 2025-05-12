@@ -1,6 +1,6 @@
 # Custom
 
-[Custom](https://www.churchofjesuschrist.org/study/scriptures/tg/Custom?lang=eng)
+[Custom](https://churchofjesuschrist.org/study/scriptures/tg/custom?lang=eng)
 
 ### References
 - [[Jeremiah 10.3|Jeremiah 10:3]]

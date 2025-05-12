@@ -1,6 +1,6 @@
 # Feast
 
-[Feast](https://www.churchofjesuschrist.org/study/scriptures/tg/Feast?lang=eng)
+[Feast](https://churchofjesuschrist.org/study/scriptures/tg/feast?lang=eng)
 
 ### References
 - [[Genesis 19.3|Genesis 19:3]]

@@ -1,6 +1,6 @@
 # Beset
 
-[Beset](https://www.churchofjesuschrist.org/study/scriptures/tg/Beset?lang=eng)
+[Beset](https://churchofjesuschrist.org/study/scriptures/tg/beset?lang=eng)
 
 ### References
 - [[Hebrews 12.1|Hebrews 12:1]]

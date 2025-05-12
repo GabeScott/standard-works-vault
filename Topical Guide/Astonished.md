@@ -1,6 +1,6 @@
 # Astonished
 
-[Astonished](https://www.churchofjesuschrist.org/study/scriptures/tg/Astonished?lang=eng)
+[Astonished](https://churchofjesuschrist.org/study/scriptures/tg/astonished?lang=eng)
 
 ### References
 - [[Daniel 8.27|Daniel 8:27]]

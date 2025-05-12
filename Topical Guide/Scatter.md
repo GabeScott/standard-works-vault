@@ -1,6 +1,6 @@
 # Scatter
 
-[Scatter](https://www.churchofjesuschrist.org/study/scriptures/tg/Scatter?lang=eng)
+[Scatter](https://churchofjesuschrist.org/study/scriptures/tg/scatter?lang=eng)
 
 ### References
 - [[Genesis 11.4|Genesis 11:4]]

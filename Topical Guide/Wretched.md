@@ -1,6 +1,6 @@
 # Wretched
 
-[Wretched](https://www.churchofjesuschrist.org/study/scriptures/tg/Wretched?lang=eng)
+[Wretched](https://churchofjesuschrist.org/study/scriptures/tg/wretched?lang=eng)
 
 ### References
 - [[Romans 7.24|Romans 7:24]]

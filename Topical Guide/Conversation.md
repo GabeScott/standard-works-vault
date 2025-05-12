@@ -1,6 +1,6 @@
 # Conversation
 
-[Conversation](https://www.churchofjesuschrist.org/study/scriptures/tg/Conversation?lang=eng)
+[Conversation](https://churchofjesuschrist.org/study/scriptures/tg/conversation?lang=eng)
 
 ### References
 - [[2 Corinthians 1.12|2 Corinthians 1:12]]

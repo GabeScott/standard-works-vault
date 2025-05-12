@@ -1,6 +1,6 @@
 # Tower
 
-[Tower](https://www.churchofjesuschrist.org/study/scriptures/tg/Tower?lang=eng)
+[Tower](https://churchofjesuschrist.org/study/scriptures/tg/tower?lang=eng)
 
 ### References
 - [[Genesis 11.4|Genesis 11:4]]

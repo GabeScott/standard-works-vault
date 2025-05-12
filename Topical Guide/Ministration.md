@@ -1,6 +1,6 @@
 # Ministration
 
-[Ministration](https://www.churchofjesuschrist.org/study/scriptures/tg/Ministration?lang=eng)
+[Ministration](https://churchofjesuschrist.org/study/scriptures/tg/ministration?lang=eng)
 
 ### References
 - [[Acts 6.1|Acts 6:1]]

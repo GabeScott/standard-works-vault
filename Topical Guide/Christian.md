@@ -1,6 +1,6 @@
 # Christian
 
-[Christian](https://www.churchofjesuschrist.org/study/scriptures/tg/Christian?lang=eng)
+[Christian](https://churchofjesuschrist.org/study/scriptures/tg/christian?lang=eng)
 
 ### References
 - [[Acts 11.26|Acts 11:26]]

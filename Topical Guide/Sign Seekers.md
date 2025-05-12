@@ -1,6 +1,6 @@
 # Sign Seekers
 
-[Sign Seekers](https://www.churchofjesuschrist.org/study/scriptures/tg/Sign-Seekers?lang=eng)
+[Sign Seekers](https://churchofjesuschrist.org/study/scriptures/tg/sign-seekers?lang=eng)
 
 ### References
 - [[Exodus 7.9|Exodus 7:9]]

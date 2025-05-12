@@ -1,6 +1,6 @@
 # Dew
 
-[Dew](https://www.churchofjesuschrist.org/study/scriptures/tg/Dew?lang=eng)
+[Dew](https://churchofjesuschrist.org/study/scriptures/tg/dew?lang=eng)
 
 ### References
 - [[Deuteronomy 32.2|Deuteronomy 32:2]]

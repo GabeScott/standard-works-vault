@@ -1,6 +1,6 @@
 # Navy
 
-[Navy](https://www.churchofjesuschrist.org/study/scriptures/tg/Navy?lang=eng)
+[Navy](https://churchofjesuschrist.org/study/scriptures/tg/navy?lang=eng)
 
 ### References
 - [[1 Kings 10.22|1 Kings 10:22]]

@@ -1,6 +1,6 @@
 # Hinder
 
-[Hinder](https://www.churchofjesuschrist.org/study/scriptures/tg/Hinder?lang=eng)
+[Hinder](https://churchofjesuschrist.org/study/scriptures/tg/hinder?lang=eng)
 
 ### References
 - [[Luke 11.52|Luke 11:52]]

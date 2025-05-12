@@ -1,6 +1,6 @@
 # Tolerable
 
-[Tolerable](https://www.churchofjesuschrist.org/study/scriptures/tg/Tolerable?lang=eng)
+[Tolerable](https://churchofjesuschrist.org/study/scriptures/tg/tolerable?lang=eng)
 
 ### References
 - [[Matthew 10.15|Matthew 10:15]]

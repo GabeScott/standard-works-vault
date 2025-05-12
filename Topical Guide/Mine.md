@@ -1,6 +1,6 @@
 # Mine
 
-[Mine](https://www.churchofjesuschrist.org/study/scriptures/tg/Mine?lang=eng)
+[Mine](https://churchofjesuschrist.org/study/scriptures/tg/mine?lang=eng)
 
 ### References
 - [[Leviticus 20.26|Leviticus 20:26]]

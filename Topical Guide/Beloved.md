@@ -1,6 +1,6 @@
 # Beloved
 
-[Beloved](https://www.churchofjesuschrist.org/study/scriptures/tg/Beloved?lang=eng)
+[Beloved](https://churchofjesuschrist.org/study/scriptures/tg/beloved?lang=eng)
 
 ### References
 - [[Deuteronomy 21.15|Deuteronomy 21:15]]

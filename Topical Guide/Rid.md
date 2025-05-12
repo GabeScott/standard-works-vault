@@ -1,6 +1,6 @@
 # Rid
 
-[Rid](https://www.churchofjesuschrist.org/study/scriptures/tg/Rid?lang=eng)
+[Rid](https://churchofjesuschrist.org/study/scriptures/tg/rid?lang=eng)
 
 ### References
 - [[Genesis 37.22|Genesis 37:22]]

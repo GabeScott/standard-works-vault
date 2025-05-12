@@ -1,6 +1,6 @@
 # Blame
 
-[Blame](https://www.churchofjesuschrist.org/study/scriptures/tg/Blame?lang=eng)
+[Blame](https://churchofjesuschrist.org/study/scriptures/tg/blame?lang=eng)
 
 ### References
 - [[Genesis 43.9|Genesis 43:9]]

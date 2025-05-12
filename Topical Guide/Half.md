@@ -1,6 +1,6 @@
 # Half
 
-[Half](https://www.churchofjesuschrist.org/study/scriptures/tg/Half?lang=eng)
+[Half](https://churchofjesuschrist.org/study/scriptures/tg/half?lang=eng)
 
 ### References
 - [[1 Kings 3.25|1 Kings 3:25]]

@@ -1,6 +1,6 @@
 # Ordain
 
-[Ordain](https://www.churchofjesuschrist.org/study/scriptures/tg/Ordain?lang=eng)
+[Ordain](https://churchofjesuschrist.org/study/scriptures/tg/ordain?lang=eng)
 
 ### References
 - [[Numbers 28.6|Numbers 28:6]]

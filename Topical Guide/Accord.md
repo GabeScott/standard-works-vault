@@ -1,6 +1,6 @@
 # Accord
 
-[Accord](https://www.churchofjesuschrist.org/study/scriptures/tg/Accord?lang=eng)
+[Accord](https://churchofjesuschrist.org/study/scriptures/tg/accord?lang=eng)
 
 ### References
 - [[Acts 2.1|Acts 2:1]]

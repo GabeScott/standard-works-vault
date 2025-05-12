@@ -1,6 +1,6 @@
 # Avenge
 
-[Avenge](https://www.churchofjesuschrist.org/study/scriptures/tg/Avenge?lang=eng)
+[Avenge](https://churchofjesuschrist.org/study/scriptures/tg/avenge?lang=eng)
 
 ### References
 - [[Genesis 4.24|Genesis 4:24]]

@@ -1,6 +1,6 @@
 # Tell, Told
 
-[Tell, Told](https://www.churchofjesuschrist.org/study/scriptures/tg/Tell-Told?lang=eng)
+[Tell, Told](https://churchofjesuschrist.org/study/scriptures/tg/tell?lang=eng)
 
 ### References
 - [[Genesis 15.5|Genesis 15:5]]

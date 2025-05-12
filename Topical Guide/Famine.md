@@ -1,6 +1,6 @@
 # Famine
 
-[Famine](https://www.churchofjesuschrist.org/study/scriptures/tg/Famine?lang=eng)
+[Famine](https://churchofjesuschrist.org/study/scriptures/tg/famine?lang=eng)
 
 ### References
 - [[Genesis 12.10|Genesis 12:10]]

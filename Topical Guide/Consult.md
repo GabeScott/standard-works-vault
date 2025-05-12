@@ -1,6 +1,6 @@
 # Consult
 
-[Consult](https://www.churchofjesuschrist.org/study/scriptures/tg/Consult?lang=eng)
+[Consult](https://churchofjesuschrist.org/study/scriptures/tg/consult?lang=eng)
 
 ### References
 - [[1 Kings 12.6|1 Kings 12:6]]

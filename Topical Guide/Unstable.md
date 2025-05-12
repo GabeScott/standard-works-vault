@@ -1,6 +1,6 @@
 # Unstable
 
-[Unstable](https://www.churchofjesuschrist.org/study/scriptures/tg/Unstable?lang=eng)
+[Unstable](https://churchofjesuschrist.org/study/scriptures/tg/unstable?lang=eng)
 
 ### References
 - [[Genesis 49.4|Genesis 49:4]]

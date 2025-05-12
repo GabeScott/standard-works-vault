@@ -1,6 +1,6 @@
 # Liberal, Liberality
 
-[Liberal, Liberality](https://www.churchofjesuschrist.org/study/scriptures/tg/Liberal-Liberality?lang=eng)
+[Liberal, Liberality](https://churchofjesuschrist.org/study/scriptures/tg/liberal?lang=eng)
 
 ### References
 - [[Proverbs 11.25|Proverbs 11:25]]

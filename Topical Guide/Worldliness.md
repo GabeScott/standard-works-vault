@@ -1,6 +1,6 @@
 # Worldliness
 
-[Worldliness](https://www.churchofjesuschrist.org/study/scriptures/tg/Worldliness?lang=eng)
+[Worldliness](https://churchofjesuschrist.org/study/scriptures/tg/worldliness?lang=eng)
 
 ### References
 - [[Psalms 37.1|Psalms 37:1]]

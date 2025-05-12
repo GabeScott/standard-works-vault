@@ -1,6 +1,6 @@
 # Lord, Spirit of
 
-[Lord, Spirit of](https://www.churchofjesuschrist.org/study/scriptures/tg/Lord-Spirit-of?lang=eng)
+[Lord, Spirit of](https://churchofjesuschrist.org/study/scriptures/tg/lord-spirit-of?lang=eng)
 
 ### References
 - [[Judges 13.25|Judges 13:25]]

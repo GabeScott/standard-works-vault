@@ -1,6 +1,6 @@
 # Oblation
 
-[Oblation](https://www.churchofjesuschrist.org/study/scriptures/tg/Oblation?lang=eng)
+[Oblation](https://churchofjesuschrist.org/study/scriptures/tg/oblation?lang=eng)
 
 ### References
 - [[Leviticus 7.38|Leviticus 7:38]]

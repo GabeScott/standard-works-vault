@@ -1,6 +1,6 @@
 # Israel, Joseph, People of
 
-[Israel, Joseph, People of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Joseph-People-of?lang=eng)
+[Israel, Joseph, People of](https://churchofjesuschrist.org/study/scriptures/tg/israel-joseph-people-of?lang=eng)
 
 ### References
 - [[Genesis 30.24|Genesis 30:24]]

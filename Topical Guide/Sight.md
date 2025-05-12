@@ -1,6 +1,6 @@
 # Sight
 
-[Sight](https://www.churchofjesuschrist.org/study/scriptures/tg/Sight?lang=eng)
+[Sight](https://churchofjesuschrist.org/study/scriptures/tg/sight?lang=eng)
 
 ### References
 - [[Genesis 2.9|Genesis 2:9]]

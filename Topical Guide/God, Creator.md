@@ -1,6 +1,6 @@
 # God, Creator
 
-[God, Creator](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Creator?lang=eng)
+[God, Creator](https://churchofjesuschrist.org/study/scriptures/tg/god-creator?lang=eng)
 
 ### References
 - [[Genesis 1.1|Genesis 1:1]]

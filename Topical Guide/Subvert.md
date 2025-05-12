@@ -1,6 +1,6 @@
 # Subvert
 
-[Subvert](https://www.churchofjesuschrist.org/study/scriptures/tg/Subvert?lang=eng)
+[Subvert](https://churchofjesuschrist.org/study/scriptures/tg/subvert?lang=eng)
 
 ### References
 - [[Acts 15.24|Acts 15:24]]

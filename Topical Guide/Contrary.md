@@ -1,6 +1,6 @@
 # Contrary
 
-[Contrary](https://www.churchofjesuschrist.org/study/scriptures/tg/Contrary?lang=eng)
+[Contrary](https://churchofjesuschrist.org/study/scriptures/tg/contrary?lang=eng)
 
 ### References
 - [[Leviticus 26.21|Leviticus 26:21]]

@@ -1,6 +1,6 @@
 # Device
 
-[Device](https://www.churchofjesuschrist.org/study/scriptures/tg/Device?lang=eng)
+[Device](https://churchofjesuschrist.org/study/scriptures/tg/device?lang=eng)
 
 ### References
 - [[Esther 8.3|Esther 8:3]]

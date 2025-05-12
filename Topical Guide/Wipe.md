@@ -1,6 +1,6 @@
 # Wipe
 
-[Wipe](https://www.churchofjesuschrist.org/study/scriptures/tg/Wipe?lang=eng)
+[Wipe](https://churchofjesuschrist.org/study/scriptures/tg/wipe?lang=eng)
 
 ### References
 - [[Isaiah 25.8|Isaiah 25:8]]

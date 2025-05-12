@@ -1,6 +1,6 @@
 # Halt
 
-[Halt](https://www.churchofjesuschrist.org/study/scriptures/tg/Halt?lang=eng)
+[Halt](https://churchofjesuschrist.org/study/scriptures/tg/halt?lang=eng)
 
 ### References
 - [[Genesis 32.31|Genesis 32:31]]

@@ -1,6 +1,6 @@
 # Shame
 
-[Shame](https://www.churchofjesuschrist.org/study/scriptures/tg/Shame?lang=eng)
+[Shame](https://churchofjesuschrist.org/study/scriptures/tg/shame?lang=eng)
 
 ### References
 - [[Genesis 2.25|Genesis 2:25]]

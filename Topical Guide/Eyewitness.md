@@ -1,6 +1,6 @@
 # Eyewitness
 
-[Eyewitness](https://www.churchofjesuschrist.org/study/scriptures/tg/Eyewitness?lang=eng)
+[Eyewitness](https://churchofjesuschrist.org/study/scriptures/tg/eyewitness?lang=eng)
 
 ### References
 - [[Luke 1.2|Luke 1:2]]

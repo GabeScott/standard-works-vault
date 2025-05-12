@@ -1,6 +1,6 @@
 # Cut
 
-[Cut](https://www.churchofjesuschrist.org/study/scriptures/tg/Cut?lang=eng)
+[Cut](https://churchofjesuschrist.org/study/scriptures/tg/cut?lang=eng)
 
 ### References
 - [[Genesis 17.14|Genesis 17:14]]

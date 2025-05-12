@@ -1,6 +1,6 @@
 # Kindle
 
-[Kindle](https://www.churchofjesuschrist.org/study/scriptures/tg/Kindle?lang=eng)
+[Kindle](https://churchofjesuschrist.org/study/scriptures/tg/kindle?lang=eng)
 
 ### References
 - [[Exodus 22.6|Exodus 22:6]]

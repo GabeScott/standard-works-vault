@@ -1,6 +1,6 @@
 # Patriarch
 
-[Patriarch](https://www.churchofjesuschrist.org/study/scriptures/tg/Patriarch?lang=eng)
+[Patriarch](https://churchofjesuschrist.org/study/scriptures/tg/patriarch?lang=eng)
 
 ### References
 - [[Genesis 25.5|Genesis 25:5]]

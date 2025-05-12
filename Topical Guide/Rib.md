@@ -1,6 +1,6 @@
 # Rib
 
-[Rib](https://www.churchofjesuschrist.org/study/scriptures/tg/Rib?lang=eng)
+[Rib](https://churchofjesuschrist.org/study/scriptures/tg/rib?lang=eng)
 
 ### References
 - [[Genesis 2.21|Genesis 2:21]]

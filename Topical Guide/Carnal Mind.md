@@ -1,6 +1,6 @@
 # Carnal Mind
 
-[Carnal Mind](https://www.churchofjesuschrist.org/study/scriptures/tg/Carnal-Mind?lang=eng)
+[Carnal Mind](https://churchofjesuschrist.org/study/scriptures/tg/carnal-mind?lang=eng)
 
 ### References
 - [[Genesis 6.5|Genesis 6:5]]

@@ -1,6 +1,6 @@
 # Trade
 
-[Trade](https://www.churchofjesuschrist.org/study/scriptures/tg/Trade?lang=eng)
+[Trade](https://churchofjesuschrist.org/study/scriptures/tg/trade?lang=eng)
 
 ### References
 - [[Genesis 34.10|Genesis 34:10]]

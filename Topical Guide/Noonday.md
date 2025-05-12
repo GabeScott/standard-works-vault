@@ -1,6 +1,6 @@
 # Noonday
 
-[Noonday](https://www.churchofjesuschrist.org/study/scriptures/tg/Noonday?lang=eng)
+[Noonday](https://churchofjesuschrist.org/study/scriptures/tg/noonday?lang=eng)
 
 ### References
 - [[Deuteronomy 28.29|Deuteronomy 28:29]]

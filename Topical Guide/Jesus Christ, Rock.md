@@ -1,6 +1,6 @@
 # Jesus Christ, Rock
 
-[Jesus Christ, Rock](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Rock?lang=eng)
+[Jesus Christ, Rock](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-rock?lang=eng)
 
 ### References
 - [[Genesis 49.24|Genesis 49:24]]

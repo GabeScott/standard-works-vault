@@ -1,6 +1,6 @@
 # Secret Combinations
 
-[Secret Combinations](https://www.churchofjesuschrist.org/study/scriptures/tg/Secret-Combinations?lang=eng)
+[Secret Combinations](https://churchofjesuschrist.org/study/scriptures/tg/secret-combinations?lang=eng)
 
 ### References
 - [[Genesis 4.23|Genesis 4:23]]

@@ -1,6 +1,6 @@
 # Straiten
 
-[Straiten](https://www.churchofjesuschrist.org/study/scriptures/tg/Straiten?lang=eng)
+[Straiten](https://churchofjesuschrist.org/study/scriptures/tg/straiten?lang=eng)
 
 ### References
 - [[Job 12.23|Job 12:23]]

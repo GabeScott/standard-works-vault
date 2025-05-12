@@ -1,6 +1,6 @@
 # Plot
 
-[Plot](https://www.churchofjesuschrist.org/study/scriptures/tg/Plot?lang=eng)
+[Plot](https://churchofjesuschrist.org/study/scriptures/tg/plot?lang=eng)
 
 ### References
 - [[Psalms 37.12|Psalms 37:12]]

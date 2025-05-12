@@ -1,6 +1,6 @@
 # Wanton
 
-[Wanton](https://www.churchofjesuschrist.org/study/scriptures/tg/Wanton?lang=eng)
+[Wanton](https://churchofjesuschrist.org/study/scriptures/tg/wanton?lang=eng)
 
 ### References
 - [[Isaiah 3.16|Isaiah 3:16]]

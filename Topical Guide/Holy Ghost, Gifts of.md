@@ -1,6 +1,6 @@
 # Holy Ghost, Gifts of
 
-[Holy Ghost, Gifts of](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Ghost-Gifts-of?lang=eng)
+[Holy Ghost, Gifts of](https://churchofjesuschrist.org/study/scriptures/tg/holy-ghost-gifts-of?lang=eng)
 
 ### References
 - [[Exodus 31.3|Exodus 31:3]]

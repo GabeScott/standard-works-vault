@@ -1,6 +1,6 @@
 # Slack
 
-[Slack](https://www.churchofjesuschrist.org/study/scriptures/tg/Slack?lang=eng)
+[Slack](https://churchofjesuschrist.org/study/scriptures/tg/slack?lang=eng)
 
 ### References
 - [[Deuteronomy 23.21|Deuteronomy 23:21]]

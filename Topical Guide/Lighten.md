@@ -1,6 +1,6 @@
 # Lighten
 
-[Lighten](https://www.churchofjesuschrist.org/study/scriptures/tg/Lighten?lang=eng)
+[Lighten](https://churchofjesuschrist.org/study/scriptures/tg/lighten?lang=eng)
 
 ### References
 - [[2 Samuel 22.29|2 Samuel 22:29]]

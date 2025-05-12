@@ -1,6 +1,6 @@
 # Prisoner
 
-[Prisoner](https://www.churchofjesuschrist.org/study/scriptures/tg/Prisoner?lang=eng)
+[Prisoner](https://churchofjesuschrist.org/study/scriptures/tg/prisoner?lang=eng)
 
 ### References
 - [[Isaiah 42.7|Isaiah 42:7]]

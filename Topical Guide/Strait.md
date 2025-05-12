@@ -1,6 +1,6 @@
 # Strait
 
-[Strait](https://www.churchofjesuschrist.org/study/scriptures/tg/Strait?lang=eng)
+[Strait](https://churchofjesuschrist.org/study/scriptures/tg/strait?lang=eng)
 
 ### References
 - [[2 Kings 6.1|2 Kings 6:1]]

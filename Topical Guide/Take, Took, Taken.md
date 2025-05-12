@@ -1,6 +1,6 @@
 # Take, Took, Taken
 
-[Take, Took, Taken](https://www.churchofjesuschrist.org/study/scriptures/tg/Take-Took-Taken?lang=eng)
+[Take, Took, Taken](https://churchofjesuschrist.org/study/scriptures/tg/take?lang=eng)
 
 ### References
 - [[Genesis 5.24|Genesis 5:24]]

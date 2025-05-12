@@ -1,6 +1,6 @@
 # Measure
 
-[Measure](https://www.churchofjesuschrist.org/study/scriptures/tg/Measure?lang=eng)
+[Measure](https://churchofjesuschrist.org/study/scriptures/tg/measure?lang=eng)
 
 ### References
 - [[Deuteronomy 25.14|Deuteronomy 25:14]]

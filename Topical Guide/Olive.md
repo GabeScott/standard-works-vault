@@ -1,6 +1,6 @@
 # Olive
 
-[Olive](https://www.churchofjesuschrist.org/study/scriptures/tg/Olive?lang=eng)
+[Olive](https://churchofjesuschrist.org/study/scriptures/tg/olive?lang=eng)
 
 ### References
 - [[Romans 11.17|Romans 11:17]]

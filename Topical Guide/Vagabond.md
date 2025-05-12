@@ -1,6 +1,6 @@
 # Vagabond
 
-[Vagabond](https://www.churchofjesuschrist.org/study/scriptures/tg/Vagabond?lang=eng)
+[Vagabond](https://churchofjesuschrist.org/study/scriptures/tg/vagabond?lang=eng)
 
 ### References
 - [[Genesis 4.12|Genesis 4:12]]

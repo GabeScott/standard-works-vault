@@ -1,6 +1,6 @@
 # Communion
 
-[Communion](https://www.churchofjesuschrist.org/study/scriptures/tg/Communion?lang=eng)
+[Communion](https://churchofjesuschrist.org/study/scriptures/tg/communion?lang=eng)
 
 ### References
 - [[1 Corinthians 10.16|1 Corinthians 10:16]]

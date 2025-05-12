@@ -1,6 +1,6 @@
 # Grave
 
-[Grave](https://www.churchofjesuschrist.org/study/scriptures/tg/Grave?lang=eng)
+[Grave](https://churchofjesuschrist.org/study/scriptures/tg/grave-noun?lang=eng)
 
 ### References
 - [[Genesis 35.20|Genesis 35:20]]

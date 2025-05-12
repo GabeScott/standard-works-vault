@@ -1,6 +1,6 @@
 # Entrusted
 
-[Entrusted](https://www.churchofjesuschrist.org/study/scriptures/tg/Entrusted?lang=eng)
+[Entrusted](https://churchofjesuschrist.org/study/scriptures/tg/entrusted?lang=eng)
 
 ### References
 - [[Alma 37.14|Alma 37:14]]

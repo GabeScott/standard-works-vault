@@ -1,6 +1,6 @@
 # Perfection, Perfect, Perfectly
 
-[Perfection, Perfect, Perfectly](https://www.churchofjesuschrist.org/study/scriptures/tg/Perfection-Perfect-Perfectly?lang=eng)
+[Perfection, Perfect, Perfectly](https://churchofjesuschrist.org/study/scriptures/tg/perfection?lang=eng)
 
 ### References
 - [[Genesis 17.1|Genesis 17:1]]

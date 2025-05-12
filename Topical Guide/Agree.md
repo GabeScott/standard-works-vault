@@ -1,6 +1,6 @@
 # Agree
 
-[Agree](https://www.churchofjesuschrist.org/study/scriptures/tg/Agree?lang=eng)
+[Agree](https://churchofjesuschrist.org/study/scriptures/tg/agree?lang=eng)
 
 ### References
 - [[Amos 3.3|Amos 3:3]]

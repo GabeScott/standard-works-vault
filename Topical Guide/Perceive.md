@@ -1,6 +1,6 @@
 # Perceive
 
-[Perceive](https://www.churchofjesuschrist.org/study/scriptures/tg/Perceive?lang=eng)
+[Perceive](https://churchofjesuschrist.org/study/scriptures/tg/perceive?lang=eng)
 
 ### References
 - [[Deuteronomy 29.4|Deuteronomy 29:4]]

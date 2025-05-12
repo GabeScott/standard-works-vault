@@ -1,6 +1,6 @@
 # Win, Won
 
-[Win, Won](https://www.churchofjesuschrist.org/study/scriptures/tg/Win-Won?lang=eng)
+[Win, Won](https://churchofjesuschrist.org/study/scriptures/tg/win?lang=eng)
 
 ### References
 - [[Proverbs 11.30|Proverbs 11:30]]

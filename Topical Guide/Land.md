@@ -1,6 +1,6 @@
 # Land
 
-[Land](https://www.churchofjesuschrist.org/study/scriptures/tg/Land?lang=eng)
+[Land](https://churchofjesuschrist.org/study/scriptures/tg/chosen-land?lang=eng)
 
 ### References
 - [[Genesis 1.9|Genesis 1:9]]

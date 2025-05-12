@@ -1,6 +1,6 @@
 # Little
 
-[Little](https://www.churchofjesuschrist.org/study/scriptures/tg/Little?lang=eng)
+[Little](https://churchofjesuschrist.org/study/scriptures/tg/little?lang=eng)
 
 ### References
 - [[Exodus 16.18|Exodus 16:18]]

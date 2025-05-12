@@ -1,6 +1,6 @@
 # Confer
 
-[Confer](https://www.churchofjesuschrist.org/study/scriptures/tg/Confer?lang=eng)
+[Confer](https://churchofjesuschrist.org/study/scriptures/tg/confer?lang=eng)
 
 ### References
 - [[Omni 1.3|Omni 1:3]]

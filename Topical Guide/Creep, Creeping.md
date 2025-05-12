@@ -1,6 +1,6 @@
 # Creep, Creeping
 
-[Creep, Creeping](https://www.churchofjesuschrist.org/study/scriptures/tg/Creep-Creeping?lang=eng)
+[Creep, Creeping](https://churchofjesuschrist.org/study/scriptures/tg/creep?lang=eng)
 
 ### References
 - [[Genesis 1.24|Genesis 1:24]]

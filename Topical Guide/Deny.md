@@ -1,6 +1,6 @@
 # Deny
 
-[Deny](https://www.churchofjesuschrist.org/study/scriptures/tg/Deny?lang=eng)
+[Deny](https://churchofjesuschrist.org/study/scriptures/tg/deny?lang=eng)
 
 ### References
 - [[Joshua 24.27|Joshua 24:27]]

@@ -1,6 +1,6 @@
 # Content
 
-[Content](https://www.churchofjesuschrist.org/study/scriptures/tg/Content?lang=eng)
+[Content](https://churchofjesuschrist.org/study/scriptures/tg/content?lang=eng)
 
 ### References
 - [[Luke 3.14|Luke 3:14]]

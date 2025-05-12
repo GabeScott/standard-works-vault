@@ -1,6 +1,6 @@
 # Jesus Christ, Messenger of the Covenant
 
-[Jesus Christ, Messenger of the Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Messenger-of-the-Covenant?lang=eng)
+[Jesus Christ, Messenger of the Covenant](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messenger-of-the-covenant?lang=eng)
 
 ### References
 - [[1 Samuel 3.21|1 Samuel 3:21]]

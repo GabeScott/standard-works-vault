@@ -1,6 +1,6 @@
 # Bread, Shewbread
 
-[Bread, Shewbread](https://www.churchofjesuschrist.org/study/scriptures/tg/Bread-Shewbread?lang=eng)
+[Bread, Shewbread](https://churchofjesuschrist.org/study/scriptures/tg/bread-shewbread?lang=eng)
 
 ### References
 - [[Exodus 25.30|Exodus 25:30]]

@@ -1,6 +1,6 @@
 # Gracious
 
-[Gracious](https://www.churchofjesuschrist.org/study/scriptures/tg/Gracious?lang=eng)
+[Gracious](https://churchofjesuschrist.org/study/scriptures/tg/gracious?lang=eng)
 
 ### References
 - [[Exodus 22.27|Exodus 22:27]]

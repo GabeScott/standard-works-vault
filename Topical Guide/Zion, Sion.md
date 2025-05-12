@@ -1,6 +1,6 @@
 # Zion, Sion
 
-[Zion, Sion](https://www.churchofjesuschrist.org/study/scriptures/tg/Zion-Sion?lang=eng)
+[Zion, Sion](https://churchofjesuschrist.org/study/scriptures/tg/zion?lang=eng)
 
 ### References
 - [[Deuteronomy 4.48|Deuteronomy 4:48]]

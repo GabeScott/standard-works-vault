@@ -1,6 +1,6 @@
 # Nations
 
-[Nations](https://www.churchofjesuschrist.org/study/scriptures/tg/Nations?lang=eng)
+[Nations](https://churchofjesuschrist.org/study/scriptures/tg/nations?lang=eng)
 
 ### References
 - [[Genesis 10.32|Genesis 10:32]]

@@ -1,6 +1,6 @@
 # Corner
 
-[Corner](https://www.churchofjesuschrist.org/study/scriptures/tg/Corner?lang=eng)
+[Corner](https://churchofjesuschrist.org/study/scriptures/tg/corner?lang=eng)
 
 ### References
 - [[Amos 3.12|Amos 3:12]]

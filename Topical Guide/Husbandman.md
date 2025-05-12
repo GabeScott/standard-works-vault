@@ -1,6 +1,6 @@
 # Husbandman
 
-[Husbandman](https://www.churchofjesuschrist.org/study/scriptures/tg/Husbandman?lang=eng)
+[Husbandman](https://churchofjesuschrist.org/study/scriptures/tg/husbandman?lang=eng)
 
 ### References
 - [[Genesis 9.20|Genesis 9:20]]

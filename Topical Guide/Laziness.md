@@ -1,6 +1,6 @@
 # Laziness
 
-[Laziness](https://www.churchofjesuschrist.org/study/scriptures/tg/Laziness?lang=eng)
+[Laziness](https://churchofjesuschrist.org/study/scriptures/tg/laziness?lang=eng)
 
 ### References
 - [[Proverbs 10.4|Proverbs 10:4]]

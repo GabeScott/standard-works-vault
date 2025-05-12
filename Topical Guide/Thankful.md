@@ -1,6 +1,6 @@
 # Thankful
 
-[Thankful](https://www.churchofjesuschrist.org/study/scriptures/tg/Thankful?lang=eng)
+[Thankful](https://churchofjesuschrist.org/study/scriptures/tg/thankful?lang=eng)
 
 ### References
 - [[Psalms 100.4|Psalms 100:4]]

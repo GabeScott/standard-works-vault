@@ -1,6 +1,6 @@
 # Life, Lives
 
-[Life, Lives](https://www.churchofjesuschrist.org/study/scriptures/tg/Life-Lives?lang=eng)
+[Life, Lives](https://churchofjesuschrist.org/study/scriptures/tg/life?lang=eng)
 
 ### References
 - [[Genesis 2.7|Genesis 2:7]]

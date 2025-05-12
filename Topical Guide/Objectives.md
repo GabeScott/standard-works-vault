@@ -1,6 +1,6 @@
 # Objectives
 
-[Objectives](https://www.churchofjesuschrist.org/study/scriptures/tg/Objectives?lang=eng)
+[Objectives](https://churchofjesuschrist.org/study/scriptures/tg/objectives?lang=eng)
 
 ### References
 - [[Matthew 5.48|Matthew 5:48]]

@@ -1,6 +1,6 @@
 # Profanity
 
-[Profanity](https://www.churchofjesuschrist.org/study/scriptures/tg/Profanity?lang=eng)
+[Profanity](https://churchofjesuschrist.org/study/scriptures/tg/profanity?lang=eng)
 
 ### References
 - [[Exodus 20.7|Exodus 20:7]]

@@ -1,6 +1,6 @@
 # Confusion
 
-[Confusion](https://www.churchofjesuschrist.org/study/scriptures/tg/Confusion?lang=eng)
+[Confusion](https://churchofjesuschrist.org/study/scriptures/tg/confusion?lang=eng)
 
 ### References
 - [[Psalms 109.29|Psalms 109:29]]

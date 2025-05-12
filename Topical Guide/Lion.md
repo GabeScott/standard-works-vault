@@ -1,6 +1,6 @@
 # Lion
 
-[Lion](https://www.churchofjesuschrist.org/study/scriptures/tg/Lion?lang=eng)
+[Lion](https://churchofjesuschrist.org/study/scriptures/tg/lion?lang=eng)
 
 ### References
 - [[Genesis 49.9|Genesis 49:9]]

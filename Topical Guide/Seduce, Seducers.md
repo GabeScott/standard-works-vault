@@ -1,6 +1,6 @@
 # Seduce, Seducers
 
-[Seduce, Seducers](https://www.churchofjesuschrist.org/study/scriptures/tg/Seduce-Seducers?lang=eng)
+[Seduce, Seducers](https://churchofjesuschrist.org/study/scriptures/tg/seduce?lang=eng)
 
 ### References
 - [[2 Kings 21.9|2 Kings 21:9]]

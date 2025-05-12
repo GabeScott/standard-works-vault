@@ -1,6 +1,6 @@
 # Family, Patriarchal
 
-[Family, Patriarchal](https://www.churchofjesuschrist.org/study/scriptures/tg/Family-Patriarchal?lang=eng)
+[Family, Patriarchal](https://churchofjesuschrist.org/study/scriptures/tg/family-patriarchal?lang=eng)
 
 ### References
 - [[Genesis 12.3|Genesis 12:3]]

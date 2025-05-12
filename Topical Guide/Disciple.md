@@ -1,6 +1,6 @@
 # Disciple
 
-[Disciple](https://www.churchofjesuschrist.org/study/scriptures/tg/Disciple?lang=eng)
+[Disciple](https://churchofjesuschrist.org/study/scriptures/tg/disciple?lang=eng)
 
 ### References
 - [[Isaiah 8.16|Isaiah 8:16]]

@@ -1,6 +1,6 @@
 # Thank
 
-[Thank](https://www.churchofjesuschrist.org/study/scriptures/tg/Thank?lang=eng)
+[Thank](https://churchofjesuschrist.org/study/scriptures/tg/thank?lang=eng)
 
 ### References
 - [[1 Chronicles 16.7|1 Chronicles 16:7]]

@@ -1,6 +1,6 @@
 # Salute
 
-[Salute](https://www.churchofjesuschrist.org/study/scriptures/tg/Salute?lang=eng)
+[Salute](https://churchofjesuschrist.org/study/scriptures/tg/salute?lang=eng)
 
 ### References
 - [[2 Kings 4.29|2 Kings 4:29]]

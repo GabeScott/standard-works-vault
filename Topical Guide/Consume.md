@@ -1,6 +1,6 @@
 # Consume
 
-[Consume](https://www.churchofjesuschrist.org/study/scriptures/tg/Consume?lang=eng)
+[Consume](https://churchofjesuschrist.org/study/scriptures/tg/consume?lang=eng)
 
 ### References
 - [[Exodus 3.2|Exodus 3:2]]

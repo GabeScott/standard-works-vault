@@ -1,6 +1,6 @@
 # East
 
-[East](https://www.churchofjesuschrist.org/study/scriptures/tg/East?lang=eng)
+[East](https://churchofjesuschrist.org/study/scriptures/tg/east?lang=eng)
 
 ### References
 - [[Genesis 13.11|Genesis 13:11]]

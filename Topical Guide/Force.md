@@ -1,6 +1,6 @@
 # Force
 
-[Force](https://www.churchofjesuschrist.org/study/scriptures/tg/Force?lang=eng)
+[Force](https://churchofjesuschrist.org/study/scriptures/tg/force?lang=eng)
 
 ### References
 - [[Genesis 31.31|Genesis 31:31]]

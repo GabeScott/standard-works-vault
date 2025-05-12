@@ -1,6 +1,6 @@
 # Cross
 
-[Cross](https://www.churchofjesuschrist.org/study/scriptures/tg/Cross?lang=eng)
+[Cross](https://churchofjesuschrist.org/study/scriptures/tg/cross?lang=eng)
 
 ### References
 - [[Matthew 10.38|Matthew 10:38]]

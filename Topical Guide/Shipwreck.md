@@ -1,6 +1,6 @@
 # Shipwreck
 
-[Shipwreck](https://www.churchofjesuschrist.org/study/scriptures/tg/Shipwreck?lang=eng)
+[Shipwreck](https://churchofjesuschrist.org/study/scriptures/tg/shipwreck?lang=eng)
 
 ### References
 - [[2 Corinthians 11.25|2 Corinthians 11:25]]

@@ -1,6 +1,6 @@
 # Kindred
 
-[Kindred](https://www.churchofjesuschrist.org/study/scriptures/tg/Kindred?lang=eng)
+[Kindred](https://churchofjesuschrist.org/study/scriptures/tg/kindred?lang=eng)
 
 ### References
 - [[Genesis 12.1|Genesis 12:1]]

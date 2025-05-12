@@ -1,6 +1,6 @@
 # Desolate
 
-[Desolate](https://www.churchofjesuschrist.org/study/scriptures/tg/Desolate?lang=eng)
+[Desolate](https://churchofjesuschrist.org/study/scriptures/tg/desolate?lang=eng)
 
 ### References
 - [[Leviticus 26.33|Leviticus 26:33]]

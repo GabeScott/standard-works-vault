@@ -1,6 +1,6 @@
 # Jesus Christ, Mission of
 
-[Jesus Christ, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Mission-of?lang=eng)
+[Jesus Christ, Mission of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-mission-of?lang=eng)
 
 ### References
 - [[Deuteronomy 18.15|Deuteronomy 18:15]]

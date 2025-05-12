@@ -1,6 +1,6 @@
 # Female
 
-[Female](https://www.churchofjesuschrist.org/study/scriptures/tg/Female?lang=eng)
+[Female](https://churchofjesuschrist.org/study/scriptures/tg/female?lang=eng)
 
 ### References
 - [[Genesis 1.27|Genesis 1:27]]

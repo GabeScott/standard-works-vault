@@ -1,6 +1,6 @@
 # Withstand, Withstood
 
-[Withstand, Withstood](https://www.churchofjesuschrist.org/study/scriptures/tg/Withstand-Withstood?lang=eng)
+[Withstand, Withstood](https://churchofjesuschrist.org/study/scriptures/tg/withstand?lang=eng)
 
 ### References
 - [[Acts 11.17|Acts 11:17]]

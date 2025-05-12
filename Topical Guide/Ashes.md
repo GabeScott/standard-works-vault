@@ -1,6 +1,6 @@
 # Ashes
 
-[Ashes](https://www.churchofjesuschrist.org/study/scriptures/tg/Ashes?lang=eng)
+[Ashes](https://churchofjesuschrist.org/study/scriptures/tg/ashes?lang=eng)
 
 ### References
 - [[Genesis 18.27|Genesis 18:27]]

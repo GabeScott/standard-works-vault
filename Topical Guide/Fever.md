@@ -1,6 +1,6 @@
 # Fever
 
-[Fever](https://www.churchofjesuschrist.org/study/scriptures/tg/Fever?lang=eng)
+[Fever](https://churchofjesuschrist.org/study/scriptures/tg/fever?lang=eng)
 
 ### References
 - [[Deuteronomy 28.22|Deuteronomy 28:22]]

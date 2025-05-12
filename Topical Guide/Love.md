@@ -1,6 +1,6 @@
 # Love
 
-[Love](https://www.churchofjesuschrist.org/study/scriptures/tg/Love?lang=eng)
+[Love](https://churchofjesuschrist.org/study/scriptures/tg/love?lang=eng)
 
 ### References
 - [[Genesis 22.2|Genesis 22:2]]

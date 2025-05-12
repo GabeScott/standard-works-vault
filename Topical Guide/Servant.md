@@ -1,6 +1,6 @@
 # Servant
 
-[Servant](https://www.churchofjesuschrist.org/study/scriptures/tg/Servant?lang=eng)
+[Servant](https://churchofjesuschrist.org/study/scriptures/tg/servant?lang=eng)
 
 ### References
 - [[Genesis 9.25|Genesis 9:25]]

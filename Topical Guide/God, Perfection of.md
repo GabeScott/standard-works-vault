@@ -1,6 +1,6 @@
 # God, Perfection of
 
-[God, Perfection of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Perfection-of?lang=eng)
+[God, Perfection of](https://churchofjesuschrist.org/study/scriptures/tg/god-perfection-of?lang=eng)
 
 ### References
 - [[Numbers 23.19|Numbers 23:19]]

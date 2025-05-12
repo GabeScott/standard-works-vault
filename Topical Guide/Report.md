@@ -1,6 +1,6 @@
 # Report
 
-[Report](https://www.churchofjesuschrist.org/study/scriptures/tg/Report?lang=eng)
+[Report](https://churchofjesuschrist.org/study/scriptures/tg/report?lang=eng)
 
 ### References
 - [[Genesis 37.2|Genesis 37:2]]

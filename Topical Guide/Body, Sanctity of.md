@@ -1,6 +1,6 @@
 # Body, Sanctity of
 
-[Body, Sanctity of](https://www.churchofjesuschrist.org/study/scriptures/tg/Body-Sanctity-of?lang=eng)
+[Body, Sanctity of](https://churchofjesuschrist.org/study/scriptures/tg/body-sanctity-of?lang=eng)
 
 ### References
 - [[Genesis 1.26|Genesis 1:26]]

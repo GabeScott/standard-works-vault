@@ -1,6 +1,6 @@
 # Fire
 
-[Fire](https://www.churchofjesuschrist.org/study/scriptures/tg/Fire?lang=eng)
+[Fire](https://churchofjesuschrist.org/study/scriptures/tg/fire?lang=eng)
 
 ### References
 - [[Genesis 19.24|Genesis 19:24]]

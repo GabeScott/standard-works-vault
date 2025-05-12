@@ -1,6 +1,6 @@
 # Integrity
 
-[Integrity](https://www.churchofjesuschrist.org/study/scriptures/tg/Integrity?lang=eng)
+[Integrity](https://churchofjesuschrist.org/study/scriptures/tg/integrity?lang=eng)
 
 ### References
 - [[Genesis 20.5|Genesis 20:5]]

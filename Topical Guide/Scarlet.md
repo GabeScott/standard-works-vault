@@ -1,6 +1,6 @@
 # Scarlet
 
-[Scarlet](https://www.churchofjesuschrist.org/study/scriptures/tg/Scarlet?lang=eng)
+[Scarlet](https://churchofjesuschrist.org/study/scriptures/tg/scarlet?lang=eng)
 
 ### References
 - [[Genesis 38.28|Genesis 38:28]]

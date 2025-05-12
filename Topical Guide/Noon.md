@@ -1,6 +1,6 @@
 # Noon
 
-[Noon](https://www.churchofjesuschrist.org/study/scriptures/tg/Noon?lang=eng)
+[Noon](https://churchofjesuschrist.org/study/scriptures/tg/noon?lang=eng)
 
 ### References
 - [[Psalms 55.17|Psalms 55:17]]

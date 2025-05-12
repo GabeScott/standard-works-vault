@@ -1,6 +1,6 @@
 # Stubble
 
-[Stubble](https://www.churchofjesuschrist.org/study/scriptures/tg/Stubble?lang=eng)
+[Stubble](https://churchofjesuschrist.org/study/scriptures/tg/stubble?lang=eng)
 
 ### References
 - [[Exodus 5.12|Exodus 5:12]]

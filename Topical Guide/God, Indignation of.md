@@ -1,6 +1,6 @@
 # God, Indignation of
 
-[God, Indignation of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Indignation-of?lang=eng)
+[God, Indignation of](https://churchofjesuschrist.org/study/scriptures/tg/god-indignation-of?lang=eng)
 
 ### References
 - [[Exodus 4.14|Exodus 4:14]]

@@ -1,6 +1,6 @@
 # Abound
 
-[Abound](https://www.churchofjesuschrist.org/study/scriptures/tg/Abound?lang=eng)
+[Abound](https://churchofjesuschrist.org/study/scriptures/tg/abound?lang=eng)
 
 ### References
 - [[Matthew 24.12|Matthew 24:12]]

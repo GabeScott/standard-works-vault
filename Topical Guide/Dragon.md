@@ -1,6 +1,6 @@
 # Dragon
 
-[Dragon](https://www.churchofjesuschrist.org/study/scriptures/tg/Dragon?lang=eng)
+[Dragon](https://churchofjesuschrist.org/study/scriptures/tg/dragon?lang=eng)
 
 ### References
 - [[Psalms 74.13|Psalms 74:13]]

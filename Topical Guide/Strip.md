@@ -1,6 +1,6 @@
 # Strip
 
-[Strip](https://www.churchofjesuschrist.org/study/scriptures/tg/Strip?lang=eng)
+[Strip](https://churchofjesuschrist.org/study/scriptures/tg/strip?lang=eng)
 
 ### References
 - [[Numbers 20.26|Numbers 20:26]]

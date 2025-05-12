@@ -1,6 +1,6 @@
 # Past
 
-[Past](https://www.churchofjesuschrist.org/study/scriptures/tg/Past?lang=eng)
+[Past](https://churchofjesuschrist.org/study/scriptures/tg/past?lang=eng)
 
 ### References
 - [[Jeremiah 8.20|Jeremiah 8:20]]

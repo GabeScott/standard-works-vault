@@ -1,6 +1,6 @@
 # Food
 
-[Food](https://www.churchofjesuschrist.org/study/scriptures/tg/Food?lang=eng)
+[Food](https://churchofjesuschrist.org/study/scriptures/tg/food?lang=eng)
 
 ### References
 - [[Genesis 1.29|Genesis 1:29]]

@@ -1,6 +1,6 @@
 # Brethren
 
-[Brethren](https://www.churchofjesuschrist.org/study/scriptures/tg/Brethren?lang=eng)
+[Brethren](https://churchofjesuschrist.org/study/scriptures/tg/brethren?lang=eng)
 
 ### References
 - [[Genesis 13.8|Genesis 13:8]]

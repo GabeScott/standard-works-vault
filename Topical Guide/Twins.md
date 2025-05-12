@@ -1,6 +1,6 @@
 # Twins
 
-[Twins](https://www.churchofjesuschrist.org/study/scriptures/tg/Twins?lang=eng)
+[Twins](https://churchofjesuschrist.org/study/scriptures/tg/twins?lang=eng)
 
 ### References
 - [[Genesis 25.24|Genesis 25:24]]

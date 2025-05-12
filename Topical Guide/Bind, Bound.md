@@ -1,6 +1,6 @@
 # Bind, Bound
 
-[Bind, Bound](https://www.churchofjesuschrist.org/study/scriptures/tg/Bind-Bound?lang=eng)
+[Bind, Bound](https://churchofjesuschrist.org/study/scriptures/tg/bind?lang=eng)
 
 ### References
 - [[Genesis 44.30|Genesis 44:30]]

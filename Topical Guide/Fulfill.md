@@ -1,6 +1,6 @@
 # Fulfill
 
-[Fulfill](https://www.churchofjesuschrist.org/study/scriptures/tg/Fulfill?lang=eng)
+[Fulfill](https://churchofjesuschrist.org/study/scriptures/tg/fulfill?lang=eng)
 
 ### References
 - [[Numbers 6.13|Numbers 6:13]]

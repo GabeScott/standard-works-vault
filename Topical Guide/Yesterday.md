@@ -1,6 +1,6 @@
 # Yesterday
 
-[Yesterday](https://www.churchofjesuschrist.org/study/scriptures/tg/Yesterday?lang=eng)
+[Yesterday](https://churchofjesuschrist.org/study/scriptures/tg/yesterday?lang=eng)
 
 ### References
 - [[Psalms 90.4|Psalms 90:4]]

@@ -1,6 +1,6 @@
 # Reap
 
-[Reap](https://www.churchofjesuschrist.org/study/scriptures/tg/Reap?lang=eng)
+[Reap](https://churchofjesuschrist.org/study/scriptures/tg/reap?lang=eng)
 
 ### References
 - [[Leviticus 19.9|Leviticus 19:9]]

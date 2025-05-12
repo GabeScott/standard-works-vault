@@ -1,6 +1,6 @@
 # Dishonor
 
-[Dishonor](https://www.churchofjesuschrist.org/study/scriptures/tg/Dishonor?lang=eng)
+[Dishonor](https://churchofjesuschrist.org/study/scriptures/tg/dishonor?lang=eng)
 
 ### References
 - [[Micah 7.6|Micah 7:6]]

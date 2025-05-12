@@ -1,6 +1,6 @@
 # Distress
 
-[Distress](https://www.churchofjesuschrist.org/study/scriptures/tg/Distress?lang=eng)
+[Distress](https://churchofjesuschrist.org/study/scriptures/tg/distress?lang=eng)
 
 ### References
 - [[Genesis 35.3|Genesis 35:3]]

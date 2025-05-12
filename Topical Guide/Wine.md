@@ -1,6 +1,6 @@
 # Wine
 
-[Wine](https://www.churchofjesuschrist.org/study/scriptures/tg/Wine?lang=eng)
+[Wine](https://churchofjesuschrist.org/study/scriptures/tg/wine?lang=eng)
 
 ### References
 - [[Leviticus 10.9|Leviticus 10:9]]

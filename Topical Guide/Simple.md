@@ -1,6 +1,6 @@
 # Simple
 
-[Simple](https://www.churchofjesuschrist.org/study/scriptures/tg/Simple?lang=eng)
+[Simple](https://churchofjesuschrist.org/study/scriptures/tg/simple?lang=eng)
 
 ### References
 - [[Psalms 116.6|Psalms 116:6]]

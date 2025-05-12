@@ -1,6 +1,6 @@
 # Manna
 
-[Manna](https://www.churchofjesuschrist.org/study/scriptures/tg/Manna?lang=eng)
+[Manna](https://churchofjesuschrist.org/study/scriptures/tg/manna?lang=eng)
 
 ### References
 - [[Exodus 16.15|Exodus 16:15]]

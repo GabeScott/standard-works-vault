@@ -1,6 +1,6 @@
 # Name
 
-[Name](https://www.churchofjesuschrist.org/study/scriptures/tg/Name?lang=eng)
+[Name](https://churchofjesuschrist.org/study/scriptures/tg/name?lang=eng)
 
 ### References
 - [[Genesis 11.4|Genesis 11:4]]

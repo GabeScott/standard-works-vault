@@ -1,6 +1,6 @@
 # Birth Control
 
-[Birth Control](https://www.churchofjesuschrist.org/study/scriptures/tg/Birth-Control?lang=eng)
+[Birth Control](https://churchofjesuschrist.org/study/scriptures/tg/birth-control?lang=eng)
 
 ### References
 - [[Genesis 1.28|Genesis 1:28]]

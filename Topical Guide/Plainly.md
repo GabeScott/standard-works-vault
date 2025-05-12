@@ -1,6 +1,6 @@
 # Plainly
 
-[Plainly](https://www.churchofjesuschrist.org/study/scriptures/tg/Plainly?lang=eng)
+[Plainly](https://churchofjesuschrist.org/study/scriptures/tg/plainly?lang=eng)
 
 ### References
 - [[Deuteronomy 27.8|Deuteronomy 27:8]]

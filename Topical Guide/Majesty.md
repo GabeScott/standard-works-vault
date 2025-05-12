@@ -1,6 +1,6 @@
 # Majesty
 
-[Majesty](https://www.churchofjesuschrist.org/study/scriptures/tg/Majesty?lang=eng)
+[Majesty](https://churchofjesuschrist.org/study/scriptures/tg/majesty?lang=eng)
 
 ### References
 - [[Isaiah 2.10|Isaiah 2:10]]

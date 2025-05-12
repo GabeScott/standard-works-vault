@@ -1,6 +1,6 @@
 # Dry
 
-[Dry](https://www.churchofjesuschrist.org/study/scriptures/tg/Dry?lang=eng)
+[Dry](https://churchofjesuschrist.org/study/scriptures/tg/dry?lang=eng)
 
 ### References
 - [[Genesis 8.13|Genesis 8:13]]

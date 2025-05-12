@@ -1,6 +1,6 @@
 # Fiery
 
-[Fiery](https://www.churchofjesuschrist.org/study/scriptures/tg/Fiery?lang=eng)
+[Fiery](https://churchofjesuschrist.org/study/scriptures/tg/fiery?lang=eng)
 
 ### References
 - [[Numbers 21.8|Numbers 21:8]]

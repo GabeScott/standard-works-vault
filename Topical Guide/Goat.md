@@ -1,6 +1,6 @@
 # Goat
 
-[Goat](https://www.churchofjesuschrist.org/study/scriptures/tg/Goat?lang=eng)
+[Goat](https://churchofjesuschrist.org/study/scriptures/tg/goat?lang=eng)
 
 ### References
 - [[Genesis 27.9|Genesis 27:9]]

@@ -1,6 +1,6 @@
 # Rise, Rose, Risen
 
-[Rise, Rose, Risen](https://www.churchofjesuschrist.org/study/scriptures/tg/Rise-Rose-Risen?lang=eng)
+[Rise, Rose, Risen](https://churchofjesuschrist.org/study/scriptures/tg/rise?lang=eng)
 
 ### References
 - [[Numbers 23.24|Numbers 23:24]]

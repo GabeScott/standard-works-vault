@@ -1,6 +1,6 @@
 # Experience
 
-[Experience](https://www.churchofjesuschrist.org/study/scriptures/tg/Experience?lang=eng)
+[Experience](https://churchofjesuschrist.org/study/scriptures/tg/experience?lang=eng)
 
 ### References
 - [[Genesis 30.27|Genesis 30:27]]

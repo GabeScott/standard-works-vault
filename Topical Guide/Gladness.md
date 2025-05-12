@@ -1,6 +1,6 @@
 # Gladness
 
-[Gladness](https://www.churchofjesuschrist.org/study/scriptures/tg/Gladness?lang=eng)
+[Gladness](https://churchofjesuschrist.org/study/scriptures/tg/gladness?lang=eng)
 
 ### References
 - [[Psalms 100.2|Psalms 100:2]]

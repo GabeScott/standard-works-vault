@@ -1,6 +1,6 @@
 # Commune
 
-[Commune](https://www.churchofjesuschrist.org/study/scriptures/tg/Commune?lang=eng)
+[Commune](https://churchofjesuschrist.org/study/scriptures/tg/commune?lang=eng)
 
 ### References
 - [[Exodus 25.22|Exodus 25:22]]

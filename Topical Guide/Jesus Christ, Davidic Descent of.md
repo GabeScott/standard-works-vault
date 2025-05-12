@@ -1,6 +1,6 @@
 # Jesus Christ, Davidic Descent of
 
-[Jesus Christ, Davidic Descent of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Davidic-Descent-of?lang=eng)
+[Jesus Christ, Davidic Descent of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-davidic-descent-of?lang=eng)
 
 ### References
 - [[1 Samuel 16.1|1 Samuel 16:1]]

@@ -1,6 +1,6 @@
 # Accomplished
 
-[Accomplished](https://www.churchofjesuschrist.org/study/scriptures/tg/Accomplished?lang=eng)
+[Accomplished](https://churchofjesuschrist.org/study/scriptures/tg/accomplished?lang=eng)
 
 ### References
 - [[Proverbs 13.19|Proverbs 13:19]]

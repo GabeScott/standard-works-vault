@@ -1,6 +1,6 @@
 # Prayer, Pray
 
-[Prayer, Pray](https://www.churchofjesuschrist.org/study/scriptures/tg/Prayer-Pray?lang=eng)
+[Prayer, Pray](https://churchofjesuschrist.org/study/scriptures/tg/prayer?lang=eng)
 
 ### References
 - [[Genesis 12.8|Genesis 12:8]]

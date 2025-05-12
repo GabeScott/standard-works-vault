@@ -1,6 +1,6 @@
 # Salvation of Little Children
 
-[Salvation of Little Children](https://www.churchofjesuschrist.org/study/scriptures/tg/Salvation-of-Little-Children?lang=eng)
+[Salvation of Little Children](https://churchofjesuschrist.org/study/scriptures/tg/salvation-of-little-children?lang=eng)
 
 ### References
 - [[Matthew 18.3|Matthew 18:3]]

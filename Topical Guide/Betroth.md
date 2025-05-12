@@ -1,6 +1,6 @@
 # Betroth
 
-[Betroth](https://www.churchofjesuschrist.org/study/scriptures/tg/Betroth?lang=eng)
+[Betroth](https://churchofjesuschrist.org/study/scriptures/tg/betroth?lang=eng)
 
 ### References
 - [[Exodus 21.8|Exodus 21:8]]

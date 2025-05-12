@@ -1,6 +1,6 @@
 # Hyssop
 
-[Hyssop](https://www.churchofjesuschrist.org/study/scriptures/tg/Hyssop?lang=eng)
+[Hyssop](https://churchofjesuschrist.org/study/scriptures/tg/hyssop?lang=eng)
 
 ### References
 - [[Exodus 12.22|Exodus 12:22]]

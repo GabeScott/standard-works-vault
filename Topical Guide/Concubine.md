@@ -1,6 +1,6 @@
 # Concubine
 
-[Concubine](https://www.churchofjesuschrist.org/study/scriptures/tg/Concubine?lang=eng)
+[Concubine](https://churchofjesuschrist.org/study/scriptures/tg/concubine?lang=eng)
 
 ### References
 - [[Genesis 25.6|Genesis 25:6]]

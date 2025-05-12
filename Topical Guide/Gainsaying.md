@@ -1,6 +1,6 @@
 # Gainsaying
 
-[Gainsaying](https://www.churchofjesuschrist.org/study/scriptures/tg/Gainsaying?lang=eng)
+[Gainsaying](https://churchofjesuschrist.org/study/scriptures/tg/gainsaying?lang=eng)
 
 ### References
 - [[Romans 10.21|Romans 10:21]]

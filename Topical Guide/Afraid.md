@@ -1,6 +1,6 @@
 # Afraid
 
-[Afraid](https://www.churchofjesuschrist.org/study/scriptures/tg/Afraid?lang=eng)
+[Afraid](https://churchofjesuschrist.org/study/scriptures/tg/afraid?lang=eng)
 
 ### References
 - [[Genesis 3.10|Genesis 3:10]]

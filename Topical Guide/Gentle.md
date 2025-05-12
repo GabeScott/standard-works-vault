@@ -1,6 +1,6 @@
 # Gentle
 
-[Gentle](https://www.churchofjesuschrist.org/study/scriptures/tg/Gentle?lang=eng)
+[Gentle](https://churchofjesuschrist.org/study/scriptures/tg/gentle?lang=eng)
 
 ### References
 - [[2 Timothy 2.24|2 Timothy 2:24]]

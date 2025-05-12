@@ -1,6 +1,6 @@
 # Say
 
-[Say](https://www.churchofjesuschrist.org/study/scriptures/tg/Say?lang=eng)
+[Say](https://churchofjesuschrist.org/study/scriptures/tg/say?lang=eng)
 
 ### References
 - [[Exodus 4.12|Exodus 4:12]]

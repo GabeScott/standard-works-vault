@@ -1,6 +1,6 @@
 # Preparatory
 
-[Preparatory](https://www.churchofjesuschrist.org/study/scriptures/tg/Preparatory?lang=eng)
+[Preparatory](https://churchofjesuschrist.org/study/scriptures/tg/preparatory?lang=eng)
 
 ### References
 - [[Alma 12.26|Alma 12:26]]

@@ -1,6 +1,6 @@
 # Least
 
-[Least](https://www.churchofjesuschrist.org/study/scriptures/tg/Least?lang=eng)
+[Least](https://churchofjesuschrist.org/study/scriptures/tg/least?lang=eng)
 
 ### References
 - [[Genesis 32.10|Genesis 32:10]]

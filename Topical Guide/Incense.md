@@ -1,6 +1,6 @@
 # Incense
 
-[Incense](https://www.churchofjesuschrist.org/study/scriptures/tg/Incense?lang=eng)
+[Incense](https://churchofjesuschrist.org/study/scriptures/tg/incense?lang=eng)
 
 ### References
 - [[Exodus 25.6|Exodus 25:6]]

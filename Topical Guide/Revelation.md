@@ -1,6 +1,6 @@
 # Revelation
 
-[Revelation](https://www.churchofjesuschrist.org/study/scriptures/tg/Revelation?lang=eng)
+[Revelation](https://churchofjesuschrist.org/study/scriptures/tg/revelation?lang=eng)
 
 ### References
 - [[Genesis 18.17|Genesis 18:17]]

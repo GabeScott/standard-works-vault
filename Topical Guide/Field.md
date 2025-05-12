@@ -1,6 +1,6 @@
 # Field
 
-[Field](https://www.churchofjesuschrist.org/study/scriptures/tg/Field?lang=eng)
+[Field](https://churchofjesuschrist.org/study/scriptures/tg/field?lang=eng)
 
 ### References
 - [[Genesis 2.5|Genesis 2:5]]

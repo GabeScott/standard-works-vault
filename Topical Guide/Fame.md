@@ -1,6 +1,6 @@
 # Fame
 
-[Fame](https://www.churchofjesuschrist.org/study/scriptures/tg/Fame?lang=eng)
+[Fame](https://churchofjesuschrist.org/study/scriptures/tg/fame?lang=eng)
 
 ### References
 - [[1 Kings 10.1|1 Kings 10:1]]

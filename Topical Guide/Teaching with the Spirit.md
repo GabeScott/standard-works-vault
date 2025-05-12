@@ -1,6 +1,6 @@
 # Teaching with the Spirit
 
-[Teaching with the Spirit](https://www.churchofjesuschrist.org/study/scriptures/tg/Teaching-with-the-Spirit?lang=eng)
+[Teaching with the Spirit](https://churchofjesuschrist.org/study/scriptures/tg/teaching-with-the-spirit?lang=eng)
 
 ### References
 - [[Exodus 31.3|Exodus 31:3]]

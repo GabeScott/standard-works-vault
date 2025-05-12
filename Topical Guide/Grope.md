@@ -1,6 +1,6 @@
 # Grope
 
-[Grope](https://www.churchofjesuschrist.org/study/scriptures/tg/Grope?lang=eng)
+[Grope](https://churchofjesuschrist.org/study/scriptures/tg/grope?lang=eng)
 
 ### References
 - [[Deuteronomy 28.29|Deuteronomy 28:29]]

@@ -1,6 +1,6 @@
 # Flower
 
-[Flower](https://www.churchofjesuschrist.org/study/scriptures/tg/Flower?lang=eng)
+[Flower](https://churchofjesuschrist.org/study/scriptures/tg/flower?lang=eng)
 
 ### References
 - [[Isaiah 40.6|Isaiah 40:6]]

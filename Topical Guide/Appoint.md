@@ -1,6 +1,6 @@
 # Appoint
 
-[Appoint](https://www.churchofjesuschrist.org/study/scriptures/tg/Appoint?lang=eng)
+[Appoint](https://churchofjesuschrist.org/study/scriptures/tg/appoint?lang=eng)
 
 ### References
 - [[2 Samuel 17.14|2 Samuel 17:14]]

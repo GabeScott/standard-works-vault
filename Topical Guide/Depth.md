@@ -1,6 +1,6 @@
 # Depth
 
-[Depth](https://www.churchofjesuschrist.org/study/scriptures/tg/Depth?lang=eng)
+[Depth](https://churchofjesuschrist.org/study/scriptures/tg/depth?lang=eng)
 
 ### References
 - [[Exodus 15.5|Exodus 15:5]]

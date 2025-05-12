@@ -1,6 +1,6 @@
 # Wages
 
-[Wages](https://www.churchofjesuschrist.org/study/scriptures/tg/Wages?lang=eng)
+[Wages](https://churchofjesuschrist.org/study/scriptures/tg/wages?lang=eng)
 
 ### References
 - [[Genesis 29.15|Genesis 29:15]]

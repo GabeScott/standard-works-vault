@@ -1,6 +1,6 @@
 # Head
 
-[Head](https://www.churchofjesuschrist.org/study/scriptures/tg/Head?lang=eng)
+[Head](https://churchofjesuschrist.org/study/scriptures/tg/head?lang=eng)
 
 ### References
 - [[Genesis 3.15|Genesis 3:15]]

@@ -1,6 +1,6 @@
 # Stewardship, Steward
 
-[Stewardship, Steward](https://www.churchofjesuschrist.org/study/scriptures/tg/Stewardship-Steward?lang=eng)
+[Stewardship, Steward](https://churchofjesuschrist.org/study/scriptures/tg/stewardship?lang=eng)
 
 ### References
 - [[Genesis 26.5|Genesis 26:5]]

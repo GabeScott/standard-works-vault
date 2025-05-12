@@ -1,6 +1,6 @@
 # Jesus Christ, Divine Sonship
 
-[Jesus Christ, Divine Sonship](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Divine-Sonship?lang=eng)
+[Jesus Christ, Divine Sonship](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-divine-sonship?lang=eng)
 
 ### References
 - [[Psalms 2.7|Psalms 2:7]]

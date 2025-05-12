@@ -1,6 +1,6 @@
 # Mite
 
-[Mite](https://www.churchofjesuschrist.org/study/scriptures/tg/Mite?lang=eng)
+[Mite](https://churchofjesuschrist.org/study/scriptures/tg/mite?lang=eng)
 
 ### References
 - [[Mark 12.42|Mark 12:42]]

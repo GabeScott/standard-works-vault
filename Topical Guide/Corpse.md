@@ -1,6 +1,6 @@
 # Corpse
 
-[Corpse](https://www.churchofjesuschrist.org/study/scriptures/tg/Corpse?lang=eng)
+[Corpse](https://churchofjesuschrist.org/study/scriptures/tg/corpse?lang=eng)
 
 ### References
 - [[2 Kings 19.35|2 Kings 19:35]]

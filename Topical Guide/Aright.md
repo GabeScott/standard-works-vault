@@ -1,6 +1,6 @@
 # Aright
 
-[Aright](https://www.churchofjesuschrist.org/study/scriptures/tg/Aright?lang=eng)
+[Aright](https://churchofjesuschrist.org/study/scriptures/tg/aright?lang=eng)
 
 ### References
 - [[Psalms 78.8|Psalms 78:8]]

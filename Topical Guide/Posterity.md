@@ -1,6 +1,6 @@
 # Posterity
 
-[Posterity](https://www.churchofjesuschrist.org/study/scriptures/tg/Posterity?lang=eng)
+[Posterity](https://churchofjesuschrist.org/study/scriptures/tg/posterity?lang=eng)
 
 ### References
 - [[Genesis 45.7|Genesis 45:7]]

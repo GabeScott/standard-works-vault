@@ -1,6 +1,6 @@
 # Coming
 
-[Coming](https://www.churchofjesuschrist.org/study/scriptures/tg/Coming?lang=eng)
+[Coming](https://churchofjesuschrist.org/study/scriptures/tg/coming?lang=eng)
 
 ### References
 - [[Psalms 121.8|Psalms 121:8]]

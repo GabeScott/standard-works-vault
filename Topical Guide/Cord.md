@@ -1,6 +1,6 @@
 # Cord
 
-[Cord](https://www.churchofjesuschrist.org/study/scriptures/tg/Cord?lang=eng)
+[Cord](https://churchofjesuschrist.org/study/scriptures/tg/cord?lang=eng)
 
 ### References
 - [[Joshua 2.15|Joshua 2:15]]

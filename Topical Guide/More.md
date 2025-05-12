@@ -1,6 +1,6 @@
 # More
 
-[More](https://www.churchofjesuschrist.org/study/scriptures/tg/More?lang=eng)
+[More](https://churchofjesuschrist.org/study/scriptures/tg/more?lang=eng)
 
 ### References
 - [[Matthew 10.37|Matthew 10:37]]

@@ -1,6 +1,6 @@
 # Pillar
 
-[Pillar](https://www.churchofjesuschrist.org/study/scriptures/tg/Pillar?lang=eng)
+[Pillar](https://churchofjesuschrist.org/study/scriptures/tg/pillar?lang=eng)
 
 ### References
 - [[Genesis 19.26|Genesis 19:26]]

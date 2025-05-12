@@ -1,6 +1,6 @@
 # Misery
 
-[Misery](https://www.churchofjesuschrist.org/study/scriptures/tg/Misery?lang=eng)
+[Misery](https://churchofjesuschrist.org/study/scriptures/tg/misery?lang=eng)
 
 ### References
 - [[Job 3.20|Job 3:20]]

@@ -1,6 +1,6 @@
 # Merit
 
-[Merit](https://www.churchofjesuschrist.org/study/scriptures/tg/Merit?lang=eng)
+[Merit](https://churchofjesuschrist.org/study/scriptures/tg/merit?lang=eng)
 
 ### References
 - [[2 Nephi 2.8|2 Nephi 2:8]]

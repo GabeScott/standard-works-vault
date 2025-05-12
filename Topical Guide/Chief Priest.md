@@ -1,6 +1,6 @@
 # Chief Priest
 
-[Chief Priest](https://www.churchofjesuschrist.org/study/scriptures/tg/Chief-Priest?lang=eng)
+[Chief Priest](https://churchofjesuschrist.org/study/scriptures/tg/chief-priest?lang=eng)
 
 ### References
 - [[Matthew 16.21|Matthew 16:21]]

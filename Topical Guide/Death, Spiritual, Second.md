@@ -1,6 +1,6 @@
 # Death, Spiritual, Second
 
-[Death, Spiritual, Second](https://www.churchofjesuschrist.org/study/scriptures/tg/Death-Spiritual-Second?lang=eng)
+[Death, Spiritual, Second](https://churchofjesuschrist.org/study/scriptures/tg/death-spiritual-second?lang=eng)
 
 ### References
 - [[Daniel 12.2|Daniel 12:2]]

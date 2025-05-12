@@ -1,6 +1,6 @@
 # Darkness, Physical
 
-[Darkness, Physical](https://www.churchofjesuschrist.org/study/scriptures/tg/Darkness-Physical?lang=eng)
+[Darkness, Physical](https://churchofjesuschrist.org/study/scriptures/tg/darkness-physical?lang=eng)
 
 ### References
 - [[Genesis 1.2|Genesis 1:2]]

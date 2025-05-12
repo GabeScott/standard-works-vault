@@ -1,6 +1,6 @@
 # Vigilant
 
-[Vigilant](https://www.churchofjesuschrist.org/study/scriptures/tg/Vigilant?lang=eng)
+[Vigilant](https://churchofjesuschrist.org/study/scriptures/tg/vigilant?lang=eng)
 
 ### References
 - [[1 Timothy 3.2|1 Timothy 3:2]]

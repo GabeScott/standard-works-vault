@@ -1,6 +1,6 @@
 # Avenger
 
-[Avenger](https://www.churchofjesuschrist.org/study/scriptures/tg/Avenger?lang=eng)
+[Avenger](https://churchofjesuschrist.org/study/scriptures/tg/avenger?lang=eng)
 
 ### References
 - [[Numbers 35.12|Numbers 35:12]]

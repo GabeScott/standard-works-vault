@@ -1,6 +1,6 @@
 # Hunger
 
-[Hunger](https://www.churchofjesuschrist.org/study/scriptures/tg/Hunger?lang=eng)
+[Hunger](https://churchofjesuschrist.org/study/scriptures/tg/hunger?lang=eng)
 
 ### References
 - [[Exodus 16.3|Exodus 16:3]]

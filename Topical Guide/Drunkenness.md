@@ -1,6 +1,6 @@
 # Drunkenness
 
-[Drunkenness](https://www.churchofjesuschrist.org/study/scriptures/tg/Drunkenness?lang=eng)
+[Drunkenness](https://churchofjesuschrist.org/study/scriptures/tg/drunkenness?lang=eng)
 
 ### References
 - [[Numbers 6.3|Numbers 6:3]]

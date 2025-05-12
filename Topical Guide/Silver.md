@@ -1,6 +1,6 @@
 # Silver
 
-[Silver](https://www.churchofjesuschrist.org/study/scriptures/tg/Silver?lang=eng)
+[Silver](https://churchofjesuschrist.org/study/scriptures/tg/silver?lang=eng)
 
 ### References
 - [[Genesis 44.2|Genesis 44:2]]

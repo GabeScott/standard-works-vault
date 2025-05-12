@@ -1,6 +1,6 @@
 # Cease
 
-[Cease](https://www.churchofjesuschrist.org/study/scriptures/tg/Cease?lang=eng)
+[Cease](https://churchofjesuschrist.org/study/scriptures/tg/cease?lang=eng)
 
 ### References
 - [[Genesis 18.11|Genesis 18:11]]

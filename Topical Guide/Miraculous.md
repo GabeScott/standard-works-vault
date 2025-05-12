@@ -1,6 +1,6 @@
 # Miraculous
 
-[Miraculous](https://www.churchofjesuschrist.org/study/scriptures/tg/Miraculous?lang=eng)
+[Miraculous](https://churchofjesuschrist.org/study/scriptures/tg/miraculous?lang=eng)
 
 ### References
 - [[Alma 57.26|Alma 57:26]]

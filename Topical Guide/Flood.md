@@ -1,6 +1,6 @@
 # Flood
 
-[Flood](https://www.churchofjesuschrist.org/study/scriptures/tg/Flood?lang=eng)
+[Flood](https://churchofjesuschrist.org/study/scriptures/tg/flood?lang=eng)
 
 ### References
 - [[Exodus 15.8|Exodus 15:8]]

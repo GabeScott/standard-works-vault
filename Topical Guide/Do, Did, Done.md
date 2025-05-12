@@ -1,6 +1,6 @@
 # Do, Did, Done
 
-[Do, Did, Done](https://www.churchofjesuschrist.org/study/scriptures/tg/Do-Did-Done?lang=eng)
+[Do, Did, Done](https://churchofjesuschrist.org/study/scriptures/tg/do?lang=eng)
 
 ### References
 - [[Genesis 12.18|Genesis 12:18]]

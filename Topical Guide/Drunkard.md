@@ -1,6 +1,6 @@
 # Drunkard
 
-[Drunkard](https://www.churchofjesuschrist.org/study/scriptures/tg/Drunkard?lang=eng)
+[Drunkard](https://churchofjesuschrist.org/study/scriptures/tg/drunkard?lang=eng)
 
 ### References
 - [[Deuteronomy 21.20|Deuteronomy 21:20]]

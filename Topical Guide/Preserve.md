@@ -1,6 +1,6 @@
 # Preserve
 
-[Preserve](https://www.churchofjesuschrist.org/study/scriptures/tg/Preserve?lang=eng)
+[Preserve](https://churchofjesuschrist.org/study/scriptures/tg/preserve?lang=eng)
 
 ### References
 - [[Genesis 32.30|Genesis 32:30]]

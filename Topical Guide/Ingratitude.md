@@ -1,6 +1,6 @@
 # Ingratitude
 
-[Ingratitude](https://www.churchofjesuschrist.org/study/scriptures/tg/Ingratitude?lang=eng)
+[Ingratitude](https://churchofjesuschrist.org/study/scriptures/tg/ingratitude?lang=eng)
 
 ### References
 - [[Genesis 40.23|Genesis 40:23]]

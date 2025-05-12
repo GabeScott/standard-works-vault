@@ -1,6 +1,6 @@
 # Demand
 
-[Demand](https://www.churchofjesuschrist.org/study/scriptures/tg/Demand?lang=eng)
+[Demand](https://churchofjesuschrist.org/study/scriptures/tg/demand?lang=eng)
 
 ### References
 - [[Matthew 2.4|Matthew 2:4]]

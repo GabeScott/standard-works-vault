@@ -1,6 +1,6 @@
 # Pleasant
 
-[Pleasant](https://www.churchofjesuschrist.org/study/scriptures/tg/Pleasant?lang=eng)
+[Pleasant](https://churchofjesuschrist.org/study/scriptures/tg/pleasant?lang=eng)
 
 ### References
 - [[Genesis 2.9|Genesis 2:9]]

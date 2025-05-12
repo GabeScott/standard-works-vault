@@ -1,6 +1,6 @@
 # Eschew
 
-[Eschew](https://www.churchofjesuschrist.org/study/scriptures/tg/Eschew?lang=eng)
+[Eschew](https://churchofjesuschrist.org/study/scriptures/tg/eschew?lang=eng)
 
 ### References
 - [[Job 1.8|Job 1:8]]

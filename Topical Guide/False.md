@@ -1,6 +1,6 @@
 # False
 
-[False](https://www.churchofjesuschrist.org/study/scriptures/tg/False?lang=eng)
+[False](https://churchofjesuschrist.org/study/scriptures/tg/churches-false?lang=eng)
 
 ### References
 - [[Exodus 20.16|Exodus 20:16]]

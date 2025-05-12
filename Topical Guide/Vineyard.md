@@ -1,6 +1,6 @@
 # Vineyard
 
-[Vineyard](https://www.churchofjesuschrist.org/study/scriptures/tg/Vineyard?lang=eng)
+[Vineyard](https://churchofjesuschrist.org/study/scriptures/tg/vineyard?lang=eng)
 
 ### References
 - [[Genesis 9.20|Genesis 9:20]]

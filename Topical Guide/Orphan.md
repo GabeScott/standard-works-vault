@@ -1,6 +1,6 @@
 # Orphan
 
-[Orphan](https://www.churchofjesuschrist.org/study/scriptures/tg/Orphan?lang=eng)
+[Orphan](https://churchofjesuschrist.org/study/scriptures/tg/orphan?lang=eng)
 
 ### References
 - [[Lamentations 5.3|Lamentations 5:3]]

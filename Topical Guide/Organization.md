@@ -1,6 +1,6 @@
 # Organization
 
-[Organization](https://www.churchofjesuschrist.org/study/scriptures/tg/Organization?lang=eng)
+[Organization](https://churchofjesuschrist.org/study/scriptures/tg/church-organization?lang=eng)
 
 ### References
 - [[D&C 78.3|D&C 78:3]]

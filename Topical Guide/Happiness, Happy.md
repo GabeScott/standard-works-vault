@@ -1,6 +1,6 @@
 # Happiness, Happy
 
-[Happiness, Happy](https://www.churchofjesuschrist.org/study/scriptures/tg/Happiness-Happy?lang=eng)
+[Happiness, Happy](https://churchofjesuschrist.org/study/scriptures/tg/happiness?lang=eng)
 
 ### References
 - [[Deuteronomy 33.29|Deuteronomy 33:29]]

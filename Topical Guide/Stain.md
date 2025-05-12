@@ -1,6 +1,6 @@
 # Stain
 
-[Stain](https://www.churchofjesuschrist.org/study/scriptures/tg/Stain?lang=eng)
+[Stain](https://churchofjesuschrist.org/study/scriptures/tg/stain?lang=eng)
 
 ### References
 - [[Isaiah 63.3|Isaiah 63:3]]

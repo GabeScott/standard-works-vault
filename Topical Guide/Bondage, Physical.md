@@ -1,6 +1,6 @@
 # Bondage, Physical
 
-[Bondage, Physical](https://www.churchofjesuschrist.org/study/scriptures/tg/Bondage-Physical?lang=eng)
+[Bondage, Physical](https://churchofjesuschrist.org/study/scriptures/tg/bondage-physical?lang=eng)
 
 ### References
 - [[Genesis 27.40|Genesis 27:40]]

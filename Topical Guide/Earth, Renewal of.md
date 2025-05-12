@@ -1,6 +1,6 @@
 # Earth, Renewal of
 
-[Earth, Renewal of](https://www.churchofjesuschrist.org/study/scriptures/tg/Earth-Renewal-of?lang=eng)
+[Earth, Renewal of](https://churchofjesuschrist.org/study/scriptures/tg/earth-renewal-of?lang=eng)
 
 ### References
 - [[Job 9.6|Job 9:6]]

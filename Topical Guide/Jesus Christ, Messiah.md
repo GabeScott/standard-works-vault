@@ -1,6 +1,6 @@
 # Jesus Christ, Messiah
 
-[Jesus Christ, Messiah](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Messiah?lang=eng)
+[Jesus Christ, Messiah](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-messiah?lang=eng)
 
 ### References
 - [[Genesis 49.10|Genesis 49:10]]

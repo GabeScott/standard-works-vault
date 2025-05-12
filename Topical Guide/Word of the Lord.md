@@ -1,6 +1,6 @@
 # Word of the Lord
 
-[Word of the Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/Word-of-the-Lord?lang=eng)
+[Word of the Lord](https://churchofjesuschrist.org/study/scriptures/tg/word-of-the-lord?lang=eng)
 
 ### References
 - [[Genesis 15.1|Genesis 15:1]]

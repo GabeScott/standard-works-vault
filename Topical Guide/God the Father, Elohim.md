@@ -1,6 +1,6 @@
 # God the Father, Elohim
 
-[God the Father, Elohim](https://www.churchofjesuschrist.org/study/scriptures/tg/God-the-Father-Elohim?lang=eng)
+[God the Father, Elohim](https://churchofjesuschrist.org/study/scriptures/tg/god-the-father-elohim?lang=eng)
 
 ### References
 - [[Genesis 14.19|Genesis 14:19]]

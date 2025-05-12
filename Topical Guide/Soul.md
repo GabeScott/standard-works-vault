@@ -1,6 +1,6 @@
 # Soul
 
-[Soul](https://www.churchofjesuschrist.org/study/scriptures/tg/Soul?lang=eng)
+[Soul](https://churchofjesuschrist.org/study/scriptures/tg/soul?lang=eng)
 
 ### References
 - [[Genesis 2.7|Genesis 2:7]]

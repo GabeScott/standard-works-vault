@@ -1,6 +1,6 @@
 # Amiss
 
-[Amiss](https://www.churchofjesuschrist.org/study/scriptures/tg/Amiss?lang=eng)
+[Amiss](https://churchofjesuschrist.org/study/scriptures/tg/amiss?lang=eng)
 
 ### References
 - [[Daniel 3.29|Daniel 3:29]]

@@ -1,6 +1,6 @@
 # Slippery
 
-[Slippery](https://www.churchofjesuschrist.org/study/scriptures/tg/Slippery?lang=eng)
+[Slippery](https://churchofjesuschrist.org/study/scriptures/tg/slippery?lang=eng)
 
 ### References
 - [[Psalms 73.18|Psalms 73:18]]

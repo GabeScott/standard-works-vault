@@ -1,6 +1,6 @@
 # True
 
-[True](https://www.churchofjesuschrist.org/study/scriptures/tg/True?lang=eng)
+[True](https://churchofjesuschrist.org/study/scriptures/tg/church-signs-of-true?lang=eng)
 
 ### References
 - [[Genesis 42.11|Genesis 42:11]]

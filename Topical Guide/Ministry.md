@@ -1,6 +1,6 @@
 # Ministry
 
-[Ministry](https://www.churchofjesuschrist.org/study/scriptures/tg/Ministry?lang=eng)
+[Ministry](https://churchofjesuschrist.org/study/scriptures/tg/ministry?lang=eng)
 
 ### References
 - [[Numbers 4.47|Numbers 4:47]]

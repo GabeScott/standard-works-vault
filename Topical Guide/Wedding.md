@@ -1,6 +1,6 @@
 # Wedding
 
-[Wedding](https://www.churchofjesuschrist.org/study/scriptures/tg/Wedding?lang=eng)
+[Wedding](https://churchofjesuschrist.org/study/scriptures/tg/wedding?lang=eng)
 
 ### References
 - [[Matthew 22.11|Matthew 22:11]]

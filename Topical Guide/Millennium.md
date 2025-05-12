@@ -1,6 +1,6 @@
 # Millennium
 
-[Millennium](https://www.churchofjesuschrist.org/study/scriptures/tg/Millennium?lang=eng)
+[Millennium](https://churchofjesuschrist.org/study/scriptures/tg/millennium?lang=eng)
 
 ### References
 - [[Isaiah 11.9|Isaiah 11:9]]

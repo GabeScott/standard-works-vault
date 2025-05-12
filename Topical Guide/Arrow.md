@@ -1,6 +1,6 @@
 # Arrow
 
-[Arrow](https://www.churchofjesuschrist.org/study/scriptures/tg/Arrow?lang=eng)
+[Arrow](https://churchofjesuschrist.org/study/scriptures/tg/arrow?lang=eng)
 
 ### References
 - [[Deuteronomy 32.23|Deuteronomy 32:23]]

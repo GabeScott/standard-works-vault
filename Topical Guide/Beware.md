@@ -1,6 +1,6 @@
 # Beware
 
-[Beware](https://www.churchofjesuschrist.org/study/scriptures/tg/Beware?lang=eng)
+[Beware](https://churchofjesuschrist.org/study/scriptures/tg/beware?lang=eng)
 
 ### References
 - [[Exodus 23.21|Exodus 23:21]]

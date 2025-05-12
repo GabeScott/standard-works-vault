@@ -1,6 +1,6 @@
 # Feet
 
-[Feet](https://www.churchofjesuschrist.org/study/scriptures/tg/Feet?lang=eng)
+[Feet](https://churchofjesuschrist.org/study/scriptures/tg/feet?lang=eng)
 
 ### References
 - [[Exodus 24.10|Exodus 24:10]]

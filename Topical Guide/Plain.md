@@ -1,6 +1,6 @@
 # Plain
 
-[Plain](https://www.churchofjesuschrist.org/study/scriptures/tg/Plain?lang=eng)
+[Plain](https://churchofjesuschrist.org/study/scriptures/tg/plain?lang=eng)
 
 ### References
 - [[Genesis 25.27|Genesis 25:27]]

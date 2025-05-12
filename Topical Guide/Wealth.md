@@ -1,6 +1,6 @@
 # Wealth
 
-[Wealth](https://www.churchofjesuschrist.org/study/scriptures/tg/Wealth?lang=eng)
+[Wealth](https://churchofjesuschrist.org/study/scriptures/tg/wealth?lang=eng)
 
 ### References
 - [[Deuteronomy 8.17|Deuteronomy 8:17]]

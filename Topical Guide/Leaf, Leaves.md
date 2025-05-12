@@ -1,6 +1,6 @@
 # Leaf, Leaves
 
-[Leaf, Leaves](https://www.churchofjesuschrist.org/study/scriptures/tg/Leaf-Leaves?lang=eng)
+[Leaf, Leaves](https://churchofjesuschrist.org/study/scriptures/tg/leaf?lang=eng)
 
 ### References
 - [[Genesis 3.7|Genesis 3:7]]

@@ -1,6 +1,6 @@
 # Provide
 
-[Provide](https://www.churchofjesuschrist.org/study/scriptures/tg/Provide?lang=eng)
+[Provide](https://churchofjesuschrist.org/study/scriptures/tg/provide?lang=eng)
 
 ### References
 - [[Genesis 22.8|Genesis 22:8]]

@@ -1,6 +1,6 @@
 # Thrice
 
-[Thrice](https://www.churchofjesuschrist.org/study/scriptures/tg/Thrice?lang=eng)
+[Thrice](https://churchofjesuschrist.org/study/scriptures/tg/thrice?lang=eng)
 
 ### References
 - [[Exodus 34.23|Exodus 34:23]]

@@ -1,6 +1,6 @@
 # Flight
 
-[Flight](https://www.churchofjesuschrist.org/study/scriptures/tg/Flight?lang=eng)
+[Flight](https://churchofjesuschrist.org/study/scriptures/tg/flight?lang=eng)
 
 ### References
 - [[Leviticus 26.8|Leviticus 26:8]]

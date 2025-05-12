@@ -1,6 +1,6 @@
 # Born
 
-[Born](https://www.churchofjesuschrist.org/study/scriptures/tg/Born?lang=eng)
+[Born](https://churchofjesuschrist.org/study/scriptures/tg/born?lang=eng)
 
 ### References
 - [[Genesis 15.3|Genesis 15:3]]

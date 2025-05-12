@@ -1,6 +1,6 @@
 # Sabbatical Year
 
-[Sabbatical Year](https://www.churchofjesuschrist.org/study/scriptures/tg/Sabbatical-Year?lang=eng)
+[Sabbatical Year](https://churchofjesuschrist.org/study/scriptures/tg/sabbatical-year?lang=eng)
 
 ### References
 - [[Exodus 21.2|Exodus 21:2]]

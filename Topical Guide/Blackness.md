@@ -1,6 +1,6 @@
 # Blackness
 
-[Blackness](https://www.churchofjesuschrist.org/study/scriptures/tg/Blackness?lang=eng)
+[Blackness](https://churchofjesuschrist.org/study/scriptures/tg/blackness?lang=eng)
 
 ### References
 - [[Joel 2.6|Joel 2:6]]

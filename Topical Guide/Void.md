@@ -1,6 +1,6 @@
 # Void
 
-[Void](https://www.churchofjesuschrist.org/study/scriptures/tg/Void?lang=eng)
+[Void](https://churchofjesuschrist.org/study/scriptures/tg/void?lang=eng)
 
 ### References
 - [[Genesis 1.2|Genesis 1:2]]

@@ -1,6 +1,6 @@
 # Bosom
 
-[Bosom](https://www.churchofjesuschrist.org/study/scriptures/tg/Bosom?lang=eng)
+[Bosom](https://churchofjesuschrist.org/study/scriptures/tg/abrahams-bosom?lang=eng)
 
 ### References
 - [[Exodus 4.6|Exodus 4:6]]

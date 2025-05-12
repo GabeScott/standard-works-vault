@@ -1,6 +1,6 @@
 # Hour
 
-[Hour](https://www.churchofjesuschrist.org/study/scriptures/tg/Hour?lang=eng)
+[Hour](https://churchofjesuschrist.org/study/scriptures/tg/hour?lang=eng)
 
 ### References
 - [[Matthew 10.19|Matthew 10:19]]

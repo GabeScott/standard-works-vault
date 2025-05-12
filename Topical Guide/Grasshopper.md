@@ -1,6 +1,6 @@
 # Grasshopper
 
-[Grasshopper](https://www.churchofjesuschrist.org/study/scriptures/tg/Grasshopper?lang=eng)
+[Grasshopper](https://churchofjesuschrist.org/study/scriptures/tg/grasshopper?lang=eng)
 
 ### References
 - [[Numbers 13.33|Numbers 13:33]]

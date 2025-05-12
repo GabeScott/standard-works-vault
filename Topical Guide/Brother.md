@@ -1,6 +1,6 @@
 # Brother
 
-[Brother](https://www.churchofjesuschrist.org/study/scriptures/tg/Brother?lang=eng)
+[Brother](https://churchofjesuschrist.org/study/scriptures/tg/brother?lang=eng)
 
 ### References
 - [[Genesis 12.5|Genesis 12:5]]

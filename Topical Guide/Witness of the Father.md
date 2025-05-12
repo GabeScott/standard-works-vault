@@ -1,6 +1,6 @@
 # Witness of the Father
 
-[Witness of the Father](https://www.churchofjesuschrist.org/study/scriptures/tg/Witness-of-the-Father?lang=eng)
+[Witness of the Father](https://churchofjesuschrist.org/study/scriptures/tg/witness-of-the-father?lang=eng)
 
 ### References
 - [[Isaiah 42.1|Isaiah 42:1]]

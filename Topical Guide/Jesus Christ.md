@@ -1,6 +1,6 @@
 # Jesus Christ
 
-[Jesus Christ](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ?lang=eng)
+[Jesus Christ](https://churchofjesuschrist.org/study/scriptures/tg/betrayal-of-jesus-christ?lang=eng)
 
 ### References
 - [[Matthew 1.18|Matthew 1:18]]

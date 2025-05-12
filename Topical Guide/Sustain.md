@@ -1,6 +1,6 @@
 # Sustain
 
-[Sustain](https://www.churchofjesuschrist.org/study/scriptures/tg/Sustain?lang=eng)
+[Sustain](https://churchofjesuschrist.org/study/scriptures/tg/sustain?lang=eng)
 
 ### References
 - [[1 Kings 17.9|1 Kings 17:9]]

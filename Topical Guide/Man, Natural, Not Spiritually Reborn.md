@@ -1,6 +1,6 @@
 # Man, Natural, Not Spiritually Reborn
 
-[Man, Natural, Not Spiritually Reborn](https://www.churchofjesuschrist.org/study/scriptures/tg/Man-Natural-Not-Spiritually-Reborn?lang=eng)
+[Man, Natural, Not Spiritually Reborn](https://churchofjesuschrist.org/study/scriptures/tg/man-natural-not-spiritually-reborn?lang=eng)
 
 ### References
 - [[Genesis 2.17|Genesis 2:17]]

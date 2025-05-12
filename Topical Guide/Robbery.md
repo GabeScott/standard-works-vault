@@ -1,6 +1,6 @@
 # Robbery
 
-[Robbery](https://www.churchofjesuschrist.org/study/scriptures/tg/Robbery?lang=eng)
+[Robbery](https://churchofjesuschrist.org/study/scriptures/tg/robbery?lang=eng)
 
 ### References
 - [[Isaiah 61.8|Isaiah 61:8]]

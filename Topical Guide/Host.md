@@ -1,6 +1,6 @@
 # Host
 
-[Host](https://www.churchofjesuschrist.org/study/scriptures/tg/Host?lang=eng)
+[Host](https://churchofjesuschrist.org/study/scriptures/tg/host?lang=eng)
 
 ### References
 - [[Genesis 2.1|Genesis 2:1]]

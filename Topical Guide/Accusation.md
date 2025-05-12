@@ -1,6 +1,6 @@
 # Accusation
 
-[Accusation](https://www.churchofjesuschrist.org/study/scriptures/tg/Accusation?lang=eng)
+[Accusation](https://churchofjesuschrist.org/study/scriptures/tg/accusation?lang=eng)
 
 ### References
 - [[Matthew 27.37|Matthew 27:37]]

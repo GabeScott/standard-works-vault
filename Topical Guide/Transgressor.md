@@ -1,6 +1,6 @@
 # Transgressor
 
-[Transgressor](https://www.churchofjesuschrist.org/study/scriptures/tg/Transgressor?lang=eng)
+[Transgressor](https://churchofjesuschrist.org/study/scriptures/tg/transgressor?lang=eng)
 
 ### References
 - [[Psalms 51.13|Psalms 51:13]]

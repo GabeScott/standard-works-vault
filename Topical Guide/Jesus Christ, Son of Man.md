@@ -1,6 +1,6 @@
 # Jesus Christ, Son of Man
 
-[Jesus Christ, Son of Man](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Son-of-Man?lang=eng)
+[Jesus Christ, Son of Man](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-son-of-man?lang=eng)
 
 ### References
 - [[Daniel 7.13|Daniel 7:13]]

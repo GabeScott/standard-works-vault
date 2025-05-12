@@ -1,6 +1,6 @@
 # Cave
 
-[Cave](https://www.churchofjesuschrist.org/study/scriptures/tg/Cave?lang=eng)
+[Cave](https://churchofjesuschrist.org/study/scriptures/tg/cave?lang=eng)
 
 ### References
 - [[Genesis 19.30|Genesis 19:30]]

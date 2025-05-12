@@ -1,6 +1,6 @@
 # Prolong
 
-[Prolong](https://www.churchofjesuschrist.org/study/scriptures/tg/Prolong?lang=eng)
+[Prolong](https://churchofjesuschrist.org/study/scriptures/tg/prolong?lang=eng)
 
 ### References
 - [[Deuteronomy 30.18|Deuteronomy 30:18]]

@@ -1,6 +1,6 @@
 # Need
 
-[Need](https://www.churchofjesuschrist.org/study/scriptures/tg/Need?lang=eng)
+[Need](https://churchofjesuschrist.org/study/scriptures/tg/need?lang=eng)
 
 ### References
 - [[Deuteronomy 15.8|Deuteronomy 15:8]]

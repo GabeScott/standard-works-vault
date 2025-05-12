@@ -1,6 +1,6 @@
 # Bondman
 
-[Bondman](https://www.churchofjesuschrist.org/study/scriptures/tg/Bondman?lang=eng)
+[Bondman](https://churchofjesuschrist.org/study/scriptures/tg/bondman?lang=eng)
 
 ### References
 - [[Deuteronomy 15.15|Deuteronomy 15:15]]

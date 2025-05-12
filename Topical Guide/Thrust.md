@@ -1,6 +1,6 @@
 # Thrust
 
-[Thrust](https://www.churchofjesuschrist.org/study/scriptures/tg/Thrust?lang=eng)
+[Thrust](https://churchofjesuschrist.org/study/scriptures/tg/thrust?lang=eng)
 
 ### References
 - [[John 20.27|John 20:27]]

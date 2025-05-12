@@ -1,6 +1,6 @@
 # Quiet
 
-[Quiet](https://www.churchofjesuschrist.org/study/scriptures/tg/Quiet?lang=eng)
+[Quiet](https://churchofjesuschrist.org/study/scriptures/tg/quiet?lang=eng)
 
 ### References
 - [[Isaiah 14.7|Isaiah 14:7]]

@@ -1,6 +1,6 @@
 # Solemn
 
-[Solemn](https://www.churchofjesuschrist.org/study/scriptures/tg/Solemn?lang=eng)
+[Solemn](https://churchofjesuschrist.org/study/scriptures/tg/solemn?lang=eng)
 
 ### References
 - [[Numbers 10.10|Numbers 10:10]]

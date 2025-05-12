@@ -1,6 +1,6 @@
 # Tremble
 
-[Tremble](https://www.churchofjesuschrist.org/study/scriptures/tg/Tremble?lang=eng)
+[Tremble](https://churchofjesuschrist.org/study/scriptures/tg/tremble?lang=eng)
 
 ### References
 - [[Deuteronomy 2.25|Deuteronomy 2:25]]

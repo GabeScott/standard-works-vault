@@ -1,6 +1,6 @@
 # Judge
 
-[Judge](https://www.churchofjesuschrist.org/study/scriptures/tg/Judge?lang=eng)
+[Judge](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-judge?lang=eng)
 
 ### References
 - [[Genesis 16.5|Genesis 16:5]]

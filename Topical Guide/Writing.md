@@ -1,6 +1,6 @@
 # Writing
 
-[Writing](https://www.churchofjesuschrist.org/study/scriptures/tg/Writing?lang=eng)
+[Writing](https://churchofjesuschrist.org/study/scriptures/tg/writing?lang=eng)
 
 ### References
 - [[Exodus 32.16|Exodus 32:16]]

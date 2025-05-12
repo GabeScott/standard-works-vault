@@ -1,6 +1,6 @@
 # Tabernacle
 
-[Tabernacle](https://www.churchofjesuschrist.org/study/scriptures/tg/Tabernacle?lang=eng)
+[Tabernacle](https://churchofjesuschrist.org/study/scriptures/tg/tabernacle?lang=eng)
 
 ### References
 - [[Exodus 25.8|Exodus 25:8]]

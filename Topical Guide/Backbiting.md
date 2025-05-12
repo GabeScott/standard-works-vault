@@ -1,6 +1,6 @@
 # Backbiting
 
-[Backbiting](https://www.churchofjesuschrist.org/study/scriptures/tg/Backbiting?lang=eng)
+[Backbiting](https://churchofjesuschrist.org/study/scriptures/tg/backbiting?lang=eng)
 
 ### References
 - [[Psalms 101.5|Psalms 101:5]]

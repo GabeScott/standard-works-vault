@@ -1,6 +1,6 @@
 # Rough
 
-[Rough](https://www.churchofjesuschrist.org/study/scriptures/tg/Rough?lang=eng)
+[Rough](https://churchofjesuschrist.org/study/scriptures/tg/rough?lang=eng)
 
 ### References
 - [[1 Nephi 17.46|1 Nephi 17:46]]

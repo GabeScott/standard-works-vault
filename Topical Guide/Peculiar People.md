@@ -1,6 +1,6 @@
 # Peculiar People
 
-[Peculiar People](https://www.churchofjesuschrist.org/study/scriptures/tg/Peculiar-People?lang=eng)
+[Peculiar People](https://churchofjesuschrist.org/study/scriptures/tg/peculiar-people?lang=eng)
 
 ### References
 - [[Exodus 19.5|Exodus 19:5]]

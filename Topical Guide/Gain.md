@@ -1,6 +1,6 @@
 # Gain
 
-[Gain](https://www.churchofjesuschrist.org/study/scriptures/tg/Gain?lang=eng)
+[Gain](https://churchofjesuschrist.org/study/scriptures/tg/gain?lang=eng)
 
 ### References
 - [[Proverbs 28.8|Proverbs 28:8]]

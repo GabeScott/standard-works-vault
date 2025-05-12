@@ -1,6 +1,6 @@
 # Living
 
-[Living](https://www.churchofjesuschrist.org/study/scriptures/tg/Living?lang=eng)
+[Living](https://churchofjesuschrist.org/study/scriptures/tg/living?lang=eng)
 
 ### References
 - [[Genesis 1.21|Genesis 1:21]]

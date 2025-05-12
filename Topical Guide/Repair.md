@@ -1,6 +1,6 @@
 # Repair
 
-[Repair](https://www.churchofjesuschrist.org/study/scriptures/tg/Repair?lang=eng)
+[Repair](https://churchofjesuschrist.org/study/scriptures/tg/repair?lang=eng)
 
 ### References
 - [[2 Chronicles 24.4|2 Chronicles 24:4]]

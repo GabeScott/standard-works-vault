@@ -1,6 +1,6 @@
 # Priesthood, Oath and Covenant
 
-[Priesthood, Oath and Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood-Oath-and-Covenant?lang=eng)
+[Priesthood, Oath and Covenant](https://churchofjesuschrist.org/study/scriptures/tg/priesthood-oath-and-covenant?lang=eng)
 
 ### References
 - [[Numbers 25.13|Numbers 25:13]]

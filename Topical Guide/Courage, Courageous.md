@@ -1,6 +1,6 @@
 # Courage, Courageous
 
-[Courage, Courageous](https://www.churchofjesuschrist.org/study/scriptures/tg/Courage-Courageous?lang=eng)
+[Courage, Courageous](https://churchofjesuschrist.org/study/scriptures/tg/courage?lang=eng)
 
 ### References
 - [[Deuteronomy 20.1|Deuteronomy 20:1]]

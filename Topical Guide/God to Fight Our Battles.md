@@ -1,6 +1,6 @@
 # God to Fight Our Battles
 
-[God to Fight Our Battles](https://www.churchofjesuschrist.org/study/scriptures/tg/God-to-Fight-Our-Battles?lang=eng)
+[God to Fight Our Battles](https://churchofjesuschrist.org/study/scriptures/tg/god-to-fight-our-battles?lang=eng)
 
 ### References
 - [[Exodus 14.14|Exodus 14:14]]

@@ -1,6 +1,6 @@
 # Scorner
 
-[Scorner](https://www.churchofjesuschrist.org/study/scriptures/tg/Scorner?lang=eng)
+[Scorner](https://churchofjesuschrist.org/study/scriptures/tg/scorner?lang=eng)
 
 ### References
 - [[Proverbs 1.22|Proverbs 1:22]]

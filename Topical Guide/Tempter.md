@@ -1,6 +1,6 @@
 # Tempter
 
-[Tempter](https://www.churchofjesuschrist.org/study/scriptures/tg/Tempter?lang=eng)
+[Tempter](https://churchofjesuschrist.org/study/scriptures/tg/tempter?lang=eng)
 
 ### References
 - [[Matthew 4.3|Matthew 4:3]]

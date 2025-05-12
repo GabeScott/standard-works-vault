@@ -1,6 +1,6 @@
 # Overwhelm
 
-[Overwhelm](https://www.churchofjesuschrist.org/study/scriptures/tg/Overwhelm?lang=eng)
+[Overwhelm](https://churchofjesuschrist.org/study/scriptures/tg/overwhelm?lang=eng)
 
 ### References
 - [[Psalms 142.3|Psalms 142:3]]

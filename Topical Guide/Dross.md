@@ -1,6 +1,6 @@
 # Dross
 
-[Dross](https://www.churchofjesuschrist.org/study/scriptures/tg/Dross?lang=eng)
+[Dross](https://churchofjesuschrist.org/study/scriptures/tg/dross?lang=eng)
 
 ### References
 - [[Psalms 119.119|Psalms 119:119]]

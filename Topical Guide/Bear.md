@@ -1,6 +1,6 @@
 # Bear
 
-[Bear](https://www.churchofjesuschrist.org/study/scriptures/tg/Bear?lang=eng)
+[Bear](https://churchofjesuschrist.org/study/scriptures/tg/bear-noun?lang=eng)
 
 ### References
 - [[1 Samuel 17.34|1 Samuel 17:34]]

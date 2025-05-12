@@ -1,6 +1,6 @@
 # Abrahamic Covenant
 
-[Abrahamic Covenant](https://www.churchofjesuschrist.org/study/scriptures/tg/Abrahamic-Covenant?lang=eng)
+[Abrahamic Covenant](https://churchofjesuschrist.org/study/scriptures/tg/abrahamic-covenant?lang=eng)
 
 ### References
 - [[Genesis 12.3|Genesis 12:3]]

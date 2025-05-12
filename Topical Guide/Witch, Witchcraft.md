@@ -1,6 +1,6 @@
 # Witch, Witchcraft
 
-[Witch, Witchcraft](https://www.churchofjesuschrist.org/study/scriptures/tg/Witch-Witchcraft?lang=eng)
+[Witch, Witchcraft](https://churchofjesuschrist.org/study/scriptures/tg/witch?lang=eng)
 
 ### References
 - [[Exodus 22.18|Exodus 22:18]]

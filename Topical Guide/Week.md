@@ -1,6 +1,6 @@
 # Week
 
-[Week](https://www.churchofjesuschrist.org/study/scriptures/tg/Week?lang=eng)
+[Week](https://churchofjesuschrist.org/study/scriptures/tg/week?lang=eng)
 
 ### References
 - [[Exodus 34.22|Exodus 34:22]]

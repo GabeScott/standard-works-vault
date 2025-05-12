@@ -1,6 +1,6 @@
 # Urge
 
-[Urge](https://www.churchofjesuschrist.org/study/scriptures/tg/Urge?lang=eng)
+[Urge](https://churchofjesuschrist.org/study/scriptures/tg/urge?lang=eng)
 
 ### References
 - [[Judges 16.16|Judges 16:16]]

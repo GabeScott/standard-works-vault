@@ -1,6 +1,6 @@
 # Offense, Offend, Offender
 
-[Offense, Offend, Offender](https://www.churchofjesuschrist.org/study/scriptures/tg/Offense-Offend-Offender?lang=eng)
+[Offense, Offend, Offender](https://churchofjesuschrist.org/study/scriptures/tg/offense?lang=eng)
 
 ### References
 - [[2 Chronicles 28.13|2 Chronicles 28:13]]

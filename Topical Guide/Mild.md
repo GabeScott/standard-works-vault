@@ -1,6 +1,6 @@
 # Mild
 
-[Mild](https://www.churchofjesuschrist.org/study/scriptures/tg/Mild?lang=eng)
+[Mild](https://churchofjesuschrist.org/study/scriptures/tg/mild?lang=eng)
 
 ### References
 - [[D&C 42.43|D&C 42:43]]

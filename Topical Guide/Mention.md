@@ -1,6 +1,6 @@
 # Mention
 
-[Mention](https://www.churchofjesuschrist.org/study/scriptures/tg/Mention?lang=eng)
+[Mention](https://churchofjesuschrist.org/study/scriptures/tg/mention?lang=eng)
 
 ### References
 - [[Exodus 23.13|Exodus 23:13]]

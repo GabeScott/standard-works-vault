@@ -1,6 +1,6 @@
 # Quickly
 
-[Quickly](https://www.churchofjesuschrist.org/study/scriptures/tg/Quickly?lang=eng)
+[Quickly](https://churchofjesuschrist.org/study/scriptures/tg/quickly?lang=eng)
 
 ### References
 - [[Exodus 32.8|Exodus 32:8]]

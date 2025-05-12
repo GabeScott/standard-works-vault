@@ -1,6 +1,6 @@
 # Usurp
 
-[Usurp](https://www.churchofjesuschrist.org/study/scriptures/tg/Usurp?lang=eng)
+[Usurp](https://churchofjesuschrist.org/study/scriptures/tg/usurp?lang=eng)
 
 ### References
 - [[1 Timothy 2.12|1 Timothy 2:12]]

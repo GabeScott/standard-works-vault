@@ -1,6 +1,6 @@
 # Gate
 
-[Gate](https://www.churchofjesuschrist.org/study/scriptures/tg/Gate?lang=eng)
+[Gate](https://churchofjesuschrist.org/study/scriptures/tg/gate?lang=eng)
 
 ### References
 - [[Genesis 22.17|Genesis 22:17]]

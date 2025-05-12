@@ -1,6 +1,6 @@
 # Debate
 
-[Debate](https://www.churchofjesuschrist.org/study/scriptures/tg/Debate?lang=eng)
+[Debate](https://churchofjesuschrist.org/study/scriptures/tg/debate?lang=eng)
 
 ### References
 - [[Proverbs 25.9|Proverbs 25:9]]

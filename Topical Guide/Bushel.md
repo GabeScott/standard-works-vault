@@ -1,6 +1,6 @@
 # Bushel
 
-[Bushel](https://www.churchofjesuschrist.org/study/scriptures/tg/Bushel?lang=eng)
+[Bushel](https://churchofjesuschrist.org/study/scriptures/tg/bushel?lang=eng)
 
 ### References
 - [[Matthew 5.15|Matthew 5:15]]

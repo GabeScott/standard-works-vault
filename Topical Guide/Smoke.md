@@ -1,6 +1,6 @@
 # Smoke
 
-[Smoke](https://www.churchofjesuschrist.org/study/scriptures/tg/Smoke?lang=eng)
+[Smoke](https://churchofjesuschrist.org/study/scriptures/tg/smoke?lang=eng)
 
 ### References
 - [[Genesis 19.28|Genesis 19:28]]

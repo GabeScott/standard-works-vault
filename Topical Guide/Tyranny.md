@@ -1,6 +1,6 @@
 # Tyranny
 
-[Tyranny](https://www.churchofjesuschrist.org/study/scriptures/tg/Tyranny?lang=eng)
+[Tyranny](https://churchofjesuschrist.org/study/scriptures/tg/tyranny?lang=eng)
 
 ### References
 - [[Judges 9.4|Judges 9:4]]

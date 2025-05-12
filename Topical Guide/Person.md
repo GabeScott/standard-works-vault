@@ -1,6 +1,6 @@
 # Person
 
-[Person](https://www.churchofjesuschrist.org/study/scriptures/tg/Person?lang=eng)
+[Person](https://churchofjesuschrist.org/study/scriptures/tg/person?lang=eng)
 
 ### References
 - [[Deuteronomy 10.17|Deuteronomy 10:17]]

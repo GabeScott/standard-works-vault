@@ -1,6 +1,6 @@
 # Think, Thought
 
-[Think, Thought](https://www.churchofjesuschrist.org/study/scriptures/tg/Think-Thought?lang=eng)
+[Think, Thought](https://churchofjesuschrist.org/study/scriptures/tg/think?lang=eng)
 
 ### References
 - [[Genesis 50.20|Genesis 50:20]]

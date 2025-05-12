@@ -1,6 +1,6 @@
 # Knee
 
-[Knee](https://www.churchofjesuschrist.org/study/scriptures/tg/Knee?lang=eng)
+[Knee](https://churchofjesuschrist.org/study/scriptures/tg/knee?lang=eng)
 
 ### References
 - [[1 Kings 19.18|1 Kings 19:18]]

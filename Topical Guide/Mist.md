@@ -1,6 +1,6 @@
 # Mist
 
-[Mist](https://www.churchofjesuschrist.org/study/scriptures/tg/Mist?lang=eng)
+[Mist](https://churchofjesuschrist.org/study/scriptures/tg/mist?lang=eng)
 
 ### References
 - [[Genesis 2.6|Genesis 2:6]]

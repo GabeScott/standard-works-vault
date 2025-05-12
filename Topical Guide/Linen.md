@@ -1,6 +1,6 @@
 # Linen
 
-[Linen](https://www.churchofjesuschrist.org/study/scriptures/tg/Linen?lang=eng)
+[Linen](https://churchofjesuschrist.org/study/scriptures/tg/linen?lang=eng)
 
 ### References
 - [[Exodus 25.4|Exodus 25:4]]

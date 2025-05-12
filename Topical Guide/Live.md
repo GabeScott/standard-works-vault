@@ -1,6 +1,6 @@
 # Live
 
-[Live](https://www.churchofjesuschrist.org/study/scriptures/tg/Live?lang=eng)
+[Live](https://churchofjesuschrist.org/study/scriptures/tg/live-verb?lang=eng)
 
 ### References
 - [[Genesis 3.22|Genesis 3:22]]

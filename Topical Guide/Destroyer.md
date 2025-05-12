@@ -1,6 +1,6 @@
 # Destroyer
 
-[Destroyer](https://www.churchofjesuschrist.org/study/scriptures/tg/Destroyer?lang=eng)
+[Destroyer](https://churchofjesuschrist.org/study/scriptures/tg/destroyer?lang=eng)
 
 ### References
 - [[Exodus 12.23|Exodus 12:23]]

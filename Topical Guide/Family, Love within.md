@@ -1,6 +1,6 @@
 # Family, Love within
 
-[Family, Love within](https://www.churchofjesuschrist.org/study/scriptures/tg/Family-Love-within?lang=eng)
+[Family, Love within](https://churchofjesuschrist.org/study/scriptures/tg/family-love-within?lang=eng)
 
 ### References
 - [[Genesis 14.16|Genesis 14:16]]

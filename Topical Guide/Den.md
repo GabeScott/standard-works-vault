@@ -1,6 +1,6 @@
 # Den
 
-[Den](https://www.churchofjesuschrist.org/study/scriptures/tg/Den?lang=eng)
+[Den](https://churchofjesuschrist.org/study/scriptures/tg/den?lang=eng)
 
 ### References
 - [[Isaiah 11.8|Isaiah 11:8]]

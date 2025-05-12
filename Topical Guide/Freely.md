@@ -1,6 +1,6 @@
 # Freely
 
-[Freely](https://www.churchofjesuschrist.org/study/scriptures/tg/Freely?lang=eng)
+[Freely](https://churchofjesuschrist.org/study/scriptures/tg/freely?lang=eng)
 
 ### References
 - [[Genesis 2.16|Genesis 2:16]]

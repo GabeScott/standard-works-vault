@@ -1,6 +1,6 @@
 # Unawares
 
-[Unawares](https://www.churchofjesuschrist.org/study/scriptures/tg/Unawares?lang=eng)
+[Unawares](https://churchofjesuschrist.org/study/scriptures/tg/unawares?lang=eng)
 
 ### References
 - [[Numbers 35.11|Numbers 35:11]]

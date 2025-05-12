@@ -1,6 +1,6 @@
 # Supply
 
-[Supply](https://www.churchofjesuschrist.org/study/scriptures/tg/Supply?lang=eng)
+[Supply](https://churchofjesuschrist.org/study/scriptures/tg/supply?lang=eng)
 
 ### References
 - [[1 Corinthians 16.17|1 Corinthians 16:17]]

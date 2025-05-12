@@ -1,6 +1,6 @@
 # Weigh
 
-[Weigh](https://www.churchofjesuschrist.org/study/scriptures/tg/Weigh?lang=eng)
+[Weigh](https://churchofjesuschrist.org/study/scriptures/tg/weigh?lang=eng)
 
 ### References
 - [[Job 31.6|Job 31:6]]

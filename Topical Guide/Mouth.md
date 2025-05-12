@@ -1,6 +1,6 @@
 # Mouth
 
-[Mouth](https://www.churchofjesuschrist.org/study/scriptures/tg/Mouth?lang=eng)
+[Mouth](https://churchofjesuschrist.org/study/scriptures/tg/mouth?lang=eng)
 
 ### References
 - [[Exodus 4.11|Exodus 4:11]]

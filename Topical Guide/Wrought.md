@@ -1,6 +1,6 @@
 # Wrought
 
-[Wrought](https://www.churchofjesuschrist.org/study/scriptures/tg/Wrought?lang=eng)
+[Wrought](https://churchofjesuschrist.org/study/scriptures/tg/wrought?lang=eng)
 
 ### References
 - [[Numbers 23.23|Numbers 23:23]]

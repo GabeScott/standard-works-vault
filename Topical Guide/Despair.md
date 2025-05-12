@@ -1,6 +1,6 @@
 # Despair
 
-[Despair](https://www.churchofjesuschrist.org/study/scriptures/tg/Despair?lang=eng)
+[Despair](https://churchofjesuschrist.org/study/scriptures/tg/despair?lang=eng)
 
 ### References
 - [[Job 3.3|Job 3:3]]

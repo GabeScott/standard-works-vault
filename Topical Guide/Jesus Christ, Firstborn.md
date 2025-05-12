@@ -1,6 +1,6 @@
 # Jesus Christ, Firstborn
 
-[Jesus Christ, Firstborn](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Firstborn?lang=eng)
+[Jesus Christ, Firstborn](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-firstborn?lang=eng)
 
 ### References
 - [[Psalms 89.27|Psalms 89:27]]

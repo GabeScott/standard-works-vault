@@ -1,6 +1,6 @@
 # Hunter
 
-[Hunter](https://www.churchofjesuschrist.org/study/scriptures/tg/Hunter?lang=eng)
+[Hunter](https://churchofjesuschrist.org/study/scriptures/tg/hunter?lang=eng)
 
 ### References
 - [[Genesis 10.9|Genesis 10:9]]

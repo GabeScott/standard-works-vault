@@ -1,6 +1,6 @@
 # Top
 
-[Top](https://www.churchofjesuschrist.org/study/scriptures/tg/Top?lang=eng)
+[Top](https://churchofjesuschrist.org/study/scriptures/tg/top?lang=eng)
 
 ### References
 - [[Genesis 11.4|Genesis 11:4]]

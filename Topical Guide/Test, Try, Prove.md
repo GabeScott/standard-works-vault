@@ -1,6 +1,6 @@
 # Test, Try, Prove
 
-[Test, Try, Prove](https://www.churchofjesuschrist.org/study/scriptures/tg/Test-Try-Prove?lang=eng)
+[Test, Try, Prove](https://churchofjesuschrist.org/study/scriptures/tg/test?lang=eng)
 
 ### References
 - [[Exodus 16.4|Exodus 16:4]]

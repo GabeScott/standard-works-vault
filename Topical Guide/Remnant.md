@@ -1,6 +1,6 @@
 # Remnant
 
-[Remnant](https://www.churchofjesuschrist.org/study/scriptures/tg/Remnant?lang=eng)
+[Remnant](https://churchofjesuschrist.org/study/scriptures/tg/remnant?lang=eng)
 
 ### References
 - [[Leviticus 5.13|Leviticus 5:13]]

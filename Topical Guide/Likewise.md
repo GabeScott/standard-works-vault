@@ -1,6 +1,6 @@
 # Likewise
 
-[Likewise](https://www.churchofjesuschrist.org/study/scriptures/tg/Likewise?lang=eng)
+[Likewise](https://churchofjesuschrist.org/study/scriptures/tg/likewise?lang=eng)
 
 ### References
 - [[Luke 10.37|Luke 10:37]]

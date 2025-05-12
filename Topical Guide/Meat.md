@@ -1,6 +1,6 @@
 # Meat
 
-[Meat](https://www.churchofjesuschrist.org/study/scriptures/tg/Meat?lang=eng)
+[Meat](https://churchofjesuschrist.org/study/scriptures/tg/meat?lang=eng)
 
 ### References
 - [[Genesis 9.3|Genesis 9:3]]

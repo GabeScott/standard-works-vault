@@ -1,6 +1,6 @@
 # Silk
 
-[Silk](https://www.churchofjesuschrist.org/study/scriptures/tg/Silk?lang=eng)
+[Silk](https://churchofjesuschrist.org/study/scriptures/tg/silk?lang=eng)
 
 ### References
 - [[Proverbs 31.22|Proverbs 31:22]]

@@ -1,6 +1,6 @@
 # Cedar
 
-[Cedar](https://www.churchofjesuschrist.org/study/scriptures/tg/Cedar?lang=eng)
+[Cedar](https://churchofjesuschrist.org/study/scriptures/tg/cedar?lang=eng)
 
 ### References
 - [[Judges 9.15|Judges 9:15]]

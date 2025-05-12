@@ -1,6 +1,6 @@
 # Plainness
 
-[Plainness](https://www.churchofjesuschrist.org/study/scriptures/tg/Plainness?lang=eng)
+[Plainness](https://churchofjesuschrist.org/study/scriptures/tg/plainness?lang=eng)
 
 ### References
 - [[2 Corinthians 3.12|2 Corinthians 3:12]]

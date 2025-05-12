@@ -1,6 +1,6 @@
 # Light
 
-[Light](https://www.churchofjesuschrist.org/study/scriptures/tg/Light?lang=eng)
+[Light](https://churchofjesuschrist.org/study/scriptures/tg/children-of-light?lang=eng)
 
 ### References
 - [[Genesis 1.16|Genesis 1:16]]

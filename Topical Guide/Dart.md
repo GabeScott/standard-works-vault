@@ -1,6 +1,6 @@
 # Dart
 
-[Dart](https://www.churchofjesuschrist.org/study/scriptures/tg/Dart?lang=eng)
+[Dart](https://churchofjesuschrist.org/study/scriptures/tg/dart?lang=eng)
 
 ### References
 - [[Proverbs 7.23|Proverbs 7:23]]

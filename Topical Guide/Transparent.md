@@ -1,6 +1,6 @@
 # Transparent
 
-[Transparent](https://www.churchofjesuschrist.org/study/scriptures/tg/Transparent?lang=eng)
+[Transparent](https://churchofjesuschrist.org/study/scriptures/tg/transparent?lang=eng)
 
 ### References
 - [[Revelation 21.21|Revelation 21:21]]

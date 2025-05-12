@@ -1,6 +1,6 @@
 # Steadfastness, Steadfast
 
-[Steadfastness, Steadfast](https://www.churchofjesuschrist.org/study/scriptures/tg/Steadfastness-Steadfast?lang=eng)
+[Steadfastness, Steadfast](https://churchofjesuschrist.org/study/scriptures/tg/steadfastness?lang=eng)
 
 ### References
 - [[Ruth 1.18|Ruth 1:18]]

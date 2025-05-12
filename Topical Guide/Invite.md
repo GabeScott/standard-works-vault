@@ -1,6 +1,6 @@
 # Invite
 
-[Invite](https://www.churchofjesuschrist.org/study/scriptures/tg/Invite?lang=eng)
+[Invite](https://churchofjesuschrist.org/study/scriptures/tg/invite?lang=eng)
 
 ### References
 - [[2 Nephi 26.33|2 Nephi 26:33]]

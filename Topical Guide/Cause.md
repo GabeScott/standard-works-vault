@@ -1,6 +1,6 @@
 # Cause
 
-[Cause](https://www.churchofjesuschrist.org/study/scriptures/tg/Cause?lang=eng)
+[Cause](https://churchofjesuschrist.org/study/scriptures/tg/cause?lang=eng)
 
 ### References
 - [[Numbers 27.5|Numbers 27:5]]

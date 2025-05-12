@@ -1,6 +1,6 @@
 # Follower
 
-[Follower](https://www.churchofjesuschrist.org/study/scriptures/tg/Follower?lang=eng)
+[Follower](https://churchofjesuschrist.org/study/scriptures/tg/follower?lang=eng)
 
 ### References
 - [[1 Corinthians 11.1|1 Corinthians 11:1]]

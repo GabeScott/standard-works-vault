@@ -1,6 +1,6 @@
 # Burial
 
-[Burial](https://www.churchofjesuschrist.org/study/scriptures/tg/Burial?lang=eng)
+[Burial](https://churchofjesuschrist.org/study/scriptures/tg/burial?lang=eng)
 
 ### References
 - [[Jeremiah 22.19|Jeremiah 22:19]]

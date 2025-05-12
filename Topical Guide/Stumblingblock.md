@@ -1,6 +1,6 @@
 # Stumblingblock
 
-[Stumblingblock](https://www.churchofjesuschrist.org/study/scriptures/tg/Stumblingblock?lang=eng)
+[Stumblingblock](https://churchofjesuschrist.org/study/scriptures/tg/stumblingblock?lang=eng)
 
 ### References
 - [[Leviticus 19.14|Leviticus 19:14]]

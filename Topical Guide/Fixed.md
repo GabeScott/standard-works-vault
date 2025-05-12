@@ -1,6 +1,6 @@
 # Fixed
 
-[Fixed](https://www.churchofjesuschrist.org/study/scriptures/tg/Fixed?lang=eng)
+[Fixed](https://churchofjesuschrist.org/study/scriptures/tg/fixed?lang=eng)
 
 ### References
 - [[Psalms 108.1|Psalms 108:1]]

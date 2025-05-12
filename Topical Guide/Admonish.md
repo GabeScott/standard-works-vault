@@ -1,6 +1,6 @@
 # Admonish
 
-[Admonish](https://www.churchofjesuschrist.org/study/scriptures/tg/Admonish?lang=eng)
+[Admonish](https://churchofjesuschrist.org/study/scriptures/tg/admonish?lang=eng)
 
 ### References
 - [[Romans 15.14|Romans 15:14]]

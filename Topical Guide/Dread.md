@@ -1,6 +1,6 @@
 # Dread
 
-[Dread](https://www.churchofjesuschrist.org/study/scriptures/tg/Dread?lang=eng)
+[Dread](https://churchofjesuschrist.org/study/scriptures/tg/dread?lang=eng)
 
 ### References
 - [[Genesis 9.2|Genesis 9:2]]

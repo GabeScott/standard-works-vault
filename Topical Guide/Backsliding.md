@@ -1,6 +1,6 @@
 # Backsliding
 
-[Backsliding](https://www.churchofjesuschrist.org/study/scriptures/tg/Backsliding?lang=eng)
+[Backsliding](https://churchofjesuschrist.org/study/scriptures/tg/backsliding?lang=eng)
 
 ### References
 - [[Jeremiah 14.7|Jeremiah 14:7]]

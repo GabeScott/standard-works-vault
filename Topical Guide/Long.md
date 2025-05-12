@@ -1,6 +1,6 @@
 # Long
 
-[Long](https://www.churchofjesuschrist.org/study/scriptures/tg/Long?lang=eng)
+[Long](https://churchofjesuschrist.org/study/scriptures/tg/long?lang=eng)
 
 ### References
 - [[Exodus 20.12|Exodus 20:12]]

@@ -1,6 +1,6 @@
 # Bitter
 
-[Bitter](https://www.churchofjesuschrist.org/study/scriptures/tg/Bitter?lang=eng)
+[Bitter](https://churchofjesuschrist.org/study/scriptures/tg/bitter?lang=eng)
 
 ### References
 - [[Exodus 1.14|Exodus 1:14]]

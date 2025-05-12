@@ -1,6 +1,6 @@
 # Medicine
 
-[Medicine](https://www.churchofjesuschrist.org/study/scriptures/tg/Medicine?lang=eng)
+[Medicine](https://churchofjesuschrist.org/study/scriptures/tg/medicine?lang=eng)
 
 ### References
 - [[Proverbs 17.22|Proverbs 17:22]]

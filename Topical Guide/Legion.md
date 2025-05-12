@@ -1,6 +1,6 @@
 # Legion
 
-[Legion](https://www.churchofjesuschrist.org/study/scriptures/tg/Legion?lang=eng)
+[Legion](https://churchofjesuschrist.org/study/scriptures/tg/legion?lang=eng)
 
 ### References
 - [[Matthew 26.53|Matthew 26:53]]

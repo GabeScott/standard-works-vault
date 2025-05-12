@@ -1,6 +1,6 @@
 # Jesse
 
-[Jesse](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesse?lang=eng)
+[Jesse](https://churchofjesuschrist.org/study/scriptures/tg/jesse?lang=eng)
 
 ### References
 - [[1 Samuel 16.1|1 Samuel 16:1]]

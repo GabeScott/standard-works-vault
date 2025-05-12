@@ -1,6 +1,6 @@
 # Vex
 
-[Vex](https://www.churchofjesuschrist.org/study/scriptures/tg/Vex?lang=eng)
+[Vex](https://churchofjesuschrist.org/study/scriptures/tg/vex?lang=eng)
 
 ### References
 - [[Exodus 22.21|Exodus 22:21]]

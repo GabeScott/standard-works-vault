@@ -1,6 +1,6 @@
 # Part
 
-[Part](https://www.churchofjesuschrist.org/study/scriptures/tg/Part?lang=eng)
+[Part](https://churchofjesuschrist.org/study/scriptures/tg/part?lang=eng)
 
 ### References
 - [[Numbers 18.20|Numbers 18:20]]

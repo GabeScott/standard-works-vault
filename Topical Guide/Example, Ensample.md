@@ -1,6 +1,6 @@
 # Example, Ensample
 
-[Example, Ensample](https://www.churchofjesuschrist.org/study/scriptures/tg/Example-Ensample?lang=eng)
+[Example, Ensample](https://churchofjesuschrist.org/study/scriptures/tg/example?lang=eng)
 
 ### References
 - [[Joshua 24.15|Joshua 24:15]]

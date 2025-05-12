@@ -1,6 +1,6 @@
 # Industry, Industrious
 
-[Industry, Industrious](https://www.churchofjesuschrist.org/study/scriptures/tg/Industry-Industrious?lang=eng)
+[Industry, Industrious](https://churchofjesuschrist.org/study/scriptures/tg/industry?lang=eng)
 
 ### References
 - [[Genesis 3.19|Genesis 3:19]]

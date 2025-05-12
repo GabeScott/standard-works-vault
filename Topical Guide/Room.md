@@ -1,6 +1,6 @@
 # Room
 
-[Room](https://www.churchofjesuschrist.org/study/scriptures/tg/Room?lang=eng)
+[Room](https://churchofjesuschrist.org/study/scriptures/tg/room?lang=eng)
 
 ### References
 - [[Genesis 24.23|Genesis 24:23]]

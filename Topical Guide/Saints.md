@@ -1,6 +1,6 @@
 # Saints
 
-[Saints](https://www.churchofjesuschrist.org/study/scriptures/tg/Saints?lang=eng)
+[Saints](https://churchofjesuschrist.org/study/scriptures/tg/mission-of-early-saints?lang=eng)
 
 ### References
 - [[Deuteronomy 33.2|Deuteronomy 33:2]]

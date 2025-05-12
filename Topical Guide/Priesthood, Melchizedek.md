@@ -1,6 +1,6 @@
 # Priesthood, Melchizedek
 
-[Priesthood, Melchizedek](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood-Melchizedek?lang=eng)
+[Priesthood, Melchizedek](https://churchofjesuschrist.org/study/scriptures/tg/priesthood-melchizedek?lang=eng)
 
 ### References
 - [[Genesis 14.18|Genesis 14:18]]

@@ -1,6 +1,6 @@
 # Personage
 
-[Personage](https://www.churchofjesuschrist.org/study/scriptures/tg/Personage?lang=eng)
+[Personage](https://churchofjesuschrist.org/study/scriptures/tg/personage?lang=eng)
 
 ### References
 - [[D&C 129.1|D&C 129:1]]

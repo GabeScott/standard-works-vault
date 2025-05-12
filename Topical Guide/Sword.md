@@ -1,6 +1,6 @@
 # Sword
 
-[Sword](https://www.churchofjesuschrist.org/study/scriptures/tg/Sword?lang=eng)
+[Sword](https://churchofjesuschrist.org/study/scriptures/tg/sword?lang=eng)
 
 ### References
 - [[Genesis 3.24|Genesis 3:24]]

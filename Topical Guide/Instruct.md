@@ -1,6 +1,6 @@
 # Instruct
 
-[Instruct](https://www.churchofjesuschrist.org/study/scriptures/tg/Instruct?lang=eng)
+[Instruct](https://churchofjesuschrist.org/study/scriptures/tg/instruct?lang=eng)
 
 ### References
 - [[Deuteronomy 4.36|Deuteronomy 4:36]]

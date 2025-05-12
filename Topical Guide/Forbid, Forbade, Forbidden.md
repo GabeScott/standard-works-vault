@@ -1,6 +1,6 @@
 # Forbid, Forbade, Forbidden
 
-[Forbid, Forbade, Forbidden](https://www.churchofjesuschrist.org/study/scriptures/tg/Forbid-Forbade-Forbidden?lang=eng)
+[Forbid, Forbade, Forbidden](https://churchofjesuschrist.org/study/scriptures/tg/forbid?lang=eng)
 
 ### References
 - [[Leviticus 5.17|Leviticus 5:17]]

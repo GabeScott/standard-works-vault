@@ -1,6 +1,6 @@
 # Increase
 
-[Increase](https://www.churchofjesuschrist.org/study/scriptures/tg/Increase?lang=eng)
+[Increase](https://churchofjesuschrist.org/study/scriptures/tg/increase?lang=eng)
 
 ### References
 - [[Genesis 47.24|Genesis 47:24]]

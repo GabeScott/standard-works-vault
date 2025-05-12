@@ -1,6 +1,6 @@
 # Adam
 
-[Adam](https://www.churchofjesuschrist.org/study/scriptures/tg/Adam?lang=eng)
+[Adam](https://churchofjesuschrist.org/study/scriptures/tg/adam?lang=eng)
 
 ### References
 - [[Genesis 1.26|Genesis 1:26]]

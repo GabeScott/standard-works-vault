@@ -1,6 +1,6 @@
 # Privately
 
-[Privately](https://www.churchofjesuschrist.org/study/scriptures/tg/Privately?lang=eng)
+[Privately](https://churchofjesuschrist.org/study/scriptures/tg/privately?lang=eng)
 
 ### References
 - [[Matthew 24.3|Matthew 24:3]]

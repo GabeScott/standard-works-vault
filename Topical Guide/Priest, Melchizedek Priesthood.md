@@ -1,6 +1,6 @@
 # Priest, Melchizedek Priesthood
 
-[Priest, Melchizedek Priesthood](https://www.churchofjesuschrist.org/study/scriptures/tg/Priest-Melchizedek-Priesthood?lang=eng)
+[Priest, Melchizedek Priesthood](https://churchofjesuschrist.org/study/scriptures/tg/high-priest-melchizedek-priesthood?lang=eng)
 
 ### References
 - [[Genesis 14.18|Genesis 14:18]]

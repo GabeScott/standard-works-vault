@@ -1,6 +1,6 @@
 # Try, Tried
 
-[Try, Tried](https://www.churchofjesuschrist.org/study/scriptures/tg/Try-Tried?lang=eng)
+[Try, Tried](https://churchofjesuschrist.org/study/scriptures/tg/try?lang=eng)
 
 ### References
 - [[Judges 7.4|Judges 7:4]]

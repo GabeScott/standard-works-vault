@@ -1,6 +1,6 @@
 # Pardon
 
-[Pardon](https://www.churchofjesuschrist.org/study/scriptures/tg/Pardon?lang=eng)
+[Pardon](https://churchofjesuschrist.org/study/scriptures/tg/pardon?lang=eng)
 
 ### References
 - [[Exodus 23.21|Exodus 23:21]]

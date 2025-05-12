@@ -1,6 +1,6 @@
 # Possession
 
-[Possession](https://www.churchofjesuschrist.org/study/scriptures/tg/Possession?lang=eng)
+[Possession](https://churchofjesuschrist.org/study/scriptures/tg/possession?lang=eng)
 
 ### References
 - [[Genesis 17.8|Genesis 17:8]]

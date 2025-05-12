@@ -1,6 +1,6 @@
 # Light of Christ
 
-[Light of Christ](https://www.churchofjesuschrist.org/study/scriptures/tg/Light-of-Christ?lang=eng)
+[Light of Christ](https://churchofjesuschrist.org/study/scriptures/tg/light-of-christ?lang=eng)
 
 ### References
 - [[Psalms 34.5|Psalms 34:5]]

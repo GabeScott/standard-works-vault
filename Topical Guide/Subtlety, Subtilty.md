@@ -1,6 +1,6 @@
 # Subtlety, Subtilty
 
-[Subtlety, Subtilty](https://www.churchofjesuschrist.org/study/scriptures/tg/Subtlety-Subtilty?lang=eng)
+[Subtlety, Subtilty](https://churchofjesuschrist.org/study/scriptures/tg/subtlety?lang=eng)
 
 ### References
 - [[Genesis 27.35|Genesis 27:35]]

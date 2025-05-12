@@ -1,6 +1,6 @@
 # Restore
 
-[Restore](https://www.churchofjesuschrist.org/study/scriptures/tg/Restore?lang=eng)
+[Restore](https://churchofjesuschrist.org/study/scriptures/tg/restore?lang=eng)
 
 ### References
 - [[Genesis 20.7|Genesis 20:7]]

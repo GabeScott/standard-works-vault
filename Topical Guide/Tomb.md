@@ -1,6 +1,6 @@
 # Tomb
 
-[Tomb](https://www.churchofjesuschrist.org/study/scriptures/tg/Tomb?lang=eng)
+[Tomb](https://churchofjesuschrist.org/study/scriptures/tg/tomb?lang=eng)
 
 ### References
 - [[Matthew 23.29|Matthew 23:29]]

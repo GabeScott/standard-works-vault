@@ -1,6 +1,6 @@
 # Apostles
 
-[Apostles](https://www.churchofjesuschrist.org/study/scriptures/tg/Apostles?lang=eng)
+[Apostles](https://churchofjesuschrist.org/study/scriptures/tg/apostles?lang=eng)
 
 ### References
 - [[Matthew 10.1|Matthew 10:1]]

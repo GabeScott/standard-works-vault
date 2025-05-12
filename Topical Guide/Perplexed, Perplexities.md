@@ -1,6 +1,6 @@
 # Perplexed, Perplexities
 
-[Perplexed, Perplexities](https://www.churchofjesuschrist.org/study/scriptures/tg/Perplexed-Perplexities?lang=eng)
+[Perplexed, Perplexities](https://churchofjesuschrist.org/study/scriptures/tg/perplexed?lang=eng)
 
 ### References
 - [[Joel 1.18|Joel 1:18]]

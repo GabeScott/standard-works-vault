@@ -1,6 +1,6 @@
 # Wall
 
-[Wall](https://www.churchofjesuschrist.org/study/scriptures/tg/Wall?lang=eng)
+[Wall](https://churchofjesuschrist.org/study/scriptures/tg/wall?lang=eng)
 
 ### References
 - [[Exodus 14.22|Exodus 14:22]]

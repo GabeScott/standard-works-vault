@@ -1,6 +1,6 @@
 # Tribe
 
-[Tribe](https://www.churchofjesuschrist.org/study/scriptures/tg/Tribe?lang=eng)
+[Tribe](https://churchofjesuschrist.org/study/scriptures/tg/tribe?lang=eng)
 
 ### References
 - [[Genesis 49.28|Genesis 49:28]]

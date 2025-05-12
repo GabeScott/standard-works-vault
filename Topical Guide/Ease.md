@@ -1,6 +1,6 @@
 # Ease
 
-[Ease](https://www.churchofjesuschrist.org/study/scriptures/tg/Ease?lang=eng)
+[Ease](https://churchofjesuschrist.org/study/scriptures/tg/ease?lang=eng)
 
 ### References
 - [[Deuteronomy 28.65|Deuteronomy 28:65]]

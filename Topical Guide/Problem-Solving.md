@@ -1,6 +1,6 @@
 # Problem-Solving
 
-[Problem-Solving](https://www.churchofjesuschrist.org/study/scriptures/tg/Problem-Solving?lang=eng)
+[Problem-Solving](https://churchofjesuschrist.org/study/scriptures/tg/problem-solving?lang=eng)
 
 ### References
 - [[Genesis 32.24|Genesis 32:24]]

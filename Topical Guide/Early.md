@@ -1,6 +1,6 @@
 # Early
 
-[Early](https://www.churchofjesuschrist.org/study/scriptures/tg/Early?lang=eng)
+[Early](https://churchofjesuschrist.org/study/scriptures/tg/early?lang=eng)
 
 ### References
 - [[Psalms 63.1|Psalms 63:1]]

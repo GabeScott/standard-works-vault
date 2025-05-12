@@ -1,6 +1,6 @@
 # Lowliness
 
-[Lowliness](https://www.churchofjesuschrist.org/study/scriptures/tg/Lowliness?lang=eng)
+[Lowliness](https://churchofjesuschrist.org/study/scriptures/tg/lowliness?lang=eng)
 
 ### References
 - [[Ephesians 4.2|Ephesians 4:2]]

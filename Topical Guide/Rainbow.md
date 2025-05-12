@@ -1,6 +1,6 @@
 # Rainbow
 
-[Rainbow](https://www.churchofjesuschrist.org/study/scriptures/tg/Rainbow?lang=eng)
+[Rainbow](https://churchofjesuschrist.org/study/scriptures/tg/rainbow?lang=eng)
 
 ### References
 - [[Genesis 9.13|Genesis 9:13]]

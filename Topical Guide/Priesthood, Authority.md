@@ -1,6 +1,6 @@
 # Priesthood, Authority
 
-[Priesthood, Authority](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood-Authority?lang=eng)
+[Priesthood, Authority](https://churchofjesuschrist.org/study/scriptures/tg/priesthood-authority?lang=eng)
 
 ### References
 - [[Exodus 18.15|Exodus 18:15]]

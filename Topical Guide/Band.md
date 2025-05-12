@@ -1,6 +1,6 @@
 # Band
 
-[Band](https://www.churchofjesuschrist.org/study/scriptures/tg/Band?lang=eng)
+[Band](https://churchofjesuschrist.org/study/scriptures/tg/band?lang=eng)
 
 ### References
 - [[Genesis 32.7|Genesis 32:7]]

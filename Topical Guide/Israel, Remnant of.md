@@ -1,6 +1,6 @@
 # Israel, Remnant of
 
-[Israel, Remnant of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Remnant-of?lang=eng)
+[Israel, Remnant of](https://churchofjesuschrist.org/study/scriptures/tg/israel-remnant-of?lang=eng)
 
 ### References
 - [[2 Kings 19.30|2 Kings 19:30]]

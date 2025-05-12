@@ -1,6 +1,6 @@
 # Hen
 
-[Hen](https://www.churchofjesuschrist.org/study/scriptures/tg/Hen?lang=eng)
+[Hen](https://churchofjesuschrist.org/study/scriptures/tg/hen?lang=eng)
 
 ### References
 - [[Matthew 23.37|Matthew 23:37]]

@@ -1,6 +1,6 @@
 # Graft
 
-[Graft](https://www.churchofjesuschrist.org/study/scriptures/tg/Graft?lang=eng)
+[Graft](https://churchofjesuschrist.org/study/scriptures/tg/graft?lang=eng)
 
 ### References
 - [[Romans 11.17|Romans 11:17]]

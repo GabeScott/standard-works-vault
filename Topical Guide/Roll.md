@@ -1,6 +1,6 @@
 # Roll
 
-[Roll](https://www.churchofjesuschrist.org/study/scriptures/tg/Roll?lang=eng)
+[Roll](https://churchofjesuschrist.org/study/scriptures/tg/roll?lang=eng)
 
 ### References
 - [[Joshua 5.9|Joshua 5:9]]

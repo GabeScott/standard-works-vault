@@ -1,6 +1,6 @@
 # Gospel
 
-[Gospel](https://www.churchofjesuschrist.org/study/scriptures/tg/Gospel?lang=eng)
+[Gospel](https://churchofjesuschrist.org/study/scriptures/tg/first-principles-of-the-gospel?lang=eng)
 
 ### References
 - [[Isaiah 40.9|Isaiah 40:9]]

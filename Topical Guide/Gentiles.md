@@ -1,6 +1,6 @@
 # Gentiles
 
-[Gentiles](https://www.churchofjesuschrist.org/study/scriptures/tg/Gentiles?lang=eng)
+[Gentiles](https://churchofjesuschrist.org/study/scriptures/tg/gentiles?lang=eng)
 
 ### References
 - [[Genesis 10.5|Genesis 10:5]]

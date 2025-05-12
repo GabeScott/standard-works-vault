@@ -1,6 +1,6 @@
 # Hang
 
-[Hang](https://www.churchofjesuschrist.org/study/scriptures/tg/Hang?lang=eng)
+[Hang](https://churchofjesuschrist.org/study/scriptures/tg/hang?lang=eng)
 
 ### References
 - [[Genesis 40.22|Genesis 40:22]]

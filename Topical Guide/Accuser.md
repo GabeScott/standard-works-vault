@@ -1,6 +1,6 @@
 # Accuser
 
-[Accuser](https://www.churchofjesuschrist.org/study/scriptures/tg/Accuser?lang=eng)
+[Accuser](https://churchofjesuschrist.org/study/scriptures/tg/accuser?lang=eng)
 
 ### References
 - [[John 8.10|John 8:10]]

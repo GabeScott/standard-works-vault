@@ -1,6 +1,6 @@
 # Real, Really
 
-[Real, Really](https://www.churchofjesuschrist.org/study/scriptures/tg/Real-Really?lang=eng)
+[Real, Really](https://churchofjesuschrist.org/study/scriptures/tg/real?lang=eng)
 
 ### References
 - [[2 Nephi 31.13|2 Nephi 31:13]]

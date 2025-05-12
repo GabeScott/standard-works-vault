@@ -1,6 +1,6 @@
 # Marvel
 
-[Marvel](https://www.churchofjesuschrist.org/study/scriptures/tg/Marvel?lang=eng)
+[Marvel](https://churchofjesuschrist.org/study/scriptures/tg/marvel?lang=eng)
 
 ### References
 - [[Exodus 34.10|Exodus 34:10]]

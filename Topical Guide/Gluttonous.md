@@ -1,6 +1,6 @@
 # Gluttonous
 
-[Gluttonous](https://www.churchofjesuschrist.org/study/scriptures/tg/Gluttonous?lang=eng)
+[Gluttonous](https://churchofjesuschrist.org/study/scriptures/tg/gluttonous?lang=eng)
 
 ### References
 - [[Matthew 11.19|Matthew 11:19]]

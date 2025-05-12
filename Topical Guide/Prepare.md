@@ -1,6 +1,6 @@
 # Prepare
 
-[Prepare](https://www.churchofjesuschrist.org/study/scriptures/tg/Prepare?lang=eng)
+[Prepare](https://churchofjesuschrist.org/study/scriptures/tg/prepare?lang=eng)
 
 ### References
 - [[Exodus 15.2|Exodus 15:2]]

@@ -1,6 +1,6 @@
 # Refresh
 
-[Refresh](https://www.churchofjesuschrist.org/study/scriptures/tg/Refresh?lang=eng)
+[Refresh](https://churchofjesuschrist.org/study/scriptures/tg/refresh?lang=eng)
 
 ### References
 - [[Exodus 23.12|Exodus 23:12]]

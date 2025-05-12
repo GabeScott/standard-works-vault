@@ -1,6 +1,6 @@
 # Principle
 
-[Principle](https://www.churchofjesuschrist.org/study/scriptures/tg/Principle?lang=eng)
+[Principle](https://churchofjesuschrist.org/study/scriptures/tg/principle?lang=eng)
 
 ### References
 - [[Hebrews 5.12|Hebrews 5:12]]

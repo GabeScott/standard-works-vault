@@ -1,6 +1,6 @@
 # Book
 
-[Book](https://www.churchofjesuschrist.org/study/scriptures/tg/Book?lang=eng)
+[Book](https://churchofjesuschrist.org/study/scriptures/tg/book?lang=eng)
 
 ### References
 - [[Genesis 5.1|Genesis 5:1]]

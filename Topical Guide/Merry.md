@@ -1,6 +1,6 @@
 # Merry
 
-[Merry](https://www.churchofjesuschrist.org/study/scriptures/tg/Merry?lang=eng)
+[Merry](https://churchofjesuschrist.org/study/scriptures/tg/merry?lang=eng)
 
 ### References
 - [[1 Kings 21.7|1 Kings 21:7]]

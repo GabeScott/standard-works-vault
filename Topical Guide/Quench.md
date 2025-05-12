@@ -1,6 +1,6 @@
 # Quench
 
-[Quench](https://www.churchofjesuschrist.org/study/scriptures/tg/Quench?lang=eng)
+[Quench](https://churchofjesuschrist.org/study/scriptures/tg/quench?lang=eng)
 
 ### References
 - [[Numbers 11.2|Numbers 11:2]]

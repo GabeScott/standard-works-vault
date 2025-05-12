@@ -1,6 +1,6 @@
 # Hiss, Hissing
 
-[Hiss, Hissing](https://www.churchofjesuschrist.org/study/scriptures/tg/Hiss-Hissing?lang=eng)
+[Hiss, Hissing](https://churchofjesuschrist.org/study/scriptures/tg/hiss?lang=eng)
 
 ### References
 - [[1 Kings 9.8|1 Kings 9:8]]

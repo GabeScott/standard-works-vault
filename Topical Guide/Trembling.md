@@ -1,6 +1,6 @@
 # Trembling
 
-[Trembling](https://www.churchofjesuschrist.org/study/scriptures/tg/Trembling?lang=eng)
+[Trembling](https://churchofjesuschrist.org/study/scriptures/tg/trembling?lang=eng)
 
 ### References
 - [[1 Corinthians 2.3|1 Corinthians 2:3]]

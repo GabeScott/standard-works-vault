@@ -1,6 +1,6 @@
 # Mindful
 
-[Mindful](https://www.churchofjesuschrist.org/study/scriptures/tg/Mindful?lang=eng)
+[Mindful](https://churchofjesuschrist.org/study/scriptures/tg/mindful?lang=eng)
 
 ### References
 - [[Psalms 8.4|Psalms 8:4]]

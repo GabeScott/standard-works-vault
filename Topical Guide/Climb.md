@@ -1,6 +1,6 @@
 # Climb
 
-[Climb](https://www.churchofjesuschrist.org/study/scriptures/tg/Climb?lang=eng)
+[Climb](https://churchofjesuschrist.org/study/scriptures/tg/climb?lang=eng)
 
 ### References
 - [[Luke 19.4|Luke 19:4]]

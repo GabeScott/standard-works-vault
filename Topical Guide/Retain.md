@@ -1,6 +1,6 @@
 # Retain
 
-[Retain](https://www.churchofjesuschrist.org/study/scriptures/tg/Retain?lang=eng)
+[Retain](https://churchofjesuschrist.org/study/scriptures/tg/retain?lang=eng)
 
 ### References
 - [[Job 2.9|Job 2:9]]

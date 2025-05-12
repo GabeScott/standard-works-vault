@@ -1,6 +1,6 @@
 # Prosper
 
-[Prosper](https://www.churchofjesuschrist.org/study/scriptures/tg/Prosper?lang=eng)
+[Prosper](https://churchofjesuschrist.org/study/scriptures/tg/prosper?lang=eng)
 
 ### References
 - [[Genesis 39.3|Genesis 39:3]]

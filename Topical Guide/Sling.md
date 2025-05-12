@@ -1,6 +1,6 @@
 # Sling
 
-[Sling](https://www.churchofjesuschrist.org/study/scriptures/tg/Sling?lang=eng)
+[Sling](https://churchofjesuschrist.org/study/scriptures/tg/sling?lang=eng)
 
 ### References
 - [[1 Samuel 17.50|1 Samuel 17:50]]

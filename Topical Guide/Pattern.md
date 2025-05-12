@@ -1,6 +1,6 @@
 # Pattern
 
-[Pattern](https://www.churchofjesuschrist.org/study/scriptures/tg/Pattern?lang=eng)
+[Pattern](https://churchofjesuschrist.org/study/scriptures/tg/pattern?lang=eng)
 
 ### References
 - [[Exodus 25.40|Exodus 25:40]]

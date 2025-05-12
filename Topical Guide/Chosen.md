@@ -1,6 +1,6 @@
 # Chosen
 
-[Chosen](https://www.churchofjesuschrist.org/study/scriptures/tg/Chosen?lang=eng)
+[Chosen](https://churchofjesuschrist.org/study/scriptures/tg/choose?lang=eng)
 
 ### References
 - [[1 Chronicles 16.13|1 Chronicles 16:13]]

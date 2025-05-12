@@ -1,6 +1,6 @@
 # Kindness
 
-[Kindness](https://www.churchofjesuschrist.org/study/scriptures/tg/Kindness?lang=eng)
+[Kindness](https://churchofjesuschrist.org/study/scriptures/tg/kindness?lang=eng)
 
 ### References
 - [[Genesis 20.13|Genesis 20:13]]

@@ -1,6 +1,6 @@
 # Cup
 
-[Cup](https://www.churchofjesuschrist.org/study/scriptures/tg/Cup?lang=eng)
+[Cup](https://churchofjesuschrist.org/study/scriptures/tg/cup?lang=eng)
 
 ### References
 - [[Genesis 44.2|Genesis 44:2]]

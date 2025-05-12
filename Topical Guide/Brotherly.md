@@ -1,6 +1,6 @@
 # Brotherly
 
-[Brotherly](https://www.churchofjesuschrist.org/study/scriptures/tg/Brotherly?lang=eng)
+[Brotherly](https://churchofjesuschrist.org/study/scriptures/tg/brotherly?lang=eng)
 
 ### References
 - [[Amos 1.9|Amos 1:9]]

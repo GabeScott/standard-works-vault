@@ -1,6 +1,6 @@
 # Proper
 
-[Proper](https://www.churchofjesuschrist.org/study/scriptures/tg/Proper?lang=eng)
+[Proper](https://churchofjesuschrist.org/study/scriptures/tg/proper?lang=eng)
 
 ### References
 - [[1 Corinthians 7.7|1 Corinthians 7:7]]

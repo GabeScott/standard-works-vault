@@ -1,6 +1,6 @@
 # Jesus Christ, Teaching Mode of
 
-[Jesus Christ, Teaching Mode of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Teaching-Mode-of?lang=eng)
+[Jesus Christ, Teaching Mode of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-teaching-mode-of?lang=eng)
 
 ### References
 - [[Matthew 12.3|Matthew 12:3]]

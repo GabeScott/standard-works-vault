@@ -1,6 +1,6 @@
 # Perpetual
 
-[Perpetual](https://www.churchofjesuschrist.org/study/scriptures/tg/Perpetual?lang=eng)
+[Perpetual](https://churchofjesuschrist.org/study/scriptures/tg/perpetual?lang=eng)
 
 ### References
 - [[Genesis 9.12|Genesis 9:12]]

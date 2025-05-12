@@ -1,6 +1,6 @@
 # Witness, Witnesses
 
-[Witness, Witnesses](https://www.churchofjesuschrist.org/study/scriptures/tg/Witness-Witnesses?lang=eng)
+[Witness, Witnesses](https://churchofjesuschrist.org/study/scriptures/tg/witness?lang=eng)
 
 ### References
 - [[Genesis 21.30|Genesis 21:30]]

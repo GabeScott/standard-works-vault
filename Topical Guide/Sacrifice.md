@@ -1,6 +1,6 @@
 # Sacrifice
 
-[Sacrifice](https://www.churchofjesuschrist.org/study/scriptures/tg/Sacrifice?lang=eng)
+[Sacrifice](https://churchofjesuschrist.org/study/scriptures/tg/sacrifice?lang=eng)
 
 ### References
 - [[Genesis 22.9|Genesis 22:9]]

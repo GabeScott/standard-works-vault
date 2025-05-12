@@ -1,6 +1,6 @@
 # Jesus Christ, Antemortal Existence of
 
-[Jesus Christ, Antemortal Existence of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Antemortal-Existence-of?lang=eng)
+[Jesus Christ, Antemortal Existence of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-antemortal-existence-of?lang=eng)
 
 ### References
 - [[John 1.1|John 1:1]]

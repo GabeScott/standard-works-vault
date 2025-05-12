@@ -1,6 +1,6 @@
 # Expedient
 
-[Expedient](https://www.churchofjesuschrist.org/study/scriptures/tg/Expedient?lang=eng)
+[Expedient](https://churchofjesuschrist.org/study/scriptures/tg/expedient?lang=eng)
 
 ### References
 - [[John 11.50|John 11:50]]

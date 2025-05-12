@@ -1,6 +1,6 @@
 # Compassion
 
-[Compassion](https://www.churchofjesuschrist.org/study/scriptures/tg/Compassion?lang=eng)
+[Compassion](https://churchofjesuschrist.org/study/scriptures/tg/compassion?lang=eng)
 
 ### References
 - [[Leviticus 19.14|Leviticus 19:14]]

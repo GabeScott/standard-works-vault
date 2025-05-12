@@ -1,6 +1,6 @@
 # Satisfy
 
-[Satisfy](https://www.churchofjesuschrist.org/study/scriptures/tg/Satisfy?lang=eng)
+[Satisfy](https://churchofjesuschrist.org/study/scriptures/tg/satisfy?lang=eng)
 
 ### References
 - [[Leviticus 26.26|Leviticus 26:26]]

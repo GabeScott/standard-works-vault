@@ -1,6 +1,6 @@
 # Throat
 
-[Throat](https://www.churchofjesuschrist.org/study/scriptures/tg/Throat?lang=eng)
+[Throat](https://churchofjesuschrist.org/study/scriptures/tg/throat?lang=eng)
 
 ### References
 - [[Psalms 5.9|Psalms 5:9]]

@@ -1,6 +1,6 @@
 # Vocally
 
-[Vocally](https://www.churchofjesuschrist.org/study/scriptures/tg/Vocally?lang=eng)
+[Vocally](https://churchofjesuschrist.org/study/scriptures/tg/vocally?lang=eng)
 
 ### References
 - [[D&C 19.28|D&C 19:28]]

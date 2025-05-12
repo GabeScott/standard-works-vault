@@ -1,6 +1,6 @@
 # God, Glory of
 
-[God, Glory of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Glory-of?lang=eng)
+[God, Glory of](https://churchofjesuschrist.org/study/scriptures/tg/god-glory-of?lang=eng)
 
 ### References
 - [[Exodus 16.10|Exodus 16:10]]

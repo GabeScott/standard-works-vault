@@ -1,6 +1,6 @@
 # Enmity
 
-[Enmity](https://www.churchofjesuschrist.org/study/scriptures/tg/Enmity?lang=eng)
+[Enmity](https://churchofjesuschrist.org/study/scriptures/tg/enmity?lang=eng)
 
 ### References
 - [[Genesis 3.15|Genesis 3:15]]

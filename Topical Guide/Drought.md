@@ -1,6 +1,6 @@
 # Drought
 
-[Drought](https://www.churchofjesuschrist.org/study/scriptures/tg/Drought?lang=eng)
+[Drought](https://churchofjesuschrist.org/study/scriptures/tg/drought?lang=eng)
 
 ### References
 - [[Genesis 31.40|Genesis 31:40]]

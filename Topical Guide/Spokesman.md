@@ -1,6 +1,6 @@
 # Spokesman
 
-[Spokesman](https://www.churchofjesuschrist.org/study/scriptures/tg/Spokesman?lang=eng)
+[Spokesman](https://churchofjesuschrist.org/study/scriptures/tg/spokesman?lang=eng)
 
 ### References
 - [[Exodus 4.16|Exodus 4:16]]

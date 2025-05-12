@@ -1,6 +1,6 @@
 # Name of the Lord
 
-[Name of the Lord](https://www.churchofjesuschrist.org/study/scriptures/tg/Name-of-the-Lord?lang=eng)
+[Name of the Lord](https://churchofjesuschrist.org/study/scriptures/tg/name-of-the-lord?lang=eng)
 
 ### References
 - [[Genesis 12.8|Genesis 12:8]]

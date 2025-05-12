@@ -1,6 +1,6 @@
 # Jesus Christ, Second Coming
 
-[Jesus Christ, Second Coming](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Second-Coming?lang=eng)
+[Jesus Christ, Second Coming](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-second-coming?lang=eng)
 
 ### References
 - [[Job 19.25|Job 19:25]]

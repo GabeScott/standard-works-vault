@@ -1,6 +1,6 @@
 # Double
 
-[Double](https://www.churchofjesuschrist.org/study/scriptures/tg/Double?lang=eng)
+[Double](https://churchofjesuschrist.org/study/scriptures/tg/double?lang=eng)
 
 ### References
 - [[Genesis 41.32|Genesis 41:32]]

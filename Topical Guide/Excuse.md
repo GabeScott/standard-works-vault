@@ -1,6 +1,6 @@
 # Excuse
 
-[Excuse](https://www.churchofjesuschrist.org/study/scriptures/tg/Excuse?lang=eng)
+[Excuse](https://churchofjesuschrist.org/study/scriptures/tg/excuse?lang=eng)
 
 ### References
 - [[Luke 14.18|Luke 14:18]]

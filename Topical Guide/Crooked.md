@@ -1,6 +1,6 @@
 # Crooked
 
-[Crooked](https://www.churchofjesuschrist.org/study/scriptures/tg/Crooked?lang=eng)
+[Crooked](https://churchofjesuschrist.org/study/scriptures/tg/crooked?lang=eng)
 
 ### References
 - [[Deuteronomy 32.5|Deuteronomy 32:5]]

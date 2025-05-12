@@ -1,6 +1,6 @@
 # Glorify
 
-[Glorify](https://www.churchofjesuschrist.org/study/scriptures/tg/Glorify?lang=eng)
+[Glorify](https://churchofjesuschrist.org/study/scriptures/tg/glorify?lang=eng)
 
 ### References
 - [[Leviticus 10.3|Leviticus 10:3]]

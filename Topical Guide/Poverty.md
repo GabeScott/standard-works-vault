@@ -1,6 +1,6 @@
 # Poverty
 
-[Poverty](https://www.churchofjesuschrist.org/study/scriptures/tg/Poverty?lang=eng)
+[Poverty](https://churchofjesuschrist.org/study/scriptures/tg/poverty?lang=eng)
 
 ### References
 - [[Proverbs 20.13|Proverbs 20:13]]

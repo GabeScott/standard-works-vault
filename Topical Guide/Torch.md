@@ -1,6 +1,6 @@
 # Torch
 
-[Torch](https://www.churchofjesuschrist.org/study/scriptures/tg/Torch?lang=eng)
+[Torch](https://churchofjesuschrist.org/study/scriptures/tg/torch?lang=eng)
 
 ### References
 - [[Nahum 2.3|Nahum 2:3]]

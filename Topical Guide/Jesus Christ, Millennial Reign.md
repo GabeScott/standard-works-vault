@@ -1,6 +1,6 @@
 # Jesus Christ, Millennial Reign
 
-[Jesus Christ, Millennial Reign](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Millennial-Reign?lang=eng)
+[Jesus Christ, Millennial Reign](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-millennial-reign?lang=eng)
 
 ### References
 - [[Psalms 132.11|Psalms 132:11]]

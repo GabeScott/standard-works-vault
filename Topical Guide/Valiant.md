@@ -1,6 +1,6 @@
 # Valiant
 
-[Valiant](https://www.churchofjesuschrist.org/study/scriptures/tg/Valiant?lang=eng)
+[Valiant](https://churchofjesuschrist.org/study/scriptures/tg/valiant?lang=eng)
 
 ### References
 - [[1 Samuel 16.18|1 Samuel 16:18]]

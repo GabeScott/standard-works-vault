@@ -1,6 +1,6 @@
 # Recover
 
-[Recover](https://www.churchofjesuschrist.org/study/scriptures/tg/Recover?lang=eng)
+[Recover](https://churchofjesuschrist.org/study/scriptures/tg/recover?lang=eng)
 
 ### References
 - [[2 Kings 5.3|2 Kings 5:3]]

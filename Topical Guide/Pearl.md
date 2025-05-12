@@ -1,6 +1,6 @@
 # Pearl
 
-[Pearl](https://www.churchofjesuschrist.org/study/scriptures/tg/Pearl?lang=eng)
+[Pearl](https://churchofjesuschrist.org/study/scriptures/tg/pearl?lang=eng)
 
 ### References
 - [[Matthew 13.46|Matthew 13:46]]

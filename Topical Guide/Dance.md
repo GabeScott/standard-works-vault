@@ -1,6 +1,6 @@
 # Dance
 
-[Dance](https://www.churchofjesuschrist.org/study/scriptures/tg/Dance?lang=eng)
+[Dance](https://churchofjesuschrist.org/study/scriptures/tg/dance?lang=eng)
 
 ### References
 - [[Judges 11.34|Judges 11:34]]

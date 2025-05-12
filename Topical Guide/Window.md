@@ -1,6 +1,6 @@
 # Window
 
-[Window](https://www.churchofjesuschrist.org/study/scriptures/tg/Window?lang=eng)
+[Window](https://churchofjesuschrist.org/study/scriptures/tg/window?lang=eng)
 
 ### References
 - [[Genesis 6.16|Genesis 6:16]]

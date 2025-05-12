@@ -1,6 +1,6 @@
 # Bitterness
 
-[Bitterness](https://www.churchofjesuschrist.org/study/scriptures/tg/Bitterness?lang=eng)
+[Bitterness](https://churchofjesuschrist.org/study/scriptures/tg/bitterness?lang=eng)
 
 ### References
 - [[1 Samuel 1.10|1 Samuel 1:10]]

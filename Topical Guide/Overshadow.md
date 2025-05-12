@@ -1,6 +1,6 @@
 # Overshadow
 
-[Overshadow](https://www.churchofjesuschrist.org/study/scriptures/tg/Overshadow?lang=eng)
+[Overshadow](https://churchofjesuschrist.org/study/scriptures/tg/overshadow?lang=eng)
 
 ### References
 - [[Matthew 17.5|Matthew 17:5]]

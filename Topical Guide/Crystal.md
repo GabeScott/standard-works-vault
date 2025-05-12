@@ -1,6 +1,6 @@
 # Crystal
 
-[Crystal](https://www.churchofjesuschrist.org/study/scriptures/tg/Crystal?lang=eng)
+[Crystal](https://churchofjesuschrist.org/study/scriptures/tg/crystal?lang=eng)
 
 ### References
 - [[Revelation 21.11|Revelation 21:11]]

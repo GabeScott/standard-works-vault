@@ -1,6 +1,6 @@
 # Break, Brake, Broken
 
-[Break, Brake, Broken](https://www.churchofjesuschrist.org/study/scriptures/tg/Break-Brake-Broken?lang=eng)
+[Break, Brake, Broken](https://churchofjesuschrist.org/study/scriptures/tg/break?lang=eng)
 
 ### References
 - [[Genesis 17.14|Genesis 17:14]]

@@ -1,6 +1,6 @@
 # Spot, Spotted
 
-[Spot, Spotted](https://www.churchofjesuschrist.org/study/scriptures/tg/Spot-Spotted?lang=eng)
+[Spot, Spotted](https://churchofjesuschrist.org/study/scriptures/tg/spot?lang=eng)
 
 ### References
 - [[Genesis 30.32|Genesis 30:32]]

@@ -1,6 +1,6 @@
 # Visit
 
-[Visit](https://www.churchofjesuschrist.org/study/scriptures/tg/Visit?lang=eng)
+[Visit](https://churchofjesuschrist.org/study/scriptures/tg/visit?lang=eng)
 
 ### References
 - [[Genesis 21.1|Genesis 21:1]]

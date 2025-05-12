@@ -1,6 +1,6 @@
 # Perform
 
-[Perform](https://www.churchofjesuschrist.org/study/scriptures/tg/Perform?lang=eng)
+[Perform](https://churchofjesuschrist.org/study/scriptures/tg/perform?lang=eng)
 
 ### References
 - [[Genesis 26.3|Genesis 26:3]]

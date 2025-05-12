@@ -1,6 +1,6 @@
 # Loathsome
 
-[Loathsome](https://www.churchofjesuschrist.org/study/scriptures/tg/Loathsome?lang=eng)
+[Loathsome](https://churchofjesuschrist.org/study/scriptures/tg/loathsome?lang=eng)
 
 ### References
 - [[Proverbs 13.5|Proverbs 13:5]]

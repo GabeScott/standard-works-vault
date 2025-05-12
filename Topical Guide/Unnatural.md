@@ -1,6 +1,6 @@
 # Unnatural
 
-[Unnatural](https://www.churchofjesuschrist.org/study/scriptures/tg/Unnatural?lang=eng)
+[Unnatural](https://churchofjesuschrist.org/study/scriptures/tg/unnatural?lang=eng)
 
 ### References
 - [[Alma 41.12|Alma 41:12]]

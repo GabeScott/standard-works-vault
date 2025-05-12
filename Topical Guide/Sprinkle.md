@@ -1,6 +1,6 @@
 # Sprinkle
 
-[Sprinkle](https://www.churchofjesuschrist.org/study/scriptures/tg/Sprinkle?lang=eng)
+[Sprinkle](https://churchofjesuschrist.org/study/scriptures/tg/sprinkle?lang=eng)
 
 ### References
 - [[Exodus 24.8|Exodus 24:8]]

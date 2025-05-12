@@ -1,6 +1,6 @@
 # Tribulation
 
-[Tribulation](https://www.churchofjesuschrist.org/study/scriptures/tg/Tribulation?lang=eng)
+[Tribulation](https://churchofjesuschrist.org/study/scriptures/tg/tribulation?lang=eng)
 
 ### References
 - [[Deuteronomy 4.30|Deuteronomy 4:30]]

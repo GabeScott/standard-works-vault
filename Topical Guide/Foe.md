@@ -1,6 +1,6 @@
 # Foe
 
-[Foe](https://www.churchofjesuschrist.org/study/scriptures/tg/Foe?lang=eng)
+[Foe](https://churchofjesuschrist.org/study/scriptures/tg/foe?lang=eng)
 
 ### References
 - [[Matthew 10.36|Matthew 10:36]]

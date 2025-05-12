@@ -1,6 +1,6 @@
 # Simpleness
 
-[Simpleness](https://www.churchofjesuschrist.org/study/scriptures/tg/Simpleness?lang=eng)
+[Simpleness](https://churchofjesuschrist.org/study/scriptures/tg/simpleness?lang=eng)
 
 ### References
 - [[1 Nephi 17.41|1 Nephi 17:41]]

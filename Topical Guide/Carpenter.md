@@ -1,6 +1,6 @@
 # Carpenter
 
-[Carpenter](https://www.churchofjesuschrist.org/study/scriptures/tg/Carpenter?lang=eng)
+[Carpenter](https://churchofjesuschrist.org/study/scriptures/tg/carpenter?lang=eng)
 
 ### References
 - [[2 Samuel 5.11|2 Samuel 5:11]]

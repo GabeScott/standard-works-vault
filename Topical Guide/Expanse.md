@@ -1,6 +1,6 @@
 # Expanse
 
-[Expanse](https://www.churchofjesuschrist.org/study/scriptures/tg/Expanse?lang=eng)
+[Expanse](https://churchofjesuschrist.org/study/scriptures/tg/expanse?lang=eng)
 
 ### References
 - [[D&C 38.1|D&C 38:1]]

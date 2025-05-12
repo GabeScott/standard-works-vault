@@ -1,6 +1,6 @@
 # Refuse
 
-[Refuse](https://www.churchofjesuschrist.org/study/scriptures/tg/Refuse?lang=eng)
+[Refuse](https://churchofjesuschrist.org/study/scriptures/tg/refuse?lang=eng)
 
 ### References
 - [[Genesis 37.35|Genesis 37:35]]

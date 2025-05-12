@@ -1,6 +1,6 @@
 # Purity, Pure
 
-[Purity, Pure](https://www.churchofjesuschrist.org/study/scriptures/tg/Purity-Pure?lang=eng)
+[Purity, Pure](https://churchofjesuschrist.org/study/scriptures/tg/purity?lang=eng)
 
 ### References
 - [[Psalms 12.6|Psalms 12:6]]

@@ -1,6 +1,6 @@
 # Wear
 
-[Wear](https://www.churchofjesuschrist.org/study/scriptures/tg/Wear?lang=eng)
+[Wear](https://churchofjesuschrist.org/study/scriptures/tg/wear?lang=eng)
 
 ### References
 - [[Deuteronomy 22.5|Deuteronomy 22:5]]

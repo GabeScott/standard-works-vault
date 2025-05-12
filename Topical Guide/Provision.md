@@ -1,6 +1,6 @@
 # Provision
 
-[Provision](https://www.churchofjesuschrist.org/study/scriptures/tg/Provision?lang=eng)
+[Provision](https://churchofjesuschrist.org/study/scriptures/tg/provision?lang=eng)
 
 ### References
 - [[Genesis 42.25|Genesis 42:25]]

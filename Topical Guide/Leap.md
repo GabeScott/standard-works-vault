@@ -1,6 +1,6 @@
 # Leap
 
-[Leap](https://www.churchofjesuschrist.org/study/scriptures/tg/Leap?lang=eng)
+[Leap](https://churchofjesuschrist.org/study/scriptures/tg/leap?lang=eng)
 
 ### References
 - [[Isaiah 35.6|Isaiah 35:6]]

@@ -1,6 +1,6 @@
 # Reward
 
-[Reward](https://www.churchofjesuschrist.org/study/scriptures/tg/Reward?lang=eng)
+[Reward](https://churchofjesuschrist.org/study/scriptures/tg/reward?lang=eng)
 
 ### References
 - [[Genesis 15.1|Genesis 15:1]]

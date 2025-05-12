@@ -1,6 +1,6 @@
 # Round
 
-[Round](https://www.churchofjesuschrist.org/study/scriptures/tg/Round?lang=eng)
+[Round](https://churchofjesuschrist.org/study/scriptures/tg/round?lang=eng)
 
 ### References
 - [[1 Nephi 10.19|1 Nephi 10:19]]

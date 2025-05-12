@@ -1,6 +1,6 @@
 # Suffering
 
-[Suffering](https://www.churchofjesuschrist.org/study/scriptures/tg/Suffering?lang=eng)
+[Suffering](https://churchofjesuschrist.org/study/scriptures/tg/long-suffering?lang=eng)
 
 ### References
 - [[Job 2.7|Job 2:7]]

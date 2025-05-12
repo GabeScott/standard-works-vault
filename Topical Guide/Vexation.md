@@ -1,6 +1,6 @@
 # Vexation
 
-[Vexation](https://www.churchofjesuschrist.org/study/scriptures/tg/Vexation?lang=eng)
+[Vexation](https://churchofjesuschrist.org/study/scriptures/tg/vexation?lang=eng)
 
 ### References
 - [[Deuteronomy 28.20|Deuteronomy 28:20]]

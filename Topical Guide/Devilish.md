@@ -1,6 +1,6 @@
 # Devilish
 
-[Devilish](https://www.churchofjesuschrist.org/study/scriptures/tg/Devilish?lang=eng)
+[Devilish](https://churchofjesuschrist.org/study/scriptures/tg/devilish?lang=eng)
 
 ### References
 - [[James 3.15|James 3:15]]

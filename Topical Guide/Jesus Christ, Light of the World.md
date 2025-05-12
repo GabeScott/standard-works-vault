@@ -1,6 +1,6 @@
 # Jesus Christ, Light of the World
 
-[Jesus Christ, Light of the World](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Light-of-the-World?lang=eng)
+[Jesus Christ, Light of the World](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-light-of-the-world?lang=eng)
 
 ### References
 - [[Psalms 27.1|Psalms 27:1]]

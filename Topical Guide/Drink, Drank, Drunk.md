@@ -1,6 +1,6 @@
 # Drink, Drank, Drunk
 
-[Drink, Drank, Drunk](https://www.churchofjesuschrist.org/study/scriptures/tg/Drink-Drank-Drunk?lang=eng)
+[Drink, Drank, Drunk](https://churchofjesuschrist.org/study/scriptures/tg/drink?lang=eng)
 
 ### References
 - [[Genesis 9.21|Genesis 9:21]]

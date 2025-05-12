@@ -1,6 +1,6 @@
 # Stake
 
-[Stake](https://www.churchofjesuschrist.org/study/scriptures/tg/Stake?lang=eng)
+[Stake](https://churchofjesuschrist.org/study/scriptures/tg/stake?lang=eng)
 
 ### References
 - [[Isaiah 33.20|Isaiah 33:20]]

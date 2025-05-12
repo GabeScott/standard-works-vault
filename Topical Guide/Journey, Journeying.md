@@ -1,6 +1,6 @@
 # Journey, Journeying
 
-[Journey, Journeying](https://www.churchofjesuschrist.org/study/scriptures/tg/Journey-Journeying?lang=eng)
+[Journey, Journeying](https://churchofjesuschrist.org/study/scriptures/tg/journey?lang=eng)
 
 ### References
 - [[Exodus 3.18|Exodus 3:18]]

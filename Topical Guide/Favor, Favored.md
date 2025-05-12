@@ -1,6 +1,6 @@
 # Favor, Favored
 
-[Favor, Favored](https://www.churchofjesuschrist.org/study/scriptures/tg/Favor-Favored?lang=eng)
+[Favor, Favored](https://churchofjesuschrist.org/study/scriptures/tg/favor?lang=eng)
 
 ### References
 - [[Genesis 18.3|Genesis 18:3]]

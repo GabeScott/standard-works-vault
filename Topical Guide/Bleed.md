@@ -1,6 +1,6 @@
 # Bleed
 
-[Bleed](https://www.churchofjesuschrist.org/study/scriptures/tg/Bleed?lang=eng)
+[Bleed](https://churchofjesuschrist.org/study/scriptures/tg/bleed?lang=eng)
 
 ### References
 - [[Luke 22.44|Luke 22:44]]

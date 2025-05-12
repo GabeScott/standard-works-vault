@@ -1,6 +1,6 @@
 # League
 
-[League](https://www.churchofjesuschrist.org/study/scriptures/tg/League?lang=eng)
+[League](https://churchofjesuschrist.org/study/scriptures/tg/league?lang=eng)
 
 ### References
 - [[Joshua 9.6|Joshua 9:6]]

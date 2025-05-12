@@ -1,6 +1,6 @@
 # Perverse
 
-[Perverse](https://www.churchofjesuschrist.org/study/scriptures/tg/Perverse?lang=eng)
+[Perverse](https://churchofjesuschrist.org/study/scriptures/tg/perverse?lang=eng)
 
 ### References
 - [[Numbers 22.32|Numbers 22:32]]

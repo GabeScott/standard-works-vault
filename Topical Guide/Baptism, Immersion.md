@@ -1,6 +1,6 @@
 # Baptism, Immersion
 
-[Baptism, Immersion](https://www.churchofjesuschrist.org/study/scriptures/tg/Baptism-Immersion?lang=eng)
+[Baptism, Immersion](https://churchofjesuschrist.org/study/scriptures/tg/baptism-immersion?lang=eng)
 
 ### References
 - [[Matthew 3.16|Matthew 3:16]]

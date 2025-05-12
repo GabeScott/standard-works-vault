@@ -1,6 +1,6 @@
 # Bastard
 
-[Bastard](https://www.churchofjesuschrist.org/study/scriptures/tg/Bastard?lang=eng)
+[Bastard](https://churchofjesuschrist.org/study/scriptures/tg/bastard?lang=eng)
 
 ### References
 - [[Deuteronomy 23.2|Deuteronomy 23:2]]

@@ -1,6 +1,6 @@
 # Gold
 
-[Gold](https://www.churchofjesuschrist.org/study/scriptures/tg/Gold?lang=eng)
+[Gold](https://churchofjesuschrist.org/study/scriptures/tg/gold?lang=eng)
 
 ### References
 - [[Exodus 25.17|Exodus 25:17]]

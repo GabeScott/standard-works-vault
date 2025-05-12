@@ -1,6 +1,6 @@
 # Gourd
 
-[Gourd](https://www.churchofjesuschrist.org/study/scriptures/tg/Gourd?lang=eng)
+[Gourd](https://churchofjesuschrist.org/study/scriptures/tg/gourd?lang=eng)
 
 ### References
 - [[Jonah 4.6|Jonah 4:6]]

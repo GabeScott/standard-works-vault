@@ -1,6 +1,6 @@
 # Magistrate
 
-[Magistrate](https://www.churchofjesuschrist.org/study/scriptures/tg/Magistrate?lang=eng)
+[Magistrate](https://churchofjesuschrist.org/study/scriptures/tg/magistrate?lang=eng)
 
 ### References
 - [[Luke 12.11|Luke 12:11]]

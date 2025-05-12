@@ -1,6 +1,6 @@
 # Good
 
-[Good](https://www.churchofjesuschrist.org/study/scriptures/tg/Good?lang=eng)
+[Good](https://churchofjesuschrist.org/study/scriptures/tg/good?lang=eng)
 
 ### References
 - [[Genesis 1.31|Genesis 1:31]]

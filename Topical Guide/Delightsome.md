@@ -1,6 +1,6 @@
 # Delightsome
 
-[Delightsome](https://www.churchofjesuschrist.org/study/scriptures/tg/Delightsome?lang=eng)
+[Delightsome](https://churchofjesuschrist.org/study/scriptures/tg/delightsome?lang=eng)
 
 ### References
 - [[2 Nephi 30.6|2 Nephi 30:6]]

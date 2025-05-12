@@ -1,6 +1,6 @@
 # Housetop
 
-[Housetop](https://www.churchofjesuschrist.org/study/scriptures/tg/Housetop?lang=eng)
+[Housetop](https://churchofjesuschrist.org/study/scriptures/tg/housetop?lang=eng)
 
 ### References
 - [[Zephaniah 1.5|Zephaniah 1:5]]

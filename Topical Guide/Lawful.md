@@ -1,6 +1,6 @@
 # Lawful
 
-[Lawful](https://www.churchofjesuschrist.org/study/scriptures/tg/Lawful?lang=eng)
+[Lawful](https://churchofjesuschrist.org/study/scriptures/tg/lawful?lang=eng)
 
 ### References
 - [[Ezra 7.24|Ezra 7:24]]

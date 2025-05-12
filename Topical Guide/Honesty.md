@@ -1,6 +1,6 @@
 # Honesty
 
-[Honesty](https://www.churchofjesuschrist.org/study/scriptures/tg/Honesty?lang=eng)
+[Honesty](https://churchofjesuschrist.org/study/scriptures/tg/honesty?lang=eng)
 
 ### References
 - [[Exodus 23.4|Exodus 23:4]]

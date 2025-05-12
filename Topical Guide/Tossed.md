@@ -1,6 +1,6 @@
 # Tossed
 
-[Tossed](https://www.churchofjesuschrist.org/study/scriptures/tg/Tossed?lang=eng)
+[Tossed](https://churchofjesuschrist.org/study/scriptures/tg/tossed?lang=eng)
 
 ### References
 - [[Isaiah 54.11|Isaiah 54:11]]

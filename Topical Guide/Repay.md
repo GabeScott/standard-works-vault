@@ -1,6 +1,6 @@
 # Repay
 
-[Repay](https://www.churchofjesuschrist.org/study/scriptures/tg/Repay?lang=eng)
+[Repay](https://churchofjesuschrist.org/study/scriptures/tg/repay?lang=eng)
 
 ### References
 - [[Deuteronomy 7.10|Deuteronomy 7:10]]

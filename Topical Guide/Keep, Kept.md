@@ -1,6 +1,6 @@
 # Keep, Kept
 
-[Keep, Kept](https://www.churchofjesuschrist.org/study/scriptures/tg/Keep-Kept?lang=eng)
+[Keep, Kept](https://churchofjesuschrist.org/study/scriptures/tg/keep?lang=eng)
 
 ### References
 - [[Genesis 17.9|Genesis 17:9]]

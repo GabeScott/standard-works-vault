@@ -1,6 +1,6 @@
 # Place
 
-[Place](https://www.churchofjesuschrist.org/study/scriptures/tg/Place?lang=eng)
+[Place](https://churchofjesuschrist.org/study/scriptures/tg/holy-place?lang=eng)
 
 ### References
 - [[Genesis 3.24|Genesis 3:24]]

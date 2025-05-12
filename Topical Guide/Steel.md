@@ -1,6 +1,6 @@
 # Steel
 
-[Steel](https://www.churchofjesuschrist.org/study/scriptures/tg/Steel?lang=eng)
+[Steel](https://churchofjesuschrist.org/study/scriptures/tg/steel?lang=eng)
 
 ### References
 - [[2 Samuel 22.35|2 Samuel 22:35]]

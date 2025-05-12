@@ -1,6 +1,6 @@
 # Weakness
 
-[Weakness](https://www.churchofjesuschrist.org/study/scriptures/tg/Weakness?lang=eng)
+[Weakness](https://churchofjesuschrist.org/study/scriptures/tg/weakness?lang=eng)
 
 ### References
 - [[1 Corinthians 1.25|1 Corinthians 1:25]]

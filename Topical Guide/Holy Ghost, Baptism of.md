@@ -1,6 +1,6 @@
 # Holy Ghost, Baptism of
 
-[Holy Ghost, Baptism of](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Ghost-Baptism-of?lang=eng)
+[Holy Ghost, Baptism of](https://churchofjesuschrist.org/study/scriptures/tg/holy-ghost-baptism-of?lang=eng)
 
 ### References
 - [[Matthew 3.11|Matthew 3:11]]

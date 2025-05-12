@@ -1,6 +1,6 @@
 # Israel, Gathering of
 
-[Israel, Gathering of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Gathering-of?lang=eng)
+[Israel, Gathering of](https://churchofjesuschrist.org/study/scriptures/tg/israel-gathering-of?lang=eng)
 
 ### References
 - [[Deuteronomy 30.3|Deuteronomy 30:3]]

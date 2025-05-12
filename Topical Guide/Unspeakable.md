@@ -1,6 +1,6 @@
 # Unspeakable
 
-[Unspeakable](https://www.churchofjesuschrist.org/study/scriptures/tg/Unspeakable?lang=eng)
+[Unspeakable](https://churchofjesuschrist.org/study/scriptures/tg/unspeakable?lang=eng)
 
 ### References
 - [[2 Corinthians 12.4|2 Corinthians 12:4]]

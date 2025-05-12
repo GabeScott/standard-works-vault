@@ -1,6 +1,6 @@
 # Traffic
 
-[Traffic](https://www.churchofjesuschrist.org/study/scriptures/tg/Traffic?lang=eng)
+[Traffic](https://churchofjesuschrist.org/study/scriptures/tg/traffic?lang=eng)
 
 ### References
 - [[Genesis 42.34|Genesis 42:34]]

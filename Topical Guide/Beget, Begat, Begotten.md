@@ -1,6 +1,6 @@
 # Beget, Begat, Begotten
 
-[Beget, Begat, Begotten](https://www.churchofjesuschrist.org/study/scriptures/tg/Beget-Begat-Begotten?lang=eng)
+[Beget, Begat, Begotten](https://churchofjesuschrist.org/study/scriptures/tg/beget?lang=eng)
 
 ### References
 - [[Psalms 2.7|Psalms 2:7]]

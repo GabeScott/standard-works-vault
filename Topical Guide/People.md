@@ -1,6 +1,6 @@
 # People
 
-[People](https://www.churchofjesuschrist.org/study/scriptures/tg/People?lang=eng)
+[People](https://churchofjesuschrist.org/study/scriptures/tg/chosen-people?lang=eng)
 
 ### References
 - [[Genesis 11.6|Genesis 11:6]]

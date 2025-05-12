@@ -1,6 +1,6 @@
 # Sackcloth
 
-[Sackcloth](https://www.churchofjesuschrist.org/study/scriptures/tg/Sackcloth?lang=eng)
+[Sackcloth](https://churchofjesuschrist.org/study/scriptures/tg/sackcloth?lang=eng)
 
 ### References
 - [[1 Kings 20.32|1 Kings 20:32]]

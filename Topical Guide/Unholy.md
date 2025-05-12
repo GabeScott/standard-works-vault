@@ -1,6 +1,6 @@
 # Unholy
 
-[Unholy](https://www.churchofjesuschrist.org/study/scriptures/tg/Unholy?lang=eng)
+[Unholy](https://churchofjesuschrist.org/study/scriptures/tg/unholy?lang=eng)
 
 ### References
 - [[Leviticus 10.10|Leviticus 10:10]]

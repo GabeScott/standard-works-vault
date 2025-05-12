@@ -1,6 +1,6 @@
 # Meek, Meekness
 
-[Meek, Meekness](https://www.churchofjesuschrist.org/study/scriptures/tg/Meek-Meekness?lang=eng)
+[Meek, Meekness](https://churchofjesuschrist.org/study/scriptures/tg/meek?lang=eng)
 
 ### References
 - [[Numbers 12.3|Numbers 12:3]]

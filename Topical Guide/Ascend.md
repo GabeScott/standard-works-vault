@@ -1,6 +1,6 @@
 # Ascend
 
-[Ascend](https://www.churchofjesuschrist.org/study/scriptures/tg/Ascend?lang=eng)
+[Ascend](https://churchofjesuschrist.org/study/scriptures/tg/ascend?lang=eng)
 
 ### References
 - [[Genesis 28.12|Genesis 28:12]]

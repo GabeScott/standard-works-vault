@@ -1,6 +1,6 @@
 # Hairy
 
-[Hairy](https://www.churchofjesuschrist.org/study/scriptures/tg/Hairy?lang=eng)
+[Hairy](https://churchofjesuschrist.org/study/scriptures/tg/hairy?lang=eng)
 
 ### References
 - [[Genesis 25.25|Genesis 25:25]]

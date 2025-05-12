@@ -1,6 +1,6 @@
 # Pierce, Piercing
 
-[Pierce, Piercing](https://www.churchofjesuschrist.org/study/scriptures/tg/Pierce-Piercing?lang=eng)
+[Pierce, Piercing](https://churchofjesuschrist.org/study/scriptures/tg/pierce?lang=eng)
 
 ### References
 - [[Judges 5.26|Judges 5:26]]

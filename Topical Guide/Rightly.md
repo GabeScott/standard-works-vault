@@ -1,6 +1,6 @@
 # Rightly
 
-[Rightly](https://www.churchofjesuschrist.org/study/scriptures/tg/Rightly?lang=eng)
+[Rightly](https://churchofjesuschrist.org/study/scriptures/tg/rightly?lang=eng)
 
 ### References
 - [[Luke 20.21|Luke 20:21]]

@@ -1,6 +1,6 @@
 # Spin
 
-[Spin](https://www.churchofjesuschrist.org/study/scriptures/tg/Spin?lang=eng)
+[Spin](https://churchofjesuschrist.org/study/scriptures/tg/spin?lang=eng)
 
 ### References
 - [[Matthew 6.28|Matthew 6:28]]

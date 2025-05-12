@@ -1,6 +1,6 @@
 # Suppose
 
-[Suppose](https://www.churchofjesuschrist.org/study/scriptures/tg/Suppose?lang=eng)
+[Suppose](https://churchofjesuschrist.org/study/scriptures/tg/suppose?lang=eng)
 
 ### References
 - [[Mark 6.49|Mark 6:49]]

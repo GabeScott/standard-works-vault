@@ -1,6 +1,6 @@
 # Revenger
 
-[Revenger](https://www.churchofjesuschrist.org/study/scriptures/tg/Revenger?lang=eng)
+[Revenger](https://churchofjesuschrist.org/study/scriptures/tg/revenger?lang=eng)
 
 ### References
 - [[Numbers 35.19|Numbers 35:19]]

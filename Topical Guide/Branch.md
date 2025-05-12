@@ -1,6 +1,6 @@
 # Branch
 
-[Branch](https://www.churchofjesuschrist.org/study/scriptures/tg/Branch?lang=eng)
+[Branch](https://churchofjesuschrist.org/study/scriptures/tg/branch?lang=eng)
 
 ### References
 - [[Genesis 40.10|Genesis 40:10]]

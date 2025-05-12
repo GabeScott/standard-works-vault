@@ -1,6 +1,6 @@
 # Chastening
 
-[Chastening](https://www.churchofjesuschrist.org/study/scriptures/tg/Chastening?lang=eng)
+[Chastening](https://churchofjesuschrist.org/study/scriptures/tg/chastening?lang=eng)
 
 ### References
 - [[Leviticus 26.28|Leviticus 26:28]]

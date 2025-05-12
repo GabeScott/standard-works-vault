@@ -1,6 +1,6 @@
 # Wavering
 
-[Wavering](https://www.churchofjesuschrist.org/study/scriptures/tg/Wavering?lang=eng)
+[Wavering](https://churchofjesuschrist.org/study/scriptures/tg/wavering?lang=eng)
 
 ### References
 - [[Hebrews 10.23|Hebrews 10:23]]

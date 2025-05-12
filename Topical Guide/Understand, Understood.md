@@ -1,6 +1,6 @@
 # Understand, Understood
 
-[Understand, Understood](https://www.churchofjesuschrist.org/study/scriptures/tg/Understand-Understood?lang=eng)
+[Understand, Understood](https://churchofjesuschrist.org/study/scriptures/tg/understand?lang=eng)
 
 ### References
 - [[Genesis 11.7|Genesis 11:7]]

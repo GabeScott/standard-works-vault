@@ -1,6 +1,6 @@
 # Utterance
 
-[Utterance](https://www.churchofjesuschrist.org/study/scriptures/tg/Utterance?lang=eng)
+[Utterance](https://churchofjesuschrist.org/study/scriptures/tg/utterance?lang=eng)
 
 ### References
 - [[Acts 2.4|Acts 2:4]]

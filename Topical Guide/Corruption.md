@@ -1,6 +1,6 @@
 # Corruption
 
-[Corruption](https://www.churchofjesuschrist.org/study/scriptures/tg/Corruption?lang=eng)
+[Corruption](https://churchofjesuschrist.org/study/scriptures/tg/corruption?lang=eng)
 
 ### References
 - [[2 Kings 23.13|2 Kings 23:13]]

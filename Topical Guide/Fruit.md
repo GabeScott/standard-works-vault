@@ -1,6 +1,6 @@
 # Fruit
 
-[Fruit](https://www.churchofjesuschrist.org/study/scriptures/tg/Fruit?lang=eng)
+[Fruit](https://churchofjesuschrist.org/study/scriptures/tg/forbidden-fruit?lang=eng)
 
 ### References
 - [[Genesis 1.11|Genesis 1:11]]

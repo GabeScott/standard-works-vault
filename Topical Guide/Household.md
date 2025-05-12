@@ -1,6 +1,6 @@
 # Household
 
-[Household](https://www.churchofjesuschrist.org/study/scriptures/tg/Household?lang=eng)
+[Household](https://churchofjesuschrist.org/study/scriptures/tg/household?lang=eng)
 
 ### References
 - [[Genesis 47.12|Genesis 47:12]]

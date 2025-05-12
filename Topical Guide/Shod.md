@@ -1,6 +1,6 @@
 # Shod
 
-[Shod](https://www.churchofjesuschrist.org/study/scriptures/tg/Shod?lang=eng)
+[Shod](https://churchofjesuschrist.org/study/scriptures/tg/shod?lang=eng)
 
 ### References
 - [[Mark 6.9|Mark 6:9]]

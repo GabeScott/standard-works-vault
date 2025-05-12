@@ -1,6 +1,6 @@
 # None
 
-[None](https://www.churchofjesuschrist.org/study/scriptures/tg/None?lang=eng)
+[None](https://churchofjesuschrist.org/study/scriptures/tg/none?lang=eng)
 
 ### References
 - [[Exodus 8.10|Exodus 8:10]]

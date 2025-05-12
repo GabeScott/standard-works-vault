@@ -1,6 +1,6 @@
 # Millstone
 
-[Millstone](https://www.churchofjesuschrist.org/study/scriptures/tg/Millstone?lang=eng)
+[Millstone](https://churchofjesuschrist.org/study/scriptures/tg/millstone?lang=eng)
 
 ### References
 - [[Deuteronomy 24.6|Deuteronomy 24:6]]

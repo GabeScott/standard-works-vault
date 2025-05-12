@@ -1,6 +1,6 @@
 # Quorum
 
-[Quorum](https://www.churchofjesuschrist.org/study/scriptures/tg/Quorum?lang=eng)
+[Quorum](https://churchofjesuschrist.org/study/scriptures/tg/quorum?lang=eng)
 
 ### References
 - [[D&C 107.22|D&C 107:22]]

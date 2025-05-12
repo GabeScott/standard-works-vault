@@ -1,6 +1,6 @@
 # Foreordination
 
-[Foreordination](https://www.churchofjesuschrist.org/study/scriptures/tg/Foreordination?lang=eng)
+[Foreordination](https://churchofjesuschrist.org/study/scriptures/tg/foreordination?lang=eng)
 
 ### References
 - [[Deuteronomy 32.8|Deuteronomy 32:8]]

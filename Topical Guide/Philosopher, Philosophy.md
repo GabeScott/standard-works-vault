@@ -1,6 +1,6 @@
 # Philosopher, Philosophy
 
-[Philosopher, Philosophy](https://www.churchofjesuschrist.org/study/scriptures/tg/Philosopher-Philosophy?lang=eng)
+[Philosopher, Philosophy](https://churchofjesuschrist.org/study/scriptures/tg/philosopher?lang=eng)
 
 ### References
 - [[Acts 17.18|Acts 17:18]]

@@ -1,6 +1,6 @@
 # Plait
 
-[Plait](https://www.churchofjesuschrist.org/study/scriptures/tg/Plait?lang=eng)
+[Plait](https://churchofjesuschrist.org/study/scriptures/tg/plait?lang=eng)
 
 ### References
 - [[Matthew 27.29|Matthew 27:29]]

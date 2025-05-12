@@ -1,6 +1,6 @@
 # Guilt, Guilty
 
-[Guilt, Guilty](https://www.churchofjesuschrist.org/study/scriptures/tg/Guilt-Guilty?lang=eng)
+[Guilt, Guilty](https://churchofjesuschrist.org/study/scriptures/tg/guilt?lang=eng)
 
 ### References
 - [[Genesis 42.21|Genesis 42:21]]

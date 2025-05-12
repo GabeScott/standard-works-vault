@@ -1,6 +1,6 @@
 # Lively
 
-[Lively](https://www.churchofjesuschrist.org/study/scriptures/tg/Lively?lang=eng)
+[Lively](https://churchofjesuschrist.org/study/scriptures/tg/lively?lang=eng)
 
 ### References
 - [[Acts 7.38|Acts 7:38]]

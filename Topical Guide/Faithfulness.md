@@ -1,6 +1,6 @@
 # Faithfulness
 
-[Faithfulness](https://www.churchofjesuschrist.org/study/scriptures/tg/Faithfulness?lang=eng)
+[Faithfulness](https://churchofjesuschrist.org/study/scriptures/tg/faithfulness?lang=eng)
 
 ### References
 - [[Isaiah 11.5|Isaiah 11:5]]

@@ -1,6 +1,6 @@
 # Forsake, Forsook, Forsaken
 
-[Forsake, Forsook, Forsaken](https://www.churchofjesuschrist.org/study/scriptures/tg/Forsake-Forsook-Forsaken?lang=eng)
+[Forsake, Forsook, Forsaken](https://churchofjesuschrist.org/study/scriptures/tg/forsake?lang=eng)
 
 ### References
 - [[Deuteronomy 29.25|Deuteronomy 29:25]]

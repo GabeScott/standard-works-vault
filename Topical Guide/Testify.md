@@ -1,6 +1,6 @@
 # Testify
 
-[Testify](https://www.churchofjesuschrist.org/study/scriptures/tg/Testify?lang=eng)
+[Testify](https://churchofjesuschrist.org/study/scriptures/tg/testify?lang=eng)
 
 ### References
 - [[Numbers 35.30|Numbers 35:30]]

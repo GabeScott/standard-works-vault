@@ -1,6 +1,6 @@
 # Kine
 
-[Kine](https://www.churchofjesuschrist.org/study/scriptures/tg/Kine?lang=eng)
+[Kine](https://churchofjesuschrist.org/study/scriptures/tg/kine?lang=eng)
 
 ### References
 - [[Genesis 41.2|Genesis 41:2]]

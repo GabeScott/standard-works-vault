@@ -1,6 +1,6 @@
 # Serve
 
-[Serve](https://www.churchofjesuschrist.org/study/scriptures/tg/Serve?lang=eng)
+[Serve](https://churchofjesuschrist.org/study/scriptures/tg/serve?lang=eng)
 
 ### References
 - [[Genesis 15.13|Genesis 15:13]]

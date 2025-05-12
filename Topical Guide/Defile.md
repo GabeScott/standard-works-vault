@@ -1,6 +1,6 @@
 # Defile
 
-[Defile](https://www.churchofjesuschrist.org/study/scriptures/tg/Defile?lang=eng)
+[Defile](https://churchofjesuschrist.org/study/scriptures/tg/defile?lang=eng)
 
 ### References
 - [[Leviticus 18.24|Leviticus 18:24]]

@@ -1,6 +1,6 @@
 # Promised Lands
 
-[Promised Lands](https://www.churchofjesuschrist.org/study/scriptures/tg/Promised-Lands?lang=eng)
+[Promised Lands](https://churchofjesuschrist.org/study/scriptures/tg/promised-lands?lang=eng)
 
 ### References
 - [[Genesis 12.1|Genesis 12:1]]

@@ -1,6 +1,6 @@
 # Condemn
 
-[Condemn](https://www.churchofjesuschrist.org/study/scriptures/tg/Condemn?lang=eng)
+[Condemn](https://churchofjesuschrist.org/study/scriptures/tg/condemn?lang=eng)
 
 ### References
 - [[Deuteronomy 25.1|Deuteronomy 25:1]]

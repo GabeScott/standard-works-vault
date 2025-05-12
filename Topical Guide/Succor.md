@@ -1,6 +1,6 @@
 # Succor
 
-[Succor](https://www.churchofjesuschrist.org/study/scriptures/tg/Succor?lang=eng)
+[Succor](https://churchofjesuschrist.org/study/scriptures/tg/succor?lang=eng)
 
 ### References
 - [[2 Samuel 18.3|2 Samuel 18:3]]

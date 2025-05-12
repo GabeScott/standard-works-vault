@@ -1,6 +1,6 @@
 # Teaching, Teach, Taught
 
-[Teaching, Teach, Taught](https://www.churchofjesuschrist.org/study/scriptures/tg/Teaching-Teach-Taught?lang=eng)
+[Teaching, Teach, Taught](https://churchofjesuschrist.org/study/scriptures/tg/teaching?lang=eng)
 
 ### References
 - [[Genesis 18.19|Genesis 18:19]]

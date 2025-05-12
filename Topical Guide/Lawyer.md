@@ -1,6 +1,6 @@
 # Lawyer
 
-[Lawyer](https://www.churchofjesuschrist.org/study/scriptures/tg/Lawyer?lang=eng)
+[Lawyer](https://churchofjesuschrist.org/study/scriptures/tg/lawyer?lang=eng)
 
 ### References
 - [[Matthew 22.35|Matthew 22:35]]

@@ -1,6 +1,6 @@
 # Gross
 
-[Gross](https://www.churchofjesuschrist.org/study/scriptures/tg/Gross?lang=eng)
+[Gross](https://churchofjesuschrist.org/study/scriptures/tg/gross?lang=eng)
 
 ### References
 - [[Isaiah 60.2|Isaiah 60:2]]

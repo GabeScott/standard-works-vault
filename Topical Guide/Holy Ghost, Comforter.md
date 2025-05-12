@@ -1,6 +1,6 @@
 # Holy Ghost, Comforter
 
-[Holy Ghost, Comforter](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Ghost-Comforter?lang=eng)
+[Holy Ghost, Comforter](https://churchofjesuschrist.org/study/scriptures/tg/holy-ghost-comforter?lang=eng)
 
 ### References
 - [[Isaiah 49.13|Isaiah 49:13]]

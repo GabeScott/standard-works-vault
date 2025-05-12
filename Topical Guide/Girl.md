@@ -1,6 +1,6 @@
 # Girl
 
-[Girl](https://www.churchofjesuschrist.org/study/scriptures/tg/Girl?lang=eng)
+[Girl](https://churchofjesuschrist.org/study/scriptures/tg/girl?lang=eng)
 
 ### References
 - [[Joel 3.3|Joel 3:3]]

@@ -1,6 +1,6 @@
 # Manifest
 
-[Manifest](https://www.churchofjesuschrist.org/study/scriptures/tg/Manifest?lang=eng)
+[Manifest](https://churchofjesuschrist.org/study/scriptures/tg/manifest?lang=eng)
 
 ### References
 - [[Mark 4.22|Mark 4:22]]

@@ -1,6 +1,6 @@
 # Seven
 
-[Seven](https://www.churchofjesuschrist.org/study/scriptures/tg/Seven?lang=eng)
+[Seven](https://churchofjesuschrist.org/study/scriptures/tg/seven?lang=eng)
 
 ### References
 - [[Genesis 29.18|Genesis 29:18]]

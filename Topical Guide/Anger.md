@@ -1,6 +1,6 @@
 # Anger
 
-[Anger](https://www.churchofjesuschrist.org/study/scriptures/tg/Anger?lang=eng)
+[Anger](https://churchofjesuschrist.org/study/scriptures/tg/anger?lang=eng)
 
 ### References
 - [[Genesis 27.45|Genesis 27:45]]

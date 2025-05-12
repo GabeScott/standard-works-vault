@@ -1,6 +1,6 @@
 # Oversight
 
-[Oversight](https://www.churchofjesuschrist.org/study/scriptures/tg/Oversight?lang=eng)
+[Oversight](https://churchofjesuschrist.org/study/scriptures/tg/oversight?lang=eng)
 
 ### References
 - [[Numbers 4.16|Numbers 4:16]]

@@ -1,6 +1,6 @@
 # Influence
 
-[Influence](https://www.churchofjesuschrist.org/study/scriptures/tg/Influence?lang=eng)
+[Influence](https://churchofjesuschrist.org/study/scriptures/tg/influence?lang=eng)
 
 ### References
 - [[D&C 121.41|D&C 121:41]]

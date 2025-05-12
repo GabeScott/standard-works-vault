@@ -1,6 +1,6 @@
 # Undefiled
 
-[Undefiled](https://www.churchofjesuschrist.org/study/scriptures/tg/Undefiled?lang=eng)
+[Undefiled](https://churchofjesuschrist.org/study/scriptures/tg/undefiled?lang=eng)
 
 ### References
 - [[Hebrews 13.4|Hebrews 13:4]]

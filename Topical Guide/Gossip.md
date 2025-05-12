@@ -1,6 +1,6 @@
 # Gossip
 
-[Gossip](https://www.churchofjesuschrist.org/study/scriptures/tg/Gossip?lang=eng)
+[Gossip](https://churchofjesuschrist.org/study/scriptures/tg/gossip?lang=eng)
 
 ### References
 - [[Leviticus 19.16|Leviticus 19:16]]

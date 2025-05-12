@@ -1,6 +1,6 @@
 # Pour
 
-[Pour](https://www.churchofjesuschrist.org/study/scriptures/tg/Pour?lang=eng)
+[Pour](https://churchofjesuschrist.org/study/scriptures/tg/pour?lang=eng)
 
 ### References
 - [[Exodus 29.12|Exodus 29:12]]

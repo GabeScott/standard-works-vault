@@ -1,6 +1,6 @@
 # Divine
 
-[Divine](https://www.churchofjesuschrist.org/study/scriptures/tg/Divine?lang=eng)
+[Divine](https://churchofjesuschrist.org/study/scriptures/tg/divine?lang=eng)
 
 ### References
 - [[2 Peter 1.3|2 Peter 1:3]]

@@ -1,6 +1,6 @@
 # Depart
 
-[Depart](https://www.churchofjesuschrist.org/study/scriptures/tg/Depart?lang=eng)
+[Depart](https://churchofjesuschrist.org/study/scriptures/tg/depart?lang=eng)
 
 ### References
 - [[Genesis 13.9|Genesis 13:9]]

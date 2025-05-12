@@ -1,6 +1,6 @@
 # Bowels
 
-[Bowels](https://www.churchofjesuschrist.org/study/scriptures/tg/Bowels?lang=eng)
+[Bowels](https://churchofjesuschrist.org/study/scriptures/tg/bowels?lang=eng)
 
 ### References
 - [[Isaiah 16.11|Isaiah 16:11]]

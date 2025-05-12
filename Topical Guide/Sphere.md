@@ -1,6 +1,6 @@
 # Sphere
 
-[Sphere](https://www.churchofjesuschrist.org/study/scriptures/tg/Sphere?lang=eng)
+[Sphere](https://churchofjesuschrist.org/study/scriptures/tg/sphere?lang=eng)
 
 ### References
 - [[D&C 77.3|D&C 77:3]]

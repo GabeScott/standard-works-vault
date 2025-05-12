@@ -1,6 +1,6 @@
 # Grass
 
-[Grass](https://www.churchofjesuschrist.org/study/scriptures/tg/Grass?lang=eng)
+[Grass](https://churchofjesuschrist.org/study/scriptures/tg/grass?lang=eng)
 
 ### References
 - [[Genesis 1.11|Genesis 1:11]]

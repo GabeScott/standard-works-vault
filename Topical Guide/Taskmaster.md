@@ -1,6 +1,6 @@
 # Taskmaster
 
-[Taskmaster](https://www.churchofjesuschrist.org/study/scriptures/tg/Taskmaster?lang=eng)
+[Taskmaster](https://churchofjesuschrist.org/study/scriptures/tg/taskmaster?lang=eng)
 
 ### References
 - [[Exodus 1.11|Exodus 1:11]]

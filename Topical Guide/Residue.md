@@ -1,6 +1,6 @@
 # Residue
 
-[Residue](https://www.churchofjesuschrist.org/study/scriptures/tg/Residue?lang=eng)
+[Residue](https://churchofjesuschrist.org/study/scriptures/tg/residue?lang=eng)
 
 ### References
 - [[Isaiah 28.5|Isaiah 28:5]]

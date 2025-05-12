@@ -1,6 +1,6 @@
 # Progress
 
-[Progress](https://www.churchofjesuschrist.org/study/scriptures/tg/Progress?lang=eng)
+[Progress](https://churchofjesuschrist.org/study/scriptures/tg/progress?lang=eng)
 
 ### References
 - [[Alma 4.10|Alma 4:10]]

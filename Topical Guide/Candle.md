@@ -1,6 +1,6 @@
 # Candle
 
-[Candle](https://www.churchofjesuschrist.org/study/scriptures/tg/Candle?lang=eng)
+[Candle](https://churchofjesuschrist.org/study/scriptures/tg/candle?lang=eng)
 
 ### References
 - [[Job 21.17|Job 21:17]]

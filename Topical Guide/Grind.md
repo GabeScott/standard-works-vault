@@ -1,6 +1,6 @@
 # Grind
 
-[Grind](https://www.churchofjesuschrist.org/study/scriptures/tg/Grind?lang=eng)
+[Grind](https://churchofjesuschrist.org/study/scriptures/tg/grind?lang=eng)
 
 ### References
 - [[Judges 16.21|Judges 16:21]]

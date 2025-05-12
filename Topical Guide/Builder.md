@@ -1,6 +1,6 @@
 # Builder
 
-[Builder](https://www.churchofjesuschrist.org/study/scriptures/tg/Builder?lang=eng)
+[Builder](https://churchofjesuschrist.org/study/scriptures/tg/builder?lang=eng)
 
 ### References
 - [[1 Kings 5.18|1 Kings 5:18]]

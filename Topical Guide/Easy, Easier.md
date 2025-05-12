@@ -1,6 +1,6 @@
 # Easy, Easier
 
-[Easy, Easier](https://www.churchofjesuschrist.org/study/scriptures/tg/Easy-Easier?lang=eng)
+[Easy, Easier](https://churchofjesuschrist.org/study/scriptures/tg/easy?lang=eng)
 
 ### References
 - [[Proverbs 14.6|Proverbs 14:6]]

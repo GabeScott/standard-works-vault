@@ -1,6 +1,6 @@
 # Strong, Stronger, Strongest
 
-[Strong, Stronger, Strongest](https://www.churchofjesuschrist.org/study/scriptures/tg/Strong-Stronger-Strongest?lang=eng)
+[Strong, Stronger, Strongest](https://churchofjesuschrist.org/study/scriptures/tg/strong?lang=eng)
 
 ### References
 - [[Genesis 25.23|Genesis 25:23]]

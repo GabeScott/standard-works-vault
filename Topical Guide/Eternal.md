@@ -1,6 +1,6 @@
 # Eternal
 
-[Eternal](https://www.churchofjesuschrist.org/study/scriptures/tg/Eternal?lang=eng)
+[Eternal](https://churchofjesuschrist.org/study/scriptures/tg/eternal?lang=eng)
 
 ### References
 - [[Mark 3.29|Mark 3:29]]

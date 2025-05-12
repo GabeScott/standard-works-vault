@@ -1,6 +1,6 @@
 # Jesus Christ, Temptation of
 
-[Jesus Christ, Temptation of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Temptation-of?lang=eng)
+[Jesus Christ, Temptation of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-temptation-of?lang=eng)
 
 ### References
 - [[Deuteronomy 6.16|Deuteronomy 6:16]]

@@ -1,6 +1,6 @@
 # Jesus Christ, Glory of
 
-[Jesus Christ, Glory of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Glory-of?lang=eng)
+[Jesus Christ, Glory of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-glory-of?lang=eng)
 
 ### References
 - [[Exodus 33.18|Exodus 33:18]]

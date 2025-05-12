@@ -1,6 +1,6 @@
 # Rose
 
-[Rose](https://www.churchofjesuschrist.org/study/scriptures/tg/Rose?lang=eng)
+[Rose](https://churchofjesuschrist.org/study/scriptures/tg/rose?lang=eng)
 
 ### References
 - [[Isaiah 35.1|Isaiah 35:1]]

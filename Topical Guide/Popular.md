@@ -1,6 +1,6 @@
 # Popular
 
-[Popular](https://www.churchofjesuschrist.org/study/scriptures/tg/Popular?lang=eng)
+[Popular](https://churchofjesuschrist.org/study/scriptures/tg/popular?lang=eng)
 
 ### References
 - [[1 Nephi 22.23|1 Nephi 22:23]]

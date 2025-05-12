@@ -1,6 +1,6 @@
 # Image
 
-[Image](https://www.churchofjesuschrist.org/study/scriptures/tg/Image?lang=eng)
+[Image](https://churchofjesuschrist.org/study/scriptures/tg/image?lang=eng)
 
 ### References
 - [[Genesis 1.26|Genesis 1:26]]

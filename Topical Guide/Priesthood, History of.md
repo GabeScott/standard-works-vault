@@ -1,6 +1,6 @@
 # Priesthood, History of
 
-[Priesthood, History of](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood-History-of?lang=eng)
+[Priesthood, History of](https://churchofjesuschrist.org/study/scriptures/tg/priesthood-history-of?lang=eng)
 
 ### References
 - [[Genesis 12.1|Genesis 12:1]]

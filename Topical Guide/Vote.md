@@ -1,6 +1,6 @@
 # Vote
 
-[Vote](https://www.churchofjesuschrist.org/study/scriptures/tg/Vote?lang=eng)
+[Vote](https://churchofjesuschrist.org/study/scriptures/tg/vote?lang=eng)
 
 ### References
 - [[D&C 102.19|D&C 102:19]]

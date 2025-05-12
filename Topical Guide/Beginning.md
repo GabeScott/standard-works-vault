@@ -1,6 +1,6 @@
 # Beginning
 
-[Beginning](https://www.churchofjesuschrist.org/study/scriptures/tg/Beginning?lang=eng)
+[Beginning](https://churchofjesuschrist.org/study/scriptures/tg/beginning?lang=eng)
 
 ### References
 - [[Genesis 1.1|Genesis 1:1]]

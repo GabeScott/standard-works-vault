@@ -1,6 +1,6 @@
 # Earth, Curse of
 
-[Earth, Curse of](https://www.churchofjesuschrist.org/study/scriptures/tg/Earth-Curse-of?lang=eng)
+[Earth, Curse of](https://churchofjesuschrist.org/study/scriptures/tg/earth-curse-of?lang=eng)
 
 ### References
 - [[Genesis 3.17|Genesis 3:17]]

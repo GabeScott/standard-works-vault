@@ -1,6 +1,6 @@
 # Excellent
 
-[Excellent](https://www.churchofjesuschrist.org/study/scriptures/tg/Excellent?lang=eng)
+[Excellent](https://churchofjesuschrist.org/study/scriptures/tg/excellent?lang=eng)
 
 ### References
 - [[Psalms 8.1|Psalms 8:1]]

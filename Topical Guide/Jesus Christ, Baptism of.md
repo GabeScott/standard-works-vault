@@ -1,6 +1,6 @@
 # Jesus Christ, Baptism of
 
-[Jesus Christ, Baptism of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Baptism-of?lang=eng)
+[Jesus Christ, Baptism of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-baptism-of?lang=eng)
 
 ### References
 - [[Matthew 3.13|Matthew 3:13]]

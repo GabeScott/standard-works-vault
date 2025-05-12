@@ -1,6 +1,6 @@
 # Contention
 
-[Contention](https://www.churchofjesuschrist.org/study/scriptures/tg/Contention?lang=eng)
+[Contention](https://churchofjesuschrist.org/study/scriptures/tg/contention?lang=eng)
 
 ### References
 - [[Genesis 13.8|Genesis 13:8]]

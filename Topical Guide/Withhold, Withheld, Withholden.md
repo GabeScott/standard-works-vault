@@ -1,6 +1,6 @@
 # Withhold, Withheld, Withholden
 
-[Withhold, Withheld, Withholden](https://www.churchofjesuschrist.org/study/scriptures/tg/Withhold-Withheld-Withholden?lang=eng)
+[Withhold, Withheld, Withholden](https://churchofjesuschrist.org/study/scriptures/tg/withhold?lang=eng)
 
 ### References
 - [[Genesis 22.12|Genesis 22:12]]

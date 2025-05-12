@@ -1,6 +1,6 @@
 # Restoration of the Gospel
 
-[Restoration of the Gospel](https://www.churchofjesuschrist.org/study/scriptures/tg/Restoration-of-the-Gospel?lang=eng)
+[Restoration of the Gospel](https://churchofjesuschrist.org/study/scriptures/tg/restoration-of-the-gospel?lang=eng)
 
 ### References
 - [[Isaiah 11.11|Isaiah 11:11]]

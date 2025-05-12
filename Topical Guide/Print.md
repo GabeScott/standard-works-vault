@@ -1,6 +1,6 @@
 # Print
 
-[Print](https://www.churchofjesuschrist.org/study/scriptures/tg/Print?lang=eng)
+[Print](https://churchofjesuschrist.org/study/scriptures/tg/print?lang=eng)
 
 ### References
 - [[Leviticus 19.28|Leviticus 19:28]]

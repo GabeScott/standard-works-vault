@@ -1,6 +1,6 @@
 # Apathy
 
-[Apathy](https://www.churchofjesuschrist.org/study/scriptures/tg/Apathy?lang=eng)
+[Apathy](https://churchofjesuschrist.org/study/scriptures/tg/apathy?lang=eng)
 
 ### References
 - [[Psalms 142.4|Psalms 142:4]]

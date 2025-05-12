@@ -1,6 +1,6 @@
 # Conversion, Convert
 
-[Conversion, Convert](https://www.churchofjesuschrist.org/study/scriptures/tg/Conversion-Convert?lang=eng)
+[Conversion, Convert](https://churchofjesuschrist.org/study/scriptures/tg/conversion?lang=eng)
 
 ### References
 - [[Ruth 1.16|Ruth 1:16]]

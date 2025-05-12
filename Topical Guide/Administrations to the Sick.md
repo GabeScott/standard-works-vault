@@ -1,6 +1,6 @@
 # Administrations to the Sick
 
-[Administrations to the Sick](https://www.churchofjesuschrist.org/study/scriptures/tg/Administrations-to-the-Sick?lang=eng)
+[Administrations to the Sick](https://churchofjesuschrist.org/study/scriptures/tg/administrations-to-the-sick?lang=eng)
 
 ### References
 - [[1 Kings 17.21|1 Kings 17:21]]

@@ -1,6 +1,6 @@
 # Outcast
 
-[Outcast](https://www.churchofjesuschrist.org/study/scriptures/tg/Outcast?lang=eng)
+[Outcast](https://churchofjesuschrist.org/study/scriptures/tg/outcast?lang=eng)
 
 ### References
 - [[Psalms 147.2|Psalms 147:2]]

@@ -1,6 +1,6 @@
 # Trial
 
-[Trial](https://www.churchofjesuschrist.org/study/scriptures/tg/Trial?lang=eng)
+[Trial](https://churchofjesuschrist.org/study/scriptures/tg/trial?lang=eng)
 
 ### References
 - [[2 Corinthians 8.2|2 Corinthians 8:2]]

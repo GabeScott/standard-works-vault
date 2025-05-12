@@ -1,6 +1,6 @@
 # Subject
 
-[Subject](https://www.churchofjesuschrist.org/study/scriptures/tg/Subject?lang=eng)
+[Subject](https://churchofjesuschrist.org/study/scriptures/tg/subject?lang=eng)
 
 ### References
 - [[Luke 10.17|Luke 10:17]]

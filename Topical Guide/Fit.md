@@ -1,6 +1,6 @@
 # Fit
 
-[Fit](https://www.churchofjesuschrist.org/study/scriptures/tg/Fit?lang=eng)
+[Fit](https://churchofjesuschrist.org/study/scriptures/tg/fit?lang=eng)
 
 ### References
 - [[Luke 9.62|Luke 9:62]]

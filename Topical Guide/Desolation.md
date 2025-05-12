@@ -1,6 +1,6 @@
 # Desolation
 
-[Desolation](https://www.churchofjesuschrist.org/study/scriptures/tg/Desolation?lang=eng)
+[Desolation](https://churchofjesuschrist.org/study/scriptures/tg/abomination-of-desolation?lang=eng)
 
 ### References
 - [[Joshua 8.28|Joshua 8:28]]

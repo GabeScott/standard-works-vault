@@ -1,6 +1,6 @@
 # Bereave
 
-[Bereave](https://www.churchofjesuschrist.org/study/scriptures/tg/Bereave?lang=eng)
+[Bereave](https://churchofjesuschrist.org/study/scriptures/tg/bereave?lang=eng)
 
 ### References
 - [[Genesis 42.36|Genesis 42:36]]

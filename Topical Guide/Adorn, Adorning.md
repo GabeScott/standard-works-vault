@@ -1,6 +1,6 @@
 # Adorn, Adorning
 
-[Adorn, Adorning](https://www.churchofjesuschrist.org/study/scriptures/tg/Adorn-Adorning?lang=eng)
+[Adorn, Adorning](https://churchofjesuschrist.org/study/scriptures/tg/adorn?lang=eng)
 
 ### References
 - [[1 Timothy 2.9|1 Timothy 2:9]]

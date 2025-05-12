@@ -1,6 +1,6 @@
 # Unrighteous, Unrighteousness
 
-[Unrighteous, Unrighteousness](https://www.churchofjesuschrist.org/study/scriptures/tg/Unrighteous-Unrighteousness?lang=eng)
+[Unrighteous, Unrighteousness](https://churchofjesuschrist.org/study/scriptures/tg/unrighteous?lang=eng)
 
 ### References
 - [[Exodus 23.1|Exodus 23:1]]

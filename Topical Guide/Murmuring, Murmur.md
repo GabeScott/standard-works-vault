@@ -1,6 +1,6 @@
 # Murmuring, Murmur
 
-[Murmuring, Murmur](https://www.churchofjesuschrist.org/study/scriptures/tg/Murmuring-Murmur?lang=eng)
+[Murmuring, Murmur](https://churchofjesuschrist.org/study/scriptures/tg/murmuring?lang=eng)
 
 ### References
 - [[Exodus 15.24|Exodus 15:24]]

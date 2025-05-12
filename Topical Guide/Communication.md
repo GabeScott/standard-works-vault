@@ -1,6 +1,6 @@
 # Communication
 
-[Communication](https://www.churchofjesuschrist.org/study/scriptures/tg/Communication?lang=eng)
+[Communication](https://churchofjesuschrist.org/study/scriptures/tg/communication?lang=eng)
 
 ### References
 - [[Genesis 11.7|Genesis 11:7]]

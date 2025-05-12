@@ -1,6 +1,6 @@
 # Excellency
 
-[Excellency](https://www.churchofjesuschrist.org/study/scriptures/tg/Excellency?lang=eng)
+[Excellency](https://churchofjesuschrist.org/study/scriptures/tg/excellency?lang=eng)
 
 ### References
 - [[Genesis 49.3|Genesis 49:3]]

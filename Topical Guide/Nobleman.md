@@ -1,6 +1,6 @@
 # Nobleman
 
-[Nobleman](https://www.churchofjesuschrist.org/study/scriptures/tg/Nobleman?lang=eng)
+[Nobleman](https://churchofjesuschrist.org/study/scriptures/tg/nobleman?lang=eng)
 
 ### References
 - [[Luke 19.12|Luke 19:12]]

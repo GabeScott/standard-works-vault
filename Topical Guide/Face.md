@@ -1,6 +1,6 @@
 # Face
 
-[Face](https://www.churchofjesuschrist.org/study/scriptures/tg/Face?lang=eng)
+[Face](https://churchofjesuschrist.org/study/scriptures/tg/face?lang=eng)
 
 ### References
 - [[Genesis 32.30|Genesis 32:30]]

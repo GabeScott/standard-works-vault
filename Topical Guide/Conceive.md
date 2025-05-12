@@ -1,6 +1,6 @@
 # Conceive
 
-[Conceive](https://www.churchofjesuschrist.org/study/scriptures/tg/Conceive?lang=eng)
+[Conceive](https://churchofjesuschrist.org/study/scriptures/tg/conceive?lang=eng)
 
 ### References
 - [[Genesis 21.2|Genesis 21:2]]

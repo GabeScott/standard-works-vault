@@ -1,6 +1,6 @@
 # God, Knowledge about
 
-[God, Knowledge about](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Knowledge-about?lang=eng)
+[God, Knowledge about](https://churchofjesuschrist.org/study/scriptures/tg/god-knowledge-about?lang=eng)
 
 ### References
 - [[Genesis 32.30|Genesis 32:30]]

@@ -1,6 +1,6 @@
 # Twain
 
-[Twain](https://www.churchofjesuschrist.org/study/scriptures/tg/Twain?lang=eng)
+[Twain](https://churchofjesuschrist.org/study/scriptures/tg/twain?lang=eng)
 
 ### References
 - [[Matthew 19.5|Matthew 19:5]]

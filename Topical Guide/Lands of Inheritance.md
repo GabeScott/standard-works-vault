@@ -1,6 +1,6 @@
 # Lands of Inheritance
 
-[Lands of Inheritance](https://www.churchofjesuschrist.org/study/scriptures/tg/Lands-of-Inheritance?lang=eng)
+[Lands of Inheritance](https://churchofjesuschrist.org/study/scriptures/tg/lands-of-inheritance?lang=eng)
 
 ### References
 - [[Genesis 12.1|Genesis 12:1]]

@@ -1,6 +1,6 @@
 # Generosity
 
-[Generosity](https://www.churchofjesuschrist.org/study/scriptures/tg/Generosity?lang=eng)
+[Generosity](https://churchofjesuschrist.org/study/scriptures/tg/generosity?lang=eng)
 
 ### References
 - [[Exodus 25.2|Exodus 25:2]]

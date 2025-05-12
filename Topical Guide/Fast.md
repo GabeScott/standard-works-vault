@@ -1,6 +1,6 @@
 # Fast
 
-[Fast](https://www.churchofjesuschrist.org/study/scriptures/tg/Fast?lang=eng)
+[Fast](https://churchofjesuschrist.org/study/scriptures/tg/fast-adverb?lang=eng)
 
 ### References
 - [[Job 2.3|Job 2:3]]

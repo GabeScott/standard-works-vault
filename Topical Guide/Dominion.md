@@ -1,6 +1,6 @@
 # Dominion
 
-[Dominion](https://www.churchofjesuschrist.org/study/scriptures/tg/Dominion?lang=eng)
+[Dominion](https://churchofjesuschrist.org/study/scriptures/tg/dominion?lang=eng)
 
 ### References
 - [[Genesis 1.26|Genesis 1:26]]

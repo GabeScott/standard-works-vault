@@ -1,6 +1,6 @@
 # Mad
 
-[Mad](https://www.churchofjesuschrist.org/study/scriptures/tg/Mad?lang=eng)
+[Mad](https://churchofjesuschrist.org/study/scriptures/tg/mad?lang=eng)
 
 ### References
 - [[Hosea 9.7|Hosea 9:7]]

@@ -1,6 +1,6 @@
 # Talk
 
-[Talk](https://www.churchofjesuschrist.org/study/scriptures/tg/Talk?lang=eng)
+[Talk](https://churchofjesuschrist.org/study/scriptures/tg/talk?lang=eng)
 
 ### References
 - [[Exodus 20.22|Exodus 20:22]]

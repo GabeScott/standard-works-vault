@@ -1,6 +1,6 @@
 # Spring, Sprang, Sprung
 
-[Spring, Sprang, Sprung](https://www.churchofjesuschrist.org/study/scriptures/tg/Spring-Sprang-Sprung?lang=eng)
+[Spring, Sprang, Sprung](https://churchofjesuschrist.org/study/scriptures/tg/spring-verb?lang=eng)
 
 ### References
 - [[Psalms 85.11|Psalms 85:11]]

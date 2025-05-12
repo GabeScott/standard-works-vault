@@ -1,6 +1,6 @@
 # Proof
 
-[Proof](https://www.churchofjesuschrist.org/study/scriptures/tg/Proof?lang=eng)
+[Proof](https://churchofjesuschrist.org/study/scriptures/tg/proof?lang=eng)
 
 ### References
 - [[Acts 1.3|Acts 1:3]]

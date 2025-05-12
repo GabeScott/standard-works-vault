@@ -1,6 +1,6 @@
 # Brier
 
-[Brier](https://www.churchofjesuschrist.org/study/scriptures/tg/Brier?lang=eng)
+[Brier](https://churchofjesuschrist.org/study/scriptures/tg/brier?lang=eng)
 
 ### References
 - [[Isaiah 32.13|Isaiah 32:13]]

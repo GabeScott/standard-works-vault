@@ -1,6 +1,6 @@
 # Consecrate
 
-[Consecrate](https://www.churchofjesuschrist.org/study/scriptures/tg/Consecrate?lang=eng)
+[Consecrate](https://churchofjesuschrist.org/study/scriptures/tg/consecrate?lang=eng)
 
 ### References
 - [[Exodus 28.41|Exodus 28:41]]

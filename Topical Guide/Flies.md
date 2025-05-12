@@ -1,6 +1,6 @@
 # Flies
 
-[Flies](https://www.churchofjesuschrist.org/study/scriptures/tg/Flies?lang=eng)
+[Flies](https://churchofjesuschrist.org/study/scriptures/tg/flies?lang=eng)
 
 ### References
 - [[Exodus 8.21|Exodus 8:21]]

@@ -1,6 +1,6 @@
 # Evidence
 
-[Evidence](https://www.churchofjesuschrist.org/study/scriptures/tg/Evidence?lang=eng)
+[Evidence](https://churchofjesuschrist.org/study/scriptures/tg/evidence?lang=eng)
 
 ### References
 - [[Hebrews 11.1|Hebrews 11:1]]

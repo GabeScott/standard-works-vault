@@ -1,6 +1,6 @@
 # Inhabit
 
-[Inhabit](https://www.churchofjesuschrist.org/study/scriptures/tg/Inhabit?lang=eng)
+[Inhabit](https://churchofjesuschrist.org/study/scriptures/tg/inhabit?lang=eng)
 
 ### References
 - [[Proverbs 10.30|Proverbs 10:30]]

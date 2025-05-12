@@ -1,6 +1,6 @@
 # Thirty
 
-[Thirty](https://www.churchofjesuschrist.org/study/scriptures/tg/Thirty?lang=eng)
+[Thirty](https://churchofjesuschrist.org/study/scriptures/tg/thirty?lang=eng)
 
 ### References
 - [[Exodus 21.32|Exodus 21:32]]

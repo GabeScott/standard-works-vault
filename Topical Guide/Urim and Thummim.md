@@ -1,6 +1,6 @@
 # Urim and Thummim
 
-[Urim and Thummim](https://www.churchofjesuschrist.org/study/scriptures/tg/Urim-and-Thummim?lang=eng)
+[Urim and Thummim](https://churchofjesuschrist.org/study/scriptures/tg/urim-and-thummim?lang=eng)
 
 ### References
 - [[Exodus 28.15|Exodus 28:15]]

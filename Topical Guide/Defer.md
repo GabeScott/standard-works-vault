@@ -1,6 +1,6 @@
 # Defer
 
-[Defer](https://www.churchofjesuschrist.org/study/scriptures/tg/Defer?lang=eng)
+[Defer](https://churchofjesuschrist.org/study/scriptures/tg/defer?lang=eng)
 
 ### References
 - [[Proverbs 19.11|Proverbs 19:11]]

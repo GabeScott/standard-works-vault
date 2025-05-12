@@ -1,6 +1,6 @@
 # Sponge
 
-[Sponge](https://www.churchofjesuschrist.org/study/scriptures/tg/Sponge?lang=eng)
+[Sponge](https://churchofjesuschrist.org/study/scriptures/tg/sponge?lang=eng)
 
 ### References
 - [[Matthew 27.48|Matthew 27:48]]

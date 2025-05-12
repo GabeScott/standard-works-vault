@@ -1,6 +1,6 @@
 # Spit, Spat
 
-[Spit, Spat](https://www.churchofjesuschrist.org/study/scriptures/tg/Spit-Spat?lang=eng)
+[Spit, Spat](https://churchofjesuschrist.org/study/scriptures/tg/spit?lang=eng)
 
 ### References
 - [[Isaiah 50.6|Isaiah 50:6]]

@@ -1,6 +1,6 @@
 # Paradise, Paradisiacal
 
-[Paradise, Paradisiacal](https://www.churchofjesuschrist.org/study/scriptures/tg/Paradise-Paradisiacal?lang=eng)
+[Paradise, Paradisiacal](https://churchofjesuschrist.org/study/scriptures/tg/paradise?lang=eng)
 
 ### References
 - [[Job 3.17|Job 3:17]]

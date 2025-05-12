@@ -1,6 +1,6 @@
 # Incorruptible
 
-[Incorruptible](https://www.churchofjesuschrist.org/study/scriptures/tg/Incorruptible?lang=eng)
+[Incorruptible](https://churchofjesuschrist.org/study/scriptures/tg/incorruptible?lang=eng)
 
 ### References
 - [[1 Corinthians 15.52|1 Corinthians 15:52]]

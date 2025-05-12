@@ -1,6 +1,6 @@
 # Teeth, Tooth
 
-[Teeth, Tooth](https://www.churchofjesuschrist.org/study/scriptures/tg/Teeth-Tooth?lang=eng)
+[Teeth, Tooth](https://churchofjesuschrist.org/study/scriptures/tg/teeth?lang=eng)
 
 ### References
 - [[Exodus 21.24|Exodus 21:24]]

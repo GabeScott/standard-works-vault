@@ -1,6 +1,6 @@
 # Swim
 
-[Swim](https://www.churchofjesuschrist.org/study/scriptures/tg/Swim?lang=eng)
+[Swim](https://churchofjesuschrist.org/study/scriptures/tg/swim?lang=eng)
 
 ### References
 - [[2 Kings 6.6|2 Kings 6:6]]

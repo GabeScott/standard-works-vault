@@ -1,6 +1,6 @@
 # Just
 
-[Just](https://www.churchofjesuschrist.org/study/scriptures/tg/Just?lang=eng)
+[Just](https://churchofjesuschrist.org/study/scriptures/tg/just?lang=eng)
 
 ### References
 - [[Genesis 6.9|Genesis 6:9]]

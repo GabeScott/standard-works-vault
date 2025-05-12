@@ -1,6 +1,6 @@
 # Cymbal
 
-[Cymbal](https://www.churchofjesuschrist.org/study/scriptures/tg/Cymbal?lang=eng)
+[Cymbal](https://churchofjesuschrist.org/study/scriptures/tg/cymbal?lang=eng)
 
 ### References
 - [[Psalms 150.5|Psalms 150:5]]

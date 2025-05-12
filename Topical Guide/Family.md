@@ -1,6 +1,6 @@
 # Family
 
-[Family](https://www.churchofjesuschrist.org/study/scriptures/tg/Family?lang=eng)
+[Family](https://churchofjesuschrist.org/study/scriptures/tg/family?lang=eng)
 
 ### References
 - [[Genesis 10.5|Genesis 10:5]]

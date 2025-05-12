@@ -1,6 +1,6 @@
 # Mission of Latter-day Saints
 
-[Mission of Latter-day Saints](https://www.churchofjesuschrist.org/study/scriptures/tg/Mission-of-Latter-day-Saints?lang=eng)
+[Mission of Latter-day Saints](https://churchofjesuschrist.org/study/scriptures/tg/mission-of-latter-day-saints?lang=eng)
 
 ### References
 - [[Genesis 12.3|Genesis 12:3]]

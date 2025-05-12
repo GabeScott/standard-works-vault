@@ -1,6 +1,6 @@
 # Deal, Dealt
 
-[Deal, Dealt](https://www.churchofjesuschrist.org/study/scriptures/tg/Deal-Dealt?lang=eng)
+[Deal, Dealt](https://churchofjesuschrist.org/study/scriptures/tg/deal?lang=eng)
 
 ### References
 - [[Exodus 1.10|Exodus 1:10]]

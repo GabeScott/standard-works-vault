@@ -1,6 +1,6 @@
 # Blood, Eating of
 
-[Blood, Eating of](https://www.churchofjesuschrist.org/study/scriptures/tg/Blood-Eating-of?lang=eng)
+[Blood, Eating of](https://churchofjesuschrist.org/study/scriptures/tg/blood-eating-of?lang=eng)
 
 ### References
 - [[Genesis 9.4|Genesis 9:4]]

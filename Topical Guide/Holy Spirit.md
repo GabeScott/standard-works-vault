@@ -1,6 +1,6 @@
 # Holy Spirit
 
-[Holy Spirit](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Spirit?lang=eng)
+[Holy Spirit](https://churchofjesuschrist.org/study/scriptures/tg/holy-spirit?lang=eng)
 
 ### References
 - [[Psalms 51.11|Psalms 51:11]]

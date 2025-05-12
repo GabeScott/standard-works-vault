@@ -1,6 +1,6 @@
 # Rear
 
-[Rear](https://www.churchofjesuschrist.org/study/scriptures/tg/Rear?lang=eng)
+[Rear](https://churchofjesuschrist.org/study/scriptures/tg/rear?lang=eng)
 
 ### References
 - [[Exodus 26.30|Exodus 26:30]]

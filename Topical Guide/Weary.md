@@ -1,6 +1,6 @@
 # Weary
 
-[Weary](https://www.churchofjesuschrist.org/study/scriptures/tg/Weary?lang=eng)
+[Weary](https://churchofjesuschrist.org/study/scriptures/tg/weary?lang=eng)
 
 ### References
 - [[Genesis 27.46|Genesis 27:46]]

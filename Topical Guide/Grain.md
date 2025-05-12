@@ -1,6 +1,6 @@
 # Grain
 
-[Grain](https://www.churchofjesuschrist.org/study/scriptures/tg/Grain?lang=eng)
+[Grain](https://churchofjesuschrist.org/study/scriptures/tg/grain?lang=eng)
 
 ### References
 - [[Matthew 13.31|Matthew 13:31]]

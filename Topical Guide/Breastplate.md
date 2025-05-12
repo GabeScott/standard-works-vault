@@ -1,6 +1,6 @@
 # Breastplate
 
-[Breastplate](https://www.churchofjesuschrist.org/study/scriptures/tg/Breastplate?lang=eng)
+[Breastplate](https://churchofjesuschrist.org/study/scriptures/tg/breastplate?lang=eng)
 
 ### References
 - [[Exodus 28.15|Exodus 28:15]]

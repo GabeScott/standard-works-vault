@@ -1,6 +1,6 @@
 # Direct, Direction
 
-[Direct, Direction](https://www.churchofjesuschrist.org/study/scriptures/tg/Direct-Direction?lang=eng)
+[Direct, Direction](https://churchofjesuschrist.org/study/scriptures/tg/direct?lang=eng)
 
 ### References
 - [[Proverbs 11.5|Proverbs 11:5]]

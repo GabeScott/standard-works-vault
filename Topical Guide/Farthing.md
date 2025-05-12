@@ -1,6 +1,6 @@
 # Farthing
 
-[Farthing](https://www.churchofjesuschrist.org/study/scriptures/tg/Farthing?lang=eng)
+[Farthing](https://churchofjesuschrist.org/study/scriptures/tg/farthing?lang=eng)
 
 ### References
 - [[Matthew 10.29|Matthew 10:29]]

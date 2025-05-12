@@ -1,6 +1,6 @@
 # Retribution
 
-[Retribution](https://www.churchofjesuschrist.org/study/scriptures/tg/Retribution?lang=eng)
+[Retribution](https://churchofjesuschrist.org/study/scriptures/tg/retribution?lang=eng)
 
 ### References
 - [[Genesis 49.6|Genesis 49:6]]

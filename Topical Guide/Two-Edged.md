@@ -1,6 +1,6 @@
 # Two-Edged
 
-[Two-Edged](https://www.churchofjesuschrist.org/study/scriptures/tg/Two-Edged?lang=eng)
+[Two-Edged](https://churchofjesuschrist.org/study/scriptures/tg/two-edged?lang=eng)
 
 ### References
 - [[Psalms 149.6|Psalms 149:6]]

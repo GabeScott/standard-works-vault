@@ -1,6 +1,6 @@
 # Reject
 
-[Reject](https://www.churchofjesuschrist.org/study/scriptures/tg/Reject?lang=eng)
+[Reject](https://churchofjesuschrist.org/study/scriptures/tg/reject?lang=eng)
 
 ### References
 - [[1 Samuel 10.19|1 Samuel 10:19]]

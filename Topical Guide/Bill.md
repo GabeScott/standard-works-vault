@@ -1,6 +1,6 @@
 # Bill
 
-[Bill](https://www.churchofjesuschrist.org/study/scriptures/tg/Bill?lang=eng)
+[Bill](https://churchofjesuschrist.org/study/scriptures/tg/bill?lang=eng)
 
 ### References
 - [[Deuteronomy 24.1|Deuteronomy 24:1]]

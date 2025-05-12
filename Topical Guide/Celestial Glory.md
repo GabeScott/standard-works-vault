@@ -1,6 +1,6 @@
 # Celestial Glory
 
-[Celestial Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/Celestial-Glory?lang=eng)
+[Celestial Glory](https://churchofjesuschrist.org/study/scriptures/tg/celestial-glory?lang=eng)
 
 ### References
 - [[Daniel 12.1|Daniel 12:1]]

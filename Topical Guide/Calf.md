@@ -1,6 +1,6 @@
 # Calf
 
-[Calf](https://www.churchofjesuschrist.org/study/scriptures/tg/Calf?lang=eng)
+[Calf](https://churchofjesuschrist.org/study/scriptures/tg/calf?lang=eng)
 
 ### References
 - [[Exodus 32.24|Exodus 32:24]]

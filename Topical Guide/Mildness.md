@@ -1,6 +1,6 @@
 # Mildness
 
-[Mildness](https://www.churchofjesuschrist.org/study/scriptures/tg/Mildness?lang=eng)
+[Mildness](https://churchofjesuschrist.org/study/scriptures/tg/mildness?lang=eng)
 
 ### References
 - [[Helaman 5.30|Helaman 5:30]]

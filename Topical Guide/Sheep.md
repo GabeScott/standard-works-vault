@@ -1,6 +1,6 @@
 # Sheep
 
-[Sheep](https://www.churchofjesuschrist.org/study/scriptures/tg/Sheep?lang=eng)
+[Sheep](https://churchofjesuschrist.org/study/scriptures/tg/sheep?lang=eng)
 
 ### References
 - [[Genesis 4.2|Genesis 4:2]]

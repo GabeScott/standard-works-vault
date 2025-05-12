@@ -1,6 +1,6 @@
 # God, Eternal Nature of
 
-[God, Eternal Nature of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Eternal-Nature-of?lang=eng)
+[God, Eternal Nature of](https://churchofjesuschrist.org/study/scriptures/tg/god-eternal-nature-of?lang=eng)
 
 ### References
 - [[Deuteronomy 33.27|Deuteronomy 33:27]]

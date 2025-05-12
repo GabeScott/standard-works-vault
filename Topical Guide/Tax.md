@@ -1,6 +1,6 @@
 # Tax
 
-[Tax](https://www.churchofjesuschrist.org/study/scriptures/tg/Tax?lang=eng)
+[Tax](https://churchofjesuschrist.org/study/scriptures/tg/tax?lang=eng)
 
 ### References
 - [[2 Kings 23.35|2 Kings 23:35]]

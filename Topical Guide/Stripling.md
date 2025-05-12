@@ -1,6 +1,6 @@
 # Stripling
 
-[Stripling](https://www.churchofjesuschrist.org/study/scriptures/tg/Stripling?lang=eng)
+[Stripling](https://churchofjesuschrist.org/study/scriptures/tg/stripling?lang=eng)
 
 ### References
 - [[1 Samuel 17.56|1 Samuel 17:56]]

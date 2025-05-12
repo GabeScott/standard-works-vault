@@ -1,6 +1,6 @@
 # Disputations, Dispute
 
-[Disputations, Dispute](https://www.churchofjesuschrist.org/study/scriptures/tg/Disputations-Dispute?lang=eng)
+[Disputations, Dispute](https://churchofjesuschrist.org/study/scriptures/tg/disputations?lang=eng)
 
 ### References
 - [[Deuteronomy 17.8|Deuteronomy 17:8]]

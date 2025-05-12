@@ -1,6 +1,6 @@
 # Rob
 
-[Rob](https://www.churchofjesuschrist.org/study/scriptures/tg/Rob?lang=eng)
+[Rob](https://churchofjesuschrist.org/study/scriptures/tg/rob?lang=eng)
 
 ### References
 - [[Leviticus 19.13|Leviticus 19:13]]

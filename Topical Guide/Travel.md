@@ -1,6 +1,6 @@
 # Travel
 
-[Travel](https://www.churchofjesuschrist.org/study/scriptures/tg/Travel?lang=eng)
+[Travel](https://churchofjesuschrist.org/study/scriptures/tg/travel?lang=eng)
 
 ### References
 - [[Judges 5.6|Judges 5:6]]

@@ -1,6 +1,6 @@
 # Holy Ghost, Loss of
 
-[Holy Ghost, Loss of](https://www.churchofjesuschrist.org/study/scriptures/tg/Holy-Ghost-Loss-of?lang=eng)
+[Holy Ghost, Loss of](https://churchofjesuschrist.org/study/scriptures/tg/holy-ghost-loss-of?lang=eng)
 
 ### References
 - [[Genesis 6.3|Genesis 6:3]]

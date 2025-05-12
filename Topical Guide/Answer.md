@@ -1,6 +1,6 @@
 # Answer
 
-[Answer](https://www.churchofjesuschrist.org/study/scriptures/tg/Answer?lang=eng)
+[Answer](https://churchofjesuschrist.org/study/scriptures/tg/answer?lang=eng)
 
 ### References
 - [[Genesis 41.16|Genesis 41:16]]

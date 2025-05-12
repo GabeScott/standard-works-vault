@@ -1,6 +1,6 @@
 # Stagger
 
-[Stagger](https://www.churchofjesuschrist.org/study/scriptures/tg/Stagger?lang=eng)
+[Stagger](https://churchofjesuschrist.org/study/scriptures/tg/stagger?lang=eng)
 
 ### References
 - [[Psalms 107.27|Psalms 107:27]]

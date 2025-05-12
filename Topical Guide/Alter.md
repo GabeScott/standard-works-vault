@@ -1,6 +1,6 @@
 # Alter
 
-[Alter](https://www.churchofjesuschrist.org/study/scriptures/tg/Alter?lang=eng)
+[Alter](https://churchofjesuschrist.org/study/scriptures/tg/alter?lang=eng)
 
 ### References
 - [[Leviticus 27.10|Leviticus 27:10]]

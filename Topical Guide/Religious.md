@@ -1,6 +1,6 @@
 # Religious
 
-[Religious](https://www.churchofjesuschrist.org/study/scriptures/tg/Religious?lang=eng)
+[Religious](https://churchofjesuschrist.org/study/scriptures/tg/religious?lang=eng)
 
 ### References
 - [[James 1.26|James 1:26]]

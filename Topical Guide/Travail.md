@@ -1,6 +1,6 @@
 # Travail
 
-[Travail](https://www.churchofjesuschrist.org/study/scriptures/tg/Travail?lang=eng)
+[Travail](https://churchofjesuschrist.org/study/scriptures/tg/travail?lang=eng)
 
 ### References
 - [[Isaiah 13.8|Isaiah 13:8]]

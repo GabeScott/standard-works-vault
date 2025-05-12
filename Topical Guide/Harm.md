@@ -1,6 +1,6 @@
 # Harm
 
-[Harm](https://www.churchofjesuschrist.org/study/scriptures/tg/Harm?lang=eng)
+[Harm](https://churchofjesuschrist.org/study/scriptures/tg/harm?lang=eng)
 
 ### References
 - [[1 Chronicles 16.22|1 Chronicles 16:22]]

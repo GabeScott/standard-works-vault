@@ -1,6 +1,6 @@
 # Dim
 
-[Dim](https://www.churchofjesuschrist.org/study/scriptures/tg/Dim?lang=eng)
+[Dim](https://churchofjesuschrist.org/study/scriptures/tg/dim?lang=eng)
 
 ### References
 - [[Genesis 27.1|Genesis 27:1]]

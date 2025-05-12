@@ -1,6 +1,6 @@
 # Scepter
 
-[Scepter](https://www.churchofjesuschrist.org/study/scriptures/tg/Scepter?lang=eng)
+[Scepter](https://churchofjesuschrist.org/study/scriptures/tg/scepter?lang=eng)
 
 ### References
 - [[Genesis 49.10|Genesis 49:10]]

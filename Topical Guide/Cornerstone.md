@@ -1,6 +1,6 @@
 # Cornerstone
 
-[Cornerstone](https://www.churchofjesuschrist.org/study/scriptures/tg/Cornerstone?lang=eng)
+[Cornerstone](https://churchofjesuschrist.org/study/scriptures/tg/cornerstone?lang=eng)
 
 ### References
 - [[Deuteronomy 32.15|Deuteronomy 32:15]]

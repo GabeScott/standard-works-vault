@@ -1,6 +1,6 @@
 # Abundant Life
 
-[Abundant Life](https://www.churchofjesuschrist.org/study/scriptures/tg/Abundant-Life?lang=eng)
+[Abundant Life](https://churchofjesuschrist.org/study/scriptures/tg/abundant-life?lang=eng)
 
 ### References
 - [[2 Chronicles 20.20|2 Chronicles 20:20]]

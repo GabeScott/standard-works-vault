@@ -1,6 +1,6 @@
 # Thistle
 
-[Thistle](https://www.churchofjesuschrist.org/study/scriptures/tg/Thistle?lang=eng)
+[Thistle](https://churchofjesuschrist.org/study/scriptures/tg/thistle?lang=eng)
 
 ### References
 - [[Genesis 3.18|Genesis 3:18]]

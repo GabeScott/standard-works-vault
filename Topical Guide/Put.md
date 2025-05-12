@@ -1,6 +1,6 @@
 # Put
 
-[Put](https://www.churchofjesuschrist.org/study/scriptures/tg/Put?lang=eng)
+[Put](https://churchofjesuschrist.org/study/scriptures/tg/put?lang=eng)
 
 ### References
 - [[Genesis 2.8|Genesis 2:8]]

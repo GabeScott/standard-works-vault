@@ -1,6 +1,6 @@
 # Bid
 
-[Bid](https://www.churchofjesuschrist.org/study/scriptures/tg/Bid?lang=eng)
+[Bid](https://churchofjesuschrist.org/study/scriptures/tg/bid?lang=eng)
 
 ### References
 - [[Joshua 11.9|Joshua 11:9]]

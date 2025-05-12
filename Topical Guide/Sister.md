@@ -1,6 +1,6 @@
 # Sister
 
-[Sister](https://www.churchofjesuschrist.org/study/scriptures/tg/Sister?lang=eng)
+[Sister](https://churchofjesuschrist.org/study/scriptures/tg/sister?lang=eng)
 
 ### References
 - [[Genesis 12.13|Genesis 12:13]]

@@ -1,6 +1,6 @@
 # Israelite
 
-[Israelite](https://www.churchofjesuschrist.org/study/scriptures/tg/Israelite?lang=eng)
+[Israelite](https://churchofjesuschrist.org/study/scriptures/tg/israelite?lang=eng)
 
 ### References
 - [[John 1.47|John 1:47]]

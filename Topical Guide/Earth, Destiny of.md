@@ -1,6 +1,6 @@
 # Earth, Destiny of
 
-[Earth, Destiny of](https://www.churchofjesuschrist.org/study/scriptures/tg/Earth-Destiny-of?lang=eng)
+[Earth, Destiny of](https://churchofjesuschrist.org/study/scriptures/tg/earth-destiny-of?lang=eng)
 
 ### References
 - [[Psalms 25.13|Psalms 25:13]]

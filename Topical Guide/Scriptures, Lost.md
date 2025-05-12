@@ -1,6 +1,6 @@
 # Scriptures, Lost
 
-[Scriptures, Lost](https://www.churchofjesuschrist.org/study/scriptures/tg/Scriptures-Lost?lang=eng)
+[Scriptures, Lost](https://churchofjesuschrist.org/study/scriptures/tg/scriptures-lost?lang=eng)
 
 ### References
 - [[Exodus 24.7|Exodus 24:7]]

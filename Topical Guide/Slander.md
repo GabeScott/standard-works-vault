@@ -1,6 +1,6 @@
 # Slander
 
-[Slander](https://www.churchofjesuschrist.org/study/scriptures/tg/Slander?lang=eng)
+[Slander](https://churchofjesuschrist.org/study/scriptures/tg/slander?lang=eng)
 
 ### References
 - [[Nehemiah 6.13|Nehemiah 6:13]]

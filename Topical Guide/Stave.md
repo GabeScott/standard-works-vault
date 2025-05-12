@@ -1,6 +1,6 @@
 # Stave
 
-[Stave](https://www.churchofjesuschrist.org/study/scriptures/tg/Stave?lang=eng)
+[Stave](https://churchofjesuschrist.org/study/scriptures/tg/stave?lang=eng)
 
 ### References
 - [[Exodus 25.13|Exodus 25:13]]

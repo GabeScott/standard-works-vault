@@ -1,6 +1,6 @@
 # Shrink
 
-[Shrink](https://www.churchofjesuschrist.org/study/scriptures/tg/Shrink?lang=eng)
+[Shrink](https://churchofjesuschrist.org/study/scriptures/tg/shrink?lang=eng)
 
 ### References
 - [[2 Nephi 9.46|2 Nephi 9:46]]

@@ -1,6 +1,6 @@
 # Space
 
-[Space](https://www.churchofjesuschrist.org/study/scriptures/tg/Space?lang=eng)
+[Space](https://churchofjesuschrist.org/study/scriptures/tg/space?lang=eng)
 
 ### References
 - [[Deuteronomy 2.14|Deuteronomy 2:14]]

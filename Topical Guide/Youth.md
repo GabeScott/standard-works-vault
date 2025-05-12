@@ -1,6 +1,6 @@
 # Youth
 
-[Youth](https://www.churchofjesuschrist.org/study/scriptures/tg/Youth?lang=eng)
+[Youth](https://churchofjesuschrist.org/study/scriptures/tg/youth?lang=eng)
 
 ### References
 - [[Genesis 8.21|Genesis 8:21]]

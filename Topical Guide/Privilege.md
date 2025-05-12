@@ -1,6 +1,6 @@
 # Privilege
 
-[Privilege](https://www.churchofjesuschrist.org/study/scriptures/tg/Privilege?lang=eng)
+[Privilege](https://churchofjesuschrist.org/study/scriptures/tg/privilege?lang=eng)
 
 ### References
 - [[Mosiah 29.32|Mosiah 29:32]]

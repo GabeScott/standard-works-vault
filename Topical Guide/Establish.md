@@ -1,6 +1,6 @@
 # Establish
 
-[Establish](https://www.churchofjesuschrist.org/study/scriptures/tg/Establish?lang=eng)
+[Establish](https://churchofjesuschrist.org/study/scriptures/tg/establish?lang=eng)
 
 ### References
 - [[Genesis 17.21|Genesis 17:21]]

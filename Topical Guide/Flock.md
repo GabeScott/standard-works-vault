@@ -1,6 +1,6 @@
 # Flock
 
-[Flock](https://www.churchofjesuschrist.org/study/scriptures/tg/Flock?lang=eng)
+[Flock](https://churchofjesuschrist.org/study/scriptures/tg/flock?lang=eng)
 
 ### References
 - [[Genesis 30.40|Genesis 30:40]]

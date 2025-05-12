@@ -1,6 +1,6 @@
 # Sect
 
-[Sect](https://www.churchofjesuschrist.org/study/scriptures/tg/Sect?lang=eng)
+[Sect](https://churchofjesuschrist.org/study/scriptures/tg/sect?lang=eng)
 
 ### References
 - [[Acts 15.5|Acts 15:5]]

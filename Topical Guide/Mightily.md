@@ -1,6 +1,6 @@
 # Mightily
 
-[Mightily](https://www.churchofjesuschrist.org/study/scriptures/tg/Mightily?lang=eng)
+[Mightily](https://churchofjesuschrist.org/study/scriptures/tg/mightily?lang=eng)
 
 ### References
 - [[Judges 14.6|Judges 14:6]]

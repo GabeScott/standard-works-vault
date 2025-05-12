@@ -1,6 +1,6 @@
 # Judgment
 
-[Judgment](https://www.churchofjesuschrist.org/study/scriptures/tg/Judgment?lang=eng)
+[Judgment](https://churchofjesuschrist.org/study/scriptures/tg/judgment?lang=eng)
 
 ### References
 - [[Genesis 18.19|Genesis 18:19]]

@@ -1,6 +1,6 @@
 # Engrave
 
-[Engrave](https://www.churchofjesuschrist.org/study/scriptures/tg/Engrave?lang=eng)
+[Engrave](https://churchofjesuschrist.org/study/scriptures/tg/engrave?lang=eng)
 
 ### References
 - [[Exodus 28.11|Exodus 28:11]]

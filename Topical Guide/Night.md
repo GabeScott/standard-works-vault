@@ -1,6 +1,6 @@
 # Night
 
-[Night](https://www.churchofjesuschrist.org/study/scriptures/tg/Night?lang=eng)
+[Night](https://churchofjesuschrist.org/study/scriptures/tg/night?lang=eng)
 
 ### References
 - [[Genesis 1.5|Genesis 1:5]]

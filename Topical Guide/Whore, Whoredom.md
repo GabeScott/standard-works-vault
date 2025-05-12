@@ -1,6 +1,6 @@
 # Whore, Whoredom
 
-[Whore, Whoredom](https://www.churchofjesuschrist.org/study/scriptures/tg/Whore-Whoredom?lang=eng)
+[Whore, Whoredom](https://churchofjesuschrist.org/study/scriptures/tg/whore?lang=eng)
 
 ### References
 - [[Leviticus 19.29|Leviticus 19:29]]

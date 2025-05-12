@@ -1,6 +1,6 @@
 # Opposition
 
-[Opposition](https://www.churchofjesuschrist.org/study/scriptures/tg/Opposition?lang=eng)
+[Opposition](https://churchofjesuschrist.org/study/scriptures/tg/opposition?lang=eng)
 
 ### References
 - [[Genesis 2.9|Genesis 2:9]]

@@ -1,6 +1,6 @@
 # Seek, Sought
 
-[Seek, Sought](https://www.churchofjesuschrist.org/study/scriptures/tg/Seek-Sought?lang=eng)
+[Seek, Sought](https://churchofjesuschrist.org/study/scriptures/tg/seek?lang=eng)
 
 ### References
 - [[Numbers 15.39|Numbers 15:39]]

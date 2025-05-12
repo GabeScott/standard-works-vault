@@ -1,6 +1,6 @@
 # Father
 
-[Father](https://www.churchofjesuschrist.org/study/scriptures/tg/Father?lang=eng)
+[Father](https://churchofjesuschrist.org/study/scriptures/tg/father?lang=eng)
 
 ### References
 - [[Genesis 17.5|Genesis 17:5]]

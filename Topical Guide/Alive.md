@@ -1,6 +1,6 @@
 # Alive
 
-[Alive](https://www.churchofjesuschrist.org/study/scriptures/tg/Alive?lang=eng)
+[Alive](https://churchofjesuschrist.org/study/scriptures/tg/alive?lang=eng)
 
 ### References
 - [[Exodus 1.17|Exodus 1:17]]

@@ -1,6 +1,6 @@
 # Shut
 
-[Shut](https://www.churchofjesuschrist.org/study/scriptures/tg/Shut?lang=eng)
+[Shut](https://churchofjesuschrist.org/study/scriptures/tg/shut?lang=eng)
 
 ### References
 - [[Deuteronomy 11.17|Deuteronomy 11:17]]

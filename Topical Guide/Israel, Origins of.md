@@ -1,6 +1,6 @@
 # Israel, Origins of
 
-[Israel, Origins of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Origins-of?lang=eng)
+[Israel, Origins of](https://churchofjesuschrist.org/study/scriptures/tg/israel-origins-of?lang=eng)
 
 ### References
 - [[Genesis 12.2|Genesis 12:2]]

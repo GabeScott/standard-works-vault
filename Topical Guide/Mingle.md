@@ -1,6 +1,6 @@
 # Mingle
 
-[Mingle](https://www.churchofjesuschrist.org/study/scriptures/tg/Mingle?lang=eng)
+[Mingle](https://churchofjesuschrist.org/study/scriptures/tg/mingle?lang=eng)
 
 ### References
 - [[Leviticus 19.19|Leviticus 19:19]]

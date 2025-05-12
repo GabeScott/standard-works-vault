@@ -1,6 +1,6 @@
 # Israel, Mission of
 
-[Israel, Mission of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Mission-of?lang=eng)
+[Israel, Mission of](https://churchofjesuschrist.org/study/scriptures/tg/israel-mission-of?lang=eng)
 
 ### References
 - [[Genesis 12.3|Genesis 12:3]]

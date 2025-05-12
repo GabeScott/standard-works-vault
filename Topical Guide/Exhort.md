@@ -1,6 +1,6 @@
 # Exhort
 
-[Exhort](https://www.churchofjesuschrist.org/study/scriptures/tg/Exhort?lang=eng)
+[Exhort](https://churchofjesuschrist.org/study/scriptures/tg/exhort?lang=eng)
 
 ### References
 - [[Acts 14.22|Acts 14:22]]

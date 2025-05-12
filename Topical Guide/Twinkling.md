@@ -1,6 +1,6 @@
 # Twinkling
 
-[Twinkling](https://www.churchofjesuschrist.org/study/scriptures/tg/Twinkling?lang=eng)
+[Twinkling](https://churchofjesuschrist.org/study/scriptures/tg/twinkling?lang=eng)
 
 ### References
 - [[1 Corinthians 15.52|1 Corinthians 15:52]]

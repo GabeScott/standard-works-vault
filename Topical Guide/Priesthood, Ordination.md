@@ -1,6 +1,6 @@
 # Priesthood, Ordination
 
-[Priesthood, Ordination](https://www.churchofjesuschrist.org/study/scriptures/tg/Priesthood-Ordination?lang=eng)
+[Priesthood, Ordination](https://churchofjesuschrist.org/study/scriptures/tg/priesthood-ordination?lang=eng)
 
 ### References
 - [[Exodus 40.15|Exodus 40:15]]

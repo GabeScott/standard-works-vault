@@ -1,6 +1,6 @@
 # Preaching, Preach
 
-[Preaching, Preach](https://www.churchofjesuschrist.org/study/scriptures/tg/Preaching-Preach?lang=eng)
+[Preaching, Preach](https://churchofjesuschrist.org/study/scriptures/tg/preaching?lang=eng)
 
 ### References
 - [[Psalms 105.1|Psalms 105:1]]

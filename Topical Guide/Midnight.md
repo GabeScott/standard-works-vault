@@ -1,6 +1,6 @@
 # Midnight
 
-[Midnight](https://www.churchofjesuschrist.org/study/scriptures/tg/Midnight?lang=eng)
+[Midnight](https://churchofjesuschrist.org/study/scriptures/tg/midnight?lang=eng)
 
 ### References
 - [[Exodus 11.4|Exodus 11:4]]

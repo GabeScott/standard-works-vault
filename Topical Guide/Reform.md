@@ -1,6 +1,6 @@
 # Reform
 
-[Reform](https://www.churchofjesuschrist.org/study/scriptures/tg/Reform?lang=eng)
+[Reform](https://churchofjesuschrist.org/study/scriptures/tg/reform?lang=eng)
 
 ### References
 - [[Leviticus 26.23|Leviticus 26:23]]

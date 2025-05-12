@@ -1,6 +1,6 @@
 # Nothing, Nothingness
 
-[Nothing, Nothingness](https://www.churchofjesuschrist.org/study/scriptures/tg/Nothing-Nothingness?lang=eng)
+[Nothing, Nothingness](https://churchofjesuschrist.org/study/scriptures/tg/nothing?lang=eng)
 
 ### References
 - [[Psalms 49.17|Psalms 49:17]]

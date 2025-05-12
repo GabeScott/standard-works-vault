@@ -1,6 +1,6 @@
 # Slaughter
 
-[Slaughter](https://www.churchofjesuschrist.org/study/scriptures/tg/Slaughter?lang=eng)
+[Slaughter](https://churchofjesuschrist.org/study/scriptures/tg/slaughter?lang=eng)
 
 ### References
 - [[Psalms 44.22|Psalms 44:22]]

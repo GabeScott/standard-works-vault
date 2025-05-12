@@ -1,6 +1,6 @@
 # Warn, Warnings
 
-[Warn, Warnings](https://www.churchofjesuschrist.org/study/scriptures/tg/Warn-Warnings?lang=eng)
+[Warn, Warnings](https://churchofjesuschrist.org/study/scriptures/tg/warn?lang=eng)
 
 ### References
 - [[2 Kings 6.10|2 Kings 6:10]]

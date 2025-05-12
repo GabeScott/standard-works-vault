@@ -1,6 +1,6 @@
 # Unpardonable
 
-[Unpardonable](https://www.churchofjesuschrist.org/study/scriptures/tg/Unpardonable?lang=eng)
+[Unpardonable](https://churchofjesuschrist.org/study/scriptures/tg/unpardonable?lang=eng)
 
 ### References
 - [[Jacob 7.19|Jacob 7:19]]

@@ -1,6 +1,6 @@
 # Whisper
 
-[Whisper](https://www.churchofjesuschrist.org/study/scriptures/tg/Whisper?lang=eng)
+[Whisper](https://churchofjesuschrist.org/study/scriptures/tg/whisper?lang=eng)
 
 ### References
 - [[Psalms 41.7|Psalms 41:7]]

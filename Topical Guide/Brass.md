@@ -1,6 +1,6 @@
 # Brass
 
-[Brass](https://www.churchofjesuschrist.org/study/scriptures/tg/Brass?lang=eng)
+[Brass](https://churchofjesuschrist.org/study/scriptures/tg/brass?lang=eng)
 
 ### References
 - [[Genesis 4.22|Genesis 4:22]]

@@ -1,6 +1,6 @@
 # Sure
 
-[Sure](https://www.churchofjesuschrist.org/study/scriptures/tg/Sure?lang=eng)
+[Sure](https://churchofjesuschrist.org/study/scriptures/tg/calling-and-election-sure?lang=eng)
 
 ### References
 - [[1 Samuel 25.28|1 Samuel 25:28]]

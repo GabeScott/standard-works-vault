@@ -1,6 +1,6 @@
 # Stone
 
-[Stone](https://www.churchofjesuschrist.org/study/scriptures/tg/Stone?lang=eng)
+[Stone](https://churchofjesuschrist.org/study/scriptures/tg/stone?lang=eng)
 
 ### References
 - [[Genesis 11.3|Genesis 11:3]]

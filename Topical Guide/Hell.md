@@ -1,6 +1,6 @@
 # Hell
 
-[Hell](https://www.churchofjesuschrist.org/study/scriptures/tg/Hell?lang=eng)
+[Hell](https://churchofjesuschrist.org/study/scriptures/tg/hell?lang=eng)
 
 ### References
 - [[Deuteronomy 32.22|Deuteronomy 32:22]]

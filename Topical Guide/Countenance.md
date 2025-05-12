@@ -1,6 +1,6 @@
 # Countenance
 
-[Countenance](https://www.churchofjesuschrist.org/study/scriptures/tg/Countenance?lang=eng)
+[Countenance](https://churchofjesuschrist.org/study/scriptures/tg/countenance?lang=eng)
 
 ### References
 - [[Numbers 6.26|Numbers 6:26]]

@@ -1,6 +1,6 @@
 # War
 
-[War](https://www.churchofjesuschrist.org/study/scriptures/tg/War?lang=eng)
+[War](https://churchofjesuschrist.org/study/scriptures/tg/war?lang=eng)
 
 ### References
 - [[Exodus 15.3|Exodus 15:3]]

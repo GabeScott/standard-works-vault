@@ -1,6 +1,6 @@
 # Arm
 
-[Arm](https://www.churchofjesuschrist.org/study/scriptures/tg/Arm?lang=eng)
+[Arm](https://churchofjesuschrist.org/study/scriptures/tg/arm?lang=eng)
 
 ### References
 - [[Exodus 15.16|Exodus 15:16]]

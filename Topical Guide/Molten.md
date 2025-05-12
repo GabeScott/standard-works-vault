@@ -1,6 +1,6 @@
 # Molten
 
-[Molten](https://www.churchofjesuschrist.org/study/scriptures/tg/Molten?lang=eng)
+[Molten](https://churchofjesuschrist.org/study/scriptures/tg/molten?lang=eng)
 
 ### References
 - [[Exodus 32.8|Exodus 32:8]]

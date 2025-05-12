@@ -1,6 +1,6 @@
 # Eternal Life
 
-[Eternal Life](https://www.churchofjesuschrist.org/study/scriptures/tg/Eternal-Life?lang=eng)
+[Eternal Life](https://churchofjesuschrist.org/study/scriptures/tg/eternal-life?lang=eng)
 
 ### References
 - [[Psalms 73.24|Psalms 73:24]]

@@ -1,6 +1,6 @@
 # Handle
 
-[Handle](https://www.churchofjesuschrist.org/study/scriptures/tg/Handle?lang=eng)
+[Handle](https://churchofjesuschrist.org/study/scriptures/tg/handle?lang=eng)
 
 ### References
 - [[Luke 24.39|Luke 24:39]]

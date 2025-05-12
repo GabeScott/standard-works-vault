@@ -1,6 +1,6 @@
 # Strife
 
-[Strife](https://www.churchofjesuschrist.org/study/scriptures/tg/Strife?lang=eng)
+[Strife](https://churchofjesuschrist.org/study/scriptures/tg/strife?lang=eng)
 
 ### References
 - [[Genesis 13.8|Genesis 13:8]]

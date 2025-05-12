@@ -1,6 +1,6 @@
 # Prophets, Rejection of
 
-[Prophets, Rejection of](https://www.churchofjesuschrist.org/study/scriptures/tg/Prophets-Rejection-of?lang=eng)
+[Prophets, Rejection of](https://churchofjesuschrist.org/study/scriptures/tg/prophets-rejection-of?lang=eng)
 
 ### References
 - [[1 Kings 17.3|1 Kings 17:3]]

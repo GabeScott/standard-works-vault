@@ -1,6 +1,6 @@
 # Tail
 
-[Tail](https://www.churchofjesuschrist.org/study/scriptures/tg/Tail?lang=eng)
+[Tail](https://churchofjesuschrist.org/study/scriptures/tg/tail?lang=eng)
 
 ### References
 - [[Exodus 4.4|Exodus 4:4]]

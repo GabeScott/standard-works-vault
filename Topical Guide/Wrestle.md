@@ -1,6 +1,6 @@
 # Wrestle
 
-[Wrestle](https://www.churchofjesuschrist.org/study/scriptures/tg/Wrestle?lang=eng)
+[Wrestle](https://churchofjesuschrist.org/study/scriptures/tg/wrestle?lang=eng)
 
 ### References
 - [[Genesis 32.24|Genesis 32:24]]

@@ -1,6 +1,6 @@
 # Suck
 
-[Suck](https://www.churchofjesuschrist.org/study/scriptures/tg/Suck?lang=eng)
+[Suck](https://churchofjesuschrist.org/study/scriptures/tg/suck?lang=eng)
 
 ### References
 - [[Deuteronomy 32.13|Deuteronomy 32:13]]

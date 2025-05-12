@@ -1,6 +1,6 @@
 # Lintel
 
-[Lintel](https://www.churchofjesuschrist.org/study/scriptures/tg/Lintel?lang=eng)
+[Lintel](https://churchofjesuschrist.org/study/scriptures/tg/lintel?lang=eng)
 
 ### References
 - [[Exodus 12.22|Exodus 12:22]]

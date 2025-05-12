@@ -1,6 +1,6 @@
 # Carry, Carried
 
-[Carry, Carried](https://www.churchofjesuschrist.org/study/scriptures/tg/Carry-Carried?lang=eng)
+[Carry, Carried](https://churchofjesuschrist.org/study/scriptures/tg/carry?lang=eng)
 
 ### References
 - [[Genesis 31.18|Genesis 31:18]]

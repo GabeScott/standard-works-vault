@@ -1,6 +1,6 @@
 # Alone
 
-[Alone](https://www.churchofjesuschrist.org/study/scriptures/tg/Alone?lang=eng)
+[Alone](https://churchofjesuschrist.org/study/scriptures/tg/alone?lang=eng)
 
 ### References
 - [[Genesis 2.18|Genesis 2:18]]

@@ -1,6 +1,6 @@
 # Fill
 
-[Fill](https://www.churchofjesuschrist.org/study/scriptures/tg/Fill?lang=eng)
+[Fill](https://churchofjesuschrist.org/study/scriptures/tg/fill?lang=eng)
 
 ### References
 - [[Genesis 42.25|Genesis 42:25]]

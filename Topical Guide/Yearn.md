@@ -1,6 +1,6 @@
 # Yearn
 
-[Yearn](https://www.churchofjesuschrist.org/study/scriptures/tg/Yearn?lang=eng)
+[Yearn](https://churchofjesuschrist.org/study/scriptures/tg/yearn?lang=eng)
 
 ### References
 - [[Genesis 43.30|Genesis 43:30]]

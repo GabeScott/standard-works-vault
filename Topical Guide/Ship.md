@@ -1,6 +1,6 @@
 # Ship
 
-[Ship](https://www.churchofjesuschrist.org/study/scriptures/tg/Ship?lang=eng)
+[Ship](https://churchofjesuschrist.org/study/scriptures/tg/ship?lang=eng)
 
 ### References
 - [[1 Kings 22.48|1 Kings 22:48]]

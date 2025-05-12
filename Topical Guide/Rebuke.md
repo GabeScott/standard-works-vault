@@ -1,6 +1,6 @@
 # Rebuke
 
-[Rebuke](https://www.churchofjesuschrist.org/study/scriptures/tg/Rebuke?lang=eng)
+[Rebuke](https://churchofjesuschrist.org/study/scriptures/tg/rebuke?lang=eng)
 
 ### References
 - [[Leviticus 19.17|Leviticus 19:17]]

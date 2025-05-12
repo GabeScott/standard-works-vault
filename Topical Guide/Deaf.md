@@ -1,6 +1,6 @@
 # Deaf
 
-[Deaf](https://www.churchofjesuschrist.org/study/scriptures/tg/Deaf?lang=eng)
+[Deaf](https://churchofjesuschrist.org/study/scriptures/tg/deaf?lang=eng)
 
 ### References
 - [[Exodus 4.11|Exodus 4:11]]

@@ -1,6 +1,6 @@
 # Puff
 
-[Puff](https://www.churchofjesuschrist.org/study/scriptures/tg/Puff?lang=eng)
+[Puff](https://churchofjesuschrist.org/study/scriptures/tg/puff?lang=eng)
 
 ### References
 - [[1 Corinthians 13.4|1 Corinthians 13:4]]

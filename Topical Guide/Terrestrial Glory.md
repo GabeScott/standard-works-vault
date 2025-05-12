@@ -1,6 +1,6 @@
 # Terrestrial Glory
 
-[Terrestrial Glory](https://www.churchofjesuschrist.org/study/scriptures/tg/Terrestrial-Glory?lang=eng)
+[Terrestrial Glory](https://churchofjesuschrist.org/study/scriptures/tg/terrestrial-glory?lang=eng)
 
 ### References
 - [[1 Corinthians 15.40|1 Corinthians 15:40]]

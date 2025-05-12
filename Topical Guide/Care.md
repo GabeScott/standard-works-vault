@@ -1,6 +1,6 @@
 # Care
 
-[Care](https://www.churchofjesuschrist.org/study/scriptures/tg/Care?lang=eng)
+[Care](https://churchofjesuschrist.org/study/scriptures/tg/care?lang=eng)
 
 ### References
 - [[1 Samuel 10.2|1 Samuel 10:2]]

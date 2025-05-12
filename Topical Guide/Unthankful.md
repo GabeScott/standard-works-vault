@@ -1,6 +1,6 @@
 # Unthankful
 
-[Unthankful](https://www.churchofjesuschrist.org/study/scriptures/tg/Unthankful?lang=eng)
+[Unthankful](https://churchofjesuschrist.org/study/scriptures/tg/unthankful?lang=eng)
 
 ### References
 - [[Luke 6.35|Luke 6:35]]

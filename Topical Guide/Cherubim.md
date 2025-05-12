@@ -1,6 +1,6 @@
 # Cherubim
 
-[Cherubim](https://www.churchofjesuschrist.org/study/scriptures/tg/Cherubim?lang=eng)
+[Cherubim](https://churchofjesuschrist.org/study/scriptures/tg/cherubim?lang=eng)
 
 ### References
 - [[Genesis 3.24|Genesis 3:24]]

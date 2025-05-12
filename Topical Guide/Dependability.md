@@ -1,6 +1,6 @@
 # Dependability
 
-[Dependability](https://www.churchofjesuschrist.org/study/scriptures/tg/Dependability?lang=eng)
+[Dependability](https://churchofjesuschrist.org/study/scriptures/tg/dependability?lang=eng)
 
 ### References
 - [[Psalms 118.8|Psalms 118:8]]

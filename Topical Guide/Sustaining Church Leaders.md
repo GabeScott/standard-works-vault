@@ -1,6 +1,6 @@
 # Sustaining Church Leaders
 
-[Sustaining Church Leaders](https://www.churchofjesuschrist.org/study/scriptures/tg/Sustaining-Church-Leaders?lang=eng)
+[Sustaining Church Leaders](https://churchofjesuschrist.org/study/scriptures/tg/sustaining-church-leaders?lang=eng)
 
 ### References
 - [[Exodus 4.16|Exodus 4:16]]

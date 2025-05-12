@@ -1,6 +1,6 @@
 # Joy
 
-[Joy](https://www.churchofjesuschrist.org/study/scriptures/tg/Joy?lang=eng)
+[Joy](https://churchofjesuschrist.org/study/scriptures/tg/joy?lang=eng)
 
 ### References
 - [[Deuteronomy 28.47|Deuteronomy 28:47]]

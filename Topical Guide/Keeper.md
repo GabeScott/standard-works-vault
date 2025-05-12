@@ -1,6 +1,6 @@
 # Keeper
 
-[Keeper](https://www.churchofjesuschrist.org/study/scriptures/tg/Keeper?lang=eng)
+[Keeper](https://churchofjesuschrist.org/study/scriptures/tg/keeper?lang=eng)
 
 ### References
 - [[Genesis 4.2|Genesis 4:2]]

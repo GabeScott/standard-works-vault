@@ -1,6 +1,6 @@
 # Ready
 
-[Ready](https://www.churchofjesuschrist.org/study/scriptures/tg/Ready?lang=eng)
+[Ready](https://churchofjesuschrist.org/study/scriptures/tg/ready?lang=eng)
 
 ### References
 - [[Exodus 34.2|Exodus 34:2]]

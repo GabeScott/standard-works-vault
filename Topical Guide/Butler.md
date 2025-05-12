@@ -1,6 +1,6 @@
 # Butler
 
-[Butler](https://www.churchofjesuschrist.org/study/scriptures/tg/Butler?lang=eng)
+[Butler](https://churchofjesuschrist.org/study/scriptures/tg/butler?lang=eng)
 
 ### References
 - [[Genesis 40.9|Genesis 40:9]]

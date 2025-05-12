@@ -1,6 +1,6 @@
 # Restoration
 
-[Restoration](https://www.churchofjesuschrist.org/study/scriptures/tg/Restoration?lang=eng)
+[Restoration](https://churchofjesuschrist.org/study/scriptures/tg/restoration?lang=eng)
 
 ### References
 - [[Alma 40.22|Alma 40:22]]

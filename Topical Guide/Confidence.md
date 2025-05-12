@@ -1,6 +1,6 @@
 # Confidence
 
-[Confidence](https://www.churchofjesuschrist.org/study/scriptures/tg/Confidence?lang=eng)
+[Confidence](https://churchofjesuschrist.org/study/scriptures/tg/confidence?lang=eng)
 
 ### References
 - [[Psalms 118.8|Psalms 118:8]]

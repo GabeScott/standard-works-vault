@@ -1,6 +1,6 @@
 # Ingathering
 
-[Ingathering](https://www.churchofjesuschrist.org/study/scriptures/tg/Ingathering?lang=eng)
+[Ingathering](https://churchofjesuschrist.org/study/scriptures/tg/ingathering?lang=eng)
 
 ### References
 - [[Exodus 23.16|Exodus 23:16]]

@@ -1,6 +1,6 @@
 # Heathen
 
-[Heathen](https://www.churchofjesuschrist.org/study/scriptures/tg/Heathen?lang=eng)
+[Heathen](https://churchofjesuschrist.org/study/scriptures/tg/heathen?lang=eng)
 
 ### References
 - [[Leviticus 25.44|Leviticus 25:44]]

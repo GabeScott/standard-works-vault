@@ -1,6 +1,6 @@
 # Tenth
 
-[Tenth](https://www.churchofjesuschrist.org/study/scriptures/tg/Tenth?lang=eng)
+[Tenth](https://churchofjesuschrist.org/study/scriptures/tg/tenth?lang=eng)
 
 ### References
 - [[Genesis 28.22|Genesis 28:22]]

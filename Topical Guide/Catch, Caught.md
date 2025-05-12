@@ -1,6 +1,6 @@
 # Catch, Caught
 
-[Catch, Caught](https://www.churchofjesuschrist.org/study/scriptures/tg/Catch-Caught?lang=eng)
+[Catch, Caught](https://churchofjesuschrist.org/study/scriptures/tg/catch?lang=eng)
 
 ### References
 - [[Genesis 22.13|Genesis 22:13]]

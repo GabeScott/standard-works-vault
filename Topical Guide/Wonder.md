@@ -1,6 +1,6 @@
 # Wonder
 
-[Wonder](https://www.churchofjesuschrist.org/study/scriptures/tg/Wonder?lang=eng)
+[Wonder](https://churchofjesuschrist.org/study/scriptures/tg/wonder?lang=eng)
 
 ### References
 - [[Exodus 3.20|Exodus 3:20]]

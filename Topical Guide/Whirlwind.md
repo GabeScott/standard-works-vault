@@ -1,6 +1,6 @@
 # Whirlwind
 
-[Whirlwind](https://www.churchofjesuschrist.org/study/scriptures/tg/Whirlwind?lang=eng)
+[Whirlwind](https://churchofjesuschrist.org/study/scriptures/tg/whirlwind?lang=eng)
 
 ### References
 - [[2 Kings 2.11|2 Kings 2:11]]

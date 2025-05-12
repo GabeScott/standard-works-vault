@@ -1,6 +1,6 @@
 # Send, Sent
 
-[Send, Sent](https://www.churchofjesuschrist.org/study/scriptures/tg/Send-Sent?lang=eng)
+[Send, Sent](https://churchofjesuschrist.org/study/scriptures/tg/send?lang=eng)
 
 ### References
 - [[Genesis 24.7|Genesis 24:7]]

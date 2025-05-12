@@ -1,6 +1,6 @@
 # Scriptures, Study of
 
-[Scriptures, Study of](https://www.churchofjesuschrist.org/study/scriptures/tg/Scriptures-Study-of?lang=eng)
+[Scriptures, Study of](https://churchofjesuschrist.org/study/scriptures/tg/scriptures-study-of?lang=eng)
 
 ### References
 - [[Deuteronomy 17.19|Deuteronomy 17:19]]

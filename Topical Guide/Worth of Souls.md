@@ -1,6 +1,6 @@
 # Worth of Souls
 
-[Worth of Souls](https://www.churchofjesuschrist.org/study/scriptures/tg/Worth-of-Souls?lang=eng)
+[Worth of Souls](https://churchofjesuschrist.org/study/scriptures/tg/worth-of-souls?lang=eng)
 
 ### References
 - [[Genesis 18.31|Genesis 18:31]]

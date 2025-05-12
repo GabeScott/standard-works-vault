@@ -1,6 +1,6 @@
 # Treasure
 
-[Treasure](https://www.churchofjesuschrist.org/study/scriptures/tg/Treasure?lang=eng)
+[Treasure](https://churchofjesuschrist.org/study/scriptures/tg/treasure?lang=eng)
 
 ### References
 - [[Exodus 1.11|Exodus 1:11]]

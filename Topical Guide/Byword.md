@@ -1,6 +1,6 @@
 # Byword
 
-[Byword](https://www.churchofjesuschrist.org/study/scriptures/tg/Byword?lang=eng)
+[Byword](https://churchofjesuschrist.org/study/scriptures/tg/byword?lang=eng)
 
 ### References
 - [[Deuteronomy 28.37|Deuteronomy 28:37]]

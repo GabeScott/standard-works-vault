@@ -1,6 +1,6 @@
 # Harvest
 
-[Harvest](https://www.churchofjesuschrist.org/study/scriptures/tg/Harvest?lang=eng)
+[Harvest](https://churchofjesuschrist.org/study/scriptures/tg/harvest?lang=eng)
 
 ### References
 - [[Genesis 8.22|Genesis 8:22]]

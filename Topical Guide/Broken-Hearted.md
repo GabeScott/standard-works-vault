@@ -1,6 +1,6 @@
 # Broken-Hearted
 
-[Broken-Hearted](https://www.churchofjesuschrist.org/study/scriptures/tg/Broken-Hearted?lang=eng)
+[Broken-Hearted](https://churchofjesuschrist.org/study/scriptures/tg/broken-hearted?lang=eng)
 
 ### References
 - [[Isaiah 61.1|Isaiah 61:1]]

@@ -1,6 +1,6 @@
 # Inhabitant
 
-[Inhabitant](https://www.churchofjesuschrist.org/study/scriptures/tg/Inhabitant?lang=eng)
+[Inhabitant](https://churchofjesuschrist.org/study/scriptures/tg/inhabitant?lang=eng)
 
 ### References
 - [[Isaiah 24.6|Isaiah 24:6]]

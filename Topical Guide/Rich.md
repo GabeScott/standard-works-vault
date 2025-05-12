@@ -1,6 +1,6 @@
 # Rich
 
-[Rich](https://www.churchofjesuschrist.org/study/scriptures/tg/Rich?lang=eng)
+[Rich](https://churchofjesuschrist.org/study/scriptures/tg/rich?lang=eng)
 
 ### References
 - [[Genesis 13.2|Genesis 13:2]]

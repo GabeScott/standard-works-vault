@@ -1,6 +1,6 @@
 # Lack
 
-[Lack](https://www.churchofjesuschrist.org/study/scriptures/tg/Lack?lang=eng)
+[Lack](https://churchofjesuschrist.org/study/scriptures/tg/lack?lang=eng)
 
 ### References
 - [[Exodus 16.18|Exodus 16:18]]

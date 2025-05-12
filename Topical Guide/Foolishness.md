@@ -1,6 +1,6 @@
 # Foolishness
 
-[Foolishness](https://www.churchofjesuschrist.org/study/scriptures/tg/Foolishness?lang=eng)
+[Foolishness](https://churchofjesuschrist.org/study/scriptures/tg/foolishness?lang=eng)
 
 ### References
 - [[Psalms 69.5|Psalms 69:5]]

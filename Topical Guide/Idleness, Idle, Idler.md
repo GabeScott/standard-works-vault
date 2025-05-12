@@ -1,6 +1,6 @@
 # Idleness, Idle, Idler
 
-[Idleness, Idle, Idler](https://www.churchofjesuschrist.org/study/scriptures/tg/Idleness-Idle-Idler?lang=eng)
+[Idleness, Idle, Idler](https://churchofjesuschrist.org/study/scriptures/tg/idleness?lang=eng)
 
 ### References
 - [[Proverbs 19.15|Proverbs 19:15]]

@@ -1,6 +1,6 @@
 # Initiative
 
-[Initiative](https://www.churchofjesuschrist.org/study/scriptures/tg/Initiative?lang=eng)
+[Initiative](https://churchofjesuschrist.org/study/scriptures/tg/initiative?lang=eng)
 
 ### References
 - [[Exodus 25.2|Exodus 25:2]]

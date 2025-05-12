@@ -1,6 +1,6 @@
 # Work
 
-[Work](https://www.churchofjesuschrist.org/study/scriptures/tg/Work?lang=eng)
+[Work](https://churchofjesuschrist.org/study/scriptures/tg/genealogy-and-temple-work?lang=eng)
 
 ### References
 - [[Genesis 2.2|Genesis 2:2]]

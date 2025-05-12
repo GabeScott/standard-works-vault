@@ -1,6 +1,6 @@
 # Wrap
 
-[Wrap](https://www.churchofjesuschrist.org/study/scriptures/tg/Wrap?lang=eng)
+[Wrap](https://churchofjesuschrist.org/study/scriptures/tg/wrap?lang=eng)
 
 ### References
 - [[Matthew 27.59|Matthew 27:59]]

@@ -1,6 +1,6 @@
 # Plate
 
-[Plate](https://www.churchofjesuschrist.org/study/scriptures/tg/Plate?lang=eng)
+[Plate](https://churchofjesuschrist.org/study/scriptures/tg/plate?lang=eng)
 
 ### References
 - [[Exodus 28.36|Exodus 28:36]]

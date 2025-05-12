@@ -1,6 +1,6 @@
 # Israel, Scattering of
 
-[Israel, Scattering of](https://www.churchofjesuschrist.org/study/scriptures/tg/Israel-Scattering-of?lang=eng)
+[Israel, Scattering of](https://churchofjesuschrist.org/study/scriptures/tg/israel-scattering-of?lang=eng)
 
 ### References
 - [[Genesis 28.14|Genesis 28:14]]

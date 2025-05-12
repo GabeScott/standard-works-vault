@@ -1,6 +1,6 @@
 # Pilgrim
 
-[Pilgrim](https://www.churchofjesuschrist.org/study/scriptures/tg/Pilgrim?lang=eng)
+[Pilgrim](https://churchofjesuschrist.org/study/scriptures/tg/pilgrim?lang=eng)
 
 ### References
 - [[Hebrews 11.13|Hebrews 11:13]]

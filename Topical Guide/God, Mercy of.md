@@ -1,6 +1,6 @@
 # God, Mercy of
 
-[God, Mercy of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Mercy-of?lang=eng)
+[God, Mercy of](https://churchofjesuschrist.org/study/scriptures/tg/god-mercy-of?lang=eng)
 
 ### References
 - [[Exodus 20.6|Exodus 20:6]]

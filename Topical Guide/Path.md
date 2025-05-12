@@ -1,6 +1,6 @@
 # Path
 
-[Path](https://www.churchofjesuschrist.org/study/scriptures/tg/Path?lang=eng)
+[Path](https://churchofjesuschrist.org/study/scriptures/tg/path?lang=eng)
 
 ### References
 - [[Psalms 23.3|Psalms 23:3]]

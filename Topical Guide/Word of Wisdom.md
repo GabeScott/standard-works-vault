@@ -1,6 +1,6 @@
 # Word of Wisdom
 
-[Word of Wisdom](https://www.churchofjesuschrist.org/study/scriptures/tg/Word-of-Wisdom?lang=eng)
+[Word of Wisdom](https://churchofjesuschrist.org/study/scriptures/tg/word-of-wisdom?lang=eng)
 
 ### References
 - [[Genesis 1.29|Genesis 1:29]]

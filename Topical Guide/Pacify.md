@@ -1,6 +1,6 @@
 # Pacify
 
-[Pacify](https://www.churchofjesuschrist.org/study/scriptures/tg/Pacify?lang=eng)
+[Pacify](https://churchofjesuschrist.org/study/scriptures/tg/pacify?lang=eng)
 
 ### References
 - [[Proverbs 16.14|Proverbs 16:14]]

@@ -1,6 +1,6 @@
 # Overcome, Overcame
 
-[Overcome, Overcame](https://www.churchofjesuschrist.org/study/scriptures/tg/Overcome-Overcame?lang=eng)
+[Overcome, Overcame](https://churchofjesuschrist.org/study/scriptures/tg/overcome?lang=eng)
 
 ### References
 - [[Genesis 49.19|Genesis 49:19]]

@@ -1,6 +1,6 @@
 # North
 
-[North](https://www.churchofjesuschrist.org/study/scriptures/tg/North?lang=eng)
+[North](https://churchofjesuschrist.org/study/scriptures/tg/north?lang=eng)
 
 ### References
 - [[Genesis 28.14|Genesis 28:14]]

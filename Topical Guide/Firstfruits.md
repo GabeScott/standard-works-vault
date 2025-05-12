@@ -1,6 +1,6 @@
 # Firstfruits
 
-[Firstfruits](https://www.churchofjesuschrist.org/study/scriptures/tg/Firstfruits?lang=eng)
+[Firstfruits](https://churchofjesuschrist.org/study/scriptures/tg/firstfruits?lang=eng)
 
 ### References
 - [[Exodus 23.16|Exodus 23:16]]

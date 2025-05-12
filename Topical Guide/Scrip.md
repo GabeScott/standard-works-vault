@@ -1,6 +1,6 @@
 # Scrip
 
-[Scrip](https://www.churchofjesuschrist.org/study/scriptures/tg/Scrip?lang=eng)
+[Scrip](https://churchofjesuschrist.org/study/scriptures/tg/scrip?lang=eng)
 
 ### References
 - [[Matthew 10.10|Matthew 10:10]]

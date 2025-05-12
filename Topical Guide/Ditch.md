@@ -1,6 +1,6 @@
 # Ditch
 
-[Ditch](https://www.churchofjesuschrist.org/study/scriptures/tg/Ditch?lang=eng)
+[Ditch](https://churchofjesuschrist.org/study/scriptures/tg/ditch?lang=eng)
 
 ### References
 - [[Psalms 7.15|Psalms 7:15]]

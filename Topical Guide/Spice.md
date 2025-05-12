@@ -1,6 +1,6 @@
 # Spice
 
-[Spice](https://www.churchofjesuschrist.org/study/scriptures/tg/Spice?lang=eng)
+[Spice](https://churchofjesuschrist.org/study/scriptures/tg/spice?lang=eng)
 
 ### References
 - [[Exodus 25.6|Exodus 25:6]]

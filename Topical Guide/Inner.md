@@ -1,6 +1,6 @@
 # Inner
 
-[Inner](https://www.churchofjesuschrist.org/study/scriptures/tg/Inner?lang=eng)
+[Inner](https://churchofjesuschrist.org/study/scriptures/tg/inner?lang=eng)
 
 ### References
 - [[Ephesians 3.16|Ephesians 3:16]]

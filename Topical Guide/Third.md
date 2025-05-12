@@ -1,6 +1,6 @@
 # Third
 
-[Third](https://www.churchofjesuschrist.org/study/scriptures/tg/Third?lang=eng)
+[Third](https://churchofjesuschrist.org/study/scriptures/tg/third?lang=eng)
 
 ### References
 - [[Exodus 20.5|Exodus 20:5]]

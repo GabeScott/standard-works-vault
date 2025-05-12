@@ -1,6 +1,6 @@
 # Condemnation
 
-[Condemnation](https://www.churchofjesuschrist.org/study/scriptures/tg/Condemnation?lang=eng)
+[Condemnation](https://churchofjesuschrist.org/study/scriptures/tg/condemnation?lang=eng)
 
 ### References
 - [[Luke 23.40|Luke 23:40]]

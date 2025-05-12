@@ -1,6 +1,6 @@
 # Race
 
-[Race](https://www.churchofjesuschrist.org/study/scriptures/tg/Race?lang=eng)
+[Race](https://churchofjesuschrist.org/study/scriptures/tg/race?lang=eng)
 
 ### References
 - [[Ecclesiastes 9.11|Ecclesiastes 9:11]]

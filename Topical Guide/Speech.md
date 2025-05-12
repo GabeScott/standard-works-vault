@@ -1,6 +1,6 @@
 # Speech
 
-[Speech](https://www.churchofjesuschrist.org/study/scriptures/tg/Speech?lang=eng)
+[Speech](https://churchofjesuschrist.org/study/scriptures/tg/speech?lang=eng)
 
 ### References
 - [[Genesis 11.1|Genesis 11:1]]

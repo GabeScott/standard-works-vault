@@ -1,6 +1,6 @@
 # Grievous
 
-[Grievous](https://www.churchofjesuschrist.org/study/scriptures/tg/Grievous?lang=eng)
+[Grievous](https://churchofjesuschrist.org/study/scriptures/tg/grievous?lang=eng)
 
 ### References
 - [[Genesis 21.11|Genesis 21:11]]

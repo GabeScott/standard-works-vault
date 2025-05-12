@@ -1,6 +1,6 @@
 # Cure
 
-[Cure](https://www.churchofjesuschrist.org/study/scriptures/tg/Cure?lang=eng)
+[Cure](https://churchofjesuschrist.org/study/scriptures/tg/cure?lang=eng)
 
 ### References
 - [[Jeremiah 33.6|Jeremiah 33:6]]

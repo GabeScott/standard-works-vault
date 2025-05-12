@@ -1,6 +1,6 @@
 # Knock
 
-[Knock](https://www.churchofjesuschrist.org/study/scriptures/tg/Knock?lang=eng)
+[Knock](https://churchofjesuschrist.org/study/scriptures/tg/knock?lang=eng)
 
 ### References
 - [[Matthew 7.7|Matthew 7:7]]

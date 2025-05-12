@@ -1,6 +1,6 @@
 # Honor
 
-[Honor](https://www.churchofjesuschrist.org/study/scriptures/tg/Honor?lang=eng)
+[Honor](https://churchofjesuschrist.org/study/scriptures/tg/honor?lang=eng)
 
 ### References
 - [[Leviticus 19.32|Leviticus 19:32]]

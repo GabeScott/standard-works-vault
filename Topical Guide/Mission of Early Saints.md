@@ -1,6 +1,6 @@
 # Mission of Early Saints
 
-[Mission of Early Saints](https://www.churchofjesuschrist.org/study/scriptures/tg/Mission-of-Early-Saints?lang=eng)
+[Mission of Early Saints](https://churchofjesuschrist.org/study/scriptures/tg/mission-of-early-saints?lang=eng)
 
 ### References
 - [[Genesis 12.3|Genesis 12:3]]

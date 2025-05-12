@@ -1,6 +1,6 @@
 # Occasion
 
-[Occasion](https://www.churchofjesuschrist.org/study/scriptures/tg/Occasion?lang=eng)
+[Occasion](https://churchofjesuschrist.org/study/scriptures/tg/occasion?lang=eng)
 
 ### References
 - [[Daniel 6.4|Daniel 6:4]]

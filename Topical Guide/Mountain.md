@@ -1,6 +1,6 @@
 # Mountain
 
-[Mountain](https://www.churchofjesuschrist.org/study/scriptures/tg/Mountain?lang=eng)
+[Mountain](https://churchofjesuschrist.org/study/scriptures/tg/mountain?lang=eng)
 
 ### References
 - [[Genesis 19.17|Genesis 19:17]]

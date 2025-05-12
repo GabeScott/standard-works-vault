@@ -1,6 +1,6 @@
 # Form
 
-[Form](https://www.churchofjesuschrist.org/study/scriptures/tg/Form?lang=eng)
+[Form](https://churchofjesuschrist.org/study/scriptures/tg/form?lang=eng)
 
 ### References
 - [[Genesis 1.2|Genesis 1:2]]

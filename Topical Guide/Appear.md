@@ -1,6 +1,6 @@
 # Appear
 
-[Appear](https://www.churchofjesuschrist.org/study/scriptures/tg/Appear?lang=eng)
+[Appear](https://churchofjesuschrist.org/study/scriptures/tg/appear?lang=eng)
 
 ### References
 - [[Genesis 17.1|Genesis 17:1]]

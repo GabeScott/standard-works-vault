@@ -1,6 +1,6 @@
 # Trample
 
-[Trample](https://www.churchofjesuschrist.org/study/scriptures/tg/Trample?lang=eng)
+[Trample](https://churchofjesuschrist.org/study/scriptures/tg/trample?lang=eng)
 
 ### References
 - [[Isaiah 63.3|Isaiah 63:3]]

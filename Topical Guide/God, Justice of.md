@@ -1,6 +1,6 @@
 # God, Justice of
 
-[God, Justice of](https://www.churchofjesuschrist.org/study/scriptures/tg/God-Justice-of?lang=eng)
+[God, Justice of](https://churchofjesuschrist.org/study/scriptures/tg/god-justice-of?lang=eng)
 
 ### References
 - [[Deuteronomy 32.4|Deuteronomy 32:4]]

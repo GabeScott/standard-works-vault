@@ -1,6 +1,6 @@
 # Unruly
 
-[Unruly](https://www.churchofjesuschrist.org/study/scriptures/tg/Unruly?lang=eng)
+[Unruly](https://churchofjesuschrist.org/study/scriptures/tg/unruly?lang=eng)
 
 ### References
 - [[1 Thessalonians 5.14|1 Thessalonians 5:14]]

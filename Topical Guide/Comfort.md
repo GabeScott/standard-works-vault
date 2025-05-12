@@ -1,6 +1,6 @@
 # Comfort
 
-[Comfort](https://www.churchofjesuschrist.org/study/scriptures/tg/Comfort?lang=eng)
+[Comfort](https://churchofjesuschrist.org/study/scriptures/tg/comfort?lang=eng)
 
 ### References
 - [[Genesis 24.67|Genesis 24:67]]

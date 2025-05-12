@@ -1,6 +1,6 @@
 # Uprightly
 
-[Uprightly](https://www.churchofjesuschrist.org/study/scriptures/tg/Uprightly?lang=eng)
+[Uprightly](https://churchofjesuschrist.org/study/scriptures/tg/uprightly?lang=eng)
 
 ### References
 - [[Proverbs 10.9|Proverbs 10:9]]

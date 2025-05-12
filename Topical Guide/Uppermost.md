@@ -1,6 +1,6 @@
 # Uppermost
 
-[Uppermost](https://www.churchofjesuschrist.org/study/scriptures/tg/Uppermost?lang=eng)
+[Uppermost](https://churchofjesuschrist.org/study/scriptures/tg/uppermost?lang=eng)
 
 ### References
 - [[Matthew 23.6|Matthew 23:6]]

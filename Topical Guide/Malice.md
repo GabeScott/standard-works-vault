@@ -1,6 +1,6 @@
 # Malice
 
-[Malice](https://www.churchofjesuschrist.org/study/scriptures/tg/Malice?lang=eng)
+[Malice](https://churchofjesuschrist.org/study/scriptures/tg/malice?lang=eng)
 
 ### References
 - [[Romans 1.29|Romans 1:29]]

@@ -1,6 +1,6 @@
 # Spiritually
 
-[Spiritually](https://www.churchofjesuschrist.org/study/scriptures/tg/Spiritually?lang=eng)
+[Spiritually](https://churchofjesuschrist.org/study/scriptures/tg/spiritually?lang=eng)
 
 ### References
 - [[1 Corinthians 2.14|1 Corinthians 2:14]]

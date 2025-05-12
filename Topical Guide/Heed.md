@@ -1,6 +1,6 @@
 # Heed
 
-[Heed](https://www.churchofjesuschrist.org/study/scriptures/tg/Heed?lang=eng)
+[Heed](https://churchofjesuschrist.org/study/scriptures/tg/heed?lang=eng)
 
 ### References
 - [[Deuteronomy 2.4|Deuteronomy 2:4]]

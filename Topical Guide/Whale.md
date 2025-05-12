@@ -1,6 +1,6 @@
 # Whale
 
-[Whale](https://www.churchofjesuschrist.org/study/scriptures/tg/Whale?lang=eng)
+[Whale](https://churchofjesuschrist.org/study/scriptures/tg/whale?lang=eng)
 
 ### References
 - [[Genesis 1.21|Genesis 1:21]]

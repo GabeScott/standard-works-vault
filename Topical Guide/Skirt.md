@@ -1,6 +1,6 @@
 # Skirt
 
-[Skirt](https://www.churchofjesuschrist.org/study/scriptures/tg/Skirt?lang=eng)
+[Skirt](https://churchofjesuschrist.org/study/scriptures/tg/skirt?lang=eng)
 
 ### References
 - [[Ruth 3.9|Ruth 3:9]]

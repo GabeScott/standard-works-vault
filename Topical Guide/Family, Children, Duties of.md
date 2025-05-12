@@ -1,6 +1,6 @@
 # Family, Children, Duties of
 
-[Family, Children, Duties of](https://www.churchofjesuschrist.org/study/scriptures/tg/Family-Children-Duties-of?lang=eng)
+[Family, Children, Duties of](https://churchofjesuschrist.org/study/scriptures/tg/family-children-duties-of?lang=eng)
 
 ### References
 - [[Exodus 20.12|Exodus 20:12]]

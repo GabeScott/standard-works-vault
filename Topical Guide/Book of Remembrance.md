@@ -1,6 +1,6 @@
 # Book of Remembrance
 
-[Book of Remembrance](https://www.churchofjesuschrist.org/study/scriptures/tg/Book-of-Remembrance?lang=eng)
+[Book of Remembrance](https://churchofjesuschrist.org/study/scriptures/tg/book-of-remembrance?lang=eng)
 
 ### References
 - [[Ezra 2.62|Ezra 2:62]]

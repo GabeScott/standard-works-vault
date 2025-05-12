@@ -1,6 +1,6 @@
 # Single
 
-[Single](https://www.churchofjesuschrist.org/study/scriptures/tg/Single?lang=eng)
+[Single](https://churchofjesuschrist.org/study/scriptures/tg/single?lang=eng)
 
 ### References
 - [[Matthew 6.22|Matthew 6:22]]

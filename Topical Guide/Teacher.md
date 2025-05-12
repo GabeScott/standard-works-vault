@@ -1,6 +1,6 @@
 # Teacher
 
-[Teacher](https://www.churchofjesuschrist.org/study/scriptures/tg/Teacher?lang=eng)
+[Teacher](https://churchofjesuschrist.org/study/scriptures/tg/teacher?lang=eng)
 
 ### References
 - [[Exodus 18.20|Exodus 18:20]]

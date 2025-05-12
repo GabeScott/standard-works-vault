@@ -1,6 +1,6 @@
 # Quiver
 
-[Quiver](https://www.churchofjesuschrist.org/study/scriptures/tg/Quiver?lang=eng)
+[Quiver](https://churchofjesuschrist.org/study/scriptures/tg/quiver?lang=eng)
 
 ### References
 - [[Genesis 27.3|Genesis 27:3]]

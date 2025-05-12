@@ -1,6 +1,6 @@
 # Seed
 
-[Seed](https://www.churchofjesuschrist.org/study/scriptures/tg/Seed?lang=eng)
+[Seed](https://churchofjesuschrist.org/study/scriptures/tg/seed?lang=eng)
 
 ### References
 - [[Genesis 1.11|Genesis 1:11]]

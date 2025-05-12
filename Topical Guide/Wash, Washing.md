@@ -1,6 +1,6 @@
 # Wash, Washing
 
-[Wash, Washing](https://www.churchofjesuschrist.org/study/scriptures/tg/Wash-Washing?lang=eng)
+[Wash, Washing](https://churchofjesuschrist.org/study/scriptures/tg/wash?lang=eng)
 
 ### References
 - [[Genesis 18.4|Genesis 18:4]]

@@ -1,6 +1,6 @@
 # Boldly
 
-[Boldly](https://www.churchofjesuschrist.org/study/scriptures/tg/Boldly?lang=eng)
+[Boldly](https://churchofjesuschrist.org/study/scriptures/tg/boldly?lang=eng)
 
 ### References
 - [[John 7.26|John 7:26]]

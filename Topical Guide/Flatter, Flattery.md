@@ -1,6 +1,6 @@
 # Flatter, Flattery
 
-[Flatter, Flattery](https://www.churchofjesuschrist.org/study/scriptures/tg/Flatter-Flattery?lang=eng)
+[Flatter, Flattery](https://churchofjesuschrist.org/study/scriptures/tg/flatter?lang=eng)
 
 ### References
 - [[Job 17.5|Job 17:5]]

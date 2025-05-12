@@ -1,6 +1,6 @@
 # Burn, Burned, Burnt
 
-[Burn, Burned, Burnt](https://www.churchofjesuschrist.org/study/scriptures/tg/Burn-Burned-Burnt?lang=eng)
+[Burn, Burned, Burnt](https://churchofjesuschrist.org/study/scriptures/tg/burn?lang=eng)
 
 ### References
 - [[Exodus 29.14|Exodus 29:14]]

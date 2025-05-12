@@ -1,6 +1,6 @@
 # Latchet
 
-[Latchet](https://www.churchofjesuschrist.org/study/scriptures/tg/Latchet?lang=eng)
+[Latchet](https://churchofjesuschrist.org/study/scriptures/tg/latchet?lang=eng)
 
 ### References
 - [[Isaiah 5.27|Isaiah 5:27]]

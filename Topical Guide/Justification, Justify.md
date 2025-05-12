@@ -1,6 +1,6 @@
 # Justification, Justify
 
-[Justification, Justify](https://www.churchofjesuschrist.org/study/scriptures/tg/Justification-Justify?lang=eng)
+[Justification, Justify](https://churchofjesuschrist.org/study/scriptures/tg/justification?lang=eng)
 
 ### References
 - [[Exodus 23.7|Exodus 23:7]]

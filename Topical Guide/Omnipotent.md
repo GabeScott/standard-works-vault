@@ -1,6 +1,6 @@
 # Omnipotent
 
-[Omnipotent](https://www.churchofjesuschrist.org/study/scriptures/tg/Omnipotent?lang=eng)
+[Omnipotent](https://churchofjesuschrist.org/study/scriptures/tg/omnipotent?lang=eng)
 
 ### References
 - [[Revelation 19.6|Revelation 19:6]]

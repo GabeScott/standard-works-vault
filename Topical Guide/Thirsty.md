@@ -1,6 +1,6 @@
 # Thirsty
 
-[Thirsty](https://www.churchofjesuschrist.org/study/scriptures/tg/Thirsty?lang=eng)
+[Thirsty](https://churchofjesuschrist.org/study/scriptures/tg/thirsty?lang=eng)
 
 ### References
 - [[Psalms 63.1|Psalms 63:1]]

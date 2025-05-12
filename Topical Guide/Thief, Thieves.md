@@ -1,6 +1,6 @@
 # Thief, Thieves
 
-[Thief, Thieves](https://www.churchofjesuschrist.org/study/scriptures/tg/Thief-Thieves?lang=eng)
+[Thief, Thieves](https://churchofjesuschrist.org/study/scriptures/tg/thief?lang=eng)
 
 ### References
 - [[Exodus 22.2|Exodus 22:2]]

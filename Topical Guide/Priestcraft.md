@@ -1,6 +1,6 @@
 # Priestcraft
 
-[Priestcraft](https://www.churchofjesuschrist.org/study/scriptures/tg/Priestcraft?lang=eng)
+[Priestcraft](https://churchofjesuschrist.org/study/scriptures/tg/priestcraft?lang=eng)
 
 ### References
 - [[Jeremiah 23.11|Jeremiah 23:11]]

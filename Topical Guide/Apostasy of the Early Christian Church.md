@@ -1,6 +1,6 @@
 # Apostasy of the Early Christian Church
 
-[Apostasy of the Early Christian Church](https://www.churchofjesuschrist.org/study/scriptures/tg/Apostasy-of-the-Early-Christian-Church?lang=eng)
+[Apostasy of the Early Christian Church](https://churchofjesuschrist.org/study/scriptures/tg/apostasy-of-the-early-christian-church?lang=eng)
 
 ### References
 - [[Isaiah 24.5|Isaiah 24:5]]

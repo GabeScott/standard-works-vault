@@ -1,6 +1,6 @@
 # Virtue, Virtuous
 
-[Virtue, Virtuous](https://www.churchofjesuschrist.org/study/scriptures/tg/Virtue-Virtuous?lang=eng)
+[Virtue, Virtuous](https://churchofjesuschrist.org/study/scriptures/tg/virtue?lang=eng)
 
 ### References
 - [[Ruth 3.11|Ruth 3:11]]

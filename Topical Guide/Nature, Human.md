@@ -1,6 +1,6 @@
 # Nature, Human
 
-[Nature, Human](https://www.churchofjesuschrist.org/study/scriptures/tg/Nature-Human?lang=eng)
+[Nature, Human](https://churchofjesuschrist.org/study/scriptures/tg/nature-human?lang=eng)
 
 ### References
 - [[Romans 1.26|Romans 1:26]]

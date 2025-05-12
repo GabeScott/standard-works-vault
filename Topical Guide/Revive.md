@@ -1,6 +1,6 @@
 # Revive
 
-[Revive](https://www.churchofjesuschrist.org/study/scriptures/tg/Revive?lang=eng)
+[Revive](https://churchofjesuschrist.org/study/scriptures/tg/revive?lang=eng)
 
 ### References
 - [[Genesis 45.27|Genesis 45:27]]

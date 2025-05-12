@@ -1,6 +1,6 @@
 # Slavery, Slave
 
-[Slavery, Slave](https://www.churchofjesuschrist.org/study/scriptures/tg/Slavery-Slave?lang=eng)
+[Slavery, Slave](https://churchofjesuschrist.org/study/scriptures/tg/slavery?lang=eng)
 
 ### References
 - [[Jeremiah 2.14|Jeremiah 2:14]]

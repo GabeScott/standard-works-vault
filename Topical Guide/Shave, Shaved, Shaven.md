@@ -1,6 +1,6 @@
 # Shave, Shaved, Shaven
 
-[Shave, Shaved, Shaven](https://www.churchofjesuschrist.org/study/scriptures/tg/Shave-Shaved-Shaven?lang=eng)
+[Shave, Shaved, Shaven](https://churchofjesuschrist.org/study/scriptures/tg/shave?lang=eng)
 
 ### References
 - [[Genesis 41.14|Genesis 41:14]]

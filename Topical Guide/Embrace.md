@@ -1,6 +1,6 @@
 # Embrace
 
-[Embrace](https://www.churchofjesuschrist.org/study/scriptures/tg/Embrace?lang=eng)
+[Embrace](https://churchofjesuschrist.org/study/scriptures/tg/embrace?lang=eng)
 
 ### References
 - [[Genesis 29.13|Genesis 29:13]]

@@ -1,6 +1,6 @@
 # Verify
 
-[Verify](https://www.churchofjesuschrist.org/study/scriptures/tg/Verify?lang=eng)
+[Verify](https://churchofjesuschrist.org/study/scriptures/tg/verify?lang=eng)
 
 ### References
 - [[Genesis 42.20|Genesis 42:20]]

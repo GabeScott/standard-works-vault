@@ -1,6 +1,6 @@
 # Means
 
-[Means](https://www.churchofjesuschrist.org/study/scriptures/tg/Means?lang=eng)
+[Means](https://churchofjesuschrist.org/study/scriptures/tg/means?lang=eng)
 
 ### References
 - [[1 Nephi 16.29|1 Nephi 16:29]]

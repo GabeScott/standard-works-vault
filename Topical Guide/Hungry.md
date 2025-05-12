@@ -1,6 +1,6 @@
 # Hungry
 
-[Hungry](https://www.churchofjesuschrist.org/study/scriptures/tg/Hungry?lang=eng)
+[Hungry](https://churchofjesuschrist.org/study/scriptures/tg/hungry?lang=eng)
 
 ### References
 - [[Psalms 146.7|Psalms 146:7]]

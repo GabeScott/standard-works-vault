@@ -1,6 +1,6 @@
 # Jesus Christ, Trials of
 
-[Jesus Christ, Trials of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Trials-of?lang=eng)
+[Jesus Christ, Trials of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-trials-of?lang=eng)
 
 ### References
 - [[Isaiah 53.7|Isaiah 53:7]]

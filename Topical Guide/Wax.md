@@ -1,6 +1,6 @@
 # Wax
 
-[Wax](https://www.churchofjesuschrist.org/study/scriptures/tg/Wax?lang=eng)
+[Wax](https://churchofjesuschrist.org/study/scriptures/tg/wax-noun?lang=eng)
 
 ### References
 - [[Exodus 1.7|Exodus 1:7]]

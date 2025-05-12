@@ -1,6 +1,6 @@
 # Side
 
-[Side](https://www.churchofjesuschrist.org/study/scriptures/tg/Side?lang=eng)
+[Side](https://churchofjesuschrist.org/study/scriptures/tg/side?lang=eng)
 
 ### References
 - [[Exodus 32.26|Exodus 32:26]]

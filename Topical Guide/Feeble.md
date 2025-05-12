@@ -1,6 +1,6 @@
 # Feeble
 
-[Feeble](https://www.churchofjesuschrist.org/study/scriptures/tg/Feeble?lang=eng)
+[Feeble](https://churchofjesuschrist.org/study/scriptures/tg/feeble?lang=eng)
 
 ### References
 - [[Psalms 105.37|Psalms 105:37]]

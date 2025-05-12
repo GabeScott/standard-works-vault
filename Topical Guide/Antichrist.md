@@ -1,6 +1,6 @@
 # Antichrist
 
-[Antichrist](https://www.churchofjesuschrist.org/study/scriptures/tg/Antichrist?lang=eng)
+[Antichrist](https://churchofjesuschrist.org/study/scriptures/tg/antichrist?lang=eng)
 
 ### References
 - [[2 Thessalonians 2.3|2 Thessalonians 2:3]]

@@ -1,6 +1,6 @@
 # Light, Lighter
 
-[Light, Lighter](https://www.churchofjesuschrist.org/study/scriptures/tg/Light-Lighter?lang=eng)
+[Light, Lighter](https://churchofjesuschrist.org/study/scriptures/tg/light-adjective?lang=eng)
 
 ### References
 - [[Isaiah 49.6|Isaiah 49:6]]

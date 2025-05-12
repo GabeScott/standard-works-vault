@@ -1,6 +1,6 @@
 # Dwell
 
-[Dwell](https://www.churchofjesuschrist.org/study/scriptures/tg/Dwell?lang=eng)
+[Dwell](https://churchofjesuschrist.org/study/scriptures/tg/dwell?lang=eng)
 
 ### References
 - [[Genesis 30.20|Genesis 30:20]]

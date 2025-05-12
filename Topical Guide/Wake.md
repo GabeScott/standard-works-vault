@@ -1,6 +1,6 @@
 # Wake
 
-[Wake](https://www.churchofjesuschrist.org/study/scriptures/tg/Wake?lang=eng)
+[Wake](https://churchofjesuschrist.org/study/scriptures/tg/wake?lang=eng)
 
 ### References
 - [[Psalms 127.1|Psalms 127:1]]

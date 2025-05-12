@@ -1,6 +1,6 @@
 # Hurt
 
-[Hurt](https://www.churchofjesuschrist.org/study/scriptures/tg/Hurt?lang=eng)
+[Hurt](https://churchofjesuschrist.org/study/scriptures/tg/hurt?lang=eng)
 
 ### References
 - [[Exodus 21.22|Exodus 21:22]]

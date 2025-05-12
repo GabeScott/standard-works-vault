@@ -1,6 +1,6 @@
 # Lamb
 
-[Lamb](https://www.churchofjesuschrist.org/study/scriptures/tg/Lamb?lang=eng)
+[Lamb](https://churchofjesuschrist.org/study/scriptures/tg/lamb?lang=eng)
 
 ### References
 - [[Genesis 22.8|Genesis 22:8]]

@@ -1,6 +1,6 @@
 # Portion
 
-[Portion](https://www.churchofjesuschrist.org/study/scriptures/tg/Portion?lang=eng)
+[Portion](https://churchofjesuschrist.org/study/scriptures/tg/portion?lang=eng)
 
 ### References
 - [[Genesis 47.22|Genesis 47:22]]

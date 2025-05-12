@@ -1,6 +1,6 @@
 # Hearing
 
-[Hearing](https://www.churchofjesuschrist.org/study/scriptures/tg/Hearing?lang=eng)
+[Hearing](https://churchofjesuschrist.org/study/scriptures/tg/hearing?lang=eng)
 
 ### References
 - [[Amos 8.11|Amos 8:11]]

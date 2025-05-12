@@ -1,6 +1,6 @@
 # Work, Value of
 
-[Work, Value of](https://www.churchofjesuschrist.org/study/scriptures/tg/Work-Value-of?lang=eng)
+[Work, Value of](https://churchofjesuschrist.org/study/scriptures/tg/work-value-of?lang=eng)
 
 ### References
 - [[Genesis 3.19|Genesis 3:19]]

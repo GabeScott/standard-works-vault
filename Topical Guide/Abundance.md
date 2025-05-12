@@ -1,6 +1,6 @@
 # Abundance
 
-[Abundance](https://www.churchofjesuschrist.org/study/scriptures/tg/Abundance?lang=eng)
+[Abundance](https://churchofjesuschrist.org/study/scriptures/tg/abundance?lang=eng)
 
 ### References
 - [[Deuteronomy 28.47|Deuteronomy 28:47]]

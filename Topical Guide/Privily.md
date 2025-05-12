@@ -1,6 +1,6 @@
 # Privily
 
-[Privily](https://www.churchofjesuschrist.org/study/scriptures/tg/Privily?lang=eng)
+[Privily](https://churchofjesuschrist.org/study/scriptures/tg/privily?lang=eng)
 
 ### References
 - [[1 Samuel 24.4|1 Samuel 24:4]]

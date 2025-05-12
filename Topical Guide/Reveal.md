@@ -1,6 +1,6 @@
 # Reveal
 
-[Reveal](https://www.churchofjesuschrist.org/study/scriptures/tg/Reveal?lang=eng)
+[Reveal](https://churchofjesuschrist.org/study/scriptures/tg/reveal?lang=eng)
 
 ### References
 - [[Deuteronomy 29.29|Deuteronomy 29:29]]

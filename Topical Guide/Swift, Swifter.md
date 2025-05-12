@@ -1,6 +1,6 @@
 # Swift, Swifter
 
-[Swift, Swifter](https://www.churchofjesuschrist.org/study/scriptures/tg/Swift-Swifter?lang=eng)
+[Swift, Swifter](https://churchofjesuschrist.org/study/scriptures/tg/swift?lang=eng)
 
 ### References
 - [[Proverbs 6.18|Proverbs 6:18]]

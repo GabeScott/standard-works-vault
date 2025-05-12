@@ -1,6 +1,6 @@
 # Fuller
 
-[Fuller](https://www.churchofjesuschrist.org/study/scriptures/tg/Fuller?lang=eng)
+[Fuller](https://churchofjesuschrist.org/study/scriptures/tg/fuller?lang=eng)
 
 ### References
 - [[Malachi 3.2|Malachi 3:2]]

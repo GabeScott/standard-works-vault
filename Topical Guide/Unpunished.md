@@ -1,6 +1,6 @@
 # Unpunished
 
-[Unpunished](https://www.churchofjesuschrist.org/study/scriptures/tg/Unpunished?lang=eng)
+[Unpunished](https://churchofjesuschrist.org/study/scriptures/tg/unpunished?lang=eng)
 
 ### References
 - [[Proverbs 11.21|Proverbs 11:21]]

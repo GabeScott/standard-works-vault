@@ -1,6 +1,6 @@
 # Upright
 
-[Upright](https://www.churchofjesuschrist.org/study/scriptures/tg/Upright?lang=eng)
+[Upright](https://churchofjesuschrist.org/study/scriptures/tg/upright?lang=eng)
 
 ### References
 - [[2 Chronicles 29.34|2 Chronicles 29:34]]

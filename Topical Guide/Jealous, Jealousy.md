@@ -1,6 +1,6 @@
 # Jealous, Jealousy
 
-[Jealous, Jealousy](https://www.churchofjesuschrist.org/study/scriptures/tg/Jealous-Jealousy?lang=eng)
+[Jealous, Jealousy](https://churchofjesuschrist.org/study/scriptures/tg/jealous?lang=eng)
 
 ### References
 - [[Exodus 20.5|Exodus 20:5]]

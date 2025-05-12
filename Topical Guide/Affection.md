@@ -1,6 +1,6 @@
 # Affection
 
-[Affection](https://www.churchofjesuschrist.org/study/scriptures/tg/Affection?lang=eng)
+[Affection](https://churchofjesuschrist.org/study/scriptures/tg/affection?lang=eng)
 
 ### References
 - [[Romans 1.26|Romans 1:26]]

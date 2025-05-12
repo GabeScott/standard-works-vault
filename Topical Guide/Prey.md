@@ -1,6 +1,6 @@
 # Prey
 
-[Prey](https://www.churchofjesuschrist.org/study/scriptures/tg/Prey?lang=eng)
+[Prey](https://churchofjesuschrist.org/study/scriptures/tg/prey?lang=eng)
 
 ### References
 - [[Genesis 49.9|Genesis 49:9]]

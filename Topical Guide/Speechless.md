@@ -1,6 +1,6 @@
 # Speechless
 
-[Speechless](https://www.churchofjesuschrist.org/study/scriptures/tg/Speechless?lang=eng)
+[Speechless](https://churchofjesuschrist.org/study/scriptures/tg/speechless?lang=eng)
 
 ### References
 - [[Luke 1.22|Luke 1:22]]

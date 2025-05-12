@@ -1,6 +1,6 @@
 # Profane
 
-[Profane](https://www.churchofjesuschrist.org/study/scriptures/tg/Profane?lang=eng)
+[Profane](https://churchofjesuschrist.org/study/scriptures/tg/profane?lang=eng)
 
 ### References
 - [[Isaiah 43.28|Isaiah 43:28]]

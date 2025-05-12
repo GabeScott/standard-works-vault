@@ -1,6 +1,6 @@
 # Seventy
 
-[Seventy](https://www.churchofjesuschrist.org/study/scriptures/tg/Seventy?lang=eng)
+[Seventy](https://churchofjesuschrist.org/study/scriptures/tg/seventy?lang=eng)
 
 ### References
 - [[Exodus 24.1|Exodus 24:1]]

@@ -1,6 +1,6 @@
 # Unloose
 
-[Unloose](https://www.churchofjesuschrist.org/study/scriptures/tg/Unloose?lang=eng)
+[Unloose](https://churchofjesuschrist.org/study/scriptures/tg/unloose?lang=eng)
 
 ### References
 - [[Mark 1.7|Mark 1:7]]

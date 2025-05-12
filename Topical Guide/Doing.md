@@ -1,6 +1,6 @@
 # Doing
 
-[Doing](https://www.churchofjesuschrist.org/study/scriptures/tg/Doing?lang=eng)
+[Doing](https://churchofjesuschrist.org/study/scriptures/tg/doing?lang=eng)
 
 ### References
 - [[Leviticus 18.3|Leviticus 18:3]]

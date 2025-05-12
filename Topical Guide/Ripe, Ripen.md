@@ -1,6 +1,6 @@
 # Ripe, Ripen
 
-[Ripe, Ripen](https://www.churchofjesuschrist.org/study/scriptures/tg/Ripe-Ripen?lang=eng)
+[Ripe, Ripen](https://churchofjesuschrist.org/study/scriptures/tg/ripe?lang=eng)
 
 ### References
 - [[Genesis 40.10|Genesis 40:10]]

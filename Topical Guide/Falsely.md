@@ -1,6 +1,6 @@
 # Falsely
 
-[Falsely](https://www.churchofjesuschrist.org/study/scriptures/tg/Falsely?lang=eng)
+[Falsely](https://churchofjesuschrist.org/study/scriptures/tg/falsely?lang=eng)
 
 ### References
 - [[Genesis 21.23|Genesis 21:23]]

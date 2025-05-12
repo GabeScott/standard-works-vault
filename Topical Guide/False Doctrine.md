@@ -1,6 +1,6 @@
 # False Doctrine
 
-[False Doctrine](https://www.churchofjesuschrist.org/study/scriptures/tg/False-Doctrine?lang=eng)
+[False Doctrine](https://churchofjesuschrist.org/study/scriptures/tg/false-doctrine?lang=eng)
 
 ### References
 - [[Deuteronomy 12.32|Deuteronomy 12:32]]

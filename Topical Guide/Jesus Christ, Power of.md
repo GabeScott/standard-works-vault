@@ -1,6 +1,6 @@
 # Jesus Christ, Power of
 
-[Jesus Christ, Power of](https://www.churchofjesuschrist.org/study/scriptures/tg/Jesus-Christ-Power-of?lang=eng)
+[Jesus Christ, Power of](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-power-of?lang=eng)
 
 ### References
 - [[Genesis 17.1|Genesis 17:1]]

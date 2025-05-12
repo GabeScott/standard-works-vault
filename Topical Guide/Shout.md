@@ -1,6 +1,6 @@
 # Shout
 
-[Shout](https://www.churchofjesuschrist.org/study/scriptures/tg/Shout?lang=eng)
+[Shout](https://churchofjesuschrist.org/study/scriptures/tg/shout?lang=eng)
 
 ### References
 - [[Psalms 47.1|Psalms 47:1]]

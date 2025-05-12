@@ -1,6 +1,6 @@
 # Hot
 
-[Hot](https://www.churchofjesuschrist.org/study/scriptures/tg/Hot?lang=eng)
+[Hot](https://churchofjesuschrist.org/study/scriptures/tg/hot?lang=eng)
 
 ### References
 - [[Exodus 16.21|Exodus 16:21]]

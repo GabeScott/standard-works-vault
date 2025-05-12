@@ -1,6 +1,6 @@
 # Owe
 
-[Owe](https://www.churchofjesuschrist.org/study/scriptures/tg/Owe?lang=eng)
+[Owe](https://churchofjesuschrist.org/study/scriptures/tg/owe?lang=eng)
 
 ### References
 - [[Matthew 18.24|Matthew 18:24]]

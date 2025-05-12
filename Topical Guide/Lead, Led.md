@@ -1,6 +1,6 @@
 # Lead, Led
 
-[Lead, Led](https://www.churchofjesuschrist.org/study/scriptures/tg/Lead-Led?lang=eng)
+[Lead, Led](https://churchofjesuschrist.org/study/scriptures/tg/lead?lang=eng)
 
 ### References
 - [[Genesis 24.27|Genesis 24:27]]

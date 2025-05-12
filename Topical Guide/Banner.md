@@ -1,6 +1,6 @@
 # Banner
 
-[Banner](https://www.churchofjesuschrist.org/study/scriptures/tg/Banner?lang=eng)
+[Banner](https://churchofjesuschrist.org/study/scriptures/tg/banner?lang=eng)
 
 ### References
 - [[Psalms 20.5|Psalms 20:5]]

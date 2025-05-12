@@ -1,6 +1,6 @@
 # Reserve
 
-[Reserve](https://www.churchofjesuschrist.org/study/scriptures/tg/Reserve?lang=eng)
+[Reserve](https://churchofjesuschrist.org/study/scriptures/tg/reserve?lang=eng)
 
 ### References
 - [[Genesis 27.36|Genesis 27:36]]

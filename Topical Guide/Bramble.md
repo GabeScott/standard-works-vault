@@ -1,6 +1,6 @@
 # Bramble
 
-[Bramble](https://www.churchofjesuschrist.org/study/scriptures/tg/Bramble?lang=eng)
+[Bramble](https://churchofjesuschrist.org/study/scriptures/tg/bramble?lang=eng)
 
 ### References
 - [[Judges 9.14|Judges 9:14]]

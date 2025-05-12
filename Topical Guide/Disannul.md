@@ -1,6 +1,6 @@
 # Disannul
 
-[Disannul](https://www.churchofjesuschrist.org/study/scriptures/tg/Disannul?lang=eng)
+[Disannul](https://churchofjesuschrist.org/study/scriptures/tg/disannul?lang=eng)
 
 ### References
 - [[Galatians 3.15|Galatians 3:15]]

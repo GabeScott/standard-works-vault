@@ -1,6 +1,6 @@
 # Welfare
 
-[Welfare](https://www.churchofjesuschrist.org/study/scriptures/tg/Welfare?lang=eng)
+[Welfare](https://churchofjesuschrist.org/study/scriptures/tg/welfare?lang=eng)
 
 ### References
 - [[Genesis 41.36|Genesis 41:36]]

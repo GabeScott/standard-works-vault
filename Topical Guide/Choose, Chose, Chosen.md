@@ -1,6 +1,6 @@
 # Choose, Chose, Chosen
 
-[Choose, Chose, Chosen](https://www.churchofjesuschrist.org/study/scriptures/tg/Choose-Chose-Chosen?lang=eng)
+[Choose, Chose, Chosen](https://churchofjesuschrist.org/study/scriptures/tg/choose?lang=eng)
 
 ### References
 - [[Genesis 13.11|Genesis 13:11]]

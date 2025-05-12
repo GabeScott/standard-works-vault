@@ -1,6 +1,6 @@
 # Stubbornness, Stubborn
 
-[Stubbornness, Stubborn](https://www.churchofjesuschrist.org/study/scriptures/tg/Stubbornness-Stubborn?lang=eng)
+[Stubbornness, Stubborn](https://churchofjesuschrist.org/study/scriptures/tg/stubbornness?lang=eng)
 
 ### References
 - [[Deuteronomy 2.30|Deuteronomy 2:30]]

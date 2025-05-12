@@ -1,6 +1,6 @@
 # Wool
 
-[Wool](https://www.churchofjesuschrist.org/study/scriptures/tg/Wool?lang=eng)
+[Wool](https://churchofjesuschrist.org/study/scriptures/tg/wool?lang=eng)
 
 ### References
 - [[Psalms 147.16|Psalms 147:16]]

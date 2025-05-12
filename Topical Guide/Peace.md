@@ -1,6 +1,6 @@
 # Peace
 
-[Peace](https://www.churchofjesuschrist.org/study/scriptures/tg/Peace?lang=eng)
+[Peace](https://churchofjesuschrist.org/study/scriptures/tg/peace?lang=eng)
 
 ### References
 - [[Psalms 119.165|Psalms 119:165]]

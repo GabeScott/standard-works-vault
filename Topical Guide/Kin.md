@@ -1,6 +1,6 @@
 # Kin
 
-[Kin](https://www.churchofjesuschrist.org/study/scriptures/tg/Kin?lang=eng)
+[Kin](https://churchofjesuschrist.org/study/scriptures/tg/kin?lang=eng)
 
 ### References
 - [[Leviticus 18.6|Leviticus 18:6]]

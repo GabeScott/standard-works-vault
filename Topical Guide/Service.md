@@ -1,6 +1,6 @@
 # Service
 
-[Service](https://www.churchofjesuschrist.org/study/scriptures/tg/Service?lang=eng)
+[Service](https://churchofjesuschrist.org/study/scriptures/tg/military-service?lang=eng)
 
 ### References
 - [[Exodus 23.5|Exodus 23:5]]

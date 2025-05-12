@@ -1,6 +1,6 @@
 # Draw, Drew, Drawn
 
-[Draw, Drew, Drawn](https://www.churchofjesuschrist.org/study/scriptures/tg/Draw-Drew-Drawn?lang=eng)
+[Draw, Drew, Drawn](https://churchofjesuschrist.org/study/scriptures/tg/draw?lang=eng)
 
 ### References
 - [[Exodus 2.10|Exodus 2:10]]

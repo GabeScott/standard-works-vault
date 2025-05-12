@@ -1,6 +1,6 @@
 # Subdue
 
-[Subdue](https://www.churchofjesuschrist.org/study/scriptures/tg/Subdue?lang=eng)
+[Subdue](https://churchofjesuschrist.org/study/scriptures/tg/subdue?lang=eng)
 
 ### References
 - [[Genesis 1.28|Genesis 1:28]]

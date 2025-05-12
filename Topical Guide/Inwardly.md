@@ -1,6 +1,6 @@
 # Inwardly
 
-[Inwardly](https://www.churchofjesuschrist.org/study/scriptures/tg/Inwardly?lang=eng)
+[Inwardly](https://churchofjesuschrist.org/study/scriptures/tg/inwardly?lang=eng)
 
 ### References
 - [[Psalms 62.4|Psalms 62:4]]

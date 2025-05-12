@@ -1,6 +1,6 @@
 # Harrow
 
-[Harrow](https://www.churchofjesuschrist.org/study/scriptures/tg/Harrow?lang=eng)
+[Harrow](https://churchofjesuschrist.org/study/scriptures/tg/harrow?lang=eng)
 
 ### References
 - [[2 Nephi 9.47|2 Nephi 9:47]]

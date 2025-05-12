@@ -1,6 +1,6 @@
 # Language
 
-[Language](https://www.churchofjesuschrist.org/study/scriptures/tg/Language?lang=eng)
+[Language](https://churchofjesuschrist.org/study/scriptures/tg/adamic-language?lang=eng)
 
 ### References
 - [[Genesis 11.1|Genesis 11:1]]

@@ -1,6 +1,6 @@
 # Skill
 
-[Skill](https://www.churchofjesuschrist.org/study/scriptures/tg/Skill?lang=eng)
+[Skill](https://churchofjesuschrist.org/study/scriptures/tg/skill?lang=eng)
 
 ### References
 - [[Genesis 4.22|Genesis 4:22]]

@@ -1,6 +1,6 @@
 # Private
 
-[Private](https://www.churchofjesuschrist.org/study/scriptures/tg/Private?lang=eng)
+[Private](https://churchofjesuschrist.org/study/scriptures/tg/private?lang=eng)
 
 ### References
 - [[2 Peter 1.20|2 Peter 1:20]]
