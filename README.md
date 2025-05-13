@@ -7,6 +7,7 @@ Welcome to the **Standard Works Vault**, an [Obsidian](https://obsidian.md) vaul
 - Doctrine and Covenants
 - The Pearl of Great Price
 - General Conference Talks
+- Topical Guide notes
 
 Each verse has its own dedicated `.md` file, enabling powerful cross-referencing, personal commentary, and integration with Obsidian’s linking and search capabilities.
 
